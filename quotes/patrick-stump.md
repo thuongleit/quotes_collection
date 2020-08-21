@@ -1,0 +1,69 @@
+ - When you have a bad day, a really bad day, try to treat the world better than it treated you.
+ - Sometimes before it gets better, the darkness gets bigger. The person that you’d take a bullet for is behind the trigger.
+ - Speed is absolutely key to creativity. The more time it takes to create something, the less likely you are to create something.
+ - Quiet IS the new loud.
+ - Fear is killing us, but true love can survive. If we cooperate, we can beat doubt. But first, rebuild trust. Take responsibility. Happiness is still free, though not always apparent when it’s right in front of us. So keep calm, it’s gonna get better.
+ - No one’s busy thinking bad things about you. They’re all too busy thinking bad things about themselves.
+ - I love New Zealand. Every time I’m in New Zealand someone makes a joke about it being mostly sheep, which I think is unfair, because it’s mostly nice people. It’s mostly nice people and really wonderful scenery.
+ - You could be your own spotlight!
+ - I don’t mind critics. I mean, I wrote for Rolling Stone for a hot minute. I like criticism. I enjoy criticism. The thing I don’t like is cruelty for cruelty’s sake. You don’t have to be a jerk to say something negative. You can say something in the negative sense and have class.
+ - Self-deprecating or arrogant, it’s all selfish. Hard as it is, life’s better when you spend more time on the rest of the world.
+ - I’m very much a night person. Morning is a thing I only experience because I have to.
+ - I always think about opportunity and how you regret the things you don’t do.
+ - Lyrically, I personally lean towards venting.
+ - My bucket list is pretty much checked off. But oh, we should play in space! Let’s do that. We’ll play in space, up on a satellite somewhere.
+ - I definitely love kimchi. The biggest influence that eating so much Korean food growing up had on me was that I have no limit for spiciness. The hotter the better.
+ - We wanted to wait until the music felt right. We didn’t want to do it, just to do it. We didn’t want to do it for money, I guess, is the thing that would have just bummed me out so much.
+ - I write really scathing, angry stuff when I’m in a better mood, and then uplifting and happy stuff when I’m at the absolute bottom.
+ - Steven Tyler isn’t in Aerosmith anymore, but his gravestone will probably say something about Aerosmith.
+ - When you’re No. 1 or No. 300, you still get to play and write the songs.
+ - There’s no first impressions anymore. You go to a job interview, and they’ll probably Google you. It’s a shame – people should play it a little closer to the chest as far as what information they release to the world. If I’m angry about something, I’m not going to take to my Twitter.
+ - Whatever notoriety Fall Out Boy used to have prevents me from having the ability to start over from the bottom again.
+ - I’ve learned a lot about things because of the Internet. I’m happy with it, but it’s a long road for me. I’m still definitely a little anti.
+ - Every band always tells you to raise your middle finger...
+ - Everyone wants to pretend like they sprang out of the ground with an Animal Collective record in their hands and a David Bowie haircut, and that’s just not the case. You discover these things gradually.
+ - Drums were my first instrument, my first love. I need rhythm, something that moves.
+ - I don’t mind if someone thinks I’m a sell out. I go to bed happy knowing I do what I do and I’m not doing anything for reasons of money, and if I were trying to pick up chicks, I’m doing a horrible job. And if I wanted to drive awesome cars, I’m doing a really bad job there too.
+ - Gym Class is a band I am more directly involved with than any other band except for Fall Out Boy.
+ - Yoko Ono never deserved any of the hate she got. Paul McCartney and John Lennon weren’t getting along.
+ - When I eat something like vegetable bibimbap, I get that warm and fuzzy feeling of eating stuff that I grew up with.
+ - In Fall Out Boy, I noticed that I wasn’t putting all that much soul into it. It was just kind of screaming, I guess. I was just dying to get out of there!
+ - In Fall Out Boy, we were all playing with our pop punk influences, so that was always within that kind of framework.
+ - I didn’t want to give up my Illinois driver’s license and was unaware that was a crime. It is, by the way, in the state of California. Lesson learned. I technically broke a law, so technically I deserve whatever I get.
+ - When you make art, you get really invested in it. When art happens by accident and you were just along for the ride? It’s way more fun.
+ - I always thought ‘Stump’ was kind of like, you dropped something on your foot. It’s not the most exotic rock-star name.
+ - I very often think about doing things that I would want other artists to do. Like, if I’m a fan of whoever, I want to be treated a certain way. So I realized it came off almost elitist to ignore the whole world of Twitter and Facebook.
+ - The music business is one of a few places where everything you’ve heard about it seems entirely cliche, but it’s true.
+ - Good music is good music, regardless of where it comes from. I think that’s a really important thing to carry with you.
+ - The music that I made in my band wasn’t the expression of everything I was into. Bands are based on compromise.
+ - Between Prince and my dad’s fusion-jazz records, I didn’t have a choice in being funky.
+ - Theres no amount of money that makes you feel better when people think of you as a joke or a hack or a failure or ugly or stupid or morally empty.
+ - Kid problems are when you’re bummed because girls don’t like you or something silly, but then you get older and people start dying and going broke and whatever. People get sick. When you get older these things just happen.
+ - I don’t want to put out something I’m not psyched on just because I finished it. That’s the stupidest reason to do something, really. I want it to be up to my standards. I don’t want to put out something I wouldn’t listen to.
+ - I’m good with telling people what I think, too, but I don’t know why people are so content to treat each other poorly.
+ - I would love to hang out with Elvis Costello, to see what he’s up to because he seems so fascinating to me.
+ - I’m really attracted to music that sort of toes that line between pop and avant-garde, that pushes the envelope of what you can get in a pop song.
+ - There’s a certain fear of simplicity. I think that’s the thing, when you’re younger as an artist, you get this idea in your head that complexity equals quality. The more notes you’re playing, the better.
+ - I really like pop music, I don’t think it’s a four-letter word.
+ - American Suiteheart I must confess Im in love with my own sins.
+ - The song that’s affected me the most profoundly is probably Michael Jackson’s ‘Thriller,’ or, more specifically, the couple seconds of instrumental break before Vincent Price starts ‘rapping.’
+ - I think any good artist – and I’m not saying that I am one – takes notes and should first emulate their heroes and then try to move beyond them.
+ - Most producers get into it because they were just never handsome or charismatic or talented enough to be the star.
+ - One of the things that always was Fall Out Boy was trying new things and kind of pushing ourselves in different directions.
+ - Everything I’ve ever wanted to do, we’ve kinda done. Everything beyond this has been just the cherry on top. I’ve been so happy with the band, and we’re so lucky and blessed to be able to do it.
+ - I don’t want names, but you have to have bumped into some pretty nasty artists with pretty big chips on their shoulders. I’d like an anecdote about the most obnoxious personality you had the misfortune of working with, albeit as anonymously as you feel comfortable divulging.
+ - For some people, home is family and their mom’s house or their girl or whatever, and I have those experiences as well, but the biggest thing for me is Chicago. I don’t know how to explain it.
+ - I love playing our older songs along with newer ones but If all I have is my old stuff, I quit. Creating is more rewarding.
+ - I’d hate wearing suits every day.
+ - I was going to record a solo album when I was 15 on a four-track. I started working on it, but then Fall Out Boy happened. The band was awesome and took me in a totally different direction. I don’t regret it at all, but the band delayed the record I had been planning.
+ - I don’t like to Google myself. I try and avoid it whenever I can.
+ - I think writing is a much more personal thing.
+ - I don’t want to be George Lucas and go back after the fact.
+ - Be yourself! Love your mom, but if she’s trying to get you to be someone you’re not, she’s in the wrong.
+ - I don’t see the songs as uplifting, but rather as trying to make lemonade from lemons, or whatever. When I listen to them, I understand the context. I don’t like to pepper songs with my own experiences, though.
+ - Why do we make records? Because we want to say something. Why are you in art? Because you want to say something. The second you don’t have anything to say, you stop making art – you might start making product. And I’m interested in being an artist.
+ - I used to work in a record store. I’m kind of a record nerd.
+ - He’s writing what I’m singing, and I’m writing what he’s playing.
+ - Eh. Hipster’s not really a thing anymore. Plus, hipster or out of touch old dude? Same uniform really...
+
+67 quotes

@@ -1,0 +1,27 @@
+ - Art is long. Life is short. A picture can become for us a highway between a particular thing and a universal feeling.
+ - Every work of art which really moves us is in some degree a revelation: it changes us.
+ - In the inner place where true artists create there exists a pure child.
+ - Visible nature is but a distorted reflection of a more perfect world and the creative individual viewing her is inspired to perceive within and behind her many garments, that which is timeless and entirely beautiful.
+ - Art is not an amusement, nor a distraction, nor is it, as many men maintain, an escape from life. On the contrary, it is a high training of the soul, essential to the soul’s growth, to its unfoldment.
+ - So long as painting deals with objective nature, it is an impure art, for recognizability precludes the highest aesthetic emotion. All painting, ancient or modern, moves us aesthetically only in so far as it possesses a force over and beyond its aspect.
+ - The thought of today cannot be expressed in the language of yesterday.
+ - Art is the beginning of vision into the realm of eternal life.
+ - Mind alone remains stable, and watches the chaos of phenomena, and knows that there is a plastic unity of existence – a changeless harmony – behind the everchanging.
+ - For the arts epitomize, intensify and clarify the experience of beauty for us as nothing else can.
+ - The truth is that works of art test the spectator much more than the spectator tests them.
+ - Beauty is a living abiding presence completely untouchable by all the devices of man, such as moral codes, creeds, intellectual analysis, games and cliches, the acquisitive instinct, or lust for anything whatsoever.
+ - Sometimes, indeed often, we work on a theme with an unformed idea, and, when it has passed through the process, its final result is something we could never have predicted when we commenced.
+ - Abstract art is a creative interplay between the conscious and the unconscious, with the conscious mind making all the final decisions and in control throughout.
+ - The power of beauty at work in man, as the artist has always known, is severe and exacting, and once evoked, will never leave him alone, until he brings his work and life into some semblance of harmony with its spirit.
+ - We were told, quite seriously, that there never would be a Canadian art because we had no art tradition.
+ - Art must take to the road and risk all for the glory of adventure.
+ - New material demands new methods, and new methods fling a challenge to old convention.
+ - I felt the strange brooding lonely presence of Nature fostering a new race, a new age, and as part of it, a new expression in Art. It was an unfolding of the heart itself through the effect of environment, of people, of place, and time.
+ - I myself incline to drift, to accept a lesser situation rather than strive for a greater, and yet, I know that character in life and art is only made by an effort that is quite beyond one’s ordinary everyday acceptance of things as they are.
+ - It requires courage to face and to conquer the immense weight of inertia and the dead and dying traditions and sophistications that clutter the minds of men and mould them into the mimicry of living ways...
+ - I don’t suppose you do know precisely what you are after. I don’t think in the creative process anyone quite knows. They have a vague idea – a beckoning, an inkling of some truth – it is only in the process that it comes to any clarity.
+ - Experiences, much more than instruction, are a seeing with the inner eye – finding a channel to our essential inner life, a door to our deepest understanding wherein we have the capacity for universal response.
+ - Are we taking the drunken drivers off the road only to turn them into drunken pedestrians?
+ - Of course there must be the urge, the indefinable longing to get something through into terms of plastic presentation, but results are nearly always unpredictable.
+
+25 quotes

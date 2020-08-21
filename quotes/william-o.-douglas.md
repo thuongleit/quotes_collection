@@ -1,0 +1,89 @@
+ - Freedom of movement is the very essence of our free society – once the right to travel is curtailed, all other rights suffer.
+ - Sunlight is the best disinfectant.
+ - When a man knows how to live amid danger, he is not afraid to die. When he is not afraid to die, he is, strangely, free to live.
+ - Security can only be achieved through constant change, through discarding old ideas that have outlived their usefulness and adapting others to current facts.
+ - The liberties of none are safe unless the liberties of all are protected.
+ - A road is a dagger placed in the heart of a wilderness.
+ - Political controls in the sense that we think of bureaus or departments of government can never ope to produce collaboration between groups in the inner wheels of our industrial organization. It must come from inner compulsions and desires.
+ - Common sense often makes a good law.
+ - Ideas are indeed the most dangerous weapons in the world. Our ideas of freedom are the most powerful political weapons man has ever forged.
+ - At the constitutional level where we work, 90 percent of any decision is emotional. The rational part of us supplies the reasons for supporting our predilections.
+ - I hope to be remembered as someone who made the earth a little more beautiful.
+ - Man must be able to escape civilization if he is to survive. Some of his greatest needs are for refuges and retreats where he can recapture for a day or a week the primitive conditions of life.
+ - I’ve often thought that if planners were botanists, zoologists, geologists, and people who know about the earth, we would have much more wisdom in such planning than we have when we leave it to the engineers.
+ - We are rapidly entering the age of no privacy, where everyone is open to surveillance at all times; where there are no secrets from government.
+ - The Court’s great power is its ability to educate, to provide moral leadership.
+ - A people who extend civil liberties only to preferred groups start down the path either to dictatorship of the right or the left.
+ - I would rather create a precedent than find one.
+ - It is better, so the Fourth Amendment teaches us, that the guilty sometimes go free than the citizens be subject to easy arrest.
+ - Since when have we Americans been expected to bow submissively to authority and speak with awe and reverence to those who represent us?
+ - The dominant purpose of the First Amendment was to prohibit the widespread practice of government suppression of embarrassing information.
+ - Fear of ideas makes us impotent and ineffective.
+ - Marriage is a coming together for better or for worse, hopefully enduring, and intimate to the degree of being sacred.
+ - The most important aspect of freedom of speech is freedom to learn. All education is a continuous dialogue – questions and answers that pursue every problem on the horizon. That is the essence of academic freedom.
+ - Big Brother in the form of an increasingly powerful government and in an increasingly powerful private sector will pile the records high with reasons why privacy should give way to national security, to law and order, to efficiency of operation, to scientific advancement and the like.
+ - Our upside down welfare state is socialism for the rich, free enterprise for the poor.
+ - The right to be let alone is indeed the beginning of all freedoms.
+ - We need to be bold and adventurous in our thinking in order to survive.
+ - The function of the prosecutor under the federal Constitution is not to tack as many skins of victims as possible against the wall. His function is to vindicate the rights of the people as expressed in the laws and give those accused of crime a fair trial.
+ - The Free Exercise Clause protects the individual from any coercive measure that encourages him toward one faith or creed, discourages him from another, or makes it prudent or desirable for him to select one and embrace it.
+ - When man ventures into the wilderness, climbs the ridges, and sleeps in the forest, he comes in close communion with his Creator. When man pits himself against the mountain, he taps inner springs of his strength. He comes to know himself.
+ - It is our attitude toward free thought and free expression that will determine our fate. There must be no limit on the range of temperate discussion, no limits on thought. No subject must be taboo. No censor must preside at our assemblies.
+ - The court is really the keeper of the conscience, and the conscience is the Constitution.
+ - Trees have judicial standing, and probably grass too.
+ - Christianity has sufficient inner strength to survive and flourish on its own. It does not need state subsidies, nor state privileges, nor state prestige. The more it obtains state support, the greater it curtails human freedom.
+ - The rules when the giants play are the same as when the pygmies enter the market.
+ - The challenge to our liberties comes frequently not from those who consciously seek to destroy our system of government, but from men of goodwill – good men who allow their proper concerns to blind them to the fact that what they propose to accomplish involves an impairment of liberty.
+ - Those in power are blind devotees to private enterprise. They accept that degree of socialism implicit in the vast subsidies to the military-industrial-complex, but not that type of socialism which maintains public projects for the disemployed and the unemployed alike.
+ - The Constitution is not neutral. It was designed to take the government off the backs of people.
+ - The law is not a series of calculating machines where answers come tumbling out when the right levers are pushed.
+ - Acceptance by government of a dissident press is a measure of the maturity of a nation.
+ - The purpose of the University of Washington cannot be to produce black lawyers for blacks, Polish lawyers for Poles, Jewish lawyers for Jews, Irish lawyers for Irish. It should be to produce good lawyers for Americans and not to place First Amendment barriers against anyone.
+ - The great and invigorating influences in American life have been the unorthodox: the people who challenge an existing institution or way of life, or say and do things that make people think.
+ - When a legislature undertakes to proscribe the exercise of a citizen’s constitutional rights it acts lawlessly and the citizen can take matters into his own hands and proceed on the basis that such a law is no law at all.
+ - Absolute discretion is a ruthless master. It is more destructive of freedom than any of man’s other inventions.
+ - The way to combat noxious ideas is with other ideas. The way to combat falsehoods is with truth.
+ - The Second Amendment reveals a profound principle of American government – the principle of civilian ascendency over the military.
+ - Racial discrimination against a white is as unconstitutional as race discrimination against a black.
+ - Those in power need checks and restraints lest they come to identify the common good for their own tastes and desires, and their continuation in office as essential to the preservation of the nation.
+ - We deal with a right of privacy older than the Bill of Rights-older than our political parties, older than our school system.
+ - The First Amendment makes confidence in the common sense of our people and in the maturity of their judgement the great postulate of our democracy.
+ - The interests of the corporation state are to convert all the riches of the earth into dollars.
+ - Effective self-government cannot succeed unless the people are immersed in a steady, robust, unimpeded, and uncensored flow of opinion and reporting which are continuously subjected to critique, rebuttal, and reexamination.
+ - To be whole and harmonious, man must also know the music of the beaches and the woods. He must find the thing of which he is only an infinitesimal part and nurture it and love it, if he is to live.
+ - What a man thinks is no concern of the government.
+ - Literature should not be suppressed merely because it offends the moral code of the censor.
+ - The use of violence as an instrument of persuasion is therefore inviting and seems to the discontented to be the only effective protest.
+ - Tell the FBI that the kidnappers should pick out a judge that Nixon wants back.
+ - Hiking a ridge, a meadow, or a river bottom, is as healthy a form of exercise as one can get. Hiking seems to put all the body cells back into rhythm. Ten to twenty miles on a trail puts one to bed with his cares unraveled.
+ - We who have the final word can speak softly or angrily. We can seek to challenge and annoy, as we need not stay docile and quiet.
+ - I have the same confidence in the ability of our people to reject noxious literature as I have in their capacity to sort out the true from the false in theology, economics, or any other field.
+ - Power that controls the economy should be in the hands of elected representatives of the people instead of an industrial oligarchy.
+ - Free speech is not to be regulated like diseased cattle and impure butter. The audience that hissed yesterday may applaud today, even for the same performance.
+ - The right to work, I had assumed, was the most precious liberty that man possesses. Man has indeed as much right to work as he has to live, to be free, to own property.
+ - World federation is an ideal that will not die. More and more people are coming to realize that peace must be more than an interlude if we are to survive; that peace is a produce of law and order; that law is essential if the force of arms is not to rule the world.
+ - The framers of the constitution knew human nature as well as we do. They too had lived in dangerous days; they too knew the suffocating influence of orthodoxy and standardized thought. They weighed the compulsions for restrained speech and thought against the abuses of liberty. They chose liberty.
+ - We must realize that today’s establishment is the new George III. Whether it will continue to adhere to his tactics, we do not know. If it does, the redress, honored in tradition, is also revolution.
+ - If discrimination based on race is constitutionally permissible when those who hold the reins can come up with “compelling” reasons to justify it, then constitutional guarantees acquire an accordionlike quality.
+ - The Constitution favors no racial group, no political or social group.
+ - The free state offers what a police state denies – the privacy of the home, the dignity and peace of mind of the individual.
+ - No patent medicine was ever put to wider and more varied use than the Fourteenth Amendment.
+ - Religious experiences which are as real as life to some may be incomprehensible to others.
+ - It seemed to me that I had barely reached the Court when people were trying to get me off.
+ - Violence has no constitutional sanction; and every government from the beginning has moved against it. But where grievances pile high and most of the elected spokesmen represent the Establishment, violence may be the only effective response.
+ - The right to revolt has sources deep in our history.
+ - The censor is always quick to justify his function in terms that are protective of society. But the First Amendment, written in terms that are absolute, deprives the States of any power to pass on the value, the propriety, or the morality of a particular expression.
+ - The association promotes a way of life, not causes; a harmony in living, not political faiths; a bilateral loyalty, not commercial or social projects. Yet it is an association for as noble a purpose as any involved in any prior decisions.
+ - The one governmental agency that has no ambition.
+ - Hiking a ridge, a meadow, a river bottom, is as healthy a form of exercise as one can get.
+ - One who comes to the Court must come to adore, not to protest. That’s the new gloss on the 1st Amendment.
+ - A reporter is no better than his source of information.
+ - Motion pictures are of course a different medium of expression than the public speech, the radio, the stage, the novel, or the magazine. But the First Amendment draws no distinction between the various methods of communicating ideas.
+ - There have always been grievances and youth has always been the agitator.
+ - Thus if the First Amendment means anything in this field, it must allow protests even against the moral code that the standard of the day sets for the community. In other words, literature should not be suppressed merely because it offends the moral code of the censor.
+ - We do not sit as a superlegislature to weigh the wisdom of legislation.
+ - Why cannot we work at cooperative schemes and search for the common ground binding all mankind together?
+ - No matter what the legislature may say, a man has the right to make his speech, print his handbill, compose his newspaper, and deliver his sermon without asking anyone’s permission. The contrary suggestion is abhorrent to our traditions.
+ - My faith is that the only soul a man must save is his own.
+
+87 quotes

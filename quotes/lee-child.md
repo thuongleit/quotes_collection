@@ -1,0 +1,83 @@
+ - Hope for the best, plan for the worst.
+ - Don’t get it right – get it WRITTEN!
+ - Never forgive, never forget. Do it once and do it right. You reap what you sow. Plans go to hell as soon as the first shot is fired. Protect and serve. Never off duty.
+ - I’m a rich man. To have everything you need is the definition of affluence.
+ - Never forget a Favor, Never forgive a Slight!
+ - No, I’m a man with a rule. People leave me alone, I leave them alone. If they don’t, I don’t.
+ - I said nothing. I’m good at saying nothing. I don’t like talking. I could go the rest of my life without saying another word, if I had to.
+ - Writing is showbusiness for shy people. That’s how I see it.
+ - Don’t be sad that roses have thorns. Be glad that thorns have Roses. Today’s the day I worried about yesterday and it didn’t happen.
+ - Sometimes if you want to know for sure whether the stove is hot, the only way to find out is to touch it.
+ - I have a kind of old-fashioned, artisan approach.
+ - I have three desks. One empty for paperwork, one for the internet and email, and one for the writing computer.
+ - I’m not afraid of death. Death’s afraid of me.
+ - I don’t need validation, recognition or praise. What I need are facts and the facts are that one of my books gets sold, somewhere in the world, every second.
+ - A calm environment is for after I finish work.
+ - A person less fortunate than yourself deserves the best you can give. Because of duty, and honor, and service. You understand those words? You should do your job right, and you should do it well, simply because you can, without looking for notice or reward.
+ - You see something scary, you should stand up and step toward it, not away from it. Instinctively, reflexively, in a raging fury.
+ - I don’t care about the little guy. I just hate the big guy. I hate big smug people who think they can get away with things.
+ - Plan A is to hitch a ride out of here. But if they want a war, then plan B is to win it.
+ - Now they broke my toothbrush, I don’t own anything.
+ - He had fallen out of the ugly tree, and hit every branch.
+ - What do I miss about the UK? Sadly, almost nothing. Maybe the midnight sun, in June in the north. That’s all.
+ - I’d never believed in luck. Never had any cause to. Never relied on it, because I never could.
+ - People who wear glasses, without them they always look unfocused, vulnerable. Out in the open. A layer removed.
+ - For men, as they get bogged down with responsibilities, commitments, bureaucracy, it is a fantasy just to think of shedding everything literally, walking away with nothing at all, and just hitting the road.
+ - All of us write wish fulfillment.
+ - I was in the machine. My whole life. Then the machine coughed and spat me out. So I thought, OK, if I’m out, I’m out. All the way out. I was a little angry and it was probably an immature reaction. But I got used to it.
+ - A handgun at two hundred feet is the same thing as crossing your fingers and making a wish.
+ - I have to warn you. I promised my mother, a long time ago. She said I had to give folks a chance to walk away.
+ - I’m not a vagrant. I’m a hobo. Big difference.
+ - You do not mess with the special investigators.
+ - I’ve discovered writers by reading books left in airplane seats and weird hotels.
+ - I love visiting LA. It’s an endlessly fascinating city, and is, of course, America’s entertainment capital. Each time I go, I fall in love with it all over again. That said, it’s not the sort of place I’d want to live.
+ - Slippery slope. I carry a spare shirt, pretty soon I’m carrying spare pants. Then I’d need a suitcase. Next thing I know, I’ve got a house and a car and a savings plan and I’m filling out all kinds of forms.
+ - I do a little fact checking now and then. Other than that its impact is simply that email has revolutionized communication for me, and my website has built up a community of readers, which is a lot of fun.
+ - So long as readers keep reading and my publishers keep publishing, I plan to keep on writing. I’d have to be an idiot to be burnt-out in this job.
+ - I just felt from personal observation that there is nothing more dislocated or alienated than a lifelong military person trying to cope in civilian life. It’s like two completely separate planets.
+ - The key to thrillers is vicarious pleasure.
+ - British crime stories tend to be very internal, psychological, claustrophobic, very limited in terms of geography.
+ - Practically any Western has a homesteader in trouble, and a mysterious rider shows up off the range, solves the problem over two or three days, and then rides off into the sunset.
+ - I need a stimulating environment to write because my books are driven at 100 miles per hour at a time.
+ - I had a brief theater background and loved the backstage world there’s more backstage work in television, so I saw a job advertised and applied, and got it. That was back in 1977, when getting jobs was easy.
+ - Imagine the uproar if the Federal government tried to make everyone wear a radio transmitter around their neck so we can keep track of their movements. But people happily carry their cell phones in their purses and pockets.
+ - Printing currency for foreigners to buy is the best racket a government can get into.
+ - Some old guy once said that the meaning of life is that it ends.
+ - I don’t know what the secret is when I am writing it – it really is a surprise to me.
+ - My mother still calls me Jim and that is about it. Everyone else calls me Lee. My wife calls me whatever.
+ - It’s always tense when you move a character from a book to the screen. Always tense.
+ - The thriller is not a recent invention. It probably goes back to the dawn of storytelling.
+ - I’m not really into gourmet food; I’m the kind of guy who just stops by a place that looks good rather than heading for the restaurant of the moment.
+ - I’m opposed to censorship of any kind, especially by government. But it’s plain common sense that producers should target their product with some kind of sensitivity.
+ - It’s a kind of zen question: if you write a book and no one reads it, is it really a book?
+ - I always wanted to be in the world of entertainment. I just love the idea of an audience being happy with what I am doing. Writing is showbusiness for shy people. That’s how I see it.
+ - I grew up in Birmingham, where they made useful things and made them well.
+ - I was fired from my television job, simple as that. Well, downsized, really, a classic 1990s situation.
+ - They found out about him in July and stayed angry all through August. They tried to kill him in September. It was way too soon. They weren’t ready. The attempt was a failure. It could have been a disaster, but it was actually a miracle. Because nobody noticed.
+ - The British regulatory system was revised, so that bigger profits were encouraged, which removed the option of big spending on programming. Quality just fell off a cliff, and all the old hands either left or were fired for being too expensive.
+ - For me the end of a book is just as exciting as it is for a reader.
+ - Lone women shouldn’t stop in the middle of nowhere for giant unkempt strangers with duct tape on their faces.
+ - The third guy was different. He was what you got when you ate squirrels for four generations. Smarter than a rat and tougher than a goat, and jumpier than either one.
+ - I had been coming to America very frequently for many, many years, so I had plenty of exposure – and maybe the best kind of exposure, because I think first impressions are very important. Maybe I notice stuff that is just subliminal to people who live here all the time.
+ - I have the ‘thing’ worked out – the trick or the surprise or the pivotal fact. Then I just start somewhere and let the story work itself out.
+ - So, how to stay inside the world of entertainment without actually getting another job? I felt the only logical answer was to become a novelist. So I wrote the first book – driven by some very real feelings of desperation – and it worked.
+ - I like food, like any other guy, but it is not the main thing in my life. I can do without it.
+ - I love Italian food but that’s too generic a term for what’s available now: you have to narrow it down to Tuscan, Sicilian, and so on.
+ - That should be your town motto. It’s all I ever hear. Like: New Hampshire, Live Free or Die. It should be: Despair, You Need To Leave Now.
+ - I’m twenty-nine, yes really, I’m from Aspen, Colorado, I’m six feet one, yes really, I’ve been at Quantico two years, yes I date guys, no I dress like this just because I like it, no I’m not married, no I don’t currently have a boyfriend, and no I don’t want to have dinner with you tonight.
+ - I went to college. West Point is technically a college.
+ - I was in television drama, which is a first cousin to the movies, and I trust myself to make the right decisions.
+ - I know I’m smarter than an armadillo.
+ - It’s always sad if anybody you know has a personal problem.
+ - Everything you could want – action, suspense, character and setting, all floating on the easy lyricism of a fine writer at the top of his game.
+ - The most sustained feat of imagination in mystery fiction today.
+ - I’d been a thriller reader all my life.
+ - She’s a reflection of my fascination with the diversity of America she’s totally normal in New York, but a freak in Texas. There are dozens of such clashes in America.
+ - Full of thrills and tension – but smart and human too.
+ - The way to write a thriller is to ask a question at the beginning, and answer it at the end.
+ - I felt alienated by the experience and decided to stay away from corporate employment.
+ - Most actors are small, anyway – at least compared to me.
+ - I wanted readers to be genuinely unsure as to whether she’s telling the truth or lying. It meant making her partly sympathetic, and partly unsympathetic, which wasn’t easy.
+ - I think my books come out very visual, which is an obvious consequence.
+
+81 quotes

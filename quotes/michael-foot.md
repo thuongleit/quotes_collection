@@ -1,0 +1,28 @@
+ - All is fair in love and war and Parliamentary procedure.
+ - He’s passed from rising hope to elder statesman without any intervening period whatsoever.
+ - A Royal Commission is a broody hen sitting on a china egg.
+ - No rising hope on the political scene who offered his services to Labour when I happened to be its leader can be dismissed as an opportunist.
+ - People can say what they want in the Labour Party.
+ - Men of power have no time to read; yet the men who do not read are unfit for power.
+ - Disraeli was my favourite Tory. He was an adventurer pure and simple, or impure and complex. I’m glad to say Gladstone got the better of him.
+ - It does so happen to be the case that if the freedom of the people of this country-and especially the rights of trade unionists-if those precious things in the past had been left to the good sense and fairmindedness of judges, we would have precious few freedoms in this country.
+ - Socialism without public ownership is nothing but a fantastic apology.
+ - I have never been in favour of expelling people from the Labour Party.
+ - A speech from Ernest Bevin on a major occasion had all the horrific fascination of a public execution. If the mind was left immune, eyes and ears and emotions were riveted.
+ - People must learn more and more that the strength of this country is the democratic power of the trade union movement.
+ - The only man I knew who could make a curse sound like a caress.
+ - Politicians live in little worlds of their own and imagine they are the universe.
+ - The national strike of the miners in 1972 performed, I believe, a great service, not only to the miners, but the people in Britain today who wanted coal.
+ - In my opinion, Marxism is a great creed of human liberation. It is the creed which says that when all other empires fade and vanish, our business is to enlarge the empire of the human mind.
+ - You can have a wages policy imposed by mass unemployment.
+ - The members of our secret service have apparently spent so much time under the bed looking for communists that they haven’t had the time to look in the bed.
+ - Think of it! A second chamber selected by the Whips. A seraglio of eunuchs.
+ - Most liberties have been won by people who broke the law.
+ - Is the Labour Party to remain a democratic party in which the right of free criticism and free debate is not merely tolerated but encouraged? Or are the rank and file of the party to be bludgeoned or cowed into an uncritical subservience towards the leadership?
+ - How long will it be before the cry goes up: Let’s kill all the judges?
+ - A Britain which denounced the insanity of the nuclear strategy would be in a position to direct its influence at the United Nations and in the world at large, in a manner at present denied us.
+ - There is nothing wrong with being a Marxist. Their point of view is essential to a democratic debate.
+ - I certainly think that a Labour Government will have to have effective powers to control the outflow of capital.
+ - Of course my father was a great influence on me. He taught me how to read.
+
+26 quotes

@@ -1,0 +1,88 @@
+ - Pure, intense emotions. It’s not about design. It’s about feelings.
+ - My dream is to be a doctor. I’m almost working in a laboratory, because I’m trying new techniques, new directions and fabrics, new weaving.
+ - I love and respect women. I work mostly with women.
+ - I’d rather be relevant than cool.
+ - I love to travel inside my head, take journeys toward the unknown, meet new people, dream.
+ - Women can dream at 9 in the morning and at 10 o’clock at night – it doesn’t matter.
+ - Sometimes you don’t really need armor to feel protected. Sometimes maybe you need just a chiffon dress to hug you.
+ - I think ‘modesty’ is a beautiful word today – and a beautiful attitude.
+ - Style is the only thing you can’t buy. It’s not in a shopping bag, a label, or a price tag. It’s something reflected from our soul to the outside world. An emotion.
+ - I was a fat child; I was asthmatic. No wonder I’m a hypochondriac.
+ - If I wasnt a designer, I would love to be a doctor. That is my fantasy, my dream. A doctor will give you a tablet if you have a headache, and I will give you a dress, and we both make you feel good.
+ - Run away from laziness; work hard. Touch intuition and listen to the heart, not marketing directors. Dream.
+ - Everyone wants to be young and skinny. This is awful. Curves are marvelous. Wrinkles are hypnotizing. Why not just be happy with who you are?
+ - To be a fashion critic is easy because you just say, ‘I love it, I hate it,’ but life is more than love and hate.
+ - I love to see old women. I love wrinkles. I love gray hair.
+ - I am very sensitive to the smells and sensations that are part of perfumes because they remind me of things: moments from the past, people, events.
+ - A fragrance is a veritable story, told and explained in scent, in notes, in impressions. It’s a score based on the emotions of each instant, a captivating music of the senses.
+ - I think that if you want to pass emotion, you have to write a letter. Emotions do not pass in SMS or in e-mail.
+ - When I was either 7 or 8 years old, I did a sketch every day of my teacher and what she wore. At the end of the year, I gave her the sketchbook. For me, the sketching of dresses was about fantasy and dreams.
+ - I don’t think that you can write music if you don’t know how to play an instrument. You have to know the basics, then you can go forward.
+ - I don’t like perfection – I think it’s dangerous. There is nothing after perfection.
+ - I think fashion is about longevity and doing your work. It isn’t about winning or losing. It’s about process, keeping it going.
+ - Why not touch things that we hate and turn them upside down and inside out?
+ - I always say that women are very strong and men are powerful. But beauty gives you both strength and power. I never think of it. It’s just one of those natural things. It’s the only thing I know how to do.
+ - If it’s not edible, it’s not food. If it’s not wearable, it’s not fashion.
+ - I’ve always said fashion is like roast chicken: You don’t have to think about it to know it’s delicious.
+ - I don’t take drugs because if I did I’d love them–I’d be a junkie. And because I’m Jewish, I’d probably be a dealer, too.
+ - I know amazing people in fashion who are anything but fake. They are very real and very sensitive. They are happy and sad. They are loyal friends.
+ - For me, Lancome was more than just a brand. There was something very nostalgic about the name, about the whole story.
+ - All I want to do is make people beautiful.
+ - I need to feel a desire, to find pleasure in moving forward, creating, inventing. The day I cease to learn, I must stop.
+ - Fashion is not about buying a second skin. Fashion is about having a fantasy.
+ - I work on fittings, mostly. You know, I sketch less and less in my work. I sketch for the show sometimes, but then it becomes more conceptual. But when I don’t sketch, it becomes more pragmatic.
+ - I certainly can’t complain. I work six days a week, if not seven, and eighteen hours out of twenty-four – fortunately, with a great deal of pleasure. Why? Because I only do something if I want to do it; I need to feel a desire, to find pleasure in moving forward, creating, moving, inventing.
+ - Fashion is not always about what’s new, it’s also about what’s good. And I think if you need to see what’s good, you have to be there.
+ - The big room or big suite doesn’t mean a lot to me. It is what the people do or don’t do that matters.
+ - I always wear a dinner jacket. I never have this definition of what goes for the morning or the evening or what works for the weekend.
+ - Fashion doesn’t look good only on models; it can look good on different people of different ages and different body shapes.
+ - Wear flats. You’re short. It’s much cooler not to pretend.
+ - I like having the freedom to dress as I desire.
+ - With fashion, I barely finish one collection before I must start another.
+ - How do you stand out as a fashion ad campaign? By using people off the street; it does generate buzz.
+ - A singer can quit once he or she has made ten great songs; a director can finish once he or she has made five amazing films; a writer just needs to write three great books.
+ - I have a problem to do a collection that is a secondary line. I mean, you don’t want to be the stepsister. You want to be Cinderella. Show me one girl who wants to be the stepsister.
+ - When I’m traveling the world, I don’t ever look anymore at the geography – just enough to catch galleries and paintings.
+ - I want to know where is that committee in Switzerland that sits to decide what is in and what is out. I don’t listen to the formula makers. I think maybe I have a selective hearing disorder.
+ - I feel more and more that the most beautiful people are the ones who are comfortable with themselves.
+ - I am very much a people person.
+ - I like first class, but I don’t like first class people – I prefer the people in coach. I like fine restaurants, but prefer the taste of McDonalds. I like to be perfect, but I don’t like perfection – I think it’s dangerous. There is nothing after perfection. I know, I am a walking contradiction.
+ - I do sport at the gym a few times a week, but I hate it. Work is my only remedy. I feel so twisted and horrible in the morning, but then I go to the office and I start feeling better. Work is my Tylenol. Extra-strength.
+ - For me, the sketching of dresses was about fantasy and dreams. In my little room at home, I felt that I was somewhere else. In Paris, for instance.
+ - Fashion is like a fruit, you couldn’t eat it a day before and you can’t eat it a day after; it’s just about today.
+ - I think that we are in a very strange time, when everybody is thinking about what is going to happen, and everybody is kind of cleaning house a little bit. In the fashion world, we are doing something similar. We are taking the fake out and being a little bit more real and simple.
+ - In fashion we’re lucky, we make dreams come true.
+ - I’m not a plastic surgeon, and I cannot change the DNA of a person, but when I see a woman try on my clothes and she feels beautiful, I know I am doing my job.
+ - Fashion is like life. It needs fear and uncertainty if you are to move forward.
+ - I am not interested in perfection, and neither are the women who wear my clothes.
+ - I don’t go out to parties because I’d look terrible in pictures. My escape is television – it’s like meditation to me.
+ - I am very much a people person. If I am in a beautiful place but I don’t like the people, I am miserable.
+ - I’m not going into the cool club. It’s not my address.
+ - Fashion is not about before, it’s not about after, it’s about now.
+ - Many, many times I find that whatever is looking good on the screen doesn’t always look or feel good on the body. So who do we design for – do we design for the screen, or do we design for women?
+ - We are comfortable with formulas, but the best happens when the formula doesn’t work.
+ - I don’t want to see a dress with a woman. I just want to see a woman, with a beautiful dress.
+ - There is nothing scarier than being ‘the designer of the moment,’ because the moment ends.
+ - All I want is beautiful. I mean, I like grey hair, I love wrinkles. But this is me.
+ - What we want is clothing we think we can fly in. That’s why I opened the show with flying dresses.
+ - I adore women, and the one thing I want to do more than anything is to see a transformation of personality when someone puts on one of my dresses.
+ - I barely finish one pre-collection before I must start on another. Sales start, but I am already elsewhere creatively. The men’s show is being prepared, but we also need to think about accessories, perfumes and other items. In sum, I never stop.
+ - I love women. I get along with women more than men, and I have more women friends.
+ - All the young people in fashion worship the people who have been around a long time. I think it is about keeping something going through the generations. Take my work: Just because I’m not 20 anymore doesn’t mean that people don’t appreciate what I do.
+ - I am always trying to put myself inside: Every dress I do, I think, ‘If I were a woman, would I wear it?’
+ - I created the peplum so you can eat in it. You can have a dessert, you can have another sandwich.
+ - When a woman’s clothes are in harmony with her emotions, she shines from within.
+ - The nature of fashion is family. You see that at almost every house, it was owned first by a family. It wasn’t owned by a bank.
+ - I always think, if I were an editor, and I was invited to a show, and I would have to wait for 45 minutes in the dark or in the cold or in the heat, maybe I would like to have a fresh drink or a piece of chocolate.
+ - I spend my time backstage at the Lanvin shows, and when I come out at the end, all I see are people’s eyes.
+ - At Yves Saint Laurent, I felt like the son-in-law – like I was part of the family, but not quite. When I was fired, I felt like the widow.
+ - What I love in fashion is to tell a story through a creation.
+ - The whole season thing is nonsense. It’s either beautiful or it isn’t. That’s something I really learned when I started collecting dresses.
+ - Everybody’s talking about the new democratic world and whether high fashion is relevant. But without high there is no low. I don’t like to intellectualize. I’ve always said fashion is like roast chicken: You don’t have to think about it to know it’s delicious.
+ - If you change a woman’s look, you change her persona.
+ - Almost every collection I do has 200 different references. I don’t have two of the same coat, two of the same dress. I have it in one color, in one fabric. I’ve tried to adapt the culture of couture, and the know-how and the heritage, but I try to update it.
+ - The problem with couture is not designers; it’s what happens when the couturier will no longer be there.
+ - The designers, photographers and models I work with, they are really hard-working people who are devoting their lives to fashion. They’re kind of like nuns of fashion.
+ - I don’t think you can be a designer if you don’t care.
+
+86 quotes

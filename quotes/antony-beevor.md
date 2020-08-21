@@ -1,0 +1,22 @@
+ - The duty of a historian is simply to understand and then convey that understanding, no more than that.
+ - The great European dream was to diminish militant nationalism. We would all be happy Europeans together. But we are going to see the old monster of militant nationalism being awoken when people realise how little control their politicians have.
+ - The vital thing for me is to integrate the history from above with the history from below because only in that way can you show the true consequences of the decisions of Hitler or Stalin or whomever on the ordinary civilians caught up in the battle.
+ - The British bombing of Caen beginning on D-Day in particular was stupid, counter-productive and above all very close to a war crime.
+ - I can’t envisage stopping writing.
+ - I feel slightly uneasy at the way historians are consulted as if history is going to repeat itself. It never does.
+ - I joined the Army in 1965 and served with the 11th Hussars, which I loved. The regiment was so relaxed – a salute was more like a friendly wave.
+ - The great help of being in the Army is to understand why are the armies clever in what they describe as emotional intelligence, making soldiers come to terms with the death of comrades by certain rituals.
+ - When I was younger I used to get my best writing done at night, but now it has to be during the day. I usually finish work at half past seven, then go back to the house to open a bottle of wine, have dinner, and then read or watch television.
+ - The blurring of fact and fiction has great commercial potential, which is bound to be corrupting in historical terms.
+ - It takes me three or four years to research and write each book and the individual stories stay with you for a long time afterwards.
+ - I think it’s outrageous if a historian has a ‘leading thought’ because it means they will select their material according to their thesis.
+ - When my first novel was published, I went in great excitement round bookshops in central London to see if they had stocked it.
+ - I believe passionately in preemptive pessimism, especially before a book comes out. I expect the worst both from reviewers and sales, and then, with any luck, I may be proved wrong.
+ - I am not someone who believes I am going to find a historical scoop.
+ - If you smash a city when you’re trying to capture it, you actually end up providing the perfect terrain for the defenders while blocking the access for your own armoured vehicles.
+ - I just love the days when you come out of the archives with half a dozen excellent descriptions or poignant accounts of personal experiences.
+ - I just write the sort of book that I would enjoy reading myself, a book that is both scholarly and recreates the experience of people at that time.
+ - To begin impatiently is the worst mistake a writer can make.
+ - It was only after five years in the army, when I was having to do a very boring job in a very boring place, that I thought: ‘Why not try writing a novel?’ partly out of youthful arrogance and partly because there had been a long line of writers in my mother’s family.
+
+20 quotes

@@ -1,0 +1,31 @@
+ - You wreck me.
+ - I want to be someone’s everything. I want fire and passion, and love that’s returned, equally. I want to be someone’s heart.
+ - Every single day I’ll keep you with me, no matter how far from me you are.
+ - Sometimes family was the cruelest form of love there was, for no one could hurt you more than the people who created you.
+ - Love is easy, trust is hard.
+ - She’s my wife. She goes where I go.
+ - We’d learned to open up to each other, to trust each other, to face the world together. I firmly believed now that there was nothing we couldn’t tackle together. No hurdle, no obstacle, no setback was so large that it would break us apart, and there was comfort and confidence in that knowledge.
+ - No time spent with you is wasted.
+ - I need you. Let me do this. I can make you forget him. I can make you forget you.
+ - I was remembering all of the reasons why I love you so much. I was appreciating everything you do, and everything you are. I was falling in love with you, all over again.
+ - He said I was his heart, and you don’t leave your heart behind. You can’t live without your heart.
+ - I couldn’t tell you what I had just figured out. That I desperately loved you.
+ - God, you’re sucking all the fun out of our friendship.
+ - Because I love you more than any one person should be allowed to love someone.
+ - You saved my life, just returning the favor.
+ - It was nearly instant. I think I started falling for you, the moment you shook my hand.
+ - I love you too, Kiera. Just you. You’re my always.
+ - Nothing in the world was as beautiful to me as that tattoo, except the man bearing it.
+ - You should pick one, Kiera. Pick one, and release the other. You can’t keep them both. -Jenny.
+ - Ethics and I had crossed paths recently, and I’m not sure that I fell on the right side of the morality line.
+ - I didn’t actally sleep naked. Not unless he was there to put me to bed that way.
+ - Lord help the female population if Kellan and I have a boy one day.
+ - I’ll still be with you every night, Kiera. Every night, no matter where I am, crawling into bed with you. Our bed will be a lot bigger, miles wide, but it will just be you and me inside it.
+ - I didn’t think I’d ever be done kissing him.
+ - Between pants, I continued spewing how much I hated him. Around my lips, he kept telling me I didn’t.
+ - You want me to whatbook? And Tweet? Like a bird? Are you serious?
+ - He nodded and leaned down to kiss me. I let him, Dad be damned.
+ - Do you really think anyone in this world, compares to you in my eyes?
+ - You probably didn’t hear me, but I told you I loved you that night. I couldn’t seem to stop it from slipping out.
+
+29 quotes

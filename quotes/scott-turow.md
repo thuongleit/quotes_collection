@@ -1,0 +1,34 @@
+ - I am a law student in my first year at the law, and there are many moments when I am simply a mess.
+ - Who are we but the stories we tell ourselves, about ourselves, and believe?
+ - Courage is not the absence of fear but the ability to carry on with dignity in spite of it.
+ - What kills a person at twenty-five? Leukemia. An accident. But George knows the better odds are that someone who passes at that age dies of unhappiness. Drug overdose. Suicide. Reckless behavior.
+ - On the streets, unrequited love and death go together almost as often as in Shakespeare.
+ - Nobody ever gets what they want when it comes to love.
+ - Widespread public access to knowledge, like public education, is one of the pillars of our democracy, a guarantee that we can maintain a well-informed citizenry.
+ - Postmodernism cost literature its audience.
+ - The prosecutor, who is supposed to carry the burden of proof, really is an author.
+ - The first time I remember really being excited about a book was The Count of Monte Cristo.
+ - The purpose of narrative is to present us with complexity and ambiguity.
+ - All my novels are about the ambiguities that lie beneath the sharp edges of the law.
+ - At the end of the day, perhaps the best argument against capital punishment may be that it is an issue beyond the limited capacity of government to get things right.
+ - Libraries function as crucial technology hubs, not merely for free Web access, but for those who need computer training and assistance. Library business centers help support entrepreneurship and retraining.
+ - The great break of my literary career was going to law school.
+ - That led me to say that when push comes to shove, I’m against capital punishment.
+ - Poison Pill is a great reading. The novel ranges from Russian oligarchs to the American worlds of drug research and the equity markets, all of it in a mode of high suspense.
+ - If life’s lessons could be reduced to single sentences, ther would be no need for fiction.
+ - The Guild is the authoritative voice of American writers.
+ - For thousands and thousands of American kids, libraries are the only safe place they can find to study, a haven free from the dangers of street or the numbing temptations of television. As schools cut back services, the library looms even more important to countless children.
+ - After a week, it’s better. I miss her. I mourn her. But some peace has returned. She had been so unattainable – so young, so much a citizen of a different era – that it is hard to feel fully deprived.
+ - The one thing I would like more credit for is being part of a movement which involves recognising the importance of plot and asserting that books of literary worth could be written that had plots.
+ - People talk of me as being the inventor of the legal thriller.
+ - I count myself as one of millions of Americans whose life simply would not be the same without the libraries that supported my learning.
+ - Life is simply experience; for reasons not readily discerned, we attempt to go on.
+ - The truth of the matter is that the people who succeed in the arts most often are the people who get up again after getting knocked down. Persistence is critical.
+ - The overwhelmingly successful trial book of my early adolescence had been To Kill A Mocking Bird.
+ - I tend to write in the mornings.
+ - Basbanes makes you love books.
+ - As a defense lawyer, he refused to condemn his clients. Everyone else in the system-the cops, the prosecutors, the juries and judges-would take care of that; they didn’t need his help.
+ - I cannot think of a day in my life when the library didn’t exert a potent attraction for me, offering a sense of the specialness of each individual’s curiosity and his or her quest to satisfy it.
+ - I adore the company of other writers because they are so often lively minds and, frequently, blazingly funny. And of course, we get each other in a unique way.
+
+32 quotes

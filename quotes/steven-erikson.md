@@ -1,0 +1,60 @@
+ - The heart of wisdom is tolerance.
+ - The lesson of history is that no one learns.
+ - First in, Last out. Motto of the bridgeburners.
+ - What makes a Malazan soldier so dangerous? They’re allowed to think.
+ - There is no struggle too vast, no odds too overwhelming, for even should we fail – should we fall – we will know that we have lived.
+ - For we are all bound in stories, and as the years pile up they turn to stone, layer upon layer, building our lives.
+ - One day, perhaps, you will see for yourself that regrets are as nothing. The value lies in how they are answered.
+ - Paradise belonged to the innocent. Which was why it was and would ever remain empty. And that is what makes it a paradise.
+ - Destiny is a lie. Destiny is justification for atrocity. It is the means by which murderers armour themselves against reprimand. It is a word intended to stand in place of ethics, denying all moral context.
+ - Name none of the fallen, for they stand in our place, and stand there still in each moment of our lives. Let my death hold no glory, and let me die forgotten and unknown. Let it not be said that I was one among the dead to accuse the living.
+ - Betrayal was the greatest of all crimes, for it took all that was human within a person and made it a thing of pain. In the face of that, murder itself was surcease: it was quick, and it ended the anguish and despair of a life without hope.
+ - The harder the world, the fiercer the honour.
+ - The tiger is humbled by memories of prey.
+ - Show me a god that does not demand mortal suffering. Show me a god that celebrates diversity, a celebration that embraces even non-believers, and is not threatened by them. Show me a god that understands the meaning of peace. In life, not in death.
+ - Such is the vastness of his genius that he can outwit even himself.
+ - Wise words are like arrows flung at your forehead. What do you do? Why, you duck of course.
+ - I warn you all, hatred is finding fertile soil within me. And in your compassion, in your every good intention, you nurture it.
+ - Shadow is ever besieged, for that is its nature. Whilst darkness devours, and light steals. And so one sees shadow ever retreat to hidden places, only to return in the wake of the war between dark and light.
+ - Morality was not relative, they claimed, nor even existing solely in the realm of human condition. No, they proclaimed morality was an imperative of all life, a natural law that was neither the brutal acts of beasts nor the lofty ambitions of humanity, but something other, something unassailable.
+ - Fear bespeaks of wisdom. Recognition of responsibility.
+ - The future can ever promise but one thing and one thing only: surprises.
+ - When you’ve burned the bridges behind you, don’t go starting a fire on the one in front of you.
+ - All art is an intensely vulnerable gesture, and it is made with no small amounts of risk, and fear. So, I have plenty of sympathy for self-defense mechanisms, especially among artists.
+ - It is one thing to lead by example with half a dozen soldiers at your back. It is wholly another with ten thousand.
+ - You are very easily exasperated, my dear. If you’re a leaf trembling on a wide, deep river, relax and ride the current. It’s always worked for me, I assure you.
+ - Power is violence, its promise, its deed. Power cares nothing for reason, nothing for justice, nothing for compassion. It is, in fact, the singular abnegation of these things – once the cloak of deceits is stripped away, this one truth is revealed.
+ - Never, dear gods. Never mess with mortals.
+ - If all we seek is an escape, what does that say about the world we live in. We are desperate with our dreams. What – oh, what – does that say?
+ - I mean the only thing us dead soldiers got in common is that none of us was good enough or lucky enough to survive the fight. We’re a host of failures.
+ - Ah, Fist, it’s the curse of history that those who should read them, never do.
+ - The soul knows no greater anguish than to take a breath that begins with love and ends with grief.
+ - No purer artist exists or has ever existed than a child freed to imagine.
+ - Chaos needs no allies, for it dwells like a poison in every one of us.
+ - You must dismantle your sources, lest you do nothing but ape the prejudices of others.
+ - Detachment is a flaw, not a virtue-don’t you realize that?
+ - Any reasonable ruler would have the expectation and the demand the other way round.
+ - Children were meant to be gifts. The physical manifestation of love between a man and a woman. And for that love all manner of sacrifice could be borne.
+ - Believe it or not, friendships are difficult to write in fiction. They can easily come across as forced, particularly if they involve too much explication and too many overt gestures of affection.
+ - A celebration of insignificance, Is that all we are in the end? And one day I’ll just be one more of those faces, frozen in death and wonder.
+ - Kallor said: ‘I walked this land when the T’lan Imass were but children. I have commanded armies a hundred thousand strong. I have spread the fire of my wrath across entire continents, and sat alone upon tall thrones. Do you grasp the meaning of this?’ ‘Yes,’ said Caladan Brood, ’you never learn.
+ - What matter the colour of the collar around a man’s neck, if the chains linked to them were identical?
+ - Oh yes, I have learned much from Tremorlor, and so assume a like strategy. Silence, a faint mocking smile suggesting I know more than I do, an air of mystery, yes, and fell knowledge. None could guess my confusion, my host of deluded illusions and elusive delusions!
+ - All they get around here is stories. Stories don’t make you bleed. Stories don’t make you go hungry, don’t give you sore feet. When you’re young smelling of pigshit and convinced there ain’t a weapon in all the damn world that’s going to hurt you, all stories do is make you want to be part of them.
+ - Do mortal fools still measure the increments leading to their deaths, wagering pleasures against costs, persisting in the delusion that deeds have value, that the world and all the gods sit in judgment over every decision made or not made?
+ - I was needed, but I myself did not need. I had followers, but not allies, and only now do I understand the difference. And it is vast.
+ - A story invites both writer and reader into a kind of superficial ease: we want to slide along, pleasingly entertained, lost in the fictional dream.
+ - All that we were has led us to where we are, but tells us little of where we’re going. Memories are a weight you can never shrug off.
+ - The only death I fear is dying ignorant.
+ - The stars, they are as the sun. Each star. Every star. And those spheres- they are worlds, realms, each one different yet the same.
+ - I hear Seven Cities natives grow fruit just so they can eat the larvae in them.
+ - Your brain works with all the subtlety of a malicious child.
+ - Death cannot be struggled against, brother. It ever arrives, defiant of every hiding place, of every frantic attempt to escape. Death is every mortal’s shadow, his true shadow, and time is its servant, spinning that shadow slowly round, until what stretched before one now stretched before him.
+ - I have to feel what I’m writing, right down to the core.
+ - And in the city on all sides, the howling of the Hounds rose in an ear-shattering, soul-flailing crescendo. The Lord of Death had arrived, to walk the streets in the City of Blue Fire.
+ - The only consistent narrative we possess is one that we share with every other life-form: we are born, we live, and then we die.
+ - And over it all, the butterflies swarmed, like a million yellow-pettalled flowers dancing on swirling winds.
+ - Shake your fist all you want but dead is dead.
+ - The idea that an author can extricate her or his own ongoing life experience from the tale being written is a conceit of very little worth.
+
+58 quotes

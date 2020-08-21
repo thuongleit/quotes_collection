@@ -1,0 +1,26 @@
+ - Everything happens for a reason; I’m a big believer in that.
+ - Whatever my team needs – that’s what I do.
+ - I’m a competitor. I never doubt myself.
+ - Coach showed he believed in me. So I had to believe in myself.
+ - They talked about teamwork. That’s all it is. It’s about team effort. No particular player trying to outshine each other. Playing unselfishly and believe. Good things will come.
+ - I feel like nobody can stop me off the dribble. At crunch time, we’re looking for somebody to score and I definitely want to be the guy who has the ball in his hands.
+ - I never doubted myself. It just didn’t work.
+ - Always people have counted me out since I got in the league. It never made me any difference. I kept myself around positive people, got a great support system and just kept at it.
+ - I’m a point guard, so I want to see everybody else score and be happy. I don’t necessarily need to score at all. I could be happy with zero points as long as it was a team game and everybody contributed.
+ - Can’t pick and choose when you’re gonna be a leader. If you’re gonna be it – gotta do it every day.
+ - When you lose, nobody likes it and you start turning on each other.
+ - I haven’t played defense in a couple years.
+ - I don’t know, you go through what you go through. You handle adversity, and I think it made me hungrier.
+ - I was always about the team, regardless of our relationship wasn’t working out or didn’t work out.
+ - I always try to push myself, even more now because evidently I’m not doing something right. I’m trying to do the little things that count in practice to try and get my job back.
+ - I will never play for the Miami Heat.
+ - Every player, every coach doesn’t always see eye to eye.
+ - They got a lot of easy baskets and rebounds. That is what killed us.
+ - Every team doesn’t fit every person’s style of play.
+ - I could play through anything. But just thinking about I have kids, longevity, I probably would have made more of a conscious effort not to hit the floor, but at the end of the day in the playoffs, you can’t play that way. You just have to play and give it your all.
+ - I just try to keep rebounding the ball as much as I can. I just go out there and do what needs to be done and don’t worry about my stats.
+ - We have to be mentally prepared for every team we play. If we play a team who has a big name on their chests, then we are going to come out ready. But if we play a team who doesn’t have a big name or a star player, we have a hard time coming out ready.
+ - The fans treated me with a lot of respect, and I played as hard as possible every night. I wanted to win. I’m going to always be a competitor.
+ - We’re looking forward to the tournament. We still believe that if we play with effort, we can beat anyone. We just can’t have those 2-3-minute lapses.
+
+24 quotes

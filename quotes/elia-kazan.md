@@ -1,0 +1,81 @@
+ - The real challenge is not simply to survive. Hell, anyone can do that. It’s to survive as yourself, undiminished.
+ - People made suggestions, but, hell, I don’t actually listen to anybody, I just go my own way.
+ - I was always a self-conscious person.
+ - Look for the contradictions in every character, especially in your heroes and villains. No one should be what they first seem to be. Surprise the audience.
+ - Whatever hysteria exists is inflamed by mystery, suspicion and secrecy. Hard and exact facts will cool it.
+ - If you’re going to play a cowboy, show up with the horse at the audition.
+ - I know many of the critics and I don’t think of them as God-like figures. What can they do to hurt me? Sure, I might be slightly embarrassed for a day, but then you just go your own way.
+ - What’s called a difficult decision is a difficult decision because either way you go there are penalties.
+ - The essence of the stage is concentration and penetration. Of the screen action, movement, sweep.
+ - Miller didn’t write Death of a Salesman. He released it. It was there inside him, waiting to be turned loose. That’s the measure of its merit.
+ - Stylized acting and direction is to realistic acting and direction as poetry is to prose.
+ - The only guy who was at all helpful as a producer was Sam Spiegel with On the Waterfront. He’s one of the few who even knows what he’s doing.
+ - I won’t go back to the theater. I like some of the things they’re doing but it’s different now, not something I could do. I’ll go on making films the rest of my life.
+ - Wonder is our need today, not information.
+ - I joined the Communist Party late in 1934. I got out a year and a half later.
+ - You have to remind people of their own struggles. It’s a responsibility.
+ - You’ve got to keep fighting; you’ve got to risk your life every six months to stay alive.
+ - With kids you can take a chance but casting a guy at 45 is different. You don’t discover somebody that age. If an actor hasn’t made it by that time he probably has no talent.
+ - I’ve come to believe that everything worth achieving is beyond one’s capacity – or seems so at first. The thing is to persist, not back off, fight your fight, pay your dues, and carry on. Effort is all; continue and you may get there despite everything.
+ - The world was like a huge red carpet out ahead of me to be walked on. And it stretched on and on, no end.
+ - Every fighter has one fight that makes or breaks him.
+ - I value peace when it is not bought at the price of fundamental decencies.
+ - I gave my life to the Group Theatre, because in it I’m building something for myself. What I build, I am.
+ - Never underestimate the narcissism of a writer.
+ - It’s difficult, if not impossible, to get away with anything false before the camera. That instrument penetrates the husk of the actor; it reveals what’s truly happening – if anything, if nothing. A close-up demands absolute truth. It’s a severe and awesome truth.
+ - One final thing a director needs: The ability to say ‘I am wrong’ or ‘I was wrong.’ Not as easy as it sounds. But in many situations, these 3 words, honestly spoken, will save the day.
+ - I truly believe that all power corrupts. Such is probably the thinking behind every political film ever made in Hollywood.
+ - Every picture that is successful has one little miracle in it.
+ - I was not a collective person or a bohemian; I was an elitist.
+ - I was the hero of the young insurgent working class art movement.
+ - A film director has to get a shot, no matter what he does. We’re desperate people.
+ - I used to spend most of my time straining to be a nice guy so people would like me.
+ - The writer, when he is also an artist, is someone who admits what others don’t dare reveal.
+ - I didn’t have the problem of finding myself at 45 on the wrong course – I always wanted to be a film director.
+ - I like directors who come on the set and create something that’s a little dangerous, difficult or unusual.
+ - For years after I resigned, I was still faithful to their way of thinking. But not in the American Communists.
+ - TV has made us get down to the nub and new films will begin to live up to what the medium can be.
+ - Take it from a director: if you get an actor that Sandy Meisner has trained, you’ve been blessed.
+ - I’m going to make a film where not one word is really important. I’m going to make it all action.
+ - I think there should be collaboration, but under my thumb.
+ - The physical life of the scene is determined by whether the set squeezes people together or whether the set has an escape place in it.
+ - I question the value of stars. I think they’re overrated. They get too much money, too much praise.
+ - Criticism- a big bite out of someone’s back.
+ - The more ambivalent you are and the more uncertain you are, then you can get something that you cannot anticipate.
+ - I wouldn’t go up on a stage now if you paid a thousand dollars for one minute of acting. It’s a nasty experience. You’re up there all by yourself. You’re so damn exposed.
+ - You have no idea how fragile an actor’s self-worth is.
+ - I may be getting old, but not foolish.
+ - The camera is more than a recorder, it’s a microscope. It penetrates, it goes into people and you see their most private and concealed thoughts.
+ - I said to Tennessee, this thing is becoming the Marlon Brando show.
+ - I was not what you’d call a first-class actor, but I did all right.
+ - Very often the Group actor is a critic when he’s acting and an actor when he’s criticizing.
+ - There was no doubt that there was a vast organization which was making fools of all the liberals in Hollywood and taking their money, that there was a police state among the Left element in Hollywood and Broadway.
+ - I spoke without fear of contradiction. I simply did not suffer self-doubt.
+ - I’m small, but I’m neither compliant nor agreeable.
+ - Truth gets buried, that’s why people write autobiographies.
+ - I have no spy stories to tell, because I saw no spies. Nor did I understand, at that time, any opposition between American and Russian national interest.
+ - I will say nothing to an actor that cannot be translated into action.
+ - I left the theater; I literally left to begin a new life.
+ - I owe Bankhead a gift; she made a director out of me.
+ - I don’t remember anything anybody said in any Jack Ford picture. Nothing happens except action.
+ - The first thing you should do with an actor is not sign a contract with him. Take him to dinner. And take him for a walk afterwards.
+ - I would rather do what I did than crawl in front of a ritualistic Left and lie the way those other comrades did betray my own soul.
+ - The thing with films is that you have to make something that will get people out of their houses, away from the TV set. You must touch people, say something. Otherwise, they’ll stay at home.
+ - I was both very successful and very left; the living demonstration of how you could be on the left and still be in the gossip columns and be envied for the money you made.
+ - I knew the exuberance of playing before an admiring audience and hearing my secret voice.
+ - The motion pictures I have made and the plays I have chosen to direct represent my convictions.
+ - I hate the Communists and have for many years and don’t feel right about giving up my career to defend them. I will give up my film career if it is in the interests of defending something I believe in, but not this.
+ - To be a member of the Communist Party is to have a taste of the police state. It is a diluted taste but is bitter and unforgettable.
+ - I was able to capture on film things the actors didn’t even know they were doing.
+ - When you know what an actor has, you can reach in and arouse it. If you don’t know what he has, you don’t know what the hell is going on.
+ - I’m very pro-America, but I feel it necessary to keep in touch with Europe to maintain a perspective.
+ - Anybody who informs on other people is doing something disturbing and even disgusting.
+ - I want to thank the Academy for its courage and generosity.
+ - I was the true future. I understood Communism better than they did.
+ - The makers of entertainment must try, in our field, to be honest and grown-up.
+ - I was very intense. I think it’s a privilege to be an actor.
+ - A good director’s not sure when he gets on the set what he’s going to do.
+ - I was born in Turkey in an extremely oppressive climate at the time of pogroms, massacres, really. An immigrant appreciates the freedom more.
+ - The Communists automatically violated the daily practices of democracy to which I was accustomed.
+
+79 quotes

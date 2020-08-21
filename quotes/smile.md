@@ -1,0 +1,42 @@
+ - A smile is a curve that sets everything straight. ~~Phyllis Diller
+ - As long as you live keep smiling because it brightens everybody’s day. ~~Vin Scully
+ - Nothing is more beautiful than a smile that has struggled through tears. ~~Demi Lovato
+ - Smile in the mirror. Do that every morning and you’ll start to see a big difference in your life. ~~Yoko Ono
+ - Because of your smile, you make life more beautiful. ~~Nhat Hanh
+ - You’ll find that life is still worthwhile, if you just smile. ~~Charlie Chaplin
+ - Smile. It’s the second best thing you can do with your lips. ~~Jill Shalvis
+ - Go slowly, breathe and smile. ~~Nhat Hanh
+ - Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. ~~Mother Teresa
+ - Your smile will give you a positive countenance that will make people feel comfortable around you. ~~Les Brown
+ - A smile can change the situation of the world. ~~Nhat Hanh
+ - A smile is the universal welcome. ~~Max Eastman
+ - Don’t cry for a man who’s left you – the next one may fall for your smile. ~~Mae West
+ - Go forward in life with a twinkle in your eye and a smile on your face, but with great purpose in heart. ~~Gordon B. Hinckley
+ - I have Many Problems in My Life. But my leaps don’t know that. They always smile. ~~Charlie Chaplin
+ - If you have only one smile in you give it to the people you love. ~~Maya Angelou
+ - Laughter and tears are both responses to frustration and exhaustion. I myself prefer to laugh, since there is less cleaning up to do afterward. ~~Kurt Vonnegut
+ - When you smile and project an aura of warmth, kindness, and friendliness, you will attract warms, kindness, and friendliness. Happy people will be drawn to you. ~~Joel Osteen
+ - Advertising is the art of convincing people to spend money they don’t have for something they don’t need. ~~Will Rogers
+ - Beauty is truth’s smile when she beholds her own face in a perfect mirror. ~~Rabindranath Tagore
+ - SMILE! In every language, in every culture – it is the light in your window that tells people there’s a caring, sharing individual inside and it’s the universal code for “I’m O. K. – You’re O. K., too!” ~~Denis Waitley
+ - Today, give a stranger one of your smiles. It might be the only sunshine he sees all day. ~~H. Jackson Brown Jr.
+ - If you smile when no one else is around, you really mean it. ~~Andy Rooney
+ - A smile is the light in your window that tells others that there is a caring, sharing person inside. ~~Denis Waitley
+ - Let us always meet each other with smile, for the smile is the beginning of love. ~~Mother Teresa
+ - You can’t deny laughter; when it comes, it plops down in your favorite chair and stays as long as it wants. ~~Stephen King
+ - A warm smile is the universal language of kindness. ~~William Arthur Ward
+ - You can kiss your family and friends good-bye and put miles between you, but at the same time you carry them with you in your heart, your mind, your stomach, because you do not just live in a world but a world lives in you. ~~Frederick Buechner
+ - Children learn to smile from their parents. ~~Shinichi Suzuki
+ - You can only hold a smile for so long, after that it’s just teeth. ~~Chuck Palahniuk
+ - A smile is the chosen vehicle of all ambiguities. ~~Herman Melville
+ - Let us make one point, that we meet each other with a smile, when it is difficult to smile. Smile at each other, make time for each other in your family. ~~Mother Teresa
+ - Fortuna smiles and frowns according to a timetable surprising even to herself. ~~Mason Cooley
+ - Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. ~~Paramahansa Yogananda
+ - Courage, not compromise, brings the smile of God’s approval. ~~Thomas S. Monson
+ - Well, that’s an evil smile... ~~James Patterson
+ - Laughter gives us distance. It allows us to step back from an event, deal with it and then move on. ~~Bob Newhart
+ - Ever has it been that love knows not its own depth until the hour of separation. ~~Khalil Gibran
+ - Be thou the rainbow in the storms of life. The evening beam that smiles the clouds away, and tints tomorrow with prophetic ray. ~~Lord Byron
+ - The happiness of life is made up of minute fractions – the little, soon forgotten charities of a kiss or a smile, a kind look or heartfelt compliment. ~~Samuel Taylor Coleridge
+
+40 quotes

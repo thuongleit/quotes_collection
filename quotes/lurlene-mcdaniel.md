@@ -1,0 +1,29 @@
+ - From every ending comes a new beginning.
+ - Pain and suffering are the soil of strength and courage.
+ - If I can’t wait for you at the end of an aisle on your wedding day, I’ll wait for you in heaven.
+ - If it’s possible to send a message from heaven, I’ll get one to you.
+ - But they can’t know how the dark space inside me is growing. I lie to them. I can’t get out of the dark hole. ‘Peace is here’ it whispers.
+ - When you’re up against a superior enemy, sometimes it’s okay to just bow out gracefully.
+ - I’ll cover you in flowers someday, Julie-girl.
+ - Who wants to be used? I love to read, so books are my main friends. They’re always available, always friendly, and always interesting, and they never make me choose sides.
+ - Everybody dies; that’s a fact. Sometimes it blindsides people. Sometimes people get a glimpse of the big picture and decide to cheat.
+ - So this is always the key: you have to write the book you love, the book that’s alive in your heart. That’s the one you have to write.
+ - Love is patient and trusting; it doesn’t hold a grudge when somebody hurts you, and most of all, it endures.
+ - Nobody gets to pick what life gives them.
+ - Nobody gets to pick their time to die, but living every day to the max is something we all get to do.
+ - None of us truly knows what we’ll do when the circumstances become so overwhelming and complex that we can’t even tell right from wrong.
+ - The stems stood tall and straight, one series arranged in a single line, the other in a crudely shaped heart, the final one in the shape of the letter U. I love you.
+ - Forgiving’s a choice you make – a gift you give to somebody even if they don’t deserve it. It costs nothing, but it makes you feel rich for giving it away.
+ - For as long as the world spins and the earth is green with new wood, she will lie in this box and not in my arms.
+ - People can’t help the way they look, just the way they act.
+ - On TV, stories and events are finalized in 30 or 60 minutes, or neatly tied up after a season or two. The best stories are the ones that force us to come to our own conclusions and to explain why we believe in our conclusions.
+ - She did know that the journey to happiness was laborious and strewn with seeds of suffering. She guessed that it was probably a place each person had to seek for herself, that each heart had to find on its own.
+ - So long as one person remembers you, you’ll never really be dead.
+ - In truth, how much time do any of us really have?
+ - In truth, I don’t want to be there. I don’t want to see the light go out of my brother’s eyes.
+ - By using novels, I show ordinary kids confronting and overcoming great odds.
+ - Old characters never die, but I do need to take a break from them in order to create new ones.
+ - I think that hurting gives us a way to measure being happy. How can you know one without knowing the other.
+ - We all didn’t come into to the world at the same time so it makes sense that we don’t leave it at the same time.
+
+27 quotes

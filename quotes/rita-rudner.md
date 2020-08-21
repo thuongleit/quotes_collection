@@ -1,0 +1,168 @@
+ - I love being married. It’s so great to find that one special person you want to annoy for the rest of your life.
+ - I don’t look back. I’m like a shark – I only look forward.
+ - Men don’t live well by themselves. They don’t even live like people. They live like bears with furniture.
+ - When I eventually met Mr. Right I had no idea that his first name was Always.
+ - My husband and I are either going to buy a dog or have a child. We can’t decide whether to ruin our carpet or ruin our lives.
+ - When I was a kid, I had two friends, and they were imaginary and they would only play with each other.
+ - I love to sleep. Do you? Isn’t it great? It really is the best of both worlds. You get to be alive and unconscious.
+ - Eye contact is a method utilised by a single woman to communicate to a man that she is interested in him. Many women find it difficult to look a man directly in the eyes, not because of shyness, but because a woman’s eyes are not located in her chest.
+ - I’m a very simple person. I’m very shallow. Shallow, simple, easily pleased: that’s me.
+ - When I want to end a relationship I just say, ‘You know, I love you. I want to marry you. I want to have your children.’ Sometimes they leave skid marks.
+ - Blondes have more fun, don’t they? They must. How many brunettes do you see walking down the street with blond roots?
+ - Good weather all the week, but come the weekend the weather stinks. When the weather is too hot they complain, too cold they complain, and when it’s just right, they’re watching TV.
+ - We’ve begun to long for the pitter-patter of little feet – so we bought a dog. Well, it’s cheaper, and you get more feet.
+ - Not one man in a beer commercial has a beerbelly.
+ - I was going to have cosmetic surgery until I noticed that the doctor’s office was full of portraits by Picasso.
+ - I hate learning through experience. Just once I’d like to learn something because someone was nice enough to tell me in advance.
+ - Life is tough enough without having someone kick you from the inside.
+ - Why are women wearing perfumes that smell like flowers to attract men? Men don’t like flowers. I have a great idea for a scent that will attract men – how about “New Car Interior”?
+ - If your husband has difficulty getting to sleep, the words ‘we need to talk about our relationship’ may help.
+ - Men like to barbecue. Men will cook if danger is involved.
+ - Never take candy from strangers.
+ - My mother was the worst cook ever. In school, when we traded lunches, I had to throw in an article of clothing.
+ - I never know what to get my father for his birthday. I gave him a hundred dollars and said, ‘Buy yourself something that will make your life easier.’ So he went out and bought a present for my mother.
+ - My grandmother was a very tough woman. She buried three husbands and two of them were just napping.
+ - Men who tell you they read the Ann Summers catalogue for the articles are lying.
+ - You know the oxygen masks on airplanes? I don’t think there’s really any oxygen. I think they’re just to muffle the screams.
+ - All men look at Dr. Ruth and wonder how she has gained all that sexual experience.
+ - I have too many credit cards. You know what happened? Someone stole one and I didn’t notice. I noticed when I got that bill. Whoa! It was so much less! I’m letting him keep it. I’m saving money!
+ - Husband: a man who buys his football tickets four months in advance and waits until the day before his anniversary to buy his wife a gift.
+ - Men would like monogamy better if it sounded less like monotony.
+ - Men do cry, but only when assembling furniture.
+ - I was a vegetarian until I started leaning toward the sunlight.
+ - Men who drink herbal teas are seldom serial killers.
+ - An amicable divorce is like a ventilated condom; it just doesn’t work.
+ - Men are brave enough to go to war, but they are not brave enough to get a bikini wax.
+ - I’ll never understand why people go to movie theaters to have conversations. Going to the movies to talk is like going to a restaurant to cook. The idea is that you have paid your money to have someone do something better than you can do it yourself.
+ - My husband gave me a necklace. It’s fake. I requested fake. Maybe I’m paranoid, but in this day and age, I don’t want something around my neck that’s worth more than my head.
+ - Oh, my God. I’ve just told you how old I am. Nobody knows how old I am. I’m going to have to kill you now.
+ - Some people think having large breasts makes a woman stupid. Actually, it’s quite the opposite: a woman having large breasts makes men stupid.
+ - Halloween was confusing. All my life my parents said, “Never take candy from strangers.” And then they dressed me up and said, “Go beg for it.” I didn’t know what to do! I’d knock on people’s doors and go, “Trick or treat.” “No thank you.”
+ - Men reach their sexual peak at eighteen. Women reach theirs at thirty-five. Do you get the feeling that God is playing a practical joke?
+ - Someday I want to be rich. Some people get so rich they lose all respect for humanity. That’s how rich I want to be.
+ - Men who consistently leave the toilet seat up secretly want women to get up to go the bathroom in the middle of the night and fall in.
+ - I can see close up and my husband can see far away, so we’re covered. He tells me who’s in the movie and I tell him what’s in his sandwich. Together we’re human bifocals.
+ - I got kicked out of ballet class because I pulled a groin muscle. It wasn’t mine.
+ - Men accept compliments much better than women do. Example: “Mitch, you look great.” Mitch: “Thanks.” On the other side: “Ruth, you look great.” Ruth: “I do? Must be the lighting.”
+ - Men forget everything; women remember everything. That’s why men need instant replay in sports. They’ve already forgotten what’s happened.
+ - The way a man looks at himself in a mirror will tell you if he can ever care about anyone else.
+ - Impulse buying is not macho. Men rarely call the Home Shopping Network.
+ - If you like easygoing, monogamous men, stay away from billionaires.
+ - They usually have two tellers in my local bank, except when it’s very busy, when they have one.
+ - Men have higher body temperatures than women. If your heating goes out in winter, I recommend sleeping next to a man. Men are like portable heaters that snore.
+ - Be careful of men who are bald and rich; the arrogance of “rich” usually cancels out the nice of “bald”.
+ - I want to have young children although my mother and father are even now young sufficient to just take care of them.
+ - When you’re a dancer, you start with the basics. You don’t all of a sudden do a grand jete and pirouette. You start with first position, second, third.
+ - I work for myself, which is fun. Except when I call in sick, I know I’m lying.
+ - Her idea of a romantic setting is one that has a diamond in it. If you feel the need to marry a doctor, I suggest a dermatologist. Good hours, free Retin-A.
+ - There are different kinds of humor, some is sarcastic, some introspective. Introspective fit my personality better.
+ - Before I met my husband, I’d never fallen in love. I’d stepped in it a few times.
+ - All men look nerdy in black socks and sandals.
+ - Marriages don’t last. When I meet a guy, the first question I ask myself is: is this the man I want my children to spend their weekends with?
+ - I wonder if other dogs think poodles are members of a weird religious cult.
+ - Never play peek-a-boo with a child on a long plane trip. There’s no end to the game. Finally I grabbed him by the bib and said, “Look, it’s always gonna be me!”
+ - I rationalize shop. I buy a dress because I need change for gum.
+ - I don’t plan to grow old gracefully. I plan to have face-lifts until my ears meet.
+ - Most of the men sitting in first class on an airplane have really boring jobs.
+ - How can I have morning sickness when I don’t get up till noon?
+ - To attract men, I wear a perfume called ‘New Car Interior.’
+ - It takes six months to get into shape and two weeks to get out of shape. Once you know this you can stop being angry about other things in life and only be angry about this.
+ - At the end of every year, I add up the time that I have spent on the phone on hold and subtract it from my age. I don’t count that time as really living. I spend more and more time on hold each year. By the time I die, I’m going to be quite young.
+ - When a woman tries on clothing from her closet that feels tight, she will assume she has gained weight. When a man tries something from his closet that feels tight, he will assume the clothing has shrunk.
+ - Neurotics build castles in the air, psychotics live in them. My mother cleans them.
+ - Men are very confident people. Even a sixty-year-old man with no arms thinks he could play in the Super Bowl if he had to.
+ - Thirty, I really like you but I still have to see other people.
+ - I was a ballerina. I had to quit after I injured a groin muscle. It wasn’t mine...
+ - A saleslady holds up an ugly dress and says, ‘This looks much better on.’ On what? On fire?
+ - Waiters and waitresses are becoming nicer and much more caring. I used to pay my check, they would say “Thank you.” That’s now escalated into “You care care of yourself, now.” The other day I paid my check and the waiter said, “Don’t put off that mammogram.”
+ - A man will go to war, fight and die for his country. But he won’t get a bikini wax.
+ - Men have an easier time buying bathing suits. Women have two types: depressing and more depressing. Men have two types: nerdy and not nerdy.
+ - If you buy your husband or boyfriend a video camera, for the first few weeks he has it, lock the door when you go to the bathroom. Most of my husband’s early films end with a scream and a flush.
+ - I’m not sure if my husband is going to be there when I actually have the baby. He said the only way he’s going to be in the room when there’s a delivery is if there’s a pizza involved.
+ - All men are afraid of eyelash curlers. They don’t understand them, and they don’t want to get near them. I sleep with one under my pillow, instead of a gun.
+ - Most men are secretly still mad at their mothers for throwing away their comic books. They would be valuable now.
+ - I admire the Pope. I have a lot of respect for anyone who can tour without an album.
+ - If a man prepares dinner for you and the salad contains three or more types of lettuce, he is serious.
+ - If it’s attention you want, don’t get involved with a man during play-off season.
+ - In Hollywood a marriage is a success if it outlasts milk.
+ - Cats are a waste of fur.
+ - I worry about Las Vegas schools. I hear in math, they only teach them to count to 21.
+ - Men don’t get cellulite. God might just be a man.
+ - Human nature is largely something that has to be overcome.
+ - Men in high levels of government seldom surf.
+ - My new dress. Do you like it? It’s from my favorite designer, On Sale.
+ - If I say a joke and the audience laughs it makes me feel good.
+ - Men don’t mature. Marry a younger one.
+ - Men like phones with lots of buttons. It makes them feel important.
+ - One of my first office jobs was cleaning the windows on brown envelopes.
+ - I jogged for three miles once. It was the worst three hours of my life.
+ - My Vegas act is how I make my money.
+ - Yes, I’ve now got this nice little apartment in New York, one of those L-shaped ones. Unfortunately, it’s a lower case l.
+ - Natural childbirth scares me. I think before you have natural childbirth you should find out how big the baby is. Three pounds – natural childbirth. Anything over three pounds – heroin.
+ - No man is charming all of the time. Even Cary Grant is on record saying he wished he could be Cary Grant.
+ - Most women are introspective: “Am I in love? Am I emotionally and creatively fulfilled?” Most men are outrospective: “Did my team win? How’s my car?”
+ - Men will now get up and walk with the baby in the middle of the night, change its diapers, and give it a bottle, but in their heart of hearts they still think they shouldn’t have to.
+ - All men think that they’re nice guys. Some of them are not. Contact me for a list of names.
+ - I get so happy when I write a joke. It’s a very satisfying, liberating feeling.
+ - There is a woman who swam around Manhattan, and I asked her, why? She said, it hadn’t ever been done before. Well, she didn’t have to do that. If she wanted to something no one had ever done before, all she had to do was vacuum my apartment.
+ - I knew so little about money I used to sign my check, “Love, Rita.”
+ - I started taking ballet lessons when I was 4, and I was performing in ballet companies when I was 10, and I did summer stock in Miami Beach when I was 12, and finally I said, ‘I gotta go to Broadway.’
+ - The time you spend grieving over a man should never exceed the amount of time you actually spent with him.
+ - Men are self-confident because they grow up identifying with super-heroes. Women have bad self-images because they grow up identifying with Barbie.
+ - Men who listen to classical music tend not to spit.
+ - When four or more men get together, they talk about sports.
+ - Men don’t feel the urge to get married as quickly as women do because their clothes all button and zip in the front. Women’s dresses usually button and zip in the back. We need men emotionally and sexually, but we also need men to help us get dressed.
+ - When men break up they want to remain friends. Why? Why can’t they just get lost?
+ - The older theory was, marry an older man because they’re more mature. But the new theory is men don’t mature. Marry a younger one.
+ - Only men who have worn a ski suit understand how complicated it is for a woman to go to the bathroom when she’s wearing a jumpsuit.
+ - I love to shop after a bad relationship. I don’t know. I buy a new outfit and it makes me feel better. It just does. Sometimes I see a really great outfit, I’ll break up with someone on purpose.
+ - Buying something on sale is a very special feeling. In fact, the less I pay for something, the more it is worth to me. I have a dress that I paid so little for that I am afraid to wear it. I could spill something on it, and then how would I replace it for that amount of money?
+ - It wasn’t that no one asked me to the prom, it was that no one would tell me where it was.
+ - My parents always told me I could do anything, but never told me how long it would take.
+ - My mother is such a lousy cook that Thanksgiving at her house is a time of sorrow.
+ - My father watched football with the sound off because he lived in fear of hearing the voice of Howard Cosell.
+ - I love to write jokes and that’s all I think about.
+ - Men who write love letters don’t live in this century.
+ - Don’t try to teach men how to do anything in public. They can learn in private; in public they have to know.
+ - Men who are going bald often wear baseball caps.
+ - All men would still really like to own a train set.
+ - I want to have children, but my friends scare me. One of my friends told me she was in labor for 36 hours. I don’t even want to do anything that feels good for 36 hours.
+ - Envy the kangaroo. That pouch setup is extraordinary; the baby crawls out of the womb when it is about two inches long, gets into the pouch, and proceeds to mature. I’d have a baby if it would develop in my handbag.
+ - Going out to eat is expensive. I was out at one restaurant and they didn’t have prices on the menu. Just faces with different expressions of horror.
+ - My boyfriend and I broke up. He wanted to get married and I didn’t want him to.
+ - Women are more accommodating. If a woman drinks the last glass of apple juice in the refrigerator, she’ll make more apple juice. If a man drinks the last glass of apple juice, he’ll just put back the empty container.
+ - I have a hold limit that I’ve set for myself. I hold until I start to imagine myself killing the person on the other end. Then I hang up and regroup.
+ - Nobody is really happy with what’s on their head. People with straight hair want curly, people with curly want straight, and bald people want everyone to be blind.
+ - Men love to be the first to read the newspaper in the morning. Not being the first is upsetting to their psyches.
+ - I burned sixty calories. That should take care of a peanut I had in 1962.
+ - You know it’s love when you want to keep holding hands even after you’re sweaty.
+ - I just love dogs, and there really is no better companion than an animal.
+ - Wives are people who think it’s against the law not to answer the phone when it rings.
+ - Commitment is different in males and females. In females it is a desire to get married and raise a family. In males it means not picking up other women while out with one’s girlfriend.
+ - After you’ve dated someone it should be legal to stamp them with what’s wrong with them so the next person doesn’t have to start from scratch.
+ - Los Angeles is a very transient town. It’s the only place I know where you can actually rent a dog.
+ - I just don’t get cats. To me, they’re a waste of fur.
+ - Individuality in dressing is not important to men. If they all look alike it means they haven’t made a mistake.
+ - The logic was, there weren’t too many female comedians, so I thought I might as well try a field that had fewer competitors than the field I was in, which was acting, singing and dancing.
+ - I don’t want to push the envelope. Let the envelope stay in the middle of the table. I’ll just make you laugh.
+ - My father was never very friendly. When I was growing up, I thought the doorbell ringing was a signal to pretend you weren’t home.
+ - My husband is so confident that when he watches sports on television, he thinks that if he concentrates he can help his team. If the team is in trouble, he coaches the players from our living room, and if they’re really in trouble, I have to get off the phone in case they call him.
+ - Men are sensitive in strange ways. If a man has built a fire and the last log does not burn, he will take it personally.
+ - I had no desire to be a stand-up comic until I decided to do it.
+ - We live in Los Angeles, where you are expected to move every two to four years, so people can see how well your career is going.
+ - I have been doing leg lifts faithfully for about fifteen years, and the only thing that has gotten thinner is the carpet where I have been doing the leg lifts.
+ - A good place to meet a man is at the dry cleaner. These men usually have jobs and bathe.
+ - I don’t think jogging is healthy, especially morning jogging. If morning joggers knew how tempting they looked to morning motorists, they would stay home and do sit-ups.
+ - Men have better self-images than women. You know what I’ve never seen in a men’s magazine? A makeover.
+ - I get a lot of return business. I think it’s all those years I put in traveling around the country; people saw me before and had a good time so they want to see me again.
+ - Men like cars, women like clothes. Women only like cars because they take them to clothes.
+ - I never panic when I get lost. I just change where it is I want to go.
+ - Men who can eat anything they want and not gain weight should do it out of sight of the women they’re married to.
+ - Men love watches with multiple functions. My husband has one that is a combination address book, telescope and piano.
+ - Most turkeys taste better the day after; my mother’s tasted better the day before.
+ - In high school I was voted the girl most likely to become a nun. That may not be impressive to you, but it was quite an accomplishment at the Hebrew Academy.
+ - The word ‘aerobics’ came about when the gym instructors got together and said: If we’re going to charge $10 an hour, we can’t call it Jumping up and down.
+ - I don’t like when there’s too much conversation because I’m shy and it makes me uncomfortable.
+ - Buying something on sale is a very special feeling. In fact, the less I pay for something, the more it is worth to me.
+
+166 quotes

@@ -1,0 +1,186 @@
+ - Love is the root; obedience is the fruit.
+ - The woman was made of a rib out of the side of Adam; not made out of his head to rule over him, nor out of his feet to be trampled upon by him, but out of his side to be equal with him, under his arm to be protected, and near his heart to be beloved.
+ - By the light of nature we see God as a God above us, by the light of the law we see Him as a God against us, but by the light of the gospel we see Him as Emmanuel, God with us.
+ - The God of Israel is sometimes a God who hides Himself, but never a God who absents Himself; sometimes in the dark, but never at a distance.
+ - Be careful if you make a women cry, because God counts her tears. The woman came out of a man’s ribs. Not from his feet to be walked on, not from his head to be superior, but from his side to be equal, under the arm to be protected, and next to the heart to be loved.
+ - Hope for the best, get ready for the worst, and then take what God chooses to send.
+ - ThanksGiving is good but ThanksLiving is better.
+ - Extraordinary afflictions are not always the punishment of extraordinary sins, but sometimes the trial of extraordinary graces.
+ - When God intends great mercy for his people, he first of all sets them praying.
+ - Meekness is calm confidence, settled assurance, and rest of the soul. It is the tranquil stillness of a soul that is at rest in Christ. It is the place of peace. Meekness springs from a heart of humility, radiating the fragrance of Christ.
+ - God’s Word must be the guide of your desires and the ground of your expectations in prayer.
+ - Grace is the free, undeserved goodness and favor of God to mankind.
+ - Come, and see the victories of the cross. Christ’s wounds are thy healings, His agonies thy repose, His conflicts thy conquests, His groans thy songs, His pains thine ease, His shame thy glory, His death thy life, His sufferings thy salvation.
+ - The meek are those who quietly submit themselves to God, to His Word and to His rod, who follow His directions, and comply with His designs, and are gentle toward all men.
+ - The more reverence we have for the Word of God, the more joy we shall find in it.
+ - Take Jesus for your king, and by baptism swear allegiance to him; take him for your prophet, and hear him; take him for your priest, to make atonement for you.
+ - I would think it a greater happiness to gain one soul to Christ than mountains of silver and gold to myself.
+ - All this and heaven too.
+ - Brotherly love is still the distinguishing badge of every true Christian.
+ - JOY in the LORD puts our mouths out of taste for the pleasures with which the tempter baits his hooks.
+ - Christ died. He left a will in which He gave His soul to His Father, His body to Joseph of Arimathea, His clothes to the soldiers, and His mother to John. But to His disciples, who had left all to follow Him, He left not silver or gold, but something far better-His PEACE!
+ - Better to get up late and be wide awake then, than to get up early and be asleep all day.
+ - After a storm comes a calm.
+ - None so deaf as those that will not hear. None so blind as those that will not see.
+ - The best we can say to God in prayer, is what He has said to us.
+ - The flower of youth never appears more beautiful than when it bends toward the sun of righteousness.
+ - Whatever we have of this world in our hands, our care must be to keep it out of our hearts, lest it come between us and Christ.
+ - If God and his grace do not rule us, sin and Satan will have possession of us.
+ - Those who teach by their doctrine must teach by their life, or else they pull down with one hand what they build up with the other.
+ - Our duty as Christians is always to keep heaven in our eye and earth under our feet.
+ - Though we cannot by our prayers give God any information, yet we must by our prayers give him honor.
+ - When I cannot enjoy the faith of assurance, I live by the faith of adherence.
+ - It is better to get wisdom than gold. Gold is another’s, wisdom is our own; gold is for the body and time, wisdom for the soul and eternity.
+ - A good man is willing to know the worst of himself, and particularly under affliction, desires to be told wherefore God contends with him and what God designs in correcting him.
+ - Days of trouble must be days of prayer.
+ - The service of sin is perfect slavery.
+ - Those that set God always before them and walk before him with all their hearts, shall find him as good as his word and better; he will both keep covenant with them and show mercy to them.
+ - Christ’s followers cannot expect better treatment in the world than their Master had.
+ - We must never promise ourselves any more than God has promised us.
+ - If we would be angry and not sin, we must be angry at nothing but sin; and we should be more jealous for the glory of God than for any interest or reputation of our own.
+ - You may as soon find a living man who does not breathe, as a living Christian who does not pray.
+ - Tears are a tribute to our deceased friends. When the body is sown, it must be watered. But we must not sorrow as those that have no hope; for we have a good hope through grace both concerning them and concerning ourselves.
+ - God took Eve from the side of Adam, not from his foot to be his menial or slave or servant, not from his head to be his mental superior, and did take him from that which is nearest his heart, that he might love her, and that which is under his arm, that he might protect her.
+ - It ought to be the business of every day to prepare for our last day.
+ - A state of apostasy is worse than a state of ignorance.
+ - The sentences in the book of providence are sometimes long, and you must read a great way before you understand their meaning.
+ - Hard words indeed break no bones, but many a heart has been broken by them.
+ - God’s favour is happiness.
+ - God’s promises are to be our pleas in prayer.
+ - The Bible is a letter God has sent to us; prayer is a letter we send to him.
+ - Seducers are more dangerous enemies to the church than persecutors.
+ - I shall be supplied with whatever I need; and, if I have not everything I desire, I may conclude it is either not fit for me, or I shall have it in due time.
+ - To a good man, God gives not only wisdom and knowledge, but joy.
+ - Sanctified afflictions are spiritual promotions.
+ - It is good news, worthy of all acceptation; and yet not too good to be true.
+ - We cannot expect too little from man nor too much from God.
+ - The fear of God reigning in the heart is the beauty of the soul.
+ - The way to preserve the peace of the church is to preserve its purity.
+ - It was the greatest honor God did to man that he made man in the image of God; but it is the greatest dishonor man has done to God that he has made God in the image of man.
+ - That which God plants he will take care to keep watered.
+ - May Christ be our joy, our confidence, our all. May we daily be made more like to Him, and more devoted to His service.
+ - Goodness makes greatness truly valuable, and greatness make goodness much more serviceable.
+ - To wait on God is to live a life of desire toward Him, delight in Him, dependence on Him, and devotedness to Him.
+ - No attribute of God is more dreadful to sinners than His holiness.
+ - No creature hath the like resemblance to the divine nature, as light hath. He doth not only dwell in light, but he is light. Light is a pure, bright, clear, spiritual, unmixed substance. God is infinitely so.
+ - In all God’s providences, it is good to compare His word and His works together; for we shall find a beautiful harmony between them, and that they mutually illustrate each other.
+ - Poor people are as much in danger from an inordinate desire towards the wealth of the world as rich from an inordinate delight in it.
+ - Though we must never think to learn above our Bible, as long as we are here in this world, yet we must still be getting forward in it.
+ - It is not enough for us to be where God is worshipped, if we do not ourselves worship him.
+ - The Scriptures were written, not to make us astronomers, but to make us saints.
+ - None are ruined by the justice of God but those that hate to be reformed by the grace of God.
+ - Grace in the soul is heaven in that soul.
+ - Those that go gold into the furnace will come out no worse.
+ - I thank Thee first because I was never robbed before; second, because although they took my purse they did not take my life; third, because although they took my all, it was not much; and fourth because it was I who was robbed, and not I who robbed.
+ - The streams of religion run deep or shallow, according as the banks of the Sabbath are kept up or neglected.
+ - Those who complain most are most to be complained of.
+ - Not lost, but gone before.
+ - If ill thoughts at any time enter into the mind of a good man, he doth not roll them under his tongue as a sweet morsel.
+ - You have been asked to take notice of the sayings of dying men – this is mine: that a life spent in the service of God and communion with Him is the most pleasant life that anyone can live in this world.
+ - Nature is content with little; grace with less; but lust with nothing.
+ - Holy joy will be oil to the wheels of our obedience.
+ - Here is bread, which strengthens man’s heart, and therefore is called the staff of Life.
+ - It is easy to be religious when religion is in fashion; but it is an evidence of strong faith and resolution to swim against a stream to heaven, and to appear for God when no one else appears for Him.
+ - For love is of God. He is the fountain, author, parent, and commander of love; it is the sum of his law and gospel:.
+ - Humility is the great preserver of peace and order in all Christian churches and societies, consequently pride is the great disturber of them, and the cause of most dissensions and breaches in the church.
+ - None can know their election but by their conformity to Christ; for all who are chosen are chosen to sanctification.
+ - There is a burden of care in getting riches; fear in keeping them; temptation in using them; guilt in abusing them; sorrow in losing them; and a burden of account at last to be given concerning them.
+ - God is either your worst enemy or your best friend.
+ - Nothing can make a man truly great but being truly good, and partaking of God’s holiness.
+ - It is good for us to keep some account of our prayers, that we may not unsay them in our practice.
+ - The kingdom of heaven was never intended to indulge the ease of triflers, but to the rest of them that labor.
+ - He rolls it under his tongue as a sweet morsel.
+ - It is not talking but walking that will bring us to heaven.
+ - We have no sufficient strength of our own. All our sufficiency is of God. We should stir up ourselves to resist temptations in a reliance upon God’s all-sufficiency and the omnipotence of his might.
+ - Wherever the fear of God rules in the heart, it will appear both in works of charity and piety, and neither will excuse us from the other.
+ - It is more to the honor of a Christian by faith to overcome the world, than by monastical vows to retreat from it; more for the honor of Christ to serve him in the city, than to serve him in the cell.
+ - Pure Christianity and serious godliness fear not the scrutiny of a free thought, but despise the impotent malice of a prejudiced one.
+ - Our creature comforts.
+ - Anger cannot rest in the bosom where love reigns.
+ - The remains of great and good men, like Elijah’s mantle, ought to be gathered up and preserved by their survivors, that as their works follow them in the reward of them, they may stay behind in their benefit.
+ - None live so easily, so pleasantly, as those that live by faith.
+ - Those that have so much power over others as to be able to oppress them have seldom so much over themselves as not to oppress.
+ - Prayer time must be kept up as duly as meal-time.
+ - God warns before he wounds.
+ - Riches, in the hands of a man that is wise and generous, are good for something, but in the hands of a sordid, sneaking, covetous miser, they are good for nothing.
+ - Those who deceive others, deceive themselves, as they will find at last, to their cost.
+ - We have a cunning adversary, who watches to do mischief, and will promote errors, even by the words of scripture.
+ - Man takes great pains to heap up riches, and they are like heaps of manure in the furrows of the field, good for nothing unless they be spread.
+ - The counsels and decrees of God do not truckle to the frail and fickle will of man.
+ - Those who will not deliver themselves into the hand of God’s mercy cannot be delivered out of the hand of His justice.
+ - Christ is our temple, in whom by faith all believers meet.
+ - He that is in haste may contract much guilt in a little time. What we say or do unadvisedly when we are hot, we must unsay or undo again when we are cool, or do worse.
+ - Conscience is that candle of the Lord which was not quite put out.
+ - No man will say, “There is no God” ’till he is so hardened in sin that it has become his interest that there should be none to call him to account.
+ - The anger of a meek man is like fire struck out of steel, hard to be got out, and when it is, soon gone.
+ - Knowledge is vain and fruitless which is not reduced to practice.
+ - Pride is at the bottom of a great many errors and corruptions, and even of many evil practices, which have a great show and appearance of humility.
+ - When we are calling to God to turn the eye of His favor towards us He is calling to us to turn the eye of our obedience towards Him.
+ - Let us watch against unbelief, pride, and self-confidence. If we go forth in our own strength, we shall faint, and utterly fall; but having our hearts and our hopes in heaven, we shall be carried above all difficulties, and be enabled to lay hold of the prize of our high calling in Christ Jesus.
+ - What we count the ills of life are often blessings in disguise, resulting in good to us in the end. Though for the present not joyous but grievous, yet, if received in a right spirit, they work out fruits of righteousness for us at last.
+ - Esther came to a proud imperious man; we come to the God of love and grace.
+ - That which is won ill, will never wear well, for there is a curse attends it, which will waste it; and the same corrupt dispositions which incline men to the sinful ways of getting, will incline them to the like sinful ways of spending.
+ - A garment that is double dyed, dipped again and again, will retain the color a great while; so a truth which is the subject of meditation.
+ - He whose head is in heaven need not fear to put his feet into the grave.
+ - Those will soon come to make nothing of God that will not be content to make him their all.
+ - Shallows where a lamb could wade and depths where an elephant would drown.
+ - No sooner was the wound given than the remedy was provided and revealed.
+ - Some people do not like to hear much of repentance; but I think it is so necessary that if I should die in the pulpit, I would desire to die preaching repentance, and if out of the pulpit I would desire to die practicing it.
+ - Those that abide in Christ as their heart’s desire shall have, through Christ, their heart’s desire.
+ - Though we may now think some sins light and little, if the Lord awaken the conscience, we shall feel even the smallest sin heavy upon our souls.
+ - All obedience begins in the affections, and nothing in religion is done right, that is not done there first.
+ - So great was the extremity of his pain and anguish, that he did not only sigh but roar.
+ - Saying and doing are two things.
+ - They that die by famine die by inches.
+ - None are sent empty away from Christ but those who come to him full of themselves.
+ - Those that are above business.
+ - Prayer is the breath of the new man, drawing in the air of mercy in petitions, and returning it in praises; it proves and maintains the spiritual life.
+ - The riches we impart are the only wealth we shall always retain.
+ - Those who have a heart to do good, never need complain for want of opportunity.
+ - What God requires of us he himself works in us, or it is not done. He that commands faith, holiness, and love, creates them by the power of his grace going along with his word, that he may have all the praise.
+ - Earth is embittered to us, that heaven may be endeared.
+ - Why wilt thou be so sottish, such an enemy to thyself, as to prefer puddle-water, and that poisoned too and stolen, before pure living waters out of thy own well?
+ - We must believe that He is able to do what He will, wise to do what is best, and good, according to His promise, to do what is best for us, if we love Him, and serve Him.
+ - Were a man to live as long as Methuselah, and to spend all his days in the highest delights sin can offer, one hour of the anguish and tribulation that must follow, would far outweigh them.
+ - The first lesson in Christ’s school is self-denial.
+ - They that pray in the family do well; they that pray and read the Scriptures do better; but they that pray, and read, and sing do best of all.
+ - They have most satisfaction in themselves, and consequently the sweetest relish of their creature comforts.
+ - Christ teaches by the Spirit of wisdom in the heart, opening the understanding to the Spirit of revelation in the word.
+ - Riches are a blessing or a curse to a man according as he has or has not a heart to make good use of them.
+ - Death to a good man is his release from the imprisonment of this world, and his departure to the enjoyments of another world.
+ - Brown bread and the Gospel is good fare.
+ - The beauty of holiness is that which the grave, that consumes all other beauty, cannot touch, or do any damage to.
+ - As if men did not die fast enough, they are ingenious at finding out ways to destroy one another.
+ - To fish in troubled waters.
+ - Nothing exposes religion more to the reproach of its enemies than the worldliness and half-heartedness of the professors of it.
+ - We should take heed of pride; it is a sin that turned angels into devils.
+ - Every tear of sorrow sown by the righteous springs up a pearl.
+ - The provisions of Christ’s gospel appear mean and scanty to the world, yet they satisfy all that feed on him in their hearts by faith with thanksgiving.
+ - When God is about to give His people the expected good, He pours out a Spirit of prayer, and it is a good sign that He is coming towards them in mercy.
+ - Were we to think more of our own mistakes and offences, we should be less apt to judge other people.
+ - It is better to take time to consider, than find time to repent.
+ - The prayers and supplications that Christ offered up were, joined with strong cries and tears, herein setting us example not only to pray, but to be fervent and importunate in prayer. How many dry prayers, how few wet ones, do we offer up to God!
+ - Men may die like lambs and yet have their place forever with the goats.
+ - We best oppose error by promoting a solid knowledge of the word of truth, and the greatest kindness we can do to children, is to make them early to know the Bible.
+ - God has wisely kept us in the dark concerning future events and reserved for himself the knowledge of them, that he may train us up in a dependence upon himself and a continued readiness for every event.
+ - It is common for those that are farthest from God, to boast themselves most of their being near to the Church.
+ - What harrowing is after sowing, the same is meditation after hearing – it hides the word.
+ - Hearkners, we say, seldom hear good of themselves.
+ - Those that forget to attend God with their praises may perhaps be compelled to attend him with their prayers.
+ - The best evidence of our having the truth is our walking in the truth.
+ - Prayer is the midwife of mercy, that helps to bring it forth.
+ - It is not fit the public trusts should be lodged in the hands of any, till they are first proved and found fit for the business they are to be entrusted with.
+ - Do nothing till thou hast well considered the end of it.
+ - Those whom God will employ are first struck with a sense of their unworthiness to be employed.
+ - Men cannot expect to do ill and fare well, but to find that done to them which they did to others.
+ - A man that is endued with the powers of reason, by which he is capable of knowing, serving, glorifying, and enjoying his Maker, and yet lives without God in the world, is certainly the most despicable and the most miserable animal under the sun.
+ - The better day, the worse deed.
+ - Men of polite learning and a liberal education.
+ - The greatest of men must turn beggars when they have to do with Christ.
+ - What peace can they have who are not at peace with God?
+ - Their own second and sober thoughts.
+ - We read of preaching the Word out of season, but we do not read of praying out of season, for that is never out of season.
+ - Blushing is the colour of virtue.
+ - None shall be saved by Christ but those only who work out their own salvation while God is working in them by His truth and His Holy Spirit. We cannot do without God; and God will not do without us.
+
+184 quotes

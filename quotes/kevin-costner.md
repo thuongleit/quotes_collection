@@ -1,0 +1,121 @@
+ - I believe in long, slow, deep, soft, wet kisses that last three days.
+ - When a defining moment comes along, you define the moment, or the moment defines you.
+ - I have seen soldiers panic at the first sight of battle, and a squire pulling arrows from his body to fight and save his dying horse. Nobility is not a birthright, but is defined by one’s actions.
+ - We stand our best chance of leaving a legacy to those who want to learn, our children, by standing firm. In matters of style, hey, swing with the stream. But in matters of principle, you need to stand like a rock.
+ - I don’t give up. I’m a plodder. People come and go, but I stay the course.
+ - I haven’t lived a perfect life. I have regrets. But that’s from a lifetime of taking chances, making decisions, and trying not to be frozen. The only thing that I can do with my regrets is understand them.
+ - You can be as you choose to be. It’s an act of discipline sometimes, but it can be done.
+ - We all have to have our north star that we fix on and go to, but life is so much about the things that bump into you.
+ - I’ve always felt that failure was a completely underrated experience.
+ - If it’s going to be wrecked, I want to make sure I wreck it.
+ - Life’s better when it’s fun. Boy, that’s deep, isn’t it?
+ - I’m glad movies aren’t going to please everybody, they can’t. But what they have to be is recognisable. I don’t equate myself with a master painter, but I think you can recognise my films.
+ - I’ve had some movies that have been ridiculed, but that’s OK with me. I don’t feel that really defines me. Should I change who I am to be popular?
+ - I dream of big things. I work for the small things. If you’re going to dream, you might as well dream big. A lot of that came from my mother. She was adamant about the work ethic – about how you can’t just dream things.
+ - Real heroes are men who fall and fail and are flawed, but win out in the end because they’ve stayed true to their ideals and beliefs and commitments.
+ - I stand up for what I believe. I don’t know if it’s always paid off for me, because I’ve been ridiculed and humiliated.
+ - I think religion is a funny thing because, when you see somebody who can really break it down, sometimes it feels foolish what you believe.
+ - I feel like I’ve been able to live a dream life, but my view of things is absolutely inside behavior about how I behave and how I count on other people behaving.
+ - I don’t feel the need to direct. I tried to get other people to direct Dances, but they wouldn’t do it. They all thought it was too long. One director wanted to cut the Civil War sequence. Another thought the white woman was very cliched.
+ - When I played Robin Hood, I knew the great role was Alan Rickman’s and it didn’t bother me. I always think that leading actors should be called the best supporting actors.
+ - Money isn’t a major motivating force in my life. Nor is my profession. There are other things that I care more about than being an actor.
+ - You can spend your life trying to be popular, and that’s a tricky business. You can just try to be true to yourself.
+ - I think there are good men and women in all decades. We’ve grown cynical. And look at what we do to all our heroes: Churchill, FDR, Kennedy, they all had affairs. But heroic things happen every day.
+ - I’m in a position where whatever I do, I can get my head handed to me. I’m in a position to fail because there is a whole group of people out there who want me to fail. It’s a weird vibe.
+ - There’s actually a big difference between story and character. A great story doesn’t make a great movie. A great script, which defines its moments and characters can become a great movie. You can make a movie that makes a lot of money and it may or may not have great story or great characters.
+ - When you try to portray people’s lives, you try to make sure you don’t portray them as clowns and that you give them a level of dignity. You don’t try to change their persona, but you try to understand that they had unique problems, set in a century that you don’t live.
+ - Sometimes it takes a partner to say, “What is it you want?” because I think we operate in life and sometimes we don’t know. We’re all in some kind of maze going after the cheese at the end, and we get it and we go, “What is it that we want?”
+ - If you’re going to tear down a hero, you should never forget that you’re tearing down someone else’s hero. You’re tearing down somebody else’s son. You might have to face her one day.
+ - I’m a ‘what if’ person. I have always felt that failure was a completely underrated experience. I have taken blows. I have had high moments. But I don’t think the blows have ever hardened me. My enthusiasms are still big.
+ - When I read Thirteen Days I was moved by it. It was just a great time for the world, in terms of looking back in history and seeing how we got ourselves into trouble and how we got ourselves out of trouble.
+ - I can’t say I really see much difference between my son and daughters except that my girls will occasionally make me a sandwich and my son won’t.
+ - I have a tremendous belief in people, not that people don’t let me down, not that I haven’t maybe let some people down. But I have a tremendous belief in people and in the common experience.
+ - I always thought the leading actor should be the best supporting actor, because you’re the only person that can help every other actor on the set.
+ - There’s nothing more noble than a father and mother making an opportunity for their child, knowing that their life is gonna be hard. There’s something incredibly heroic about that.
+ - Some people come to you because if you’re in their movie, it’ll help them raise money. And some people come to you because they think you’re the person to play the part.
+ - You have to try to dismiss the loudness of cynicism. It’s certainly going to come.
+ - Being a celebrity is probably the closest to being a beautiful woman as you can get.
+ - It sounds vain, but I could probably make a difference for almost everyone I ever met if I chose to involve myself with them either professionally or personally.
+ - Field of Dreams is probably our generation’s It’s A Wonderful Life.
+ - President Kennedy was willing to go to war. He was not a coward. The man had been in war and so had Ken O’Donnell. He was ready to protect this nation, but he was not ready for a military solution just because it was being rammed down his throat.
+ - Lincoln was the greatest speaker and he was ridiculed for how he looked, you know?
+ - I like being around people that mean what they say.
+ - I don’t think I ever take huge risks, though I’m not scared of doing so.
+ - I’m a pretty convenient foil for a lot of people.
+ - I wouldn’t do the movie unless I thought it had a chance to be good.
+ - There are a lot of things that come to bear on movies now that I don’t think are good for movies. They’re trying to appeal to the biggest demographic and, when they do that, you sometimes flatten out.
+ - I’m a coach’s coaching player. I like to be on the floor. So, if the coach tells me what to do out on the floor, I can get it done. I’m really comfortable being directed.
+ - I’ve had moments in my life where it was all out on the table. Everything I had. I’m okay with that, because I had a strong belief that what I was doing other people could believe in it, too, if I can get it just right.
+ - Here’s the thing – the accent is cool. It’s like a girl with big breasts – they get your attention first.
+ - If you’re willing to tell somebody that you love them, are you also willing to say you’re sorry? You need to, even when you think you’re in the right.
+ - I like when my face tingles, when the hair on the back of my neck stands up.
+ - I had a difficult time hearing my own inner voice about what I wanted to be in this life, because there were all these perfect examples of what a man actually does. The notion is that he goes to college, gets married and provides. That’s what a man does.
+ - When I do a Western, I often wonder what I would have really done in that situation.
+ - One person doesn’t have to shoulder all the responsibility for why a film does or doesn’t do well.
+ - I think that you try to raise the bar on whatever you do because you know, in this day of having to deal with a lot of reality TV, people say that scripted programming is dying, so you have to try to create something that can live in people’s minds, long after they see it.
+ - It’s such a cool thing in life to get what it is you want. Most of the time we don’t, but occasionally we do.
+ - I’m getting those familiar feelings, and I’m just going to enjoy the process of getting to know someone again.
+ - The kind of love that these young men have and the respect that they have for their fathers, I don’t see that as much in America as you see in the Latino community, and it’s really something to behold.
+ - I wanted very much to do Traffic and at one point it looked like I was going to work on it. And then, of course, Catherine Zeta-Jones had her relationship with Michael Douglas and it suddenly didn’t happen.
+ - I want to be a part of something, and when we define movies now based on how they do on the weekend. We live in a society of “thumbs up, thumbs down.”
+ - I wait and take on projects that I think can work.
+ - It’s nice to be wanted in almost any capacity.
+ - You have to decide if you’re going to wilt like a daisy or if you’re just going to go forward and live the life that you’ve been granted.
+ - Audiences trust Westerns when you hit the right tone. I think they’re not in vogue, but they will always be in vogue when you hit the right note.
+ - There’s a moment in time where kids really don’t want to hear anything from their parents.
+ - I split my time between Santa Barbara and Aspen. I live on a pretty fast horse.
+ - I think one of the first things to go as people’s lives start to go down is their dreams. Dreams should be the last thing to go – dreams are the things you go down with. If you’re left clinging to a piece of driftwood in the middle of the ocean, I’d put on it the word dreams.
+ - We still live with this unbelievable threat over our heads of nuclear war. I mean, are we stupid? Do we think that the nuclear threat has gone, that the nuclear destruction of the planet is not imminent? It’s a delusion to think it’s gone away.
+ - I’m a big fan of dreams. Unfortunately, dreams are our first casualty in life – people seem to give them up, quicker than anything, for a ‘reality.’
+ - We really don’t rest if we think our kids are drifting, or if we think they don’t have the right work ethic. It drives us crazy. Because we ultimately want them to succeed and, until they do, we feel in some way that something is not complete.
+ - When I see my children, and when I see the people who value me, I know how lucky I am.
+ - I work for the public, for the people who are paying to go to the cinema, rather than for the critics.
+ - I like four-hour movies.
+ - True movies will never be measured by how much they make – they’ll be measured by how they make you feel.
+ - I want to live forever, and I know I won’t. I’m not afraid of dying. I’m only afraid of one thing: not being able to raise my kids.
+ - I deal with pressure. I have a tendency to probably be at my best under pressure.
+ - If I had a choice of having a woman in my arms or shooting a bad guy on a horse, I’d take the horse. It’s a lot more fun.
+ - I’ve been around where I knew other actors were going to steal the scene, and I don’t compete with them.
+ - If you don’t understand your limitations you won’t achieve much in your life.
+ - I didn’t realize Toronto was so beautiful. Everywhere you go you see beautiful architecture.
+ - I’m proud of all the movies I’ve made. They’re not sequels, they’re not franchises. And the reason I pick my films carefully is that I don’t want to spit on my life. I like to think of myself as more than that.
+ - You’re this rat in the American maze, working your way towards the cheese, which is a job.
+ - We’re at a point in history where everyone needs to pay attention to politics. Too much is at stake for us to be apathetic.
+ - The movies helped define how I should be as a person.
+ - Broken people say awful things and do incredibly absurd things.
+ - I just tried to build on my failures.
+ - I don’t have a seller’s remorse about how I’ve lived.
+ - It’s never bothered me to work hard. I’ve probably worked on some of the longest schedules in movie history.
+ - If it’s fifty years from now and it still has the same value, that’s a movie.
+ - In America, politicians do whatever to get re-elected, and a lot of decisions that were being made at that time by Kennedy were certain not to get him re-elected.
+ - When I make a film I’m away from home for two to three months. So I want my kids to look at my films one day and say, I love his movies, I love his choices-because he loved them.
+ - I think these movies are as much for people of that time as for people who weren’t born. For people who weren’t born, they see how leaders must act under a crisis situation, not trying to be re-elected or not trying to check polls, that they go from their gut check.
+ - You have to pick the stories that you want to be involved with and the end game is you’d like to be a part of a hit. But I think your moral obligation is to follow your own heart.
+ - You’re just as good, and if you work harder, you can be better and you can be more than you think you can.
+ - I haven’t tried to buffer myself. I like rolling the dice.
+ - I believe people who go into politics want to do the right thing. And then they hit a big wall of re-election and the pettiness of politics. In the end, politics gets in the way of the business of people.
+ - I’ve always been distracted when somebody is coming after me and saying, “You’re the only person who can play this part.”
+ - I have instinctually thought I could do things in my life, and I followed that up by sometimes putting everything I have at risk – my money, my house – to make a movie.
+ - I’m only interested in being a good actor and in being remembered for my best films, not for the way I look. But it seems inevitable in this line of work that I have to care about the way I look without getting obsessed about it.
+ - I don’t read as much as I’d like. I’ve been writing a lot. I’ve been doing a lot of music, but I don’t read as much as I should. I just don’t.
+ - What is it you want? That’s a question that we all get posed sometimes internally and sometimes externally.
+ - I am a really writer-oriented actor.
+ - I like American history.
+ - I try to please myself. I don’t try to anticipate what people want to see.
+ - I was always listening to my father more than anyone. I was always afraid of my father more than anyone. But there’s a moment in time where other men in your life can have a huge impact.
+ - I actually play sports better when I’m mad. Some players don’t play better when they’re mad. They lose their sense of where they’re at. I have a tendency to do better when I’m under pressure.
+ - You just do the things that you love and see if other people can like them too.
+ - If you want to make a great sports movie, don’t put too much sports in it. It’s the backdrop. It’s the environment.
+ - I think I just wanted to work when I finally came to Hollywood. That’s what it was. I wanted to get a job, and then I wanted to get the second one.
+ - We all have that burning question about what happens if we lose somebody we love, especially if we lose them tragically. We wonder what fear was going on, we wonder if we could have reached out and touched them, held their hand, looked in their eyes, been there.
+ - There’s real drama in performing live. You never know how it’s going to be.
+ - I think if you want to make a good sports movie, you’ve got to cut down on the sports. You have to make it about people. You can’t try to impress people with your knowledge and the X and O’s and all the details and the technicalities.
+ - I’ve always known that I’m a little out of vogue.
+ - It’s nice to be wanted. That’s a really good feeling. I’m not immune to it.
+ - I don’t think I’d have been as good as Bruce was. He was a better JFK than I would have been.
+ - I think there’s true drama in the formation of everything that we know and are standing on the shoulders of.
+ - My whole life has been instinctual for me. I wouldn’t do well in the computer world. My children look at me for a question and then they quickly look away because they know that I’m not going to know how to make Super Mario or do anything.
+ - A good idea is something like an emotion, you just can’t keep it in.
+ - My whole life has been instinctual for me. I wouldn’t do well in the computer world.
+
+119 quotes

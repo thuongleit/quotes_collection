@@ -1,0 +1,21 @@
+ - Everyone lives three versions of themselves; a public life, a private life and a secret life.
+ - What I love about collaborating is that you’re working with other minds that work differently to yours.
+ - Can’t reinvent the wheel. But you can put your own spin on it.
+ - She would disappear folded like origami into her own dreams.
+ - World needs more angels, even plywood ones.
+ - It’s hard to get justice in the real world. It’s possible in fiction.
+ - Memory is curated. All this paraphernalia you collect to ward off forgetting.
+ - Traffic in Joburg is like the democratic process. Every time you think it’s going to get moving and take you somewhere, you hit another jam.
+ - People don’t want novelty – they want the reassurance of familiarity. No-one wants to be challenged, no-one wants to have their minds blown. There is an insatiable appetite for affirmation.
+ - The future is not as loud as war, but it is relentless. It has a terrible fury all its own.
+ - There are only so many plots in the world. It’s how they unfold that makes them interesting.
+ - The biggest fairy tale is that justice works because it doesn’t.
+ - You have to get up pretty early in the morning to invent the news.
+ - The problem with snapshots is that they replace actual memories. You lock down the moment and it becomes all there is of it.
+ - Shakespeare would have it wrong these days. It’s not the world that’s the stage – it’s social media, where you’re trying to put on a show. The rest of your life is rehearsals, prepping in the wings to be fabulous online.
+ - Only other people can make you feel real.
+ - Fashion is only different skins for different flavours of you.
+ - I really wanted to believe that there were these magic celestial bodies that would direct my life, tell me what to do, and it turns out it’s not stars, it’s some bits of screwy DNA. I’m just meat with faulty programming.
+ - There are patterns because we try to find them. A desperate attempt at order because we can’t face the terror that it might all be random.
+
+19 quotes

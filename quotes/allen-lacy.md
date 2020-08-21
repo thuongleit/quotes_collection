@@ -1,0 +1,24 @@
+ - Not knowing where your food comes from is a primary form of alienation.
+ - Plants are the original chemists. Their sophistication makes DuPont and Monsanto look like little kids with chemistry sets.
+ - When I need to be precise about a plant, I use its Latin name, even if my nongardening friends sometimes look at me a little funny for using big words in a dead language – or in the kind of horticultural Esperanto that botanical names make up.
+ - I know of no common interest that exceeds gardening as a source of lifelong friendships, nor as a means of making new friends almost constantly.
+ - An angel, legend has it, took pity on a little shepherd girl who had nothing to give to the Infant Jesus in his manger. The angel handed her a weed, but first transformed it into this beautiful flower of winter.
+ - In a well-made garden every day is new.
+ - Gardener’s, like everyone else, live second by second and minute by minute. What we see at one particular moment is then and there before us. But there is a second way of seeing. Seeing with the eye of memory, not the eye of our anatomy, calls up days and seasons past and years gone by.
+ - Crabgrass is aptly descriptive of this hated weed, for it does scuttle quickly through a lawn.
+ - Anne of Austria, wife of Louis XIII of France, had such an aversion to roses that she could not stand seeing one even in a painting.
+ - Gardening is in large measure a phenomenon of attention.
+ - Whether the are splashed with gold or white, striped with chartreuse or cream, or margined in light tones, they are nature’s weaklings, and nature is still a matter of survival of the fittest. The survival of variegated plants depends on human intervention.
+ - I suppose that for most people one of the darker joys of gardening is that once you’ve got started it’s not at all hard to find someone who knows a little bit less than you.
+ - We quickly discovered that two kittens were much more fun than one.
+ - But there is one place where a person can make choices that will lead in a small way toward greater sanity in dealing with the natural order. That place is the private garden.
+ - We can plant to suit the needs of the birds and other wildlife that find a haven and a habitat on our home ground, and we can understand that to do so is a moral dictate, not a personal whim.
+ - Democracy is fine in politics. It should stay there, and we need more of it. But its political virture is no reason to practice it in the garden.
+ - All gardeners need to know when to accept something wonderful and unexpected, taking no credit except for letting it be.
+ - I cannot walk into our garden without constantly being reminded of the friends who have shared their plants.
+ - Gardening transcends everything that otherwise divides us.
+ - Of course, the character of my garden is also determined by things beyond any human decision, mine or anyone else’s.
+ - One becomes a gardener by becoming a gardener.
+ - In addition to all its rich offerings to the body and its five senses, gardening engages the mind.
+
+22 quotes

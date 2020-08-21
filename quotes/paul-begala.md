@@ -1,0 +1,37 @@
+ - Always attack, Never defend.
+ - Never interrupt your opponent when he’s destroying himself.
+ - Stroke of the pen. Law of the land. Kinda cool.
+ - I try hard to be a good Catholic.
+ - There’s the great line: the definition of a liberal is someone who’s afraid to take their own side in a fight. And that’s my problem with my fellow liberals.
+ - Culture has always been more important than politics. Sometimes culture is a mirror that reflects what is; sometimes it’s a search-light pointing the way to what will be.
+ - Politics is show business for ugly people.
+ - I’m very sunny. You know, I’m always optimistic.
+ - Ah yes! Conservatives. Some of the finest minds of the 12th Century.
+ - Again and again, I’ve seen Bush turn a blind eye as his henchmen have leveled zealous attacks against his political enemies – assaults which the president himself has sometimes directly encouraged.
+ - It is a painful reminder that even the most well-intentioned among us sometimes act in ways that put children in danger of being abused or neglected.
+ - It taught me that Clinton’s instinct to make this about your life as a citizen, rather than his as a human being, was the right answer to these things.
+ - If my wife hears one more report that I’m joining Hillary’s campaign I’m going to have to go in the Pundit Protection Program.
+ - It must kill George Bush that John McCain is the most popular and Beloved Republican in America.
+ - I was the guy that told Bill Clinton he was going to win. I had gotten the final polling numbers. He had a comfortable lead. He was not going to lose.
+ - I’m a Catholic, but I used to love going to Vacation Bible School with my fundamentalist friends.
+ - See, I think if it just became who’s sleeping with whom, then there’s no reason to prefer one party over the other, ’cause the truth is we’re all sinners.
+ - I didn’t spend a lot of time on national security the American people will be glad to know.
+ - When your mission is to restore honor and integrity to the White House, you’ve got to be willing to use any means necessary.
+ - I think his deepest quality is empathy.
+ - Again, President Reagan was sort of an amiable presence out at the ranch by the last 6 months of his presidency. He had no effect on national policy at all.
+ - Republicans want to punish work and reward wealth; hence the high payroll tax and the low dividend tax. Said one Bush economic adviser, if we can’t help wealthy investors and screw working people, what’s the point in being a Republican?
+ - It seems to me the American people never really forgave the Democrats for being right about Vietnam.
+ - This gets back to the fundamental lesson of political survival that Bill Clinton taught me, which is if you make it about the American people’s lives instead of your life, you’re going to be okay.
+ - Bush began helping Enron in the eighties.
+ - Bill and Hillary Clinton are the most investigated couple in American history – now the most thoroughly exonerated couple in American history.
+ - If George W. Bush is given a second term, and retains a Republican Congress and a compliant federal judiciary, he and his allies are likely to embark on a campaign of political retribution the likes of which we haven’t seen since Richard Nixon.
+ - You can drive yourself crazy trying to peer into a person’s soul – or you can do the sensible thing: ask not what inner motives drive a politician’s policy choices but instead whether those choices are good for the country.
+ - Rick Perry is the perfect candidate for those who thought George W. Bush was just too dang cerebral. And Adios, Mofo is the perfect guide to his record, his rhetoric and his remarkable hair. You’ll laugh, you’ll cry, you’ll vote.
+ - So one important lesson of Vietnam is, the first casualty of an unwise and unjust war are the American troops called on to fight it. Their service should be honored.
+ - I mean, for all of his faults and the troubles in his marriage, Bill Clinton is still married to a girl he met in the library 25 years ago at school. Can we say that about many of our other leaders today in America, including on the right wing?
+ - I think too many Democrats are too wimpy. But I think they’re beginning to toughen up.
+ - If we are negative by nature, we Americans are more human than most. The Founding Fathers loved going negative. Heck, the Declaration of Independence is one long negative ad.
+ - The difference between Martin Sheen and George W. Bush is Martin Sheen is actually convincing when he acts like he’s president.
+ - But I think what happened was that Clinton knew how to fight back. And the way he fought back was on the issues – being tough in staying on the things that mattered to people in their lives.
+
+35 quotes

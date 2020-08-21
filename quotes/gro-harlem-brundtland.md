@@ -1,0 +1,37 @@
+ - Sustainable development is development that meets the needs of the present without compromising the ability of future generations to meet their own needs.
+ - Women power is a formidable force.
+ - You cannot tackle hunger, disease, and poverty unless you can also provide people with a healthy ecosystem in which their economies can grow.
+ - Women’s health is one of WHO’s highest priorities.
+ - You cannot achieve environmental security and human development without addressing the basic issues of health and nutrition.
+ - An important lever for sustained action in tackling poverty and reducing hunger is money.
+ - Health is the core of human development.
+ - Osteoporosis, as the third threat, is particularly attributable to women’s physiology.
+ - A cigarette is the only consumer product which when used as directed kills its consumer.
+ - The myth that men are the economic providers and women, mainly, are mothers and care givers in the family has now been thoroughly refuted. This family pattern has never been the norm, except in a narrow middle-class segment.
+ - Such lifestyle factors such as cigarette smoking, excessive alcohol consumption, little physical activity and low dietary calcium intake are risk factors for osteoporosis as well as for many other non-communicable diseases.
+ - Cardiovascular diseases are the leading cause of death in women.
+ - The climate challenge illustrates how we have to change. The developing countries need more support and opportunities to develop and use clean energy. Because if the current situation continues, then the world will not be able to handle this burden.
+ - Since the reduction of risk factors is the scientific basis for primary prevention, the World Health Organization promotes the development of an integrated strategy for prevention of several diseases, rather than focusing on individual ones.
+ - Although approximately 80% of osteoporosis sufferers are women, as the longevity of the male population increases, the disease will assume increasing importance in men.
+ - The diagnosis is clear, the science in unequivocal-it’s completely immoral, even, to question now, on the basis of what we know, the reports that are out, to question the issue and to question whether we need to move forward at a much stronger pace as humankind to address the issues.
+ - When public and private sectors combine intellectual and other resources, more can be achieved.
+ - The dual scourge of hunger and malnutrition will be truly vanquished not only when granaries are full, but also when people’s basic health needs are met and women are given their rightful role in societies.
+ - The launch of the report coincides with the initiation by WHO of the global strategy for the prevention and control of osteoporosis, and I think a good partnership could be established in our common efforts to prevent osteoporosis.
+ - Cancers of all types among women are increasing.
+ - I do not know of any environmental group in any country that does not view its government as an adversary.
+ - In the face of an absolutely unprecedented emergency, society has no choice but to take dramatic action to avert a collapse of civilization. Either we will change our ways and build an entirely new kind of global society, or they will be changed for us.
+ - The development of the food industry for both domestic and export markets relies on a regulatory framework that both protects the consumer and assures fair trading practices in food.
+ - To change societies you need to organize with others who share your views.
+ - Never have so many had such broad and advanced access to health care. But never have so many been denied access to health.
+ - More than ever before, there is a global understanding that long-term social, economic, and environmental development would be impossible without healthy families, communities, and countries.
+ - Investing in health will produce enormous benefits.
+ - Music is something I must do, business is something I need to do, and Africa is something I have to do. That’s the way it breaks down in my life.
+ - During my nearly five years as director-general of WHO, high-level policymakers have increasingly recognized that health is central to sustainable development.
+ - The burden of disease falls on the poor.
+ - That the AIDS pandemic is threatening sustainable development in Africa only reinforces the reality that health is at the center of sustainable development.
+ - I have seen this happen in recent years with regard to pharmaceuticals and vaccines, where, working together, we are improving access to medicines and vaccines for infectious diseases in the poorest countries.
+ - Let me first say that I don’t think the millennium target of cutting global poverty in half is an impossible or abstract target. I think it is a real and achievable goal.
+ - Today osteoporosis affects more than 75 million people in the United States, Europe and Japan and causes more than 2.3 million fractures in the USA and Europe alone.
+ - There is a very close connection between being a doctor and a politician. The doctor tries to prevent illness, then tries to treat it if it comes. It’s exactly the same as what you try to do as a politician, but with regard to society.
+
+35 quotes

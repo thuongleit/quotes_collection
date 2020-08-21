@@ -1,0 +1,30 @@
+ - Learn from the masters, learn from your contemporaries. Always try to update yourself.
+ - The true Christian reaction to suffering and sorrow is not the attitude of self-pity, fatalism or resentment; it is the spirit which takes life’s difficulties as a God given opportunity, and regards its troubles as a sacred trust, and wears the thorns as a crown.
+ - Having friends around for a pleasant evening is one of life’s most cherished joys as far as I am concerned. But when those with me are fellow believers, how much greater that joy is, for we know that it’s rekindled, one day in eternity.
+ - Fear is an insidious and deadly thing. It can warp judgment, freeze reflexes, breed mistakes. Worse, it’s contagious.
+ - You know, people seldom go to the trouble of scratching the surface of things to find the inner truth.
+ - Never treat your audience as customers, always as partners.
+ - You have to develop a style that suits you and pursue it, not just develop a bag of tricks. Always be yourself.
+ - I think one day youll find that youre the hero youve been looking for.
+ - I wouldn’t give you two cents for all your fancy rules if, behind them, they didn’t have a little bit of plain, ordinary, everyday kindness and a little looking out for the other fella too.
+ - We all look the same with our helmets on.
+ - The problem of evil is raised more often by spectators of life than the actual combatants. You will hardly ever find that the great sufferers are the great skeptics.
+ - It may sound corny, but what’s wrong with wanting to fight for your country. Why are people reluctant to use the word patriotism?
+ - I always told Hitch that it would have been better to put seats around the set and sell tickets.
+ - After age 70, it’s patch, patch, patch.
+ - Champagne’s funny stuff. I’m used to whiskey. Whiskey is a slap on the back, and champagne’s a heavy mist before my eyes.
+ - I have developed a deep respect for animals. I consider them fellow living creatures with certain rights that should not be violated any more than those of humans.
+ - I lasted one night. They said my playing spoiled people’s appetites.
+ - I have my own rules and adhere to them. The rule is simple but inflexible. A James Stewart picture must have two vital ingredients. It will be clean and it will involve the triumph of the underdog over the bully.
+ - Animals give me more pleasure through the viewfinder of a camera than they ever did in the crosshairs of a gunsight.
+ - I don’t need other people. I don’t need help. I can take care of me.
+ - When it came to kissing, Harlow was the best.
+ - Well, I think one of the main things that you have to think about when acting in the movies is to try not to make the acting show.
+ - I always stayed for the first curtain call and people always said, ‘Who’s that?’ But this got me started in acting.
+ - My dogs have never been good at things like “sit,” “stay,” or even “come.” I think that we’ve given the tourists a few laughs, especially when the dogs hit the end of their leashes hard enough to drag Gloria down the street.
+ - If a western is a good western, it gives you a sense of that world and some of the qualities those men had; their comradeship, loyalty, and physical courage.
+ - It’s well done if you can do a part and not have the acting show.
+ - I’d like to do Harvey again. I did it two years ago with Helen Hayes in New York. It was a joy. I was so glad to do it again because I never thought I did it right the first time.
+ - Mr. Hitchcock did not say actors are cattle. He said they should be treated like cattle.
+
+28 quotes

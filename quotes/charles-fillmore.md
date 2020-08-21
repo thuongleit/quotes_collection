@@ -1,0 +1,26 @@
+ - I fairly sizzle with zeal, energy, and enthusiasm; eager to do that which ought to be done by me today.
+ - The value of all service lies in the spirit in which you serve and not in the importance or magnitude of the service. Even the lowliest task or deed is made holy, joyous, and prosperous when it is filled with love.
+ - We must learn to let go, to give up, to make room for the things we have prayed for and desired.
+ - Divine mind is the one and only reality.
+ - When we commune with the spirit within and ask for new ideas, they are always forthcoming.
+ - The highest and best work of imagination is the marvelous transformation that it works in character. Imagine that you are one with the principal of good, and you will become truly good.
+ - We increase whatever we praise. The whole creation responds to praise, and is glad.
+ - It is the childlike mind that finds the kingdom.
+ - The Inexhaustible Resource of Spirit is equal to every demand. There is no reality in lack. Abundance is here and now manifest.
+ - The one and only formative power given to man is thought. By his thinking he not only makes character, but body and affairs, for “as he thinketh within himself, so is he.”
+ - There are opportunities everywhere, just as there have always been...
+ - We increase whatever we praise.
+ - Words are also seeds, and when dropped into the invisible spiritual substance, they grow and bring forth after their kind.
+ - We shall serve for the joy of serving, prosperity shall flow to us and through us in unending streams of plenty.
+ - Here is a mental treatment guaranteed to cure every ill that flesh is heir to: sit for half an hour every night and mentally forgive everyone against whom you have any ill will or antipathy.
+ - Be still and turn within to the great source.
+ - The mind of the spirit will guide you in perfect ways, even in the minute details of your life, if you will let it do so.
+ - It is a sin to be poor.
+ - Every man who accomplishes things sees first in his mind what he wishes to do. He puts away all doubt. It makes no difference how small or how large the thing you want to do may be; if you have an unlimited confidence in your ability to do it, you will do.
+ - All causes are essentially mental, and whosoever comes into daily contact with a high order of thinking must take on some of it.
+ - Imagination gives the man the ability to poject himself through time and space and rise above all limitations.
+ - Let the God within you express itself through you in the world without.
+ - Men who accomplish great things in the industrial world are the ones who have faith in the money producing power of ideas.
+ - It is the law of Spirit that we must be that which we would draw to us. If we would draw to us love, we must be love, be loving and kind; if we would have peace and harmony in our environment, we must establish it within ourselves.
+
+24 quotes

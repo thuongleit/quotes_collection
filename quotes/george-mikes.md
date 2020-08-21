@@ -1,0 +1,59 @@
+ - Many Continentals think life is a game; the English think cricket is a game.
+ - The man who is not afraid of danger is not a hero, but a psychopath.
+ - A criminal may improve and become a decent member of society. A foreigner cannot improve. Once a foreigner, always a foreigner. There is no way out for him.
+ - On the Continent there is one topic which should be avoided-the weather; in England, if you do not repeat the phrase “Lovely day, isn’t it?” at least two hundred times a day, you are considered a bit dull.
+ - The English take everything with an exquisite sense of humour. They are only offended if you tell them that they have no sense of humour.
+ - Bad English was the second language of Israel and bad Hebrew, of course, remained the national language.
+ - In England only uneducated people show off their knowledge; nobody quotes Latin or Greek authors in the course of conversation, unless he has never read them.
+ - English humor resembles the Loch Ness Monster in that both are famous but there is a strong suspicion that neither exists.
+ - It is often said that the Japanese are extremely clean at home, or inside any house or office, but dirty and untidy outside. ‘Go and look at a railway station,’ I was told, ‘and you’ll be horrified.’ I went and was horrified; horrified by the cleanliness of the place.
+ - The English have no soul; they have the understatement instead.
+ - Foreigners have souls; the English haven’t.
+ - Once you start buying first aid kits you start having accidents.
+ - On the Continent people have good food; in England people have good table manners.
+ - Jokes are better than war. Even the most aggressive jokes are better than the least aggressive wars. Even the longest jokes are better than the shortest wars.
+ - The British suffer from a most unfortunate superiority complex – unjustified even under Victoria and most certainly hopelessly out-of-date today.
+ - You can keep a dog: but it is the cat who keeps people, because cats find humans useful domestic animals.
+ - Australia objects to the mini-skirt not on moral but on economic grounds. Australians are no prudes and the lovely, healthy, sporty Australian girls have no reason to hide their knees and thighs. However, the mini-skirt is disastrous for the wool-trade.
+ - People on the Continent either tell you the truth or lie; in England they hardly ever lie, but they would not dream of telling you the truth.
+ - It was decided almost two hundred years ago that English should be the language spoken in the United States. It is not known, however, why this decision has not been carried out.
+ - American radio is the reverse of the Shakespearean stage. In Shakespeare’s time the world’s greatest dramas were acted with the most primitive technical arrangements; on the American air the world’s most primitive writing is performed under perfect technical conditions.
+ - THE British are brave people. They can face anything, except reality.
+ - The Japanese are human beings like the rest of us, but they will strongly resent this insinuation.
+ - An Englishman, even if he is alone, forms an orderly queue of one.
+ - Bargaining is a repulsive habit; compromise is one of the highest human virtues – the difference between the two being that the first is practised on the Continent, the latter in Great Britain.
+ - It is great fun dying in the United States of America. It is great fun first of all for the undertakers who make a wonderful living out of it but also for the deceased who suddenly becomes the centre of attention and fuss.
+ - In the field of snobbery, Australia is an underdeveloped country; even a few British ex-colonies, regarded as under developed in all other respects, could export a great deal of snobbery to Australia and still have enough to spare for their own, internal needs.
+ - Humility is one of the most repulsive virtues, nearly always false.
+ - The Art of Conversation could not die in Australia; it never lived. Television did not kill it; there was nothing there to kill.
+ - A foreign observer is struck by our gentleness: by the orderly behaviour of the English crowds, the lack of pushing and quarrelling, the willingness to form queues.
+ - A couple from Sydney or Melbourne might leave on the same day for their holiday: the wife might go sun-bathing at Surfers Paradise, in Queensland, the husband ski-ing in the Snowy Mountains. A lucky country.
+ - There are many non-intellectual countries; Australia is one of the few anti-intellectual ones.
+ - Was he joking? Was he being sarcastic? Aggressive? Impertinent? Or just courteous? There was no telling from his impassive face. What a country, he thought despairingly. In Russia you always knew. If a man made a stern face he was threatening; if he was laughing uproariously, he was joking.
+ - On the Continent stray cats are judged individually on their merit-some are loved, some are only respected; in England they are universally worshipped as in ancient Egypt.
+ - When a wicked and unworthy subject annoyed the Sultan of Turkey or the Czar of Russia, he had his head cut of without much ceremony; but when the same happened in England, the monarch declared : “We are not amused”.
+ - The trouble with tea is that originally it was quite a good drink. So a group of the most eminent British scientists put their heads together, and made complicated biological experiments to find a way of spoiling it. To the eternal glory of British science their labor bore fruit.
+ - I said in my earlier book, and find no reason for retracting my statement, that the famous Jewish sense of humour got lost in transit to Israel.
+ - A dog will flatter you but you have to flatter the cat.
+ - The world still consists of two clearly divided groups: the English and the foreigners. One group consists of less than 50 million people; the other of 3,950 million. The latter group does not really count.
+ - The English are always ready to admire anything so long as they can queue up.
+ - Israel also deprived the world of its chance of shedding tears of genuine sympathy over her destruction. The world resents this; it likes to feel noble and sympathetic.
+ - I have often thought that the aim of port is to give you a good and durable hangover, so that during the next day you should be reminded of the splendid occasion the night before.
+ - Nobody uses his car in New York, because so many people use it that traffic is congested and unbearably slow.
+ - The Americans are extremely gadget minded people and American gadgets have a peculiar characteristic: they work.
+ - Israelis keep teaching you your own business. God knows everything but the Israelis know everything better.
+ - The country has always been governed by a coalition but today it is governed by a so-called Grand Coalition which is a more polite word for all and sundry.
+ - I asked many friends if Australian anti-intellectualism was still a living force and they all told me it was. If you are above average intelligence, hide this embarrassing fact.
+ - Australians are decent people with the right instincts and they wish everybody well; but if all is not well, it is none of their business and they will not lose too much sleep over it. The shrug of the shoulders has become – only temporarily, I daresay – the national gesture of Australia.
+ - Tel-Aviv airport is still the only airport in the world where each passenger is met by ten relatives.
+ - In Moscow they do not pay much attention to the living but keep their cemeteries in a splendid state.
+ - Although the rudiments of snobbery are there, its finer developments are basically alien to the Australian soul – that is, if Australians have a soul; many people believe that they are too matter-of-fact and down-to-earth to have such fancy commodities.
+ - Prices in Italy are only slightly lower than in France, which means that Italy is a very expensive country for everyone, natives, visitors and tourists.
+ - To be extravagant you need money. True. But you do not need your own money.
+ - To have created a Welfare State was a great achievement; but we must go on to create a Welfare Planet.
+ - Japan is, you often feel, an improved version of the United States.
+ - Long before the word Zionism was uttered for the first time, old religious Jews came from all over the world to die in Jerusalem. It is the finest place to die in – it has always been acknowledged. It has a joie de mourir quite its own.
+ - When people say England, they sometimes mean Great Britain, sometimes the United Kingdom, sometimes the British Isles, – but never England.
+ - In England it is bad manners to be clever, to assert something confidently. It may be your own personal view that two and two make four, but you must not state it in a self-assured way, because this is a democratic country and others may be of a different opinion.
+
+57 quotes

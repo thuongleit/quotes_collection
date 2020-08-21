@@ -1,0 +1,81 @@
+ - High expectations are the key to everything.
+ - There is only one boss: the customer. And he can fire everybody in the company, from the chairman on down, simply by spending his money somewhere else.
+ - There is only one boss. The customer.
+ - The goal as a company is to have customer service that is not just the best, but legendary.
+ - We’re all working together; that’s the secret.
+ - Exceed your customer’s expectations. If you do, they’ll come back over and over. Give them what they want – and a little more.
+ - Outstanding leaders go out of their way to boost the self-esteem of their personnel. If people believe in themselves, it’s amazing what they can accomplish.
+ - If you don’t listen to your customers, someone else will.
+ - Swim upstream. Go the other way. Ignore the conventional wisdom.
+ - To succeed in this world, you have to change all the time.
+ - Individuals don’t win in business, teams do.
+ - Do it. Try it. Fix it.
+ - Capital isn’t scarce; vision is.
+ - If you love your work, you’ll be out there every day trying to do it the best you possibly can, and pretty soon everybody around will catch the passion from you – like a fever.
+ - Don’t get so stuck in your ways that you can’t change.
+ - Celebrate your success and find humor in your failures. Don’t take yourself so seriously. Loosen up and everyone around you will loosen up. Have fun and always show enthusiasm. When all else fails, put on a costume and sing a silly song.
+ - Communicate everything you can to your associates. The more they know, the more they care. Once they care, there is no stopping them.
+ - Great ideas come from everywhere if you just listen and look for them. You never know who’s going to have a great idea.
+ - Focus on something the customer wants, and then deliver it.
+ - If you want a successful business, your people must feel that you are working for them – not that they are working for you.
+ - There’s absolutely no limit to what plain, ordinary, working people can accomplish if they’re given the opportunity and encouragement to do their best.
+ - It was almost as if I had a right to win. Thinking like that often seems to turn into sort of a self-fulfilling prophecy.
+ - It’s just paper – all I own is a pickup truck and a little Wal-Mart stock.
+ - Control your expenses better than your competition. This is where you can always find the competitive advantage.
+ - Our best ideas come from clerks and stockboys.
+ - Take the best out of everything and adapt it to your needs.
+ - The way management treats their associates is exactly how the associates will then treat the customers.
+ - You can’t just keep doing what works one time, everything around you is changing. To succeed, stay out in front of change.
+ - Curiosity doesn’t kill the cat; it kills the competition.
+ - Leaders must always put their people before themselves. If you do that, your business will take care of itself.
+ - Lose your smile and lose your customers.
+ - You can learn from everybody.
+ - Commit to your business. Believe in it more than anybody else.
+ - If I had to single out one element in my life that has made a difference for me, it would be a passion to compete.
+ - Most everything I’ve done I’ve copied from somebody else.
+ - You can make a lot of mistakes and still recover if you run an efficient operation. Or you can be brilliant and still go out of business if you’re too inefficient.
+ - A computer can tell you down to the dime what you’ve sold, but it can never tell you how much you could have sold.
+ - We’re all working together; that’s the secret. And we’ll lower the cost of living for everyone, not just in America, but we’ll give the world an opportunity to see what it’s like to save and have a better lifestyle, a better life for all. We’re proud of what we’ve accomplished ; we’ve just begun.
+ - Ignore the conventional wisdom. If everybody else is doing it one way, there’s a good chance you can find your niche by going in exactly the opposite direction.
+ - The key to success is to get out into the store and listen to what the associates have to say. It’s terribly important for everyone to get involved. Our best ideas come from clerks and stockboys.
+ - I had to get up everyday with my mind set on improving something.
+ - Keep everybody guessing as to what your next trick is going to be. Don’t become too predictable.
+ - I loved retail from the beginning, and I still love it today.
+ - I have always been driven to buck the system, to innovate, to take things beyond where they’ve been.
+ - Celebrate your successes. Find some humor in your failures.
+ - When all else fails, put on a costume and sing a silly song.
+ - I had to pick myself up and get on with it, do it all over again, only even better this time.
+ - Share your profits with all your associates, and treat them as partners. In turn, they will treat you as a partner, and together you will all perform beyond your wildest expectations.
+ - The secret of successful retailing is to give your customers what they want.
+ - After a lifetime of swimming upstream, I am convinced that one of the real secrets to Wal-mart’s phenomenal success has been that very tendency.
+ - There are only four things in life that matter. The first is happiness and I’ll sell you the other three for a dollar.
+ - Loosen up, and everybody around you will loosen up.
+ - I believe in always having goals, and always setting them high.
+ - Job security lasts only as long as the customer is satisfied. Nobody owes anybody else a living.
+ - I learned a lesson which has stuck with me all through the years: you can learn from everybody. I didn’t just learn from reading every retail publication I could get my hands on, I probably learned the most from studying what John Dunham was doing across the street.
+ - Each Wal-Mart store should reflect the values of its customers and support the vision they hold for their community.
+ - I probably have traveled and walked into more variety stores than anybody in America. I am just trying to get ideas, any kind of ideas that will help our company. Most of us don’t invent ideas. We take the best ideas from someone else.
+ - If one of our customers comes into the store without a smile, I’ll give them one of mine.
+ - Appreciate everything your associates do for the business.
+ - I think my constant fiddling and meddling with the status quo may have been one of my biggest contributions to the later success of Wal-Mart.
+ - I pay low wages. I can take advantage of that. We’re going to be successful, but the basis is a very low-wage, low-benefit model of employment.
+ - I was asked what I thought about the recession. I thought about it and decided not to take part.
+ - Information is power, and the gain you get from empowering your associates more than offsets the risk of informing your competitor.
+ - I think I overcame every single one of my personal shortcomings by the sheer passion I brought to my work. I don’t know if you’re born with this kind of passion, or if you can learn it. But I do know you need it.
+ - Money and ownership alone aren’t enough. Set high goals, encourage competition, and then keep score.
+ - I’d hate to see any descendants of mine fall into the category of what I’d call ‘idle rich’ – a group I’ve never had much use for.
+ - There’s a lot more business out there in small town America than I ever dreamed of.
+ - The job of senior management is to cultivate an environment where store managers can learn from the market and from each other.
+ - One thing my and mother and dad shared completely was their approach to money – they just didn’t spend it.
+ - We let folks know we’re interested in them and that they’re vital to us. cause they are.
+ - I had confidence that as long as we did our work well and were good to our customers, there would be no limit to us.
+ - I’d still say that visiting the stores and listening to our folks was one of the most valuable uses of my time as an executive. But really, our best ideas usually do come from the folks in the stores. Period.
+ - It is unhealthy to marinate in your own press clippings.
+ - I’ve owned about 18 airplanes over the years, and I’ve never bought one of them new.
+ - I’ve always been driven to buck the system.
+ - Some families sell their stocks off a little bit at a time to live high, and then – boom – somebody takes them over, and it all goes down the drain.
+ - I guess in all my years, what I heard more than anything else was: a mere town cannot support a discount store for very long.
+ - Expenses should never exceed one percent of our purchases.
+ - I not only knew I wanted to go into retailing, I also knew I wanted to go into business for myself.
+
+79 quotes

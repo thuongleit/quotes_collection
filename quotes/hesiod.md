@@ -1,0 +1,114 @@
+ - Timeliness is best in all matters.
+ - If you add a little to a little and do this often, soon the little will become great.
+ - I see no hope for the future of our people if they are dependent on the frivolous youth of today, for certainly all youth are reckless beyond words. When I was a boy, we were taught to be discrete and respectful of elders, but the present youth are exceedingly wise and impatient of restraint.
+ - It is best to do things systematically, since we are only human, and disorder is our worst enemy.
+ - Never make a companion equal to a brother.
+ - Bacteria: The only culture some people have.
+ - Justice prevails over transgression when she comes to the end of the race.
+ - In front of excellence, the immortal gods have put sweat, and long and steep is the way to it.
+ - A bad neighbor is a misfortune, as much as a good one is a great blessing.
+ - It will not always be summer: build barns.
+ - Do not let any sweet-talking woman beguile your good sense with the fascinations of her shape. It’s your barn she’s after.
+ - Love those who love you, help those you help you, and give to those who give to you.
+ - For a man wins nothing better than a good wife, and then again nothing deadlier than a bad one.
+ - Happy is the man whom the Muses love: sweet speech flows from his mouth.
+ - Gossip and rumor are evil; easy to lift up, heavy to carry, and hard to put down again.
+ - Preserve the mean; the opportune moment is best in all things.
+ - Work is not a shame. Laziness is a shame.
+ - Before the gates of excellence the high gods have placed sweat; long is the road thereto and rough and steep at first; but when the heights are reached, then there is ease, though grievously hard in the winning.
+ - That man is best who sees the truth himself. Good too is he who listens to wise counsel. But who is neither wise himself nor willing to ponder wisdom is not worth a straw.
+ - You trust a thief when you trust a woman.
+ - Do not put your work off till to-morrow and the day after; for a sluggish worker does not fill his barn, nor one who puts off his work: industry makes work go well, but a man who puts off work is always at hand-grips with ruin.
+ - Actions from youth, advice from the middle-aged, prayers from the aged.
+ - Observe due measure, for right timing is in all things the most important factor.
+ - Only fools need suffer to learn.
+ - A day is sometimes our mother, sometimes our stepmother.
+ - He is a fool who tries to match his strength with the stronger.
+ - The man who is rich in fancy thinks that his wagon is already built; poor fool, he does not know that there are a hundred timbers to a wagon.
+ - Do not let a flattering woman coax and wheedle you and deceive you; she is after your barn.
+ - But he who neither thinks for himself nor learns from others, is a failure as a man.
+ - The half is greater than the whole.
+ - Long exercise, my friend, inures the mind; And what we once disliked we pleasing find.
+ - Far best is he who is himself all-wise, and he, too, good who listens to wise words; But whoso is not wise or lays to hear another’s wisdom is a useless man.
+ - Invite your friend to a feast, but leave your enemy alone; and especially invite the one who lives near you.
+ - In work there is no shame; shame is in the idleness.
+ - Diligence increaseth the fruit of toil. A dilatory man wrestles with losses.
+ - Inhibition is no good provider for a needy man, Inhibition, which does men great harm and great good. Inhibition attaches to poverty, boldness to wealth.
+ - The best man of all is he who knows everything himself. Good also the man who accepts another’s sound advice; but the man who neither knows himself nor takes to hear what another says, he is no good at all.
+ - A sparing tongue is the greatest treasure among men.
+ - If you speak evil, you will soon be worse spoken of.
+ - The Gods rank work above virtues.
+ - Admire a small ship, but put your freight in a large one; for the larger the load, the greater will be the profit upon profit.
+ - Whoever, fleeing marriage and the sorrows that women cause, does not wish to wed comes to a deadly old age.
+ - Do not get a name as overly lavish or too inhospitable.
+ - An income means life to wretched mortals, but it is a terrible fate to die among the waves.
+ - Do not put all your goods in hollow ships.
+ - Potter is piqued with potter, joiner with joiner, beggar begrudges beggar, and singer singer.
+ - Potter is potter’s enemy, and craftsman is craftsman’s rival; tramp is jealous of tramp, and singer of singer.
+ - In the race for wealth, a neighbor tries to outdo his neighbor, but this strife is good for men. For the potter envies potter, and the carpenter the carpenter, and the beggar rivals the beggar, and the singer the singer.
+ - When you deal with your brother, be pleasant, but get a witness.
+ - Work is no disgrace: it is idleness which is a disgrace.
+ - Night, having Sleep, the brother of Death.
+ - Whoever happens to give birth to mischievous children lives always with unending grief in his spirit and heart.
+ - The dawn speeds a man on his journey, and speeds him too in his work.
+ - Often even a whole city suffers for a bad man who sins and contrives presumptuous deeds.
+ - Hunger is an altogether fit companion for the idle man.
+ - Whoever has trusted a woman has trusted deceivers.
+ - The man who procrastinates is always struggling with misfortunes.
+ - Men must sweat to attain virtue.
+ - The artist envies what the arties gains, The bard the rival bard’s successful strains.
+ - For both faith and want of faith have destroyed men alike.
+ - Try to take for a mate a person of your own neighborhood.
+ - Neither make thy friend equal to a brother; but if thou shalt have made him so, be not the first to do him wrong.
+ - Bring a wife home to your house when you are of the right age, not far short of 30 years, nor much above this is the right time for marriage.
+ - False shame accompanies a man that is poor, shame that either harms a man greatly or profits him; shame is with poverty, but confidence with wealth.
+ - Mortals grow swiftly in misfortune.
+ - He is senseless who would match himself against a stronger man; for he is deprived of victory and adds suffering to disgrace.
+ - Let the price fixed with a friend be sufficient, and even dealing with a brother call in witnesses, but laughingly.
+ - Keep adding little by little and it will become a big heap.
+ - No gossip ever dies away entirely, if many people voice it: it, too, is a kind of divinity.
+ - Even though it’s hard, it’s easy.
+ - No whispered rumours which the many spread can wholly perish.
+ - It is a hard thing for a man to be righteous, if the unrighteous man is to have the greater right.
+ - It is not possible either to trick or escape the mind of Zeus.
+ - A man who works evil against another works it really against himself, and bad advice is worst for the one who devised it.
+ - In the morning of like, work; in the midday, give counsel; in the evening, pray.
+ - An evil plan does mischief to the planner.
+ - Love, who is most beautiful among the immortal gods, the melter of limbs, overwhelms in their hearts the intelligence and wise counsel of all gods and all men.
+ - He harms himself who does harm to another, and the evil plan is most harmful to the planner.
+ - He’s only harming himself who’s bent upon harming another.
+ - Gain not base gains; base gains are the same as losses.
+ - Invite the man that loves thee to a feast, but let alone thine enemy.
+ - Inhibition is no good provider for a needy man.
+ - Do not seek evil gains; evil gains are the equivalent of disaster.
+ - For now indeed is the race of iron; and men never cease from labour and sorrow by day and from perishing by night.
+ - Badness you can get easily, in quantity. The road is smooth and lies close by. But in front of excellence the immortal gods have put sweat, and long and steep is the way to do it, and rough at first. But when you come to the top, then it is easy, even though it is hard.
+ - And Zeus will destroy this race of mortal men too, when they, at their birth, have grey hair on their temples.
+ - The gods being always close to men perceive those who afflict others with unjust devices and do not fear the wrath of heaven.
+ - The fool learns by suffering.
+ - Of themselves diseases come upon men continually by day and by night, bringing mischief to mortals silently; for wise Zeus took away speech from them. So is there no way to escape the will of Zeus.
+ - This man, I say, is most perfect who shall have understood everything for himself, after having devised what may be best afterward and unto the end.
+ - How easily some light report is set about, but how difficult to bear.
+ - He for himself weaves woe who weaves for others woe, and evil counsel on the counselor recoils.
+ - They are fools who do not know how much the half exceeds the whole.
+ - Do not gain basely; base gain is equal to ruin.
+ - We know how to speak many falsehoods that resemble real things, but we know, when we will, how to speak true things.
+ - No day is wholly unproductive of good.
+ - Aegis-bearing Zeus has a design for each occasion, and mortals find this hard to comprehend.
+ - Peace is a nursing mother to the land.
+ - At the beginning of the cask and the end take thy fill but be saving in the middle; for at the bottom the savings comes too late.
+ - Best is the man who thinks for himself.
+ - Man’s chiefest treasure is a sparing tongue.
+ - There was not after all a single kind of strife, but on earth there are two kinds: one of them a man might praise when he recognized her, but the other is blameworthy.
+ - Labor is no disgrace.
+ - And the evil wish is most evil to the wisher.
+ - Let it please thee to keep in order a moderate-sized farm, that so thy garners may be full of fruits in their season.
+ - Giving is good, but taking is bad and brings death.
+ - The potter is at enmity with the potter.
+ - There is also an evil report; light, indeed, and easy to raise, but difficult to carry, and still more difficult to get rid of.
+ - Wealth should not be seized, but the god-given is much better.
+ - But they who give straight judgements to strangers and to those of the land and do not transgress what is just, for them the city flourishes and its people prosper.
+ - Money is life to us wretched mortals.
+ - Drink your fill when the jar is first opened, and when it is nearly done, but be sparing when it is half-empty; it’s a poor savingwhen you come to the dregs.
+
+112 quotes

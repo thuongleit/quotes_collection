@@ -1,0 +1,55 @@
+ - Too many people live too much in the past. The past must be a springboard, not a sofa.
+ - A man who trusts nobody is apt to be the kind of man nobody trusts.
+ - No man succeeds without a good woman behind him. Wife or mother, if it is both, he is twice blessed indeed.
+ - The wind of change is blowing through the continent. Whether we like it or not, this growth of national consciousness is a political fact.
+ - I’d like that translated, if I may.
+ - One nanny said, “Feed a cold”; she was a neo-Keynesian. Another nanny said, “Starve a cold”; she was a monetarist.
+ - If you don’t believe in God, all you have to believe in is decency. Decency is very good. Better decent than indecent. But I don’t think it’s enough.
+ - I have learned that in all negotiations nothing matters except the will to reach agreement.
+ - It was a storm in a tea cup, but in politics we sail in paper boats.
+ - There are three bodies no sensible man directly challenges: the Roman Catholic Church, the Brigade of Guards and the National Union of Mineworkers.
+ - When the curtain falls, the best thing an actor can do is to go away.
+ - It is, of course, a trite observation to say that we live “in a period of transition.” Many people have said this at many times. Adam may well have made the remark to Eve on leaving the Garden of Eden.
+ - Jaw-jaw is better than war-war.
+ - Power? It’s like a Dead Sea fruit. When you achieve it, there is nothing there.
+ - To be alive at all involves some risk.
+ - History is apt to judge harshly those who sacrifice tomorrow for today.
+ - We have not overthrown the divine right of kings to fall down for the divine right of experts.
+ - It has been said that there is no fool like an old fool, except a young fool. But the young fool has first to grow up to be an old fool to realize what a damn fool he was when he was a young fool.
+ - Once the bear’s hug has got you, it is apt to be for keeps.
+ - No man should ever lose sleep over public affairs.
+ - Marxism is like a classical building that followed the Renaissance; beautiful in its way, but incapable of growth.
+ - You will find the Americans much as the Greeks found the Romans: great, big, vulgar, bustling people more vigorous than we are and also more idle, with more unspoiled virtues but also more corrupt.
+ - It is the duty of Her Majesty’s government neither to flap nor to falter.
+ - Tradition does not mean that the living are dead, it means that the dead are living.
+ - Most of our people have never had it so good.
+ - Britain’s most useful role is somewhere between bee and dinosaur.
+ - Churchill was fundamentally what the English call unstable – by which they mean anybody who has that touch of genius which is inconvenient in normal times.
+ - There might be 1 finger on the trigger, but there will be 15 fingers on the safety catch.
+ - Revolt by all means, but only on one issue at a time. To do more would be to confuse the whips.
+ - I was determined that no British government should be brought down by the action of two tarts.
+ - I am MacWonder one moment and MacBlunder the next.
+ - It has been said that there is no fool like an old fool.
+ - I was a sort of son to Ike, and it was the other way round with Kennedy.
+ - I have never found criticism is ever inhibited by ignorance.
+ - The only quality needed for an MP is the ability to write a good letter.
+ - A successful current affairs television show seems to be more and more a cross between a music hall turn and a scene in a torture chamber.
+ - You can hardly say boo to a goose in the House of Commons now without cries of “Ungentlemanly,” “Not fair” and all the rest.
+ - It’s a good thing to be laughed at. It’s better than to be ignored.
+ - After a long life I have come to the conclusion that when all the Establishment is united it is always wrong.
+ - It isn’t those who always addressing each other as comrade who necessarily show the most brotherly feelings.
+ - As usual the Liberals offer a mixture of sound and original ideas. Unfortunately none of the sound ideas is original and none of the original ideas is sound.
+ - It’s no use crying over spilt summits.
+ - We believe that unless we give opportunity to the strong and able, we shall never have the means to provide real protection for the weak and the old.
+ - After long experience of politics, I have never found that there is any inhibition caused by ignorance as regards criticism.
+ - 90% of what we did the Press didn’t know about, and 90% of what they did know about they got wrong.
+ - At home, you always have to be a politician; when you’re abroad, you almost feel yourself a statesman.
+ - If ever the call comes to them, the young will go straight from the ranks of the neutralists into the ranks of he Majesty’s Forces, as they have so often done in the past.
+ - We do not intend to part from the Americans and we do not intend to be satellites. I am sure they do not want us to be so. The stronger we are, the better partners we shall be; and I feel certain that as the months pass we shall draw continually closer together with mutual confidence and respect.
+ - I read a great number of press reports and find comfort in the fact that they are nearly always conflicting.
+ - Stop-Go seemed more sensiblr than using the brake and accelerator at the same time – a practice that later became fashionable.
+ - I will not be able to carry the physical burden of leading the Party at the next general election. I hope it will soon be possible for the customary processes of consultation to be carried on within the Party about its future leadership.
+ - Memorial services are the cocktail parties of the geriatric set.
+ - If people want a sense of purpose they should get it from their archbishop. They should certainly not get it from their politicians.
+
+53 quotes

@@ -1,0 +1,23 @@
+ - If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present.
+ - Gratitude builds a bridge to abundance.
+ - Be positive. Be true. Be kind.
+ - Distance yourself from negative people who try to lower your motivation and decrease your ambition. Create space for positive people to come into your life. Surround yourself with positive people who believe in your dreams, encourage your ideas, support your ambitions, and bring out the best in you.
+ - Discipline your mind to think positively; to see the good in every situation and look on the best side of every event.
+ - Time doesn’t heal emotional pain, you need to learn how to let go.
+ - Good things happen in your life when you surround yourself with positive people.
+ - Happiness depends on your mindset and attitude. Happiness is in your mind, not in the circumstance.
+ - Whatever choice you make makes you. Choose wisely.
+ - Failures are the stairs we climb to reach success.
+ - A random act of kindness, no matter how small, can make a tremendous impact on someone else’s life.
+ - Learning to distance yourself from all the negativity is one of the greatest lessons to achieve inner peace.
+ - No one has ever achieved greatness without dreams.
+ - Associate yourself with people who think positively. You cannot surround yourself with negative people and expect positive outcomes.
+ - You cannot control what happens to you, but you can control the way you think about all the events. You always have a choice. You can choose to face them with a positive mental attitude.
+ - To conquer fear is the best way to gain your self-confidence.
+ - Do what you love, love what you do, and with all your heart give yourself to it.
+ - Stop doing what is easy. Start doing what is right.
+ - Great goals make great people. People cannot hit what they do not aim for.
+ - If you want to get positive results you have to refuse to think negative thoughts by substituting them with constructive ones. When you develop a positive attitude toward life, your life will start having a positive result.
+ - The more you give, the more you can give.
+
+21 quotes

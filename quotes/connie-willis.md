@@ -1,0 +1,28 @@
+ - Science fiction is an amazing literature: plot elements that you would think would be completely worn out by now keep changing into surprising new forms.
+ - Cats, as you know, are quite impervious to threats.
+ - It was about a girl who helps an ugly old woman who turns out to be a good fairy in disguise. Inner values versus shallow appearances.
+ - Why do only the awful things become fads? I thought. Eye-rolling and Barbie and bread pudding. Why never chocolate cheesecake or thinking for yourself?
+ - If King Harold had had swans on his side, England would still be Saxon.
+ - Fred Astaire is my hero. I love him because he was willing to kill himself to make his art look effortless. And because he proved it’s possible to be an artist and a good person.
+ - It is my belief that everything you need to know about the world can be learned in a church choir.
+ - Management cares about only one thing. Paperwork. They will forgive almost anything else – cost overruns, gross incompetence, criminal indictments – as long as the paperwork’s filled out properly. And in on time.
+ - To do something for someone or something you loved-England or Shakespeare or a dog or the Hodbins or history-wasn’t a sacrifice at all. Even if it cost you your freedom, your life, your youth.
+ - When you’re a writer, the question people always ask you is, “Where do you get your ideas?” Writers hate this question. It’s like asking Humphrey Bogart in The African Queen, “Where do you get your leeches?” You don’t get ideas. Ideas get you.
+ - The reason Victorian society was so restricted and repressed was that it was impossible to move without knocking something over.
+ - Barbie’s one of those fads whose popularity makes you lose all faith in the human race.
+ - And kissed her for a hundred and sixty-nine years.
+ - It is not an easy thing to put on a wet sock.
+ - I have great faith in the future of books – no matter what form they may take – and of science fiction.
+ - There are some things worth giving up anything for, even your freedom, and getting rid of your period is definitely one of them.
+ - That’s what the movies do. They don’t entertain us, they don’t send the message: ‘We care.’ They give us lines to say, they assign us parts: John Wayne, Theda Bara, Shirley Temple, take your pick.
+ - I was never going to get any sleep. I was going to have Alice in Wonderland conversation after Alice in Wonderland conversation until I died of exhaustion. Here, in the restful, idyllic Victorian era.
+ - I hate sequels. They’re never as good as the first book.
+ - I have never written anything in one draft, not even a grocery list, although I have heard from friends that this is actually possible.
+ - You shouldn’t be looking for the secret to making people follow fads, you should be looking for the secret to making them think for themselves. Because that’s what science is all about.
+ - Perhaps that’s how I should think of them, Polly thought, the troupe and Miss Snelgrove and Trot. And Sir Godfrey. Not as lost to her, but as removed to this moment in time for safekeeping.
+ - Everyone else had the look of tired patience people always got when listening to a sermon, no matter what the century.
+ - There are moments when rather than reforming the human race I’d like to abandon it altogether and go become, say, one of Dr. O’Reilly’s macaques, which have to have more sense.
+ - One has not lived until one has carried a sixty-pound dog down a sweeping flight of stairs at half-past V in the morning.
+ - Writers are too neurotic to ever be happy.
+
+26 quotes

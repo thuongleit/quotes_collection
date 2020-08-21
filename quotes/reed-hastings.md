@@ -1,0 +1,39 @@
+ - Do not tolerate brilliant jerks. The cost to teamwork is too high.
+ - Don’t be afraid to change the model.
+ - Be big, fast and flexible.
+ - Be brutally honest about the short term and optimistic and confident about the long term.
+ - Stone Age. Bronze Age. Iron Age. We define entire epics of humanity by the technology they use.
+ - Tomorrow when you come to work, if it doesn’t make the customer happy, move the business forward, and save us money – don’t do it.
+ - The best managers figure out how to get great outcomes by setting the appropriate context, rather than by trying to control their people.
+ - But as an entrepreneur you have to feel like you can jump out of an aeroplane because you’re confident that you’ll catch a bird flying by. It’s an act of stupidity, and most entrepreneurs go splat because the bird doesn’t come by, but a few times it does.
+ - Companies rarely die from moving too fast, and they frequently die from moving too slowly.
+ - Taking smart risks can be very gratifying.
+ - I learned the value of focus. I learned it is better to do one product well than two products in a mediocre way.
+ - Something will eventually replace the Internet. But it’s hard to know what and when it will happen.
+ - I founded Netflix. I’ve built it steadily over 12 years now, first with DVD becoming profitable in 2002, a head-to-head ferocious battle with Blockbuster and evolving the company toward streaming.
+ - The Netflix brand for TV shows is really all about binge viewing. The ability to get hooked and watch episode after episode.
+ - I got the idea for Netflix after my company was acquired. I had a big late fee for Apollo 13. It was six weeks late and I owed the video store $40. I had misplaced the cassette. It was all my fault.
+ - Most entrepreneurial ideas will sound crazy, stupid and uneconomic, and then they’ll turn out to be right.
+ - At Netflix, we think you have to build a sense of responsibility where people care about the enterprise. Hard work, like long hours at the office, doesn’t matter as much to us. We care about great work.
+ - I’m on the Facebook board now. Little did they know that I thought Facebook was really stupid when I first heard about it back in 2005.
+ - I’ve worked very hard, but my life’s always been fun.
+ - Comparing Apple to Netflix is like comparing apples to oranges, especially if the oranges made so many mistakes that people stopped eating oranges and just went back to Blockbuster.
+ - I think there will be 20 years of evolution from linear broadcast to internet television.
+ - On the Internet you get continuous innovation, so every year the streams are a little better.
+ - Truly brilliant marketing happens when you take something most people think of as a weakness and reposition it so people think of it as a strength.
+ - In fact, technology has been the story of human progress from as long back as we know. In 100 years people will look back on now and say, ‘That was the Internet Age.’ And computers will be seen as a mere ingredient to the Internet Age.
+ - The Costa Rican government is prioritizing laying fiber optic over paving roads. Costa Rica is trying to become one of the Internet societies. This is happening throughout the world.
+ - When there’s an ache, you want to be like aspirin, not vitamins. Aspirin solves a very particular problem someone has, whereas vitamins are a general ‘nice to have’ market.
+ - Broadcast TV is like the landline of 20 years ago.
+ - Fibre optic is becoming like electricity. If you look at how electricity spread around the globe 100 years ago, that’s what’s happening now.
+ - It is clear that for many of our members two websites would make things more difficult, so we are going to keep Netflix as one place to go for streaming and DVDs.
+ - Our brand at Netflix is really focused on movies and TV shows.
+ - I watch mostly independent films.
+ - What’s got me excited about the education space is the growth of the Internet over the next 10, 20, 30 years.
+ - I’m an HBO subscriber, and I watch a bunch of great shows on HBO.
+ - But it may be one of our best markets in the long term because when the Japanese society embraces a brand it is a very deep connection, so we’re willing to make that investment knowing that it’s not the quick route to success that might be in other countries.
+ - I hate the photo shoots. I hate all that stuff.
+ - I don’t know of any Internet service that opens on a regional basis.
+ - Great leaders, like Steve Jobs or Jeff Bezos, also focused on the long term.
+
+37 quotes

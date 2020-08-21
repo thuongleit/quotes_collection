@@ -1,0 +1,22 @@
+ - While guns rumbled in the distance, we sang, painted, made collages and wrote poems with all our might. We were seeking an art based on fundamentals, to cure the madness of the age, and find a new order of things that would restore the balance between heaven and hell.
+ - Art is a fruit that grows in man, like a fruit on a plant, or a child in its mother’s womb.
+ - The vertical and the horizontal are the extreme signs available to man for touching the beyond and his inwardness.
+ - Soon silence will have passed into legend. Man has turned his back on silence. Day after day he invents machines and devices that increase noise and distract humanity from the essence of life, contemplation, meditation.
+ - Since the time of the cavemen, man has glorified himself, has made himself divine, and his monstrous vanity has caused human catastrophe. Art has collaborated in this false development. I find this concept of art which has sustained man’s vanity to be loathsome.
+ - DaDa is beautiful like the night, who cradles the young day in her arms.
+ - All things, and man as well, should be like nature, without measure.
+ - The important thing about Dada, it seems to me, is that Dadaists despised what is commonly regarded as art, but put the whole universe on the lofty throne of art.
+ - I allow myself to be guided by the work which is in the process of being born. I have confidence in it. I do not think about it.
+ - The essence of a sculpture must enter on tip-toe, as light as animal footprints on snow.
+ - Artists should work together like the artists of the Middle Ages.
+ - Any work that is not rooted in myth and poetry or that does not partake of the depth and essence of the universe is merely a ghost.
+ - The man who speaks and writes about art should refrain from censuring or pontificating. He will thus avoid doing anything foolish, for in the presence of primordial depth all art is but dream and nature.
+ - We do not wish to imitate nature, we do not wish to reproduce. We want to produce. We want to produce the way a plant produces its fruit, not depict. We want to produce directly, not indirectly. Since there is not a trace of abstraction in this art we call it concrete art.
+ - Often the hands grasp more quickly than the head.
+ - In recent times, Surrealist painters have used descriptive illusionistic academic methods.
+ - To be full of joy when looking at an oeuvre is not a little thing.
+ - Dada aimed to destroy the reasonable deceptions of man and recover the natural and unreasonable order.
+ - In the good times of Dada, we detested polished works, the distracted air of spiritual struggle, the titans, and we rejected them with all out being.
+ - Ever since my childhood, I was haunted by the search for perfection. An imperfectly cut paper literally made me ill. I would guillotine it.
+
+20 quotes

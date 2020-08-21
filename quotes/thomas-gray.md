@@ -1,0 +1,69 @@
+ - Full many a gem of purest ray serene The dark unfathom’d caves of ocean bear: Full many a flower is born to blush unseen, And waste its sweetness on the desert air.
+ - The paths of glory lead but to the grave.
+ - Hell is full of good intentions.
+ - Far from the madding crowd’s ignoble strife Their sober wishes never learn’d to stray; Along the cool sequester’d vale of life They kept the noiseless tenor of their way.
+ - Fair laughs the morn, and soft the zephyr blows, While proudly rising o’er the azure realm In gallant trim the gilded vessel goes, Youth on the prow, and Pleasure at the helm.
+ - Daughter of Jove, relentless power, Thou tamer of the human breast, Whose iron scourge and tort’ring hour The bad affright, afflict the best!
+ - Implores the passing tribute of a sigh.
+ - Commerce changes the fate and genius of nations.
+ - Youth smiles without any reason. It is one of its chiefest charms.
+ - The still small voice of gratitude.
+ - The language of the age is never the language of poetry, except among the French, whose verse, where the thought or image does not support it, differs in nothing from prose.
+ - Behind the steps that Misery treads Approaching Comfort view: The hues of bliss more brightly glow Chastised by sabler tints of woe, And blended form, with artful strife, The strength and harmony of life.
+ - Far from the madding crowd’s ignoble strife.
+ - Can storied urn, or animated bust Back to its mansion call the fleeting breath? Can Honour’s voice provoke the silent dust, Or Flatt’ry soothe the dull cold ear of Death?
+ - They hear a voice in every wind, And snatch a fearful joy.
+ - The time will come, when thou shalt lift thine eyes To watch a long-drawn battle in the skies. While aged peasants, too amazed for words, Stare at the flying fleets of wondrous birds.
+ - And moody madness laughing wild Amid severest woe.
+ - But knowledge to their eyes her ample page Rich with the spoils of time did ne’er unroll; Chill Penury repressed their noble rage, And froze the genial current of the soul.
+ - Some village Hampden, that with dauntless breast The little tyrant of his fields withstood, Some mute inglorious Milton here may rest, Some Cromwell guiltless of his country’s blood.
+ - Each in his narrow cell forever laid, The rude forefathers of the hamlet sleep.
+ - Ah, happy hills! ah, pleasing shade! Ah, fields beloved in vain! Where once my careless childhood stray’d, A stranger yet to pain! I feel the gales that from ye blow A momentary bliss bestow.
+ - What female heart can gold despise? What cat ’s averse to fish?
+ - The curfew tolls the knell of parting day, The lowing herd winds slowly o’er the lea, The ploughman homeward plods his weary way, And leaves the world to darkness and to me.
+ - Nor grandeur hear with a disdainful smile The short and simple annals of the poor.
+ - Hands that the rod of empire might have sway’d, Or waked to ecstasy the living lyre.
+ - There are certain scenes that would awe an atheist into belief without the help of any other argument.
+ - Ye towers of Julius, London’s lasting shame, With many a foul and midnight murder fed.
+ - Visions of glory, spare my aching sight! Ye unborn ages, crowd not on my soul!
+ - Ruin seize thee, ruthless king! Confusion on thy banners wait! Though fann’d by Conquest’s crimson wing, They mock the air with idle state.
+ - E’en from the tomb the voice of nature cries, E’en in our ashes live their wonted fires.
+ - Some bold adventurers disdain The limits of their little reign, And unknown regions date descry.
+ - From Helicon’s harmonious springs A thousand rills their mazy progress take.
+ - Sorrow’s faded form, and solitude behind.
+ - The applause of list’ning senates to command, The threats of pain and ruin to despise, To scatter plenty o’er a smiling land, And read their history in a nation’s eyes.
+ - The Attic warbler pours her throat, Responsive to the cuckoo’s note, The untaught harmony of spring.
+ - England, so long mistress of the sea, Where winds and waves confess her sovereignty, Her ancient triumphs yet on high shall bear And reign the sovereign of the conquered air.
+ - Poetry is thoughts that breathe, and words that burn.
+ - The different steps and degrees of education may be compared to the artificer’s operations upon marble; it is one thing to dig it out of the quarry, and another to square it, to give it gloss and lustre, call forth every beautiful spot and vein, shape it into a column, or animate it into a statue.
+ - Any fool may write a most valuable book by chance, if he will only tell us what he heard and saw with veracity.
+ - For who, to dumb forgetfulness a prey, This pleasing anxious being e’er resign’d, Left the warm precincts of the cheerful day, Nor cast one longing ling’ring look behind?
+ - We frolic while ’tis May.
+ - He pass’d the flaming bounds of place and time: The living throne, the sapphire blaze, Where angels tremble while they gaze, He saw; but blasted with excess of light, Closed his eyes in endless night.
+ - Here rests his head upon the lap of earth, A youth to fortune and to fame unknown: Fair Science frown’d not on his humble birth, And Melancholy mark’d him for her own.
+ - From toil he wins his spirits light, From busy day the peaceful night; Rich, from the very want of wealth, In heaven’s best treasures, peace and health.
+ - To brisk notes in cadence beating, glance their many-twinkling feet.
+ - Scatter plenty o’er a smiling land.
+ - And weep the more, because I weep in vain.
+ - If the best man’s faults were written on his forehead, he would draw his hat over his eyes.
+ - Beyond the limits of a vulgar fate, Beneath the good how far,-but far above the great.
+ - Bright-eyed Fancy, hov’ring o’er, Scatters from her pictured urn Thoughts that breathe and words that burn.
+ - Now as the Paradisiacal pleasures of the Mahometans consist in playing upon the flute and lying with Houris, be mine to read eternal new romances of Marivaux and Crebillon.
+ - How low, how little are the proud, How indigent the great!
+ - Ah, tell them they are men!
+ - Men will believe anything at all provided they are under no obligation to believe it.
+ - Thought would destroy their paradise.
+ - In buskined measures move Pale Grief and pleasing Pain, With Horror, tyrant of the throbbing breast.
+ - Rich with the spoils of time.
+ - And hie him home, at evening’s close, To sweet repast and calm repose.
+ - A fav’rite has no friend!
+ - As to posterity, I may ask what has it ever done to oblige me?
+ - Alas, regardless of their doom, the little victims play! No sense have they of ills to come nor care beyond today.
+ - And truth severe, by fairy fiction drest.
+ - One principal characteristic of vice in the present age is the contempt of fame.
+ - Low on his funeral couch he lies!
+ - When love could teach a monarch to be wise, And gospel-light first dawn’d from Bullen’s eyes.
+ - I shall be but a shrimp of an author.
+ - Where’er the oak’s thick branches stretch A broader browner shade; Where’er the rude and moss-grown beech O’er-canopies the glade, Beside some water’s rushy brink With me the Muse shall sit, and think.
+
+67 quotes

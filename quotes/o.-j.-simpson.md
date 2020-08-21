@@ -1,0 +1,35 @@
+ - The day you take complete responsibility for yourself, the day you stop making any excuses, that’s the day you start to the top.
+ - I’m absolutely, 100 percent, not guilty.
+ - In America you get as much justice as you can afford.
+ - I don’t understand what I did wrong except live a life that everyone is jealous of.
+ - You don’t get mood swings from eating cornflakes.
+ - Life’s been good to me. Why am I so lonely and bored? I used to wonder why so many rich men commit suicide. I no longer wonder.
+ - I had one fight in my adult life. I had the famous ’89 fight with Nicole, which she admits that she initiated the physical part.
+ - Women are my biggest defenders. It’s that bad-boy syndrome. Now girls chase me.
+ - I’m enjoying the money, the big house, the cars; what ghetto kid wouldn’t?
+ - The only thing that endures is character. Fame and wealth-all that is illusion. All that endures is character.
+ - Life was good to me. I had a great wife, good kids, money, my own health – and I’m lonely and bored.
+ - Fear of losing is what makes competitors so great. Show me a gracious loser and I’ll show you a permanent loser.
+ - Everybody’s got whatever problems they have. I refuse to let somebody’s mistaken beliefs affect my life.
+ - I consider myself a relatively moral guy.
+ - My NFL pension can barely pay my son’s tuition. You know, it’s very little money.
+ - What do you mean you have my children at the police station? Why are my kids at the police station?
+ - There is no prayer so blessed as the prayer which asks for nothing.
+ - I bleed all the time. I play golf and stuff, so there’s always something, nicks and stuff here and there.
+ - If there wasn’t no fight, there wasn’t no weekend.
+ - I think I’ve been a great citizen.
+ - I am actually for the first time looking forward to a litigation.
+ - I didn’t beat her. I just pushed her out of bed.
+ - I have always wanted to be liked and respected.
+ - I could not tell you the date of my mother’s death. I could not tell you the date of my dad’s death. These are not dates that I find significant.
+ - I don’t know how often I can discuss one incident in my entire life, but I’ll continue to do that.
+ - I really have reached a point where I can write a book about all of this.
+ - There is no principle involved in my holdout. Only money.
+ - Money takes wings. The only thing that endures is character.
+ - NFL owners should quit worrying about silly things like players celebrating in the end zone. They should give them something to really celebrate. Get rid of the artificial surfaces.
+ - I did not have anything to do with these murders. Ever.
+ - Nicole will come up in conversations where it’s in a part of the conversation. Or we may be somewhere and I would tell some story about their mother and I. You know, we always honor her birthday.
+ - I feel that my advances in the business world will shatter a lot of white myths about black athletes-and give some pride and hope to a lot of young blacks.
+ - I’ve been very clear. I won. I didn’t commit the crime.
+
+33 quotes

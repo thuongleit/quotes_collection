@@ -1,0 +1,32 @@
+ - Optimism is a political act. Those who benefit from the status quo are perfectly happy for us to think nothing is going to get any better. In fact, these days, cynicism is obedience.
+ - If mass media, social isolation in the suburbs, alienating workplaces and long car commutes create a bunker mentality, the Internet does the opposite.
+ - There is no such thing as garbage, just useful stuff in the wrong place.
+ - Deep walkability describes a city that is built in such a way that you can move from one area to another on foot, on bicycle, on transit and have an experience that remains a pleasant one, that you feel you are welcome not just in the neighborhood but moving between neighborhoods.
+ - I think there’s a gigantic generation gap in terms of how people understand the Internet and how much they think technology is an important factor in social change.
+ - Our cities need to change, fast. Tactical Urbanism is a guided tour of solutions created when local people decide they can’t wait for politics to catch up before they improve their neighborhoods. This weathervane book deserves a place on any urbanist’s bookshelf.
+ - Copenhagen has done a remarkable job creating streets that are focused on bicycles and pedestrians.
+ - By looking at climate change as a clean energy generation problem, we’re setting ourselves up not to solve it.
+ - It’s not just enough to survive. We’ve got to make something better than what we’ve got.
+ - Urban retrofitting: creating different sorts of spaces and uses out of places that are already there.
+ - Clean air and water, a diversity of animal and plant species, soil and mineral resources, and predictable weather are annuities that will pay dividends for as long as the human race survives – and may even extend our stay on Earth.
+ - Cities generate most of the global economy, and most of its energy use, resource demands and climate emissions. How we build cities over the next decades will largely determine whether we can deliver a bright green future.
+ - There’s no law of physics that says we have to be an unsustainable society – in fact, quite the opposite. The planet’s ready to work with us if we’re ready to think differently, but we do have to make that jump and start to do things in new ways.
+ - You don’t change the world by hiding in the woods, wearing a hair shirt, or buying indulgences in the form of ‘Save the Earth’ bumper stickers. You do it by articulating a vision for the future and pursuing it with all the ingenuity humanity can muster.
+ - At its very heart, Worldchanging is about using the best of people’s new ideas, bringing them together and applying them to the massive problems that we all face.
+ - In almost all city governments in America, the small group of people who don’t want change are able to block change.
+ - Powerful people doing bad things LIKE cynical, despairing citizens.
+ - For most people, using the Internet broadens their sense of who ‘we’ is and actually ends up leaving us in a place of greater compassion and understanding. It leaves us more connected to a larger group of people and more at one with a lot more people in our community.
+ - Carbon zero simply means that the emissions you are releasing either are zero or balance out to zero.
+ - I think we’re going to start to see a new model of civic advocacy where people get together once in a while to protest, but it’s more about an ongoing, sustained engagement in issues, networks and communities about which people care.
+ - We get so little news about the developing world that we often forget that there are literally millions of people out there struggling to change things to be fairer, freer, more democratic, less corrupt.
+ - There’s more to being an environmentalist than occasionally signing an online petition and mailing your check to the Sierra Club. Really the most effective environmental actions you can take have to do with crafting your home and surroundings, your workplace decisions and your investment habits.
+ - Cabbies in particular seem to like discussing the fate the Earth.
+ - The denser places get, the lower the amount of energy people use to get around it.
+ - Saying the Tech Bloom is not commercially driven is like saying Mother Teresa had an interest in the poor.
+ - The planet’s biggest problems have to do with sustainability, environmental decline, global poverty, disease, conflict and so forth. Really, they’re all interconnected – it’s one big problem, which is that the way we’re doing things can’t go on.
+ - By fundamentally changing how we design the places and systems that enable our daily lives, we can slash emissions way beyond the immediate carbon savings – because our own personal emissions are just the tip of a vast iceberg of energy and resources consumed far from our view.
+ - Cities are responsible for the vast majority of the creation of the economy. They’re also places into which we pour the vast majority of resources, the vast majority of energy and the places where a huge percentage of the decisions about how systems are built and how products designed, etc., happen.
+ - We have to craft new political realities, not only in places like India, Afghanistan, Kenya, Pakistan, but here at home as well. Another world is possible.
+ - Cities offer us powerful leverage on our most stubborn, wasteful practices. Long commutes in our cars, big power bills from our energy-hogging buildings, shopping trips to buy stuff that’ll spend a few short months in our homes and long centuries in our landfills.
+
+30 quotes

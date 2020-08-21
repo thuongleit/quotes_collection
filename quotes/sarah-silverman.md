@@ -1,0 +1,163 @@
+ - I like my life alone.
+ - I am 39 years old, and I still wake up every morning really excited I don’t have to go to school.
+ - If you quit being cunty, the whole world will stop being against you.
+ - You can be Hitler and go to confession and say forgive me, Father, I killed six million Jews, and the priest would just be like no problem. Say 10 Heil Marys. And Hitler goes to heaven.
+ - If my Catholic boyfriend and I ever have a kid, we’ll just be honest with it. We’ll say that Mommy is one of God’s chosen people, and Daddy believes that Jesus is magic!
+ - I’m Jewish, but I’m totally not.
+ - I do know that I can take a punch. I’ve been punched in the face three times. That’s, I think, a really important thing to know about yourself. It helps you in life. It helps you be brave when you know you can take a punch. I’m a lover, not a fighter. But, God bless me, I can take a punch.
+ - If you take a shower with your boyfriend, I guarantee by the time you step out of that shower, your breasts will be sparkling clean.
+ - We need to stop telling girls they can be anything they want when they grow up. Because it would have never occurred to them that they couldn’t.
+ - In the big picture, life has a gap in it. It just does. You don’t go crazy trying to fill it.
+ - As soon as a women gets to an age where she has opinions and she’s vital and she’s strong, she’s systematically shamed into hiding under a rock.
+ - I really think everything is fair game.
+ - I think the difference between being miserable and finding happiness is just a matter of perspective. If you live your life defining yourself by what other people think of you, it’s a form of self-torture.
+ - Guess what, Martin Luther King? I had a dream, too.
+ - Scientology is weird because it’s new.
+ - I will always try to be happy. I don’t think people really understand the value of happiness until they know what it’s like to be in that very, very dark place. It’s not romantic. Not even a little.
+ - I don’t think comedy comes from hotbeds of doing shtick. I think it usually comes from some kind of childhood humiliation or darkness.
+ - If I have kids, I’ll adopt.
+ - We don’t live in a democracy; we live in a hypocrisy.
+ - As soon as a woman is old enough to have an opinion and have a voice and be unafraid, she’s very much encouraged by all sorts of people to crawl under a rock and die. And it’s so weird. My crime is not dying.
+ - I can only speak from my own experience, and I would say that the depression I experienced feels like a chemical change. When it came over me, when it comes over me, it feels like it’s coming over me like a flu.
+ - If we can send a person to the moon, we can send someone with AIDS to the moon, and then someday we can send everybody with AIDS to the moon.
+ - People are always introducing me as Sarah Silverman, Jewish comedienne. I hate that! I wish people would see me for who I really am – I’m white!
+ - That still feels like the most accurate description – I felt homesick, but I was home.
+ - People who follow their religion to the letter of the law are just silly. I mean, I want to tell Hasidic Jews I promise you, God will not mind if you wear a nice cotton blend in the summer.
+ - I don’t compromise. I only do the stuff I want to do.
+ - I just look like a transvestite when I try to dress up. There’s no place to hide my balls.
+ - Nothing is taboo if you have an angle on it.
+ - I’ve always kept my overhead low so I could do whatever I want. I think of myself as lazy with spurts of getting a lot done. I find myself rooting against things sometimes because I get excited at the thought of a clean slate.
+ - Everybody blames the Jews for killing Christ, and the Jews try to pass it off on the Romans. I’m one of the few people who believes it was the blacks.
+ - This is AIDS. AIDS is as real as an egg.
+ - A bull in just about any shop is gonna be a mess.
+ - Look at the people who are kind of the funniest cultures, they’re the cultures of the people who have been the most oppressed, black people and Jews. Not that they’re the only funny people, but culturally, it comes from the pain, you know?
+ - Being with friends felt like a burden. I remember just sobbing.
+ - I’m a total one-hour drama addict. I think when you’re a comedian, you tend towards dramas because that’s the less stressful thing to watch.
+ - Some people say my humor focuses too much on stereotypes. It doesn’t. It focuses on facts.
+ - If you decide to do comedy that involves risk, risk means risk, and you can’t complain of flesh wounds if you sit down at the table to play.
+ - I just don’t let that mentality be a part of my world.
+ - I have no religion. But culturally I can’t escape it; I’m very Jewish.
+ - I was paralyzed with fear. It was unbearable to be among other kids who were just standing around being fine. It was one of the many inconveniences of this paradox I lived with -the more people I was surrounded by, the more frighteningly alone I felt.
+ - But I think you can make fun of anything as long as it’s funny enough.
+ - I do love the idea of ritual.
+ - I grew up in a house where there were no taboos, so it came originally from a pretty innocent place, where I was shocked at the things that shocked people.
+ - I didn’t feel so different until maybe, like, around third grade. Kids started blaming me for my people killing Jesus.
+ - Jews are the most liberal, scrappy, civil-rightsy people there are.
+ - I think Jews tend to hold me in fairly high regard.
+ - I never want to be in a position where I have to defend my material. It’s too subjective. It’s for other people to defend or not defend.
+ - All comics want to be musicians. There’s a part of me that wants to be a serious musician. I love songs about heartache and heartbreak.
+ - And we’re just all made of molecules and we’re hurtling through space right now.
+ - I think fake boobs have done great things for real boobs. I think people finally appreciate real boobs. People like real boobs. I do. I also enjoy the fact that they are life-nourishers.
+ - I can’t wait till Sunday, I’m gonna see my favorite niece and my other niece...
+ - I don’t care if you think I’m racist. I just want you to think I’m thin.
+ - I do love poop. I can’t help it. The heart wants what it wants. I enjoy being clever and pithy and political, but nothing’s going to get me like dumb stuff.
+ - People say I’m a nice girl saying terrible things. I tend to say the opposite of what I think. You hope that the absolute power of that transcends, and reaches the audience.
+ - I didn’t lose my virginity until I was twenty-six. Nineteen vaginally, but twenty-six what my boyfriend calls “the real way”.
+ - I like to think of myself as ‘hot-larious’ I’m cute, but I’m totally approachable.
+ - Take lots of time for yourself, discovering yourself-pursue not only a profession but other life passions, I always make time to rock climb or hike or write a few short stories. Also, find good people and surround yourself with them. Most importantly, always believe you will, unequivocally.
+ - Your inability to see yourself clearly is what’s keeping you alive.
+ - I am Jewish and proud of this culturally and ethnically – the ways in which I was born this way and am happy with whom I am.
+ - Men like to squash you. I just want someone who’s happy with himself, happy with his life. He doesn’t have to squash mine.
+ - When God gives you AIDS – and God does give you AIDS, by the way – make lemonAIDS.
+ - When you’re a bed wetter there’s only one group of people you can feel better than, bed shitters, and unfortunately they’re hard to come by.
+ - I hope the Jews did kill Christ, I’d do it again in a second.
+ - I mean, I love being with friends and I love kissing and loving someone to pieces. But it’s hard to find someone who doesn’t ultimately start judging you and your choices.
+ - The female nudity in movies is always sexualized.
+ - I talk to friends who get their feelings hurt when they read Twitter mentions. I have an amazing solution – don’t read Twitter mentions.
+ - I’ll tell you why we make fun of midgets: We’re not afraid of them.
+ - I commend you on all you’ve done for PETA, wrestling the one-eyed trouser snake with your bare hands, gently cuddling it in your arms, and nurturing it back to health.
+ - Summer camp: the second worst camp for Jews.
+ - I’m very lucky in that I still experience highs and lows and I think those lows are important, but I am not totally paralyzed and it keeps me from just complete state of paralysis emotionally and almost physically.
+ - Some things are just for private. It’s like people thinking I’m cold or this or that. It’s unfortunate, but I don’t need strangers to know that I’m warm. I don’t need strangers to know the real me.
+ - I tend to be more arrogant on stage. Far more ignorant. I sometimes say what I think and sometimes say the opposite of what I think and the lines get blurred, but I can only hope that some kind of absolute power transcends.
+ - I gave him a compliment! All right, I told him he probably would’ve made, like, a really expensive slave in the, like, in the olden-timey days.
+ - Drew Friedman isn’t just a brilliant artist. He takes you to a place. He takes you back in time. He makes you smell the stale cigarettes and cold brisket and you say, thank you for the pleasure.
+ - When I was three, my dad thought it would be hilarious to teach me swear words, then have me say them to his friends. They would laugh and laugh. I realize now the laugh was pure shock value, but it felt really good, and I’ve been chasing it ever since.
+ - I can’t cater to everyone’s needs and what they’re going to be offended by; that’s one freedom I have.
+ - I love making videos on my couch. You can put those on the Internet fast. I can express myself.
+ - Everyone’s got their own velocity, and there’s no real time frame with comedy.
+ - I remember my first standup act when I was seventeen; I did a really lame song about being flat chested. I was doing it in New York, and I remember Kevin Brennan, the guy I lost my virginity to, was like “That song doesn’t make sense, you have tits.”
+ - I love going to weddings. And I love it when my friends get married. I’m not against marriage but it’s just not for me. I’m a vegetarian, but I don’t have a problem if you want a hamburger.
+ - Comics who grew up surviving their childhood by being able to be the first one to make the joke about their weight or their hairy arms – like me – whatever they’re insecure about, whatever they’re apologizing for, that becomes their strength.
+ - Traditionally, I have no right to talk about race. I’m white; I didn’t grow up in an all-black neighborhood. But the license I see for myself is I’m a member of the world.
+ - I remember the horror story that I told myself over and over again. I’m totally alone in my body. I’m totally alone in my head and nobody will ever see through my eyes. I’m just completely alone.
+ - When I came out to L. A., I got a part in an episode of ‘Star Trek: Voyager,’ and I hired an acting coach.
+ - Jesus is magic, because he turned water into wine. I think he made the statue of liberty disappear in the 80s or something.
+ - You want to make people laugh and by virtue of that please them, but when you’re instructed to make people laugh and please them, you’re too resentful to do it.
+ - I mean, I talk about being Jewish a lot. It’s funny because I do think of myself as Jewish ethnically, but I’m not religious at all. I have no religion.
+ - I’m so glad Courtney Love is here; I left my crack in my other purse.
+ - I’ll be back. I’ll be black. I’ll be white black.
+ - I don’t really care for, like, fat jokes about women, specifically.
+ - Anything television trivia I’m good at. But when you’re on your couch, you’re really good at it, but when you’re standing there, it’s probably scary.
+ - Nothing is taboo if you have an angle on it. That said, critiquing women’s human shells isn’t my thang. Though there’s probably something funny or interesting to be said about those who do it, and what that comes from.
+ - I like talking about things that are taboo, because it makes them not taboo anymore.
+ - I think maybe I became funny because as a kid, I was a Jew in a town of no Jews, and being funny just instinctively came about as a way to put people at ease around me.
+ - I can see myself adopting. I’m not in a rush to do it. I’m 39, I know, but I do love kids, and I’m very good – I’ve got a lot of really good moves.
+ - They’ve got great parents; I’m just trying to be the fun uncle.
+ - Unvisited tombstones, unread diaries, and erased video game high-score rankings are three of the most potent symbols of mankind’s pathetic and fruitless attempts at immortality.
+ - We deserve quality lives with equality.
+ - Comedy is about talking about my own experience, and I’m a woman, and that’s my experience, and just because it isn’t yours doesn’t invalidate it.
+ - I looked up and saw the shape of a heart made by the silhouette of Ben Affleck and Matt Damon kissing.
+ - The worst thing that can happen for people who don’t want women to be strong is that we help each other and become a force.
+ - I don’t set out to offend or shock, but I also don’t do anything to avoid it.
+ - I was sent to sleepover camp since I was 6, and you know, it’s a recipe for disaster.
+ - I don’t like people whose job it isn’t to be funny, to tell me what is and isn’t funny.
+ - I’m so much more famous than I am financially successful. I mean, I live in a three-room apartment. I mostly make free videos on my couch. But I am fine.
+ - Smells definitely do have a crazy impact on me.
+ - Jews, black people – any people who are hated or who have suffered, either as individuals or as a people – use humour. It is a survival skill.
+ - Growing up, I always loved Disney movies, but the first movie I remember seeing is ‘Sleepers,’ so I wasn’t really taken to children’s movies.
+ - I dress normal because I want people to treat me regular. And their brains explode. It’s really fun.
+ - I was Minnie Mouse for Halloween, every year when I was little. Then, I had the Cinderella nightgown, when I was really little, that I begged my mother to wear to school. I was also Snow White a lot.
+ - If I were somebody else looking at my character, I’d be like, “She’s beautiful.” I’m practicing. I’m not succeeding.
+ - I had a lot of depression as a kid.
+ - I just think of myself as a comedian, really.
+ - I started out in clubs, and I’ve always liked clubs. I like theaters because people are there for the show.
+ - Sometimes loving each other isn’t enough. You have to be responsible for your own happiness. You can’t stay in a relationship because you’re afraid of the unknown.
+ - I’m always in those tabloids where they show who’s badly dressed. It’s funny, because each time I’m getting my picture taken, I’m thinking, This is a nice outfit.
+ - I’m all sentimental. I’ve probably been ruined by romantic movies, but I really do believe in love. I’ve experienced it, I’ve had it, so I know it’s real.
+ - Relations between black and white would be greatly improved if we were more accepting of our fears and our feelings and more vocal about it.
+ - You have to be able to laugh at yourself. That’s what I tell Asian people all the time.
+ - Well, I’m not afraid to say something if I think it’s funny, even if it’s harsh or racist.
+ - It shows the truth – that the real meaning of a word is only as powerful or harmless as the emotion behind it.
+ - I’ve always had dreams. When I was little, I’d go to sleep with my head on my hands, which were in fists like I was looking through a camera. I felt like sleep was the movies – just drifting off to the movies.
+ - People can’t help what topics cut them deep. It all depends on who’s inferring – and what the contexts of their lives are at the time.
+ - I was a bedwetter until I was about 15, and it was humiliating.
+ - Earlier in my career, I was really tight, really together, and knew who I was and I was confident. I kind of feel in between now.
+ - I think I’ve been called edgy – but in all honesty, there is a safety in what I do because I’m always the idiot. Unless you’re just listening to buzz words and not taking into account the context of the situation, you see I’m always the ignoramus.
+ - Sometimes a joke that doesn’t work just needs a breath or a little word or the tiniest little change to be fixed.
+ - I don’t want to be a facilitator for other funny people. It doesn’t seem smart for me to be in a comedy and not be funny. My spirit can’t take it.
+ - I’m personally not into a guy who wears pedal pushers and a necklace.
+ - I learned pretty early is I never defend my material; it’s for other people to if someone is offended. It’s so subjective, and if you don’t find it funny, it’s definitely going to be offensive.
+ - I always look at myself knowing that I will have a certain degree of cognitive distortion.
+ - I am diagnosed with not having enough insanely-addictive drugs coursing through my body.
+ - You know, I think whatever a comic talks about onstage is all they talk about offstage.
+ - I feel so confident and awesome and sexy when I’m with people who are older than me, and I’ve always been surrounded by people who are older than me. But to be vital in comedy, you have to exist in a world that’s dominated by young people.
+ - I don’t believe in Jesus or God. But I do believe that fundamentalists in religion or anything else are bad, and that they have more hate than love.
+ - Why would I become involved with something that doesn’t include everyone? If you’re getting married today, it’s the equivalent of joining a country club that doesn’t allow blacks or Jews.
+ - Everyone self-Googles. And, I have, of course, the Google alert.
+ - The best time to have a baby is when you’re a black teenager.
+ - The good news is hopeful doesn’t mean dumb. The bad news is cynical doesn’t mean smart.
+ - I enjoy the last quarter of all basketball games.
+ - It’s really stupid to defend your own jokes. That is for other people to do if they choose to.
+ - I don’t think half my stuff would be funny if the audience didn’t feel at least a little bit safe that it’s not how I truly feel.
+ - I think that whenever a Jew has any kind of notoriety, good or bad, the Jews find it to be good.
+ - You’re supposed to have friends you can tell anything to.
+ - When I was 17, I read a profile of Carol Leifer. Since then, I wanted to be her. I still want to be her.
+ - My dad was a bedwetter; I think his dad was a bedwetter. I like to talk about it because it’s something that I thought would be my deepest, darkest secret my whole life, and then you become an adult, and it’s not.
+ - It feels weird in our ear holes to hear people worshipping a guy named Ron. We know Rons in our life.
+ - The audience works as such a mob. They either all laugh or all don’t laugh, and, you know, changes from audience to audience.
+ - The first time I did stand-up was the summer I was 17.
+ - By the time I would have graduated, at 22, I was a writer and featured performer on Saturday Night Live.
+ - I think when you’re 25 you’re still finding yourself, and you should have the freedom of that.
+ - That’s not to say that I don’t find anything offensive.
+ - There are so many great comedies, right now. I like how comedies are really mixing. They’re not just one thing. It can be very moving and dramatic, and yet hilarious.
+ - I happen to think that there are already tons of perfectly good babies out there already born.
+ - I love children. I’m embarrassingly baby-crazy.
+ - I have a ton of Holocaust stuff, and some of it is really hard core.
+ - I still have highs and lows, maybe I don’t cry salty tears as much.
+ - The sun shines directly on this great country, and it can be harvested, it’s not owned by anybody. It’s something the Jews and the Palestinians share and could work together to make the whole world a better place, not just this Middle East stuff, but the whole world.
+ - I’d love to do drama if it was interesting.
+ - If I have to write by a certain time, I can pull through, but usually I just let stuff happen, hanging out with comic friends – or bringing a basic idea on stage and seeing if it goes anywhere.
+ - Making my family laugh when I was little – it became an addiction. It was a kind of survival.
+
+161 quotes

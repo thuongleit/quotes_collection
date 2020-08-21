@@ -1,0 +1,25 @@
+ - Sometimes the future changes quickly and completely, and we’re left with only the choice of what to do next. We can choose to be afraid of it, to stand there trembling not moving, assuming the worst that can happen or we step forward into the unknown and assume it will be brilliant.
+ - Being present is the actor’s job. Being aware of your body, in space, and the emotions that are occurring inside, is essential. Well, quite simply, the more aware one is-of yourself, of your surroundings, of other people-the more likely you are to respond truthfully.
+ - I’m not a slave to fashion; I’m into exercising my individuality.
+ - Hollywood likes to put actors in boxes, and it likes to put Asian actors in really small boxes.
+ - All the jobs I’ve gotten in the last two years are because directors have seen the work I’ve done – indie films, plays, short student films, TV – since I moved to the states in 1996. I mean, I have an entire career in Canada that nobody has seen.
+ - With small breasts, you don’t have to wear a bra with dresses that have some support. It feels sexy without one.
+ - I love my hair. When I was young it had weird kinks and cowlicks in it, but I just grew into it. You grow into a lot of things.
+ - I don’t get jobs in films by auditioning. I’m not blonde. You can’t place me in movies the way you can with certain actors. It’s very difficult for my agents.
+ - I grew up never seeing myself on-screen, and it’s really important to me to give people who look like me a chance to see themselves. I want to see myself as the hero of any story. I want to see myself save the world from the bomb.
+ - When your life changes and you become a more public person, in some ways you need to be a more closed person, you know?
+ - A lot of things that I can’t get into the room for, even just to be seen, is because they’re just saying ‘No. they’re not casting non-white.’ You’re lumped into a category with people who are just not white.
+ - I think the roles in television are better for women right now. At this point, I don’t want to continue doing the same things I’ve been doing in film because it’s very limited.
+ - People ask me what I’m writing. They think I’m Sandra Tsing Loh. Or they ask about stand-up. ‘No, that’s Margaret Cho.’ I really think there is this kind of glomming, that they think we are somehow all the same person.
+ - We actors, we’re a fragile bunch, and yet we need to be strong because 90% of our lives is rejection.
+ - I think all women should learn how to strip. It’s a really healthy, extremely challenging thing to do.
+ - And on a Canadian set, everybody is equal. You get paid the same. You live together in barracks. You have a communal kitchen. You buy and cook your own food.
+ - As a working actor, all I want to do is work. That’s it. It’s terrifying when you don’t work. It’s very hard when you don’t work. There have been times when I’ve been out of work for like six months. I feel theatre to me is like manna.
+ - I was lucky on ‘Arli$$.’ I basically got to do whatever I wanted because HBO is great for that.
+ - You should see my house. It’s sort of explosive. Like a crazy person lives there.
+ - I equate fame towards people who know your work, people who will see your work. But all that stuff, like with the Genies and stuff like that, it was so much fun. It’s so much fun and it’s nice when it comes, but that’s not what it’s all about.
+ - I can get a better role in TV and work more constantly than I can waiting around for my friends in Canada to call me every four years – which they do – and I go up there and play a leading role.
+ - Becoming an actor? If it’s not a calling, don’t do it. It’s too hard.
+ - If you have ever been to couples therapy it’s really, really challenging.
+
+23 quotes

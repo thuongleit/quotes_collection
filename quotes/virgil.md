@@ -1,0 +1,131 @@
+ - Audentes fortuna iuvat.
+ - The greatest health is wealth.
+ - Amor vincit omnia, et nos cedamus amori. Love conquers all things, so we too shall yield to love.
+ - If I cannot move heaven, I will raise hell.
+ - Fortune sides with him who dares.
+ - Time is flying never to return.
+ - No day shall erase you from the memory of time.
+ - They are able who think they are able.
+ - Facilis descensus Averni.
+ - The noblest motive is the public good.
+ - Fate will find a way.
+ - Oh you who are born of the gods, easy is the descent into Hell. The door of darkness stands open day and night. But to retrace your steps, and come back out into the brightness above, that is the work, that is the labor.
+ - Maybe one day we shall be glad to remember even these hardships.
+ - Thus shall you go to the stars.
+ - Let us go singing as far as we go: the road will be less tedious.
+ - Love conquers all things.
+ - Go forth a conqueror and win great victories.
+ - Trust not too much to appearances.
+ - Trust the expert. -Experto credite.
+ - The descent into Hell is easy.
+ - He is fortunate who had been able to learn the causes of things. -Felix qui potuit rerum cognoscere causas.
+ - The gates of Hell are open night and day; smooth the descent, and easy is the way: but, to return, and view the cheerful skies; in this, the task and mighty labor lies.
+ - If I am unable to make the gods above relent, I shall move hell.
+ - Look with favor upon a bold beginning.
+ - Through pain I’ve learned to comfort suffering men.
+ - Don’t trust the horse, Trojans. Whatever it is, I fear the Greeks even bearing gifts. -Equo ne credite, Teucri. Quidquid id est, timeo Danaos et dona ferentes.
+ - I feel again a spark of that ancient flame.
+ - Trust one who has gone through it.
+ - Love conquers all; let us surrender to Love.
+ - Fortunate is he whose mind has the power to probe the causes of things and trample underfoot all terrors and inexorable fate.
+ - Time passes irrevocably.
+ - They can do all because they think they can.
+ - Persistent work triumphs.
+ - May the countryside and the gliding valley streams content me. Lost to fame, let me love river and woodland.
+ - Trust not the horse, O Trojans. Be it what it may, I fear the Grecians even when they offer gifts.
+ - You, Roman, remember to rule peoples with your power. -Tu regere imperio populos, Romane, memento.
+ - Do not yield to misfortunes, but advance more boldly to meet them, as your fortune permits you.
+ - Every calamity is to be overcome by endurance.
+ - Live on in your blessings, your destiny’s been won. But ours calls us on from one ordeal to the next.
+ - Roman, remember that you shall rule the nations by your authority, for this is to be your skill, to make peace the custom, to spare the conquered, and to wage war until the haughty are brought low.
+ - The cursed hunger for gold. -Auri sacra fames.
+ - Evil is nourished and grows by concealment.
+ - Learn all from one thing. -Ab uno disce omnes.
+ - Such is the love of praise, so great the anxiety for victory.
+ - There’s a snake hidden in the grass.
+ - If only Jupiter would restore me those bygone years.
+ - Then endure for a while, and live for a happier day!
+ - To have died once is enough.
+ - That man is the most loyal who aims at the noblest motive, and that motive the public good.
+ - The medicine increases the disease.
+ - What region of the earth is not full of our calamities?
+ - We are not all able to do all things.
+ - In strife who inquires whether stratagem or courage was used?
+ - It is well to be informed about the winds, About the variations in the sky, The native traits and habits of the place, What each locale permits, and what denies.
+ - Easy is the descent to hell; all night long, all day, the doors of dark Hades stand open; but to retrace the path; to come out again to the sweet air of Heaven – there is the task, there is the burden.
+ - Harsh necessity, and the newness of my kingdom, force me to do such things and to guard my frontiers everywhere.
+ - Yield thou not to adversity, but press on the more bravely.
+ - She nourishes the poison in her veins and is consumed by a secret fire.
+ - He like a rock in the sea unshaken stands his ground.
+ - The leader of the deed was a woman. -Dux femina facti.
+ - Fear is the proof of a degenerate mind.
+ - Even virtue is fairer in a fair body.
+ - Curst greed of gold, what crimes thy tyrant power has caused.
+ - The hour is ripe, and yonder lies the way.
+ - A chaplet of leaves crowns the victor.
+ - Sing in me, muse, of arms and a man, who first from the shores of Troy.
+ - Love begets love, love knows no rules, this is same for all.
+ - O accursed hunger of gold, to what dost thou not compel human hearts!
+ - In youth alone, unhappy mortals live; But, ah! the mighty bliss is fugitive: Discolour’d sickness, anxious labour, come, And age, and death’s inexorable doom.
+ - Every man makes a god of his own desire.
+ - He enters the port with a full sail.
+ - Mantua gave me birth, Calabri snatched me away, now Parthenope holds me; I sang of shepherds, pastures, and heroes. -Mantua me genuit, Calabri rapuere, tenet nunc Parthenope, cecini pascua, rura, duces.
+ - A fickle and changeful thing is a woman ever.
+ - From a single crime know the nation.
+ - Confidence cannot find a place wherein to rest in safety.
+ - Angels boast ethereal vigor, and are formed from seeds of heavenly birth.
+ - In his deepest heart there surge tremendous shame and madness mixed with sorrow and love whipped on by frenzy and a courage aware of its own worth.
+ - Their rage supplies them with weapons.
+ - Persevere and preserve yourselves for better circumstances.
+ - Hug the shore; let others try the deep.
+ - Your descendants shall gather your fruits.
+ - Is it then so sad a thing to die?
+ - All our sweetest hours fly fastest.
+ - Consider what each soil will bear, and what each refuses.
+ - Endure, and keep yourselves for days of happiness.
+ - Better times perhaps await us who are now wretched.
+ - We have to thank God for this retirement.
+ - Veiling truth in mystery.
+ - The flocks fear the wolf, the crops the storm, and the trees the wind.
+ - Whatever may happen, every kind of fortune is to be overcome by bearing it.
+ - Happy the person who has learned the cause of things and has put under his or her feet all fear, inexorable fate, and the noisy strife of the hell of greed.
+ - Impotent fury rages powerless and to no purpose.
+ - Cease to think that the decrees of the gods can be changed by prayers.
+ - Fear betrays unworthy souls.
+ - Perhaps the day may come when we shall remember these sufferings with joy.
+ - If ye despise the human race, and mortal arms, yet remember that there is a God who is mindful of right and wrong.
+ - Is there so much anger in the minds of the gods?
+ - Womankind Is ever a fickle and a changeful thing.
+ - All things deteriorate in time.
+ - Myself acquainted with misfortune, I learn to help the unfortunate.
+ - These passions of soul, these conflicts so fierce, will cease, and be repressed by the casting of a little dust.
+ - Age steals away all things, even the mind.
+ - The Britons are quite separated from all the world.
+ - From my example learn to be just, and not to despise the gods.
+ - O you who have borne even heavier things, to these too, God will grant an end!
+ - Who asks whether the enemy was defeated by strategy or valor?
+ - Passion and strife bow down the mind.
+ - Let not our proposal be disregarded on the score of our youth.
+ - The only safety for the conquered is to expect no safety.
+ - Rumor goes forth at once, Rumor than whom No other speedier evil thing exists; She thrives by rapid movement, and acquires Strength as she goes; small at the first from fear, She presently uplifts herself aloft, And stalks upon the ground and hides her head Among the clouds.
+ - The wavering multitude is divided into opposite factions.
+ - I have known sorrow and learned to aid the wretched.
+ - Fury itself supplies arms.
+ - That which an enraged woman can accomplish.
+ - Who can blind lover’s eyes?
+ - None but himself can be his parallel.
+ - There should be no strife with the vanquished or the dead.
+ - I shudder when relating it.
+ - What each man feared would happen to himself, did not trouble him when he saw that it would ruin another.
+ - If one swain scorns you, you will soon find another.
+ - What a lot of work it was to found the Roman race.
+ - Perhaps even these things, one day, will be pleasing to remember.
+ - I fear the Greeks, even when they bring gifts.
+ - Want of pluck shows want of blood.
+ - Each person, makes their own terrible passion their God.
+ - Each draws to his best-loved.
+ - Each man is led by his own liking.
+ - Enter on the way of training while the spirits in youth are still pliable.
+ - Not being untutored in suffering, I learn to pity those in affliction.
+
+129 quotes

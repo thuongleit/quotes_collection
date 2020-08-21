@@ -1,0 +1,22 @@
+ - I just feel that you reach a point when its time to move on.
+ - I’d rather lose and live in Provo than win and live in Laramie.
+ - Reminiscing, with obvious emotion, on his long career It has turned out a whole lot better than I ever, ever, ever dreamed.
+ - Those who have succeeded have also had the ability to overcome adversity, disappointment, and even tragedy in their lives.
+ - I honestly haven’t thought about it much. When it comes time for me to retire, I don’t think I’ll know going into that season. I’ll have to evaluate it at the end of each year.
+ - They can’t fire me because my family buys too many tickets.
+ - He will return with a greater understanding of himself, greater leadership capabilities, better work habits, and a better knowledge of what it takes to be successful. It really depends on the young man’s desire, commitment, work habits, and how important it is to him when he returns.
+ - And I want you to know that I have had the greatest support from President Bateman. I could coach as long as I want to and never felt any pressure to reach a decision.
+ - The main reason for doing it now had more to do with the players. This is a great group. This particular group has really worked hard to prepare themselves. And we have a chance to have a good football team.
+ - Reminiscing, with obvious emotion, on his long career: It’s like the size of the crowd here today. It always surprises me. But I do appreciate it.
+ - At some point in time it will be right for me to step aside. That may be after this year, but that may be after two or three more years.
+ - I was asked this morning if it was frustrating to be 13-1 last year and not have more recognition and I said, “Hey man, I’d take that every year. I’d take that kind of frustration and not worry about it one bit. It wasn’t frustration, it was one of those great runs and I enjoyed it.”
+ - I told Pattie that last night I dreamt that we had a press conference and nobody showed up. I am overwhelmed that so many of you are here.
+ - Edwards commented as he signed an extension to his contract. They had changed coaches every three or four years before my getting the head job. It was just going to be a matter of when I got fired. There were a lot of people that felt that.
+ - What motivates me is not one more championship, it is the challenge each year. I have just thoroughly enjoyed starting in spring with a new team and trying to put all the elements together to make a team.
+ - Coming out of BYU’s football spring, 1999, practice: We might have a chance to be pretty good.
+ - Edwards commented as he signed an extension to his contract. We have good young players in the program and strong schedules in the coming years. The future looks bright for BYU football. I also want to get a number of projects off the ground before I retire.
+ - How do we handle adversity? Adversity is going to be with us in everything that we do, almost in every facet of our lives-in our personal associations, in the mission field, in our chosen professions, in our families.
+ - When I started I knew it was a matter of when, not if, I would get fired. That’s because that was just the past history of the previous coaches that had been there.
+ - I’ve had a lot of friends in the business that got out earlier than normal. They tell me they got out too early and that I should make sure I’ve got all I want before I step aside. When I do get out, there are other things that I want to do with my life.
+
+20 quotes

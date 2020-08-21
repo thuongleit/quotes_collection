@@ -1,0 +1,21 @@
+ - Never explain, never complain.
+ - I hate this place. I shall hate it to my grave.
+ - You can never be too rich or too thin.
+ - There can be nothing more baffling in a human relationship than silence, the dark loom of doubts and questions unexpressed.
+ - For a gallant spirit there can never be defeat.
+ - You have no idea how hard it is to live out a great romance.
+ - I never make a trip to the United States without visiting a supermarket. To me they are more fascinating than any fashion salon.
+ - There is a peacefulness, an air of reflection, about a rocking-chair that attaches to no other moving object...
+ - I’m not a beautiful woman. I’m nothing to look at, so the only thing I can do is dress better than anyone else.
+ - Fortunately for the human race, pain, however piercing, is not a lasting emotion. The recollection of happiness lingers, but the consciousness never retains for long the first thrust of tragic loss. The details of daily life crowd in upon the mind.
+ - I have always had the courage for the new things that life sometimes offers.
+ - I look a hundred and weigh 110 – you won’t love me when you see the wreck England has made me.
+ - The real essence of any marriage that has struggled, however unsuccessfully, towards happiness, lies in the growth of a wordless understanding that what is acceptable to one partner will be acceptable to the other.
+ - I am so anxious for you not to abdicate and I think the fact that you do is going to put me in the wrong light to the entire world because they will say that I could have prevented it.
+ - There can be no summary and dramatic end to a marriage – only a slow and painful unravelling of a tangled skein of threads too stubborn to be broken.
+ - I was a long time learning that wisdom and experience are things apart; that to taste life is not to be confused with understanding what life is really all about.
+ - A marriage, even one that goes awry, generates claims and needs that persist like an afterglow long after the emotional fire is burned out.
+ - Sport hunting is a crime. My sympathies are with the fox.
+ - A woman’s life can really be a succession of lives, each revolving around some emotionally compelling situation or challenge, and each marked off by some intense experience.
+
+19 quotes

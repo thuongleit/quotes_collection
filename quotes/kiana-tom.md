@@ -1,0 +1,32 @@
+ - Treat everyone with respect and kindness. Period. No exceptions.
+ - My personal goals are to be happy, healthy and to be surrounded by loved ones.
+ - Money doesn’t buy class.
+ - Balance is key: I need to be successful in my career to feel fulfilled, be surrounded by people I care about to share it with, and have my health to be able to do the things I love to do!
+ - I always trust my gut reaction; it’s always right.
+ - I have my parents to thank for that, they raised me to be active and play all sports. They taught me the importance of staying healthy, being focused and setting goals in whatever I do.
+ - Every girl likes to be thought of and made to feel special.
+ - I’m still a little girl in Hawaii, I have the same friends I had when I was a kid who love me for who I am – not what I do. I never got caught up in the club scene or took wrong roads.
+ - When I meet successful people I ask 100 questions as to what they attribute their success to. It is usually the same: persistence, hard work and hiring good people.
+ - I appreciate life, talk a lot, love to laugh, and am very optimistic.
+ - I feel accomplished knowing that I’m still the same at heart.
+ - I play the piano and have been playing since I was 7, mainly classical Chopin, Beethoven, Mozart.
+ - One day I would like to have my own art show.
+ - I am a goal setter and I set more goals everyday. I keep lists of goals in my office to stay on track.
+ - True wisdom listens more, talks less and can get along with all types of people.
+ - I also love to surf the Net and talk on the phone with friends.
+ - More Asians need to be on television as a positive role model.
+ - You are right that I don’t have a lot of spare time because I love to stay busy and keep my calendar full.
+ - It’s not being superficial, but looks do attract me from across the gym.
+ - I have a quiet and an artistic side that many people don’t know of.
+ - Just kidding, I’ve been very athletic all my life.
+ - Business wise, I have always learned valuable lessons so I don’t regret any decisions I have made.
+ - I also paint and enjoy acrylic medium; some of my close friends have paintings I did for them.
+ - They both go together; you can’t be in front of the camera hosting a fitness television show in front of 75 million households and not have trained 6 days per week year round – in a bikini no less.
+ - I am a control freak. I want to do what I want to do.
+ - Regarding one’s career: always be prepared, no short cuts – hard work is the only alternative that really works.
+ - Our viewers are very educated, they can tell if I train or not.
+ - I feel true success comes from being able to work and the love for it.
+ - I like when my man is worldly, know the finer things in life, is well traveled, and educated. It’s important to me that he’s able to talk to all types of people, from doctors to dishwashers.
+ - For me, being in front of the camera and training go hand in hand.
+
+30 quotes

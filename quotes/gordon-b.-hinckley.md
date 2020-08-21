@@ -1,0 +1,289 @@
+ - Without hard work, nothing grows but weeds.
+ - You will come to know that what appears today to be a sacrifice will prove instead to be the greatest investment that you will ever make.
+ - If Life Gets Too Hard To Stand, Kneel.
+ - Forget yourself and go to work.
+ - You can’t build a great building on a weak foundation. You must have a solid foundation if you’re going to have a strong superstructure.
+ - Limitless is your potential. Magnificent is your future.
+ - God will always make a way where there is no way.
+ - Get on your knees and pray, then get on your feet and work.
+ - Go forward in life with a twinkle in your eye and a smile on your face, but with great purpose in heart.
+ - Try a little harder to be a little better.
+ - Generally speaking, the most miserable people I know are those who are obsessed with themselves; the happiest people I know are those who lose themselves in the service of others... By and large, I have come to see that if we complain about life, it is because we are thinking only of ourselves.
+ - Whatever you do, do well. Be good at it. Stand a little taller. Be a little stronger. Be a little better.
+ - You can’t build a great building on a weak foundation.
+ - Being humble means recognizing that we are not on earth to see how important we can become, but to see how much difference we can make in the lives of others.
+ - The best thing you can do is just keep busy, keep working hard, so you’re not dwelling on it all the time. Work is the best antidote for sorrow.
+ - You have not failed until you quit trying.
+ - There is no obstacle too great, no challenge too difficult, if we have faith.
+ - Love is the very essence of life.
+ - The cause of most of man’s unhappiness is sacrificing what he wants most for what he wants now.
+ - Missionary work has never been easy, and yet the joyful rewards cannot be equaled by any other experience.
+ - You never know how much good you do.
+ - There would be no Christmas if there had not been Easter. The babe Jesus of Bethlehem would be but another baby without the redeeming Christ of Gethsemane and Calvary, and the triumphant fact of the Resurrection.
+ - The happiest people I know are those who lose themselves in the service of others.
+ - Work without vision is drudgery. Vision without work is dreaming. Work plus vision-this is destiny.
+ - Be believing, be happy, don’t get discouraged. Things will work out.
+ - Life is to be enjoyed, not endured.
+ - Let us all try to stand a little taller, rise a little higher, be a little better. Make the extra effort. You will be happier.
+ - Believe in the power of prayer – it is real, it is wonderful, it is tremendous.
+ - It isn’t as bad as you sometimes think it is. It all works out. Don’t worry. Put your trust in God, and move forward with faith and confidence in the future.
+ - In all of living, have much fun and laughter. Life is to be enjoyed, not just endured.
+ - Stop seeking out the storms and enjoy more fully the sunlight.
+ - The course of our lives is not determined by great, awesome decisions. Our direction is set by the little day-to-day choices which chart the track on which we run.
+ - Every good citizen adds to the strength of a nation.
+ - Cultivate an attitude of happiness. Cultivate a spirit of optimism. Walk with faith, rejoicing in the beauties of nature, in the goodness of those you love, in the testimony which you carry in your heart concerning things divine.
+ - Those who move forward “with a” happy spirit will find that things alwas work out.
+ - The major work of the world is not done by geniuses. It is done by ordinary people, with balance in their lives, who have learned to work in an extraordinary manner.
+ - Be grateful, be smart, be clean, be true, be humble, be prayerful.
+ - The best antidote I know for worry is work. The best cure for weariness is the challenge of helping someone who is even more tired. One of the great ironies of life is this: He or she who serves almost always benefits more than he or she who is served.
+ - You are good. But it is not enough just to be good. You must be good for something.
+ - Let us never forget to pray. God lives. He is near. He is real. He is not only aware of us but cares for us. He is our Father. He is accessible to all who will seek Him.
+ - Listen to the whisperings of the Spirit, the gift of revelation to which you are entitled.
+ - A tattoo is graffiti on the temple of the body.
+ - We’re all sons and daughters of God, and therefore in a very literal sense, brothers and sisters. And we ought to treat each other that way.
+ - Please don’t nag yourself with thoughts of failure. Do not set goals far beyond your capacity to achieve. Simply do what you can do, in the best way you know, and the Lord will accept of your effort.
+ - Mediocrity will never do. You are capable of something better.
+ - It is good to look to the past to gain appreciation for the present and perspective for the future.
+ - Anyone who imagines that bliss is normal is going to spend a lot of time running around shouting that he’s been robbed.
+ - Be strong-be strong in the discipline of self. How many otherwise good men squander their strength and dissipate their will and literally destroy their lives because they have not the power of self-discipline.
+ - Happy is the man who can brush aside the offending remarks of another and go on his way.
+ - Walk by faith. God will open the way. When there is no way, He will open the way.
+ - Death is not the end, but a more glorified existence.
+ - As you walk the road of life, be careful of your friends. They can make you or break you.
+ - Believe in yourselves. Believe in your capacity to do some good in this world. God sent us here for a purpose, and that was to improve the world in which we live. The wonderful thing is that we can do it.
+ - God is the designer of the family.
+ - Look for the Sunlight through the Clouds.
+ - Do not let fear overcome your efforts.
+ - I am the last leaf on the tree, and the wind is blowing.
+ - True love is not so much a matter of romance as it is a matter of anxious concern for the well-being of one’s companion.
+ - I hope you will simply do what you can do in the best way you know. If you do so, you will witness miracles come to pass.
+ - Gratitude is the beginning of wisdom. Stated differently, true wisdom cannot be obtained unless it is built on a foundation of true humility and gratitude.
+ - Education will equip you to do something worthwhile in the great world of opportunity that lies ahead.
+ - Respect for self is the beginning of cultivating virtue in men and women.
+ - Christmas means ‘giving,’ and the gift without the giver is bare. Give of yourselves; give of your substance; give of your heart and mind.
+ - Tremendous happiness and peace of mind are the results of loving service to others. Nobody can live fully and happily who lives only unto himself or herself.
+ - Never assume that you can make it alone. You need the help of the Lord. Never hesitate to get on your knees in some private place and speak with Him.
+ - Somehow forgiveness, with love and tolerance, accomplishes miracles that can happen in no other way.
+ - Let us never forget to pray. God lives. He is near. He is real.
+ - We all know that education unlocks the door of opportunity for the young.
+ - God bless you, my beloved sisters, who stand as the queens in your home, that you may be happy with that happiness which comes of the knowledge that you are loved and honored and treasured.
+ - When I say do your best, I mean your very best. You are capable of so much more.
+ - Knowledge, learning, is an eternal thing.
+ - God has not given us the spirit of fear. That comes from the adversary.
+ - Our Eternal Father lives. He stands as the great God of the universe, ruling in majesty and power. And yet He is my Father, to whom I may go in prayer with the assurance that He will hear, listen, and answer.
+ - I don’t know how to get anything done except getting on my knees and pleading for help and then getting on my feet and going to work.
+ - Do you want to be happy? Forget yourself and get lost in this great cause.
+ - Women who make a house a home make a far greater contribution to society than those who command large armies or stand at the head of impressive corporations.
+ - Love is meant to be an adventure!!
+ - You can’t plow a field simply by turning it over in your mind.
+ - Marriage in its truest sense, is a partnership of equals, with neither exercising dominion over the other, but, rather, with each encouraging and assisting the other in whatever responsibilities and aspirations he or she might have.
+ - Work is the miracle by which talent is brought to the surface and dreams become reality.
+ - The best medicine for despair is service.
+ - Do your best, and be a little better than you are.
+ - Church – Come here to learn, go forth to serve.
+ - Let our voices be heard. I hope they will not be shrill voices, but, I hope we shall speak with such conviction that those to whom we speak shall know of the strength of our feeling and the sincerity of our efforts.
+ - Work will cure your grief. Serve others.
+ - At this time of Christmas, this season when gifts are given, let us not forget that God gave His Son, and His Son gave His life, that each of us might have the gift of eternal life.
+ - The best cure for weariness is the challenge of helping someone who is even more tired.
+ - Do the best you can. But I want to emphasize that it be the very best. We are too prone to be satisfied with mediocre performance. We are capable of doing so much better.
+ - There is room for improvement in every life. Regardless of our occupations, regardless of our circumstances, we can improve ourselves and while so doing have an effect on the lives of those about us.
+ - That which comes easily departs easily. That which comes of struggle remains.
+ - There is no substitute under the heavens for productive labor. It is the process by which dreams become realities. It is the process by which idle visions become dynamic achievements.
+ - Do you feel gloomy? Lift your eyes. Stand on your feet. Say a few words of appreciation and love to the Lord. Be positive.
+ - In missionary work, as in all else, preparation precedes power. Encouragement to prepare while still very young can make a tremendous difference.
+ - Love is the only force that can erase the differences between people or bridge the chasms of bitterness.
+ - Teach children tolerance. No one need surrender his or her own beliefs while extending tolerance to those with other beliefs.
+ - The time has come for us to stand a little taller, to lift our eyes and stretch our minds to a greater comprehension and understanding of the grand millennial mission of this, The Church of Jesus Christ of Latter-day Saints.
+ - The greatness of the world in which we live is the accumulated goodness of many small and seemingly inconsequential acts.
+ - I know your lives are busy. I know that you have much to do. But I make you a promise that if you will go to the house of the Lord, you will be blessed; life will be better for you.
+ - The temple is concerned with things of immortality. It is a bridge between this life and the next. All of the ordinances that take place in the house of the Lord are expressions of our belief in the immortality of the human soul.
+ - Carry on. Things will work out. If you keep trying and praying and working, things will work out. They always do. If you want to die at an early age, dwell on the negative. Accentuate the positive, and you’ll be around for a while.
+ - The true gospel of Jesus Christ never led to bigotry. It never led to self-righteousn ess. It never led to arrogance. The true gospel of Jesus Christ leads to brotherhood, to friendship, to appreciation of others, to respect and kindness and love.
+ - There cannot be peace where there is not trust; there cannot be freedom where there is not loyalty.
+ - God is weaving His tapestry according to his own grand design. All flesh is in His hands. We have no need to fear. We have no need to worry. Our imperative need is to be found doing our duty.
+ - In all this world there is no substitute for personal integrity. It includes honor. It includes performance. It includes keeping one’s word. It includes doing what is right regardless of the circumstances.
+ - A testimony is a conviction, a quiet inward certainty of the reality of the living God, of the divinity of His Beloved Son, of the restoration of Their work in this time. It demands that we do what He has asked us to do.
+ - Our kindness may be the most persuasive argument for that which we believe.
+ - The greatest job that any mother will ever do will be in nurturing, teaching, lifting, encouraging and rearing her children in righteousness and truth. None other can adequately take her place.
+ - A truly educated man never ceases to learn.
+ - Christmas means giving. The Father gave his Son, and the Son gave his life. Without giving there is no true Christmas, and without sacrifice there is no true worship.
+ - I hope you are reading to your children, out loud. That’s much better than watching television, much better. They won’t get very much out of television except some bad thoughts.
+ - If you will make your first concern the comfort, the well-being, and the happiness of your companion, sublimating any personal concern to that loftier goal, you will be happy, and your marriage will go on through eternity.
+ - Are these perilous times? They are. But we can have peace in our hearts and in our homes.
+ - Be true to who you are and the family name you bare.
+ - It is difficult to press forward if we do not know how to obey.
+ - Father forgive us, for we do not what we know.
+ - The truest mark of your success in life will be the quality of your marriage.
+ - We recognize the universal power of music to touch the hearts of men and women everywhere and in all generations-to inspire and encourage, to sustain and lift, to comfort and bring peace.
+ - There is no more compelling motivation to worthwhile endeavor than the knowledge that we are children of God, that God expects us to do something with our lives, and that He will give us help when help is sought.
+ - Knowledge without labor is profitless. Knowledge with labor is genius.
+ - We seldom get into trouble when we speak softly. It is only when we raise our voices that the sparks fly and tiny molehills become great mountains of contention.
+ - Our burden in going forward is tremendous. But our opportunity is glorious.
+ - All of us have to deal with death at one time or another, but to have in one’s heart a solid conviction concerning the reality of eternal life is to bring a sense of peace in an hour of tragedy that can come from no other source under the heavens.
+ - Cultivate within yourselves the mighty power of self-discipline.
+ - No matter how old we become, we can acquire knowledge and use it. We can gather wisdom and profit from it. We can grow and progress and improve-and, in the process, strengthen the livs of those within our circle of influence.
+ - We are creatures of our thinking. We can talk ourselves into defeat or we can talk ourselves into victory.
+ - Pray for the strength to walk the high road, which at times may be lonely but which will lead to peace and happiness and joy supernal.
+ - When temptation comes your way, name that boastful, deceitful giant “Goliath!” and do with it as David did to the Philistine of Gath.
+ - Mortality is but a stepping-stone to a more glorious existence in the future.
+ - Jesus said, ‘Except a man be born of water and of the spirit, he cannot enter into the kingdom of God.’ There are no exceptions. Baptism is a necessary ordinance.
+ - Criticism is the forerunner of divorce, the cultivator of rebellion, sometimes an agent that leads to failure.
+ - If we could follow the slogan that says,“Turn off the TV and open a good book” we would do something of substance for a future generation.
+ - The world is our responsibility. We cannot evade it.
+ - There is no strength that is greater than the strength of virtue. There is no other nobility equal to the nobility of virtue. There is no quality so becoming, no attire so attractive.
+ - Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.
+ - Every sacrament meeting ought to be a spiritual feast.
+ - As we give presents at Christmas, we need to recognize that sharing our time and ourselves is such an important part of giving.
+ - When there throbs in the heart of an individual Latter-day Saint a great and vital testimony of the truth of this work, he will be found doing is duty in the Church.
+ - There is something almost sacred about a great library because it represents the preservation of the wisdom, the learning, and the pondering of men and women of all the ages, accumulated under one roof.
+ - No other practice will make one more attractive in conversation than to be well-read in a variety of subjects.
+ - The singing of hymns and the rendition of selections from the great sacred oratorios by ward choirs all enhance the spirit of worship.
+ - God has brought us together as families to bring to pass His eternal purposes. We are part of this plan in this marriage relationship. let us love and respect and honor one another. We can do it, and we will be the better for it.
+ - How thankful I am, how thankful we all must be, for the women in our lives. God bless them. May His great love distill upon them and crown them with luster and beauty, grace and faith.
+ - Love is like the North Star. In a changing world, it’s always constant.
+ - Coming closer to home, there is so much of jealousy, pride, arrogance, and carping criticism; fathers who rise in anger over small, inconsequential things and make wives weep and children fear.
+ - I too believe that God will always make a way where there is no way. I believe that if we will walk in obedience to the commandments of God, if we will follow the counsel of the priesthood, he will open a way even where there appears to be no way.
+ - I commend to you the virtues of thrift and industry. In doing so, I do not wish you to be a “tightwad,” if you will pardon that expression, or to be a freeloader, or anything of the kind.
+ - Don’t worry. I say that to myself every morning. It all works out in the end.
+ - Quiet talk is the language of love. It is the language of peace. It is the language of God.
+ - Gratitude creates the most wonderful feeling. It can resolve disputes. It can strengthen friendships. And it makes us better men and women.
+ - I hope we will never again see such a depression. But I am troubled by the huge consumer installment debt which hangs over the people of the nation, including our own people.
+ - Christmas is more than trees and twinkling lights, more than toys and gifts and baubles of a hundred varieties. It is love. It is the love of the Son of God for all mankind. It is magnificent and beautiful.
+ - Most of the things that make you angry are of very small consequence. And what a terrible price you are paying for your anger.
+ - Let your first interest be in your home. The baby you hold in your arms will grow quickly as the sunrise and the sunset of the rushing days.
+ - There are few things more pathetic than those who have lost their curiosity and sense of adventure, and who no longer care to learn.
+ - The trick, my brethren and sisters is to enjoy the journey, traveling hand in hand, in sunshine and storm, as companions who love one another.
+ - The religion of which you are a part is 7 days a week. It isn’t just Sunday, it isn’t the block plan, it isn’t just 3 hours in church, it isn’t just the time you spend in Seminary – it’s all the time, 24 hours a day, 7 days a week, 365 days a year.
+ - If you do not choose the kingdom of God, it does not matter what you choose instead.
+ - You must ask for God’s help. After each failure, ask forgiveness, pick yourself up, and try again.
+ - Children don’t need beating. They need love and encouragement. They need fathers to whom they can look with respect rather than fear. Above all, they need example.
+ - Within your sphere of responsibility you have as serious an obligation as do I within my sphere of responsibility. Each of us should be determined to build the kingdom of God on the earth and to further the work of righteousness.
+ - Anger is the mother of a whole brood of evil actions. Divorce too often is the bitter fruit of anger.
+ - Remember that whatever you do or wherever you are, you are never alone.
+ - Gambling undermines the moral fiber of society.
+ - Simple honesty is so remarkable a quality. It is of the very essence of Integrity.
+ - We live in a world of shifting values. The family is falling apart. Parents failing in what they ought to do.
+ - Mutual respect, the soft answer, financial honesty with the Lord, prayer. “I do not hesitate to promise that if you will go to your homes and cultivate and nurture it among these four cornerstones, your lives will be happy.”
+ - Keep your families close together, and love and honor your children.
+ - It should be recognized that this Church is not a social club. This is the kingdom of God on the earth. It is the Church of Jesus Christ of Latter Day Saints. Its purpose is to bring salvation and exaltation to both the living and the dead.
+ - Bind to you friends of your own kind, friends who will encourage you, stand with you, live as you desire to live, who will enjoy the same kind of entertainment, and who will resist the evil that you determine to resist.
+ - I do not know what the future holds. I do not wish to sound negative, but I wish to remind you of the warnings of scripture and the teachings of the prophets which we have had constantly before us.
+ - A nation will rise no higher than the strength of its homes. If you want to reform a nation you begin with families.
+ - By and large, I have come to see that if we complain about life, it is because we are thinking only of ourselves.
+ - While you should be friendly with all people, select with great care those whom you wish to have close to you. They will be your safeguards in situations where you may vacillate between choices, and you in turn may save them.
+ - In all we do we must cultivate faith. Increased faith is the touchstone to improved church performance.
+ - There have been times when a particularly heavy dose of such cynicism has caused me to reflect that surely this is the age and place of the gifted pickle sucker!
+ - There is rampant among us a spirit of criticism. Men and women who carry heavy responsibility do not need criticism, they need encouragement.
+ - Faith in something greater than ourselves enables us to do what we have said we’ll do, to press forward when we are tired or hurt or afraid, to keep going when the challenge seems overwhelming and the course is entirely uncertain.
+ - God will bless us if we walk in humility.
+ - Life is precious. Life is sacred. And it ought so to be observed.
+ - Dishonesty of any kind will create a blemish.
+ - Let us stand a little taller, if you don’t, you will never strengthen yourself.
+ - Fear not; only believe. This is a time to make resolutions that will be binding upon you. This is a season to set standards that will hold you to the right course and make you happy now and in the years that follow.
+ - Criticism and pessimism destroy families, undermine institutions of all kinds, defeat nearly everyone, and spread a shroud of gloom over entire nations.
+ - We live in a society that feeds on criticism. It is so easy to find fault, and to resist doing so requires much discipline.
+ - If you are too busy in your church activities to take care of your family, then perhaps we had better find something else for you to do.
+ - There is nothing that dulls a personality so much as a negative outlook.
+ - Study a foreign language if you have opportunity to do so. You may never be called to a land where that language is spoken, but the study will have given you a better understanding of your own tongue or of another tongue you may be asked to acquire.
+ - I wish for each of you a time, perhaps only an hour, spent in silent meditation and quiet reflection on the wonder and the majesty of this, the Son of God. Our joy at this season is because He came into the world.
+ - I have yet to find a faithful tithe payer who cannot testify that in a very literal and wonderful way the windows of Heaven have been opened and blessings have been poured out upon him or her.
+ - We live in a world where knowledge is developing at an ever-accelerating rate. Drink deeply from this ever-springing well of wisdom and human experience.
+ - The Lord would want you to be successful. He would. You are His sons and His daughters. He has the same kind of love and ambition for you that your earthly parents have. They want you to do well and you can do it.
+ - I wish to be up and doing. I wish to face each day with resolution and purpose. I wish to use every waking hour to give encouragement, to bless those whose burdens are heavy, to build faith and strength of testimony.
+ - We must work harder to build mutual respect, an attitude of tolerance, with forbearance one for another.
+ - It is selfishness which is the cause of most of our misery.
+ - Beer and other forms of alcohol will do you no good. Their use will be expensive, will dull your conscience, and could lead to the disease called alcoholism, which is humiliating, dangerous, and even deadly...
+ - I don’t think that the Internet has contributed greatly to immorality.
+ - I am satisfied that every man or woman who goes to the temple in a spirit of sincerity and faith leaves the house of the Lord a better man or woman.
+ - Give expression to the noble desires that lie in your heart.
+ - It’s true, isn’t it? Then what else really matters?
+ - Our hope concerning the future is great, and our faith is strong. We know we’ve scarcely scratched the surface of that which will come to pass in the years that lie ahead.
+ - Avoid alcohol as you would a loathsome disease. Beer will do to you what hard liquor will do. Each contains alcohol in varying amounts.
+ - I condemn polygamy, yes, as a practice, because I think it is not doctrinal. It is not legal. And this church takes the position that we will abide by the law.
+ - All writers should be put in a box and thrown in the sea.
+ - Do not nag yourself with a sense of failure.
+ - The Constitution under which we live and which has not only blessed us but has become a model for other constitutions, is our God-inspired national safeguard ensuring freedom and liberty, justice and equality before the law.
+ - Good books are as friends, willing to give to us if we are willing to make a little effort.
+ - If we will concentrate on the best, that element will grow until it sparkles.
+ - I hope that each one of us will be a better husband or wife, kinder to one another, more thoughtful, more restrained in criticism, and more generous with compliments.
+ - Criticism is the seed of divorce, and it develops rebellion in our young.
+ - People are looking for stability in a shaky world. They want something they can get hold of that’s firm and sure and an anchor in the midst of all of this instability in which they’re living.
+ - A marvelous thing it would be to stand with confidence, unafraid, unashamed, and unembarrassed in the presence of God.
+ - The discipline that is needed in our lives is the discipline that comes from within.
+ - He who is our Eternal Father has blessed you with miraculous powers of mind and body. He never intended that you should be less than the crowning glory of His creations.
+ - In very large measure each of us holds the key to the blessings of the Almighty upon us. If we wish the blessing, we must pay the price.
+ - I know of no better answer to the foul practices that confront our young people than the teachings of a mother, given in love with an unmistakable warning.
+ - Every righteous man or woman is entitled to revelation concerning his own affairs.
+ - Work at our responsibility as parents as if everything in life counted on it.
+ - It is my faith and conviction that the Constitution came not alone of the brain and purpose of man, but of the inspiration of God.
+ - God is only God when he is acting as such.
+ - I am suggesting that we spend a little less time in idleness, in the fruitless pursuit of watching inane and empty television programs. Time so utilized can be put to better advantage, and the consequences will be wonderful.
+ - Stay out of the gutter in your conversation. Foul talk defiles the man who speaks it.
+ - While there may be thorns and disappointments, while there may be heartache, even heartbreak, there can be peace and comfort and strength from the Lord for those who follow Him.
+ - If every man would make his prime concern the comfort and well-being of his wife and every wife make her chief concern the comfort and well-being of her husband, we would have very little divorce in the land.
+ - God gave us our agency. He taught us a way. He showed us what to do. But he gave us our agency and left us free to act as we choose to do.
+ - Nobody is lost until somebody has given up.
+ - For me, the reading of the scriptures is not the pursuit of scholarship. Rather, it is a love affair with the word of the Lord and that of His prophets.
+ - God has saved you to make your appearance in the last days.
+ - Conflict grows out of ignorance and suspicion.
+ - I am totally in the hands of the Lord.
+ - I think the world would be much poorer without religion, speaking generally.
+ - As you work with your associates to help them with their faith, you will save them and also yourselves.
+ - We wear on our faces the results of what we believe and how we behave, and such behavior is most evident in the eyes and on the faces of those who have lived many years.
+ - All of us have far too much to do to waste our time and energies in criticism, faultfinding, or the abuse of others.
+ - Of course we’re Christian. The very name of the church declares that.
+ - There are some men who, in a spirit of arrogance, think they are superior to women. They do not seem to realize that they would not exist but for the mother who gave them birth. When they assert their superiority they demean her.
+ - To save a girl is to save generations!
+ - People who carry in their hearts a strong conviction concerning the living reality of the Almighty and their accountability to Him for what they do with their lives are far less likely to become enmeshed in problems that inevitably weaken society.
+ - It is imperative that good people, men and women of principle, be involved in the political process; otherwise we abdicate power to those whose designs are almost entirely selfish.
+ - There is no association richer than the companionship of husband and wife.
+ - One has neither independence nor freedom from bondage when he is obligated to others.
+ - Spare yourselves from the indulgence of self-pity. It is always self-defeating. Subdue the negative and emphasize the positive.
+ - You will find peace and happiness if you will live the gospel.
+ - I almost stand in awe when I think of Joseph Smith. The angel appeared to him in 1823 – he said to this simple little boy, ‘Your name should be known for good and evil throughout the entire world.’
+ - What I fear from these reports is that the prevalent use of foul language has become an acceptable pattern in the schools, probably due in large part to the influence of TV and the general permissiveness in our society.
+ - Live today as if you were going to live forever, for you surely shall.
+ - Well, we have nothing to hide. Our history is an open book. They may find what they are looking for, but the fact is the history of the church is clear and open and leads to faith and strength and virtues.
+ - Just as our Redeemer gave His life as a vicarious sacrifice for all men, and in so doing became our Savior, even so we, in a small measure, when we engage in proxy work in the temple, become as saviors to those on the other side.
+ - Books represent the accumulated workings of the human mind, the endless treasures of man’s thoughts.
+ - The family is a creation of God. The way to strengthen the nation is to strengthen the homes of the people.
+ - You can determine the kind of life you will have in your 30s and 40s by what you do in your teens.
+ - I believe in the principle that I can make a difference in this world. It may be ever so small, but it will count for the greater good.
+ - There is too much of criticism and faultfinding with anger and raised voices.
+ - Do the best you can. And remember that the greatest asset you have in this world is those children who you’ve brought into the world, and for whose nurture and care you’re responsible.
+ - I spent one night in the hospital in my life. I was past 75 when that occurred.
+ - We feel the need to emphasize with greater clarity the obligation for members of the Church to become more independent and self reliant.
+ - There must be labor, incessant and constant, if there is to be a harvest.
+ - There is something wonderful about a book. We can pick it up. We can heft it. We can read it. We can set it down. We can think of what we have read. It does something for us. We can share great minds, great actions, and great undertakings in the pages of a book.
+ - It was a very limited practice; carefully safeguarded. In 1890, that practice was discontinued.
+ - If we are worried about the future, then we must look today at the upbringing of children.
+ - There is nothing the Lord has asked of us that in faith we cannot accomplish.
+ - Polygamists have no connection with us whatsoever. They don’t belong to the church. There are actually no Mormon fundamentalists.
+ - Love for the Lord, love for His servants the missionaries. Missionary work is a work of love and trust, and it has to be done on that basis.
+ - No man’s faith, no man’s religion, no religion in all the world can ever rise above the truth.
+ - Great has been our past, wonderful is our present, and glorious can be our future.
+ - I challenge every one of you who can hear me to rise to the divinity within you. Do we really realize what it means to be a child of God, to have within us something of the divine nature?
+ - Without preservation and cultivation of the spiritual, your material success will be as ashes in your mouths.
+ - We have never found, and I think we never shall find, an adequate substitute for the situation in which two wholesome young men meet with a family, reason with them, teach them, testify to them, and pray with them. We shall always need missionaries.
+ - When an individual is motivated by great and powerful convictions of truth, then he disciplines himself, not because of the demands of the church, but because of the knowledge within his heart.
+ - Don’t make the kinds of mistakes that will bring regret.
+ - Strength to do battle begins with enlisting the strength of God.
+ - I believe without any doubt that you are the finest generation this Church has ever had.
+ - When we speak quietly one to another things somehow get settled.
+ - What a wonderful time it is for each of us to do his or her small part in moving the work of the Lord on to its magnificent destiny.
+ - Let thy spirit move upon him to bring to pass those measures which will lift the burdens of government from the backs of the people and keep this nation, under God, a citadel of freedom standing as an example to all the world.
+ - There are others whose lives are blessed when a missionary serves, such as the members of his family who support him, pray for him, and try to live worthy of him.
+ - Something happens inside of us when we are courteous and deferential toward others. It is all part of a refining process, which if persisted in, will change our very natures.
+ - Let us take a little time to meditate, to think of what we can do to improve our lives and to become better examples of what a Latter-day Saint should be.
+ - I think that the churches do a better job in many respects than the government does in various kinds of things. Extending aid, the helpfulness, and so on, yes.
+ - Let there be cultivated an awareness in every member’s heart of his own potential for bringing others to a knowledge of the truth. Let him work at it. Let him pray with great earnestness about it.
+ - You don’t need coffee. Nobody needs coffee. You can get along without it.
+ - Without labor there is neither wealth, nor comfort, nor progress.
+ - There would be no Christmas if there was no Easter.
+ - The small day-to-day decisions will determine the course of your lives.
+ - Each of us has to face the matter – either the Church is true, or it is a fraud. There is no middle ground. It is the Church and kingdom of God, or it is nothing.
+ - If we are to continue to have the freedoms that came of the inspiration of the Almighty to our Founding Fathers, we must return to the God who is their true Author.
+ - This will be the most important decision of your life, the individual whom you marry...
+ - Gratitude is the beginning of civility, of decency and goodness, of a recognition that we cannot afford to be arrogant. We should walk with the knowledge that we will need help every step of the way.
+
+287 quotes

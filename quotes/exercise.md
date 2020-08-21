@@ -1,0 +1,42 @@
+ - When it comes to health and well-being, regular exercise is about as close to a magic potion as you can get. ~~Nhat Hanh
+ - The hardest thing about exercise is to start doing it. Once you are doing exercise regularly, the hardest thing is to stop it. ~~Erin Gray
+ - Daily exercise is an insurance policy against future illness. The best Leaders Without Titles are the fittest. ~~Robin S. Sharma
+ - Be intensely result-oriented in everything you do. This is a key characteristic of high performers. ~~Brian Tracy
+ - If you don’t make time for exercise, you’ll probably have to make time for illness. ~~Robin S. Sharma
+ - I’m addicted to exercising and I have to do something every day. ~~Arnold Schwarzenegger
+ - The doctor of the future will give no medicine, but will involve the patient in the proper use of food, fresh air and exercise. ~~Thomas A. Edison
+ - To me, good health is more than just exercise and diet. Its really a point of view and a mental attitude you have about yourself. ~~Albert Schweitzer
+ - Rest and play, are as vital to our health as nutrition and exercise. ~~Brené Brown
+ - You have to exercise, or at some point you’ll just break down. ~~Barack Obama
+ - If you neglect to exercise self-control, you are not only likely to injure others, but you are sure to injure yourself! ~~Napoleon Hill
+ - When you exercise your will power you release the power of life energy – not when you merely wish passively to be able to obtain an objective. ~~Paramahansa Yogananda
+ - Tentative efforts lead to tentative outcome. ~~Epictetus
+ - The exercises of practical life are formative activities, a work of adaptation to the environment. Such adaptation to the environment and efficient functioning therein is the very essence of a useful education. ~~Maria Montessori
+ - True prayer is neither a mere mental exercise nor a vocal performance. It is a spiritual commerce with the Creator of heaven and earth. ~~Charles H. Spurgeon
+ - Even when all is known, the care of a man is not yet complete, because eating alone will not keep a man well; he must also take exercise. For food and exercise, while possessing opposite qualities, yet work together to produce health. ~~Hippocrates
+ - Proper visualization by the exercise of concentration and willpower enables us to materialize thoughts, not only as dreams or visions in the mental realm, but also as experiences in the material realm. ~~Paramahansa Yogananda
+ - In this world, the greatest rewards of success, wealth and happiness are usually obtained not through the exercise of special powers such a genius or intellect but through one’s energetic use of simple means and ordinary qualities. ~~Og Mandino
+ - You think you’re fatigued, therefore you can’t exercise. In fact, you choose not to move, therefore you feel fatigued. ~~Tim Ferriss
+ - A bear, however hard he tries, grows tubby without exercise. ~~A. A. Milne
+ - You may believe that you are responsible for what you do, but not for what you think. The truth is that you are responsible for what you think, because it is only at this level that you can exercise choice. What you do comes from what you think. ~~Marianne Williamson
+ - When we attempt to exercise power or control over someone else, we cannot avoid giving that person the very same power or control over us. ~~Alan Watts
+ - Laughing is good exercise. It’s like jogging on the inside. ~~Kurt Vonnegut
+ - Power tends to corrupt and absolute power corrupts absolutely. Great men are almost always bad men, even when they exercise influence and not authority: still more when you superadd the tendency or the certainty of corruption by authority. ~~Lord Acton
+ - Just for today I will exercise my soul in three ways: I will do somebody a good turn and not get found out. I will do at least two things I don’t want to do. ~~William James
+ - Prayer is not an argument with God to persuade him to move things our way, but an exercise by which we are enabled by his Spirit to move ourselves his way. ~~Leonard Ravenhill
+ - You know you’ve got to exercise your brain just like your muscles. ~~Will Rogers
+ - I don’t believe in any form of unjustified extremism! But when a man is exercising extremism – a human being is exercising extremism – in defense of liberty for human beings it’s no vice, and when one is moderate in the pursuit of justice for human beings I say he is a sinner. ~~Malcolm X
+ - Whenever you find yourself hurrying, call a halt; fix your attention on the mental image of the thing you want, and being to give thanks that you are getting it. The exercise of GRATITUDE will never fail to strengthen your faith and renew your purpose. ~~Wallace D. Wattles
+ - Running is not just exercise; it is a lifestyle. ~~John Bingham
+ - I believe we have an obligation to read for pleasure, in private and in public places. If we read for pleasure, if others see us reading, then we learn, we exercise our imaginations. We show others that reading is a good thing. ~~Neil Gaiman
+ - We have not successfully rolled back the frontiers of the state in Britain, only to see them re-imposed at a European level with a European super-state exercising a new dominance from Brussels. ~~Margaret Thatcher
+ - All the papers that matter live off their advertisements, and the advertisers exercise an indirect censorship over news. ~~George Orwell
+ - We succeed, not alone by the laborious exertions of our faculties, be they small or great, but by the regular, thoughtful and systematic exercise of them. ~~Frederick Douglass
+ - I practice Transcendental Meditation and I had enough exercise. I am one who thinks that not only need to have patience, we must persevere. If you do it right you’ll see results. ~~Juan Manuel Santos
+ - Every child is born blessed with a vivid imagination. But just as a muscle grows flabby with disuse, so the bright imagination of a child pales in later years if he ceases to exercise it. ~~Walt Disney
+ - The country was in peril; he was jeopardizing his traditional rights of freedom and independence by daring to exercise them. ~~Joseph Heller
+ - Ultimately, the only power to which man should aspire is that which he exercises over himself. ~~Elie Wiesel
+ - Look at the people you don’t love and see them as an exercise for you to open your heart. ~~Ram Dass
+ - There is a good reason they call these ceremonies ‘commencement exercises’. Graduation is not the end; it’s the beginning. ~~Orrin Hatch
+
+40 quotes

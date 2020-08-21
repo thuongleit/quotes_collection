@@ -1,0 +1,31 @@
+ - For me, education means to inspire people to live more abundantly, to learn to begin with life as they find it and make it better.
+ - When you control a man’s thinking you do not have to worry about his actions.
+ - The mere imparting of information is not education. Above all things, the effort must result in making a man think and do for himself.
+ - History shows that it does not matter who is in power or what revolutionary forces take over the government, those who have not learned to do for themselves and have to depend solely on others never obtain any more rights or privileges in the end than they had in the beginning.
+ - In the long run, there is not much discrimination against superior talent.
+ - The real servant of the people must live among them, think with them, feel for them, and die for them.
+ - If a race has no history, if it has no worthwhile tradition, it becomes a negligible factor in the thought of the world, and it stands in danger of being exterminated.
+ - You must give your own story to the world.
+ - Those who have no record of what their forebears have accomplished lose the inspiration which comes from the teaching of biography and history.
+ - What we need is not a history of selected races or nations, but the history of the world void of national bias, race hate, and religious prejudice.
+ - As another has well said, to handicap a student by teaching him that his black face is a curse and that his struggle to change his condition is hopeless is the worst sort of lynching.
+ - Truth comes to us from the past, then, like gold washed down from the mountains.
+ - The oppressor has always indoctrinated the weak with his interpretation of the crimes of the strong.
+ - No man knows what he can do until he tries.
+ - The race needs workers, not leaders.
+ - The different ness of races, moreover, is no evidence of superiority or of inferiority. This merely indicates that each race has certain gifts which the others do not possess.
+ - They still have some money, and they have needs to supply. They must begin immediately to pool their earnings and organize industries to participate in supplying social and economic demands.
+ - The strongest bank in the United States will last only so long as the people will have sufficient confidence in it to keep their money there.
+ - In fact, the confidence of the people is worth more than money.
+ - Truth must be dug up from the past and presented to the circle of scholastics in scientific form and then through stories and dramatizations that will permeate our educational system.
+ - I am not afraid of being sued by white businessmen. In fact, I should welcome such a lawsuit. It would do the cause much good. Let us banish fear. We have been in this mental state for three centuries. I am a radical. I am ready to act, if I can find brave men to help me.
+ - I am ready to act, if I can find brave men to help me.
+ - This crusade is much more important than the anti- lynching movement, because there would be no lynching if it did not start in the schoolroom.
+ - Why not exploit, enslave, or exterminate a class that everybody is taught to regard as inferior?
+ - Our most widely known scholars have been trained in universities outside of the South.
+ - The author takes the position that the consumer pays the tax, and as such every individual of the social order should be given unlimited opportunity to make the most of himself.
+ - In our so-called democracy we are accustomed to give the majority what they want rather than educate them to understand what is best for them.
+ - The mere imparting of information is not education.
+ - I am not afraid of being sued by white businessmen. In fact, I should welcome such a law suit.
+
+29 quotes

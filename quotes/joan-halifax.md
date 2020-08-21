@@ -1,0 +1,27 @@
+ - We believe that it takes a strong back and a soft front to face the world.
+ - There is the in-breath and there is the out-breath, and too often we feel like we have to exhale all the time. The inhale is absolutely essential-and then you can exhale.
+ - Many of us think that compassion drains us, but I promise you it is something that truly enlivens us.
+ - Catastrophe is the essence of the spiritual path, a series of breakdowns allowing us to discover the threads that weave all of life into a whole cloth.
+ - May I see my own limits with compassion, just as I view the limits of others.
+ - Compassion has enemies, and those enemies are things like pity, moral outrage, fear.
+ - All beings, including each one of us, enemy and friend alike, exist in patterns of mutuality, interconnectedness, co-responsibility and ultimately in unity.
+ - Compassion may be defined as the capacity to be attentive to the experience of others, to wish the best for others, and to sense what will truly serve others.
+ - In being with dying, we arrive at a natural crucible of what it means to love and be loved. And we can ask ourselves this: Knowing that death is inevitable, what is most precious today?
+ - We live in a time when science is validating what humans have known throughout the ages: that compassion is not a luxury; it is a necessity for our well-being, resilience, and survival.
+ - Whether or not enlightenment is possible at the moment of death, the practices that prepare one for this possibility also bring one closer to the bone of life.
+ - Don’t ever think compassion is weak. Compassion is about strength.
+ - If compassion is so good for us, why don’t we train our health care providers in compassion so that they can do what they’re supposed to do, which is to transform suffering?
+ - Compassionate action emerges from the sense of openness, connectedness, and discernment you have created.
+ - My work has been in the field of engaged Buddhism. That is my own practice, which began in 1965 that formed the base for the work I was doing in the civil rights and anti-war movement.
+ - Yes, creation is moving toward us; life is moving toward us all the time. We back away, but it keeps pushing toward us. Why not step forward and greet it.
+ - Most of us are shrinking in the face of psycho-social and physical poisons, of the toxins of our world. But compassion, the generation of compassion, actually mobilizes our immunity.
+ - I believe that women and girls today have to partner in a powerful way with men – with their fathers, with their sons, with their brothers, with the plumbers, the road builders, the caregivers, the doctors, the lawyers, with our president and with all beings.
+ - When I first was exposed to Buddhism in the mid-1960s, I said it was so practical and utterly pragmatic. That’s what attracted me to Buddhism.
+ - For me, Buddhism is a psychology and a philosophy that provides a means, upayas, for working with the mind.
+ - I’ve worked in the prison system, on death row and maximum security. I did that work for six years. I’ve worked with some of the most difficult people in our society. Buddhism was accessible and helpful for these individuals.
+ - No single answer can hold the truth of a good heart.
+ - Since we are already Buddhas, happy and suffering Buddhas, wise and confused Buddhas, we are already Buddha.
+ - When we have disorderly lives, it makes it difficult for our minds to be orderly and for us to be at ease with disorder.
+ - Developing our capacity for compassion makes it possible for us to help others in a more skillful and effective way.
+
+25 quotes

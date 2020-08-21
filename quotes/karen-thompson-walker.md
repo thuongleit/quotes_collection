@@ -1,0 +1,43 @@
+ - Just like all great stories, our fears focus our attention on a question that is as important in life as it is in literature: What will happen next?
+ - How much sweeter life would be if it all happened in reverse, if, after decades of disappointments, you finally arrived at an age when you had conceded nothing, when everything was possible.
+ - I love conventional apocalypse movies. In movies, I like to be with the president, or the scientist trying to solve the problem, but that’s not the kind of fiction that I like to read.
+ - Some say that love is the sweetest feeling, the purest form of joy, but that isn’t right. It’s not love – it’s relief.
+ - A good story, just like a good sentence, does more than one job at once. That’s what literature is: a story that does more than tell a story, a story that manages to reflect in some way the multilayered texture of life itself.
+ - Feeling earthquakes was part of growing up, and also preparing for them: doing earthquake drills, or having earthquake supplies. The looming feeling was part of my life. My experience of earthquakes has always been more the fear of them, or the possibility.
+ - I tend to mostly take the day off from working on Sundays, but I do spend some time reading. Mostly what I’m picking up is what’s in stores. I really do love to read fiction from the last year or two.
+ - Shortly after the 2004 Indonesian earthquake, I read that the earthquake had affected the rotation of the earth, shortening the length of our 24-hour day. Even though the change was extremely slight – only a few microseconds – I found the idea incredibly haunting.
+ - I kept quiet, but the knowledge gathered like a storm. I could see the future: My father wasn’t coming back. And this one fact seemed to point to other facts and others still: Love frays and humans fail, time passes, eras end.
+ - Sometimes the saddest stories take the fewest words.
+ - Even beauty, in abundance, turns creepy.
+ - Who knows how fast a second-guess can travel? Who has ever measured the exact speed of regret?
+ - Sometimes death is proof of life. Sometimes decay points out a certain verve.
+ - If I read a scary story in the newspaper, I find I’m haunted by it.
+ - I like to edit my sentences as I write them. I rearrange a sentence many times before moving on to the next one. For me, that editing process feels like a form of play, like a puzzle that needs solving, and it’s one of the most satisfying parts of writing.
+ - I’m an only child, and I think one of the sweet things about that is that my parents are really interested in every aspect of my life.
+ - We were a different kind of Christian, the quiet, reasonable kind, a breed embarrassed by the mention of miracles.
+ - Working as an editor was like being a professional reader, and the better I became at reading the better I became at writing.
+ - Sometimes I think I might not have written ‘The Age of Miracles’ if I hadn’t grown up in California, if I hadn’t been exposed to its very particular blend of beauty and disaster, of danger and denial.
+ - To be a good editor or a good writer, I think you really need to be a great reader first.
+ - I left my job in the fall, and now I can set my life up around writing instead of squeezing writing into my day; it’s amazing to have that time, and I feel very lucky.
+ - My sentences got sharper and my stories more efficient, and I gradually learned to imagine the reader more clearly and to empathize with that imagined reader, which is a crucial part of learning to tell stories.
+ - To some degree we all live with uncertainty. We have no control over the future. Yet we carry on, we persevere, because, I guess, it’s the way we’re made.
+ - My goal was just to tell the unlikely story in a way that would feel as convincing as possible.
+ - I first started writing fiction in college because I was attracted to beautiful sentences. I loved to read them. I wanted to write them.
+ - In general, I think I’m quick to worry about disasters of all kinds.
+ - I really believe that fiction functions best when stories are allowed to develop in an organic way, so I didn’t set out to deliver a specific message.
+ - It’s really hard to get a book published, even a good book, but the better the book is the better chance it has of eventually catching someone’s attention.
+ - I just hope that readers and publishers continue to appreciate good writing and good storytelling in all their various forms. And I hope that people continue to read books, even though we have so many other options for entertainment.
+ - Nothing has happened to me out of the closet that was anywhere near as dangerous as being closeted.
+ - It took me years to learn that sentences in fiction must do much more than stand around and look pretty.
+ - I fell in love with Virginia Woolf in college. I especially admire how well she writes about daily life, how she captures so much meaning and consequence in the smallest details of a day.
+ - There’s a pleasure in being reminded of the value of ordinary life.
+ - I was a book editor for nine years. I’m familiar with the opposite experience, bracing myself for the likelihood that no one would want to publish my book.
+ - I guess it never is what you worry over that comes to pass in the end. The real catastrophes are always different – unimagined, unprepared for, unknown.
+ - Sentences or solutions occur to me in the shower, or while running on the treadmill, or riding on the subway.
+ - I can write all the way through the morning, when my mind is clear, and there are no distractions.
+ - As an editor, I read Charlotte Rogan’s amazing debut novel, ‘The Lifeboat,’ when it was still in manuscript. I read it in one night, and I really wanted my company to publish it, but we lost it to another house. It’s such a wonderful combination of beautiful writing and suspenseful storytelling.
+ - I feel like writing a book there’s always a version in your head that’s an amazing version, but then you write the version that you can write.
+ - It requires a certain kind of bravery, I suppose, to choose the status quo. There’s a certain boldness to inaction.
+ - But the past is long, and the future is short.
+
+41 quotes

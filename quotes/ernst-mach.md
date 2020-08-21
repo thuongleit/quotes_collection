@@ -1,0 +1,37 @@
+ - Thing, body, matter, are nothing apart from the combinations of the elements, – the colours, sounds, and so forth – nothing apart from their so-called attributes.
+ - Thought experiment is in any case a necessary precondition for physical experiment. Every experimenter and inventor must have the planned arrangement in his head before translating it into fact.
+ - The history of the development of mechanics is quite indispensable to a full comprehension of the science in its present condition. It also affords a simple and instructive example or the processes by which natural science generally is developed.
+ - The ego is as little absolutely permanent as are bodies.
+ - I can accept the theory of relativity as little as I can accept the existence of atoms and other such dogmas.
+ - Physics is experience, arranged in economical order.
+ - A colour is a physical object as soon as we consider its dependence, for instance, upon its luminous source, upon other colours, upon temperatures, upon spaces, and so forth.
+ - I once knew an otherwise excellent teacher who compelled his students to perform all their demonstrations with incorrect figures, on the theory that it was the logical connection of the concepts, not the figure, that was essential.
+ - Mathematics may be defined as the economy of counting. There is no problem in the whole of mathematics which cannot be solved by direct counting.
+ - Scientists must use the simplest means of arriving at their results and exclude everything not perceived by the senses.
+ - Strange as it may sound, the power of mathematics rests on its evasion of all unnecessary thought and on its wonderful saving of mental operations.
+ - Personally, people know themselves very poorly.
+ - The plain man is familiar with blindness and deafness, and knows from his everyday experience that the look of things is influenced by his senses; but it never occurs to him to regard the whole world as the creation of his senses.
+ - A movement that we will to execute is never more than a represented movement, and appears in a different domain from that of the executed movement, which always takes place when the image is vivid enough.
+ - My table is now brightly, now dimly lighted. Its temperature varies. It may receive an ink stain. One of its legs may be broken. It may be repaired, polished, and replaced part by part. But, for me, it remains the table at which I daily write.
+ - To us investigators, the concept ‘soul’ is irrelevant and a matter for laughter. But matter is an abstraction of exactly the same kind, just as good and just as bad as it is. We know as much about the soul as we do of matter.
+ - Ordinarily pleasure and pain are regarded as different from sensations.
+ - Without renouncing the support of physics, it is possible for the physiology of the senses, not only to pursue its own course of development, but also to afford to physical science itself powerful assistance.
+ - Man is pre-eminently endowed with the power of voluntarily and consciously determining his own point of view.
+ - In reality, the law always contains less than the fact itself, because it does not reproduce the fact as a whole but only in that aspect of it which is important for us, the rest being intentionally or from necessity omitted.
+ - Similarly, many a young man, hearing for the first time of the refraction of stellar light, has thought that doubt was cast on the whole of astronomy, whereas nothing is required but an easily effected and unimportant correction to put everything right again.
+ - The task which we have set ourselves is simply to show why and for what purpose we hold that standpoint during most of our lives, and why and for what purpose we are provisionally obliged to abandon it.
+ - Archimedes constructing his circle pays with his life for his defective biological adaptation to immediate circumstances.
+ - The acquisition of the most elementary truth does not devolve upon the individual alone: it is pre-effected in the development of the race.
+ - The presentations and conceptions of the average man of the world are formed and dominated, not by the full and pure desire for knowledge as an end in itself, but by the struggle to adapt himself favourably to the conditions of life.
+ - All this, the positive and physical essence of mechanics, which makes its chief and highest interest for a student of nature, is in existing treatises completely buried and concealed beneath a mass of technical considerations.
+ - Science always has its origin in the adaptation of thought to some definite field of experience.
+ - The fact is, every thinker, every philosopher, the moment he is forced to abandon his one-sided intellectual occupation by practical necessity, immediately returns to the general point of view of mankind.
+ - Science is the most complete presentment of facts with the least expenditure of thought.
+ - The mathematician who pursues his studies without clear views of this matter, must often have the uncomfortable feeling that his paper and pencil surpass him in intelligence.
+ - If our dreams were more regular, more connected, more stable, they would also have more practical importance for us.
+ - What Mach calls a thought experiment is of course not an experiment at all. At bottom it is a grammatical investigation.
+ - When I recall today my early youth, I should take the boy that I then was, with the exception of a few individual features, for a different person, were it not for the existence of the chain of memories.
+ - Many an article that I myself penned twenty years ago impresses me now as something quite foreign to myself.
+ - The biological task of science is to provide the fully developed human individual with as perfect a means of orientating himself as possible. No other scientific ideal can be realised, and any other must be meaningless.
+
+35 quotes

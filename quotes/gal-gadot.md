@@ -1,0 +1,21 @@
+ - I’m a person who loves people. It’s all about the vibe of the environment I’m working in.
+ - I’m a goofy girl. I like to laugh and I like to make other people laugh.
+ - I just keep active – everything thats challenging me, everything that I feel like doing.
+ - I try to eat healthy. But sometimes, though, I eat cheeseburgers. Thats good for the soul. I make sure to balance everything out. I drink tons of water.
+ - I’m very open to all different genres because I’m a very open-minded girl.
+ - I come from a very sporty background because my mom is a gymnastics teacher. So growing up I was never sitting watching TV in the afternoons. I always played ball outside in the backyard.
+ - I always tell myself that it is very, very important for me to be a good role model for Alma, my daughter.
+ - I wanted to show that women are empowered and strong, and don’t have to be saved by some male hero, but they can take care of themselves using their intelligence and their power.
+ - I never planned on being an actress, just as I never planned on being a model. I went to law and international-relations school. It wasn’t my direction. It kind of happened to me. And because it wasn’t my dream when I started, I wasn’t starstruck.
+ - I wish we had more female writers. Most of the female characters you see in films today are ‘the poor heartbroken girl.’ That’s why I’m so proud of the Fast movies. I feel like Giselle is an empowering woman.
+ - In real life I’m the type of girl who doesn’t take herself too seriously. I’m very serious when it comes to work, but I like to make jokes and have a good laugh and make fun of myself.
+ - Once you become a mother, you always have a guilt trip. You always try to do the best, but you feel you can always be better.
+ - For me especially, I travel a lot, and with the weather change and everything, my skin gets dehydrated very fast.
+ - I didn’t want to do the obvious role that you see in Hollywood most of the time, which is the heartbroken girl who’s waiting to be rescued by the guy, blah, blah, blah. I wanted to do something different.
+ - I’ve never experienced a bad situation with men being sexist with me. I’ve been very lucky – even when I was just starting and modeling in Milan and Paris.
+ - The people who work in the fashion industry and the people who work in the film industry have a lot in common. They’re very creative. Their eye is very aesthetic.
+ - When you play a character, you bring yourself into the character. You get a chance to shine and show your translation for the character and her state of mind.
+ - The good thing about being an actress is that it’s very children-friendly. I can work for three months and then I can have six months off. And then I can work for six months and have six months off.
+ - My agent called me and said, “You have an audition for James Bond. They’re looking for the girl.” And I told him, “Listen, it’s all in English. I’m not an actress. I’m not going to go.” He thought I was kidding with him.
+
+19 quotes

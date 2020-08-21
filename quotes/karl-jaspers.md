@@ -1,0 +1,41 @@
+ - It is the search for the truth, not possession of the truth which is the way of philosophy. Its questions are more relevant than its answers, and every answer becomes a new question.
+ - The moment is the sole reality.
+ - Only in those moments when I exercise my freedom am I fully myself.
+ - The soul of a landscape, the spirits of the elements, the genius of every place will be revealed to a loving view of nature.
+ - Greatness of mind becomes an object of love only when the power at work in it itself has a noble character.
+ - The great philosophers and the great works are standards for the selection of what is essential. Everything that we do in studying the history of philosophy ultimately serves their better understanding.
+ - When in our isolation we see our lives seeping away as a mere succession of moments, tossed meaninglessly about by accidents and overwhelming events; when we contemplate a history that seems to be at an end, leaving only chaos behind it, then we are impelled to raise ourselves above history.
+ - What makes us afraid is our great freedom in the face of the emptiness that has still to be filled.
+ - Philosophic meditation is an accomplishment by which I attain Being and my own self, not impartial thinking which studies a subject with indifference.
+ - Only as an individual can man become a philosopher.
+ - A scientific approach means knowing what one knows and what one doesn’t. Absolute or complete knowledge is unscientific.
+ - My own being can be judged by the depths I reach in making these historical origins my own.
+ - On the question of the world as a whole, science founders. For scientific knowledge the world lies in fragments, the more so the more precise our scientific knowledge becomes.
+ - Only a development of thought achieved through the self-education of the whole man can prevent any body of thought whatsoever from becoming a poison; can prevent enlightenment from becoming an agent of death.
+ - There is no God, cry the masses more and more vociferously; and with the loss of God man loses his sense of values – is, as it were, massacred because he feels himself of no account.
+ - The study of law left me unsatisfied, because I did not know the aspects of life which it serves. I perceived only the intricate mental juggling with fictions that did not interest me.
+ - All democracies demand common public education because nothing makes people so much alike as the same education.
+ - Everything depends therefore on encountering thought at its source. Such thought is the reality of man’s being, which achieved consciousness and understanding of itself through it.
+ - The Socratic teacher turns his students away from himself and back onto themselves; he hides in paradoxes, makes himself inaccessible. The intimate relationship between student and teacher here is not one of submission, but of a contest for truth.
+ - I discovered that the study of past philosophers is of little use unless our own reality enters into it. Our reality alone allows the thinker’s questions to become comprehensible.
+ - I began the study of medicine, impelled by a desire for knowledge of facts and of man. The resolution to do disciplined work tied me to both laboratory and clinic for a long time to come.
+ - The more determinedly I exist, as myself, within the conditions of the time, the more clearly I shall hear the language of the past, the nearer I shall feel the glow of its life.
+ - Nietzsche, driven by the absolute demand of his existential truthfulness, could not abide the bourgeois world, even when its representative had human nobility.
+ - When language is used without true significance, it loses its purpose as a means of communication and becomes an end in itself.
+ - Philosophy is tested and characterised by the way in which it appropriates its history.
+ - The community of masses of human beings has produced an order of life in regulated channels which connects individuals in a technically functioning organisation, but not inwardly from the historicity of their souls.
+ - To decide to become a philosopher seemed as foolish to me as to decide to become a poet.
+ - If philosophy is practice, a demand to know the manner in which its history is to be studied is entailed: a theoretical attitude toward it becomes real only in the living appropriation of its contents from the texts.
+ - Only then, approaching my fortieth birthday, I made philosophy my life’s work.
+ - The history of philosophy is not, like the history of the sciences, to be studied with the intellect alone. That which is receptive in us and that which impinges upon us from history is the reality of man’s being, unfolding itself in thought.
+ - As a universal history of philosophy, the history of philosophy must become one great unity.
+ - Philosophy can only be approached with the most concrete comprehension.
+ - We must learn to talk with each other, and we mutually must understand and accept one another in our extraordinary differences.
+ - At the present moment, the security of coherent philosophy, which existed from Parmenides to Hegel, is lost.
+ - Conflicts may be the sources of defeat, lost life and a limitation of our potentiality but they may also lead to greater depth of living and the birth of more far-reaching unities, which flourish in the tensions that engender them.
+ - Reason is like an open secret that can become known to anyone at any time; it is the quiet space into which everyone can enter through his own thought.
+ - Philosophy as practice does not mean its restriction to utility or applicability, that is, to what serves morality or produces serenity of soul.
+ - Even scientific knowledge, if there is anything to it, is not a random observation of random objects; for the critical objectivity of significant knowledge is attained as a practice only philosophically in inner action.
+ - Nietzsche’s ideas and plans: for example, the idea of giving up the whole wretched academic world to form a secular monastic community.
+
+39 quotes

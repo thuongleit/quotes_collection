@@ -1,0 +1,276 @@
+ - You cannot swim for new horizons until you have courage to lose sight of the shore.
+ - Don’t bother just to be better than others. Try to be better than yourself.
+ - The past is never dead. It’s not even past.
+ - History is not was, it is.
+ - You don’t love because: you love despite; not for the virtues, but despite the faults.
+ - The only thing worth writing about is the human heart in conflict with itself.
+ - In writing, you must kill all your darlings.
+ - Try to be better than yourself.
+ - Given the choice between the experience of pain and nothing, I would choose pain.
+ - To understand the world, you must first understand a place like Mississippi.
+ - If a story is in you, it has to come out.
+ - Read, read, read. Read everything – trash, classics, good and bad, and see how they do it. Just like a carpenter who works as an apprentice and studies the master. Read! You’ll absorb it. Then write. If it’s good, you’ll find out. If it’s not, throw it out of the window.
+ - Get it down. Take chances. It may be bad, but it’s the only way you can do anything good.
+ - Don’t do what you can do – try what you can’t do.
+ - You have to write badly in order to write well.
+ - Perhaps they were right putting love into books. Perhaps it could not live anywhere else.
+ - Read, read read. Read everything.
+ - Memory believes before knowing remembers. Believes longer than recollects, longer than knowing even wonders.
+ - Writing a first draft is like trying to build a house in a strong wind.
+ - If happy I can be I will, if suffer I must I can.
+ - If I had not existed, someone else would have written me, Hemingway, Dostoyevsky, all of us.
+ - Dreams have only one owner at a time. That’s why dreamers are lonely.
+ - Between grief and nothing, I will take grief.
+ - Civilization begins with distillation.
+ - I never know what I think about something until I read what I’ve written on it.
+ - Our most treasured family heirloom are our sweet family memories. The past is never dead, it is not even past.
+ - We must be free not because we claim freedom, but because we practice it.
+ - A gentleman accepts the responsibility of his actions and bears the burden of their consequences.
+ - The saddest thing about love, Joe, is that not only the love cannot last forever, but even the heartbreak is soon forgotten.
+ - People need trouble – a little frustration to sharpen the spirit on, toughen it.
+ - You must always know the past, for there is no real Was, there is only Is.
+ - Only when the clock stops does time come to life.
+ - It begins with a character, usually, and once he stands up on his feet and begins to move, all I can do is trot along behind him with a paper and pencil trying to keep up long enough to put down what he says and does.
+ - Tomorrow night is nothing but one long sleepless wrestle with yesterday’s omissions and regrets.
+ - It is the writer’s privilege to help man endure by lifting his heart.
+ - Teach yourself by your own mistakes; people learn only by error.
+ - A man is the sum of his misfortunes.
+ - Now she hates me. I have taught her that, at least.
+ - Caddy smelled like trees.
+ - Some days in late August at home are like this, the air thin and eager like this, with something in it sad and nostalgic and familiar...
+ - Your illusions are a part of you like your bones and flesh and memory.
+ - It seems impossible for a man to learn the value of money without first having to learn to waste it.
+ - I discovered that my own little postage stamp of native soil was worth writing about and that I would never live long enough to exhaust it.
+ - Talk, talk, talk: the utter and heartbreaking stupidity of words.
+ - There is no was.
+ - The best fiction is far more true than any journalism.
+ - Memory believes before knowing remembers.
+ - I’m a failed poet. Maybe every novelist wants to write poetry first, finds he can’t and then tries the short story which is the most demanding form after poetry. And failing at that, only then does he take up novel writing.
+ - Truth; that long clean clear simple undeniable unchallengeable straight and shining line, on one side of which black is black and on the other white is white, has now become an angle, a point of view.
+ - A fellow gets to thinking. About all the sorrow and afflictions in this world; how it’s liable to strike anywhere, like lightning.
+ - There is something about jumping a horse over a fence, something that makes you feel good. Perhaps it’s the risk, the gamble. In any event it’s a thing I need.
+ - Believe that man will not merely endure; he will prevail.
+ - How often have I lain beneath rain on a strange roof, thinking of home.
+ - All men are just accumulations dolls stuffed with sawdust swept up from the trash heaps where all previous dolls had been thrown away.
+ - A writer needs three things, experience, observation, and imagination, any two of which, at times any one of which, can supply the lack of the others.
+ - An artist is completely amoral in that he will rob, beg, borrow, or steal from anybody and everybody to get the work done.
+ - It’s always the idle habits you acquire which you will regret.
+ - A gentleman can live through anything.
+ - It’s the most satisfying occupation man has discovered yet, because you never can quite do it as well as you want to, so there’s always something to wake up tomorrow morning to do.
+ - No man can write who is not first a humanitarian.
+ - She loved him not only in spite of but because he himself was incapable of love.
+ - Who gathers the withered rose?
+ - Unless you’re ashamed of yourself now and then, you’re not honest.
+ - I am not one of those women who can stand things.
+ - The end of wisdom is to dream high enough to lose the dream in the seeking of it.
+ - Gratitude is a quality similar to electricity: it must be produced and discharged and used up in order to exist at all.
+ - I only write when I feel the inspiration. Fortunately, inspiration strikes at 10:00 o’clock every day.
+ - Pouring out liquor is like burning books.
+ - My mother is a fish.
+ - Ever since then I have believed that God is not only a gentleman and a sport; he is a Kentuckian too.
+ - My ideal job? Landlord of a bordello! The company’s good and the mornings are quiet, which is the best time to write.
+ - Setting an example for your children takes all the fun out of middle age Conditions are never just right. People who delay action until all factors are favorable do nothing.
+ - Idleness breeds our better virtues.
+ - The aim of every artist is to arrest motion, which is life, by artificial means and hold it fixed so that a hundred years later, when a stranger looks at it, it moves again since it is life.
+ - The writer in America isn’t part of the culture of this country. He’s like a fine dog. People like him around, but he’s of no use.
+ - Time is a fluid condition which has no existence except in the momentary avatars of individual people. There is no such thing as was – only is.
+ - Nothing can destroy the good writer. The only thing that can alter the good writer is death. Good ones don’t have time to bother with success or getting rich.
+ - If you could just ravel out into time. That would be nice. It would be nice if you could just ravel out into time.
+ - She was the captain of her soul.
+ - You can’t beat women anyhow and that if you are wise or dislike trouble and uproar you don’t even try to.
+ - A man is the sum of his misfortunes. One day you’d think misfortune would get tired but then time is your misfortune.
+ - It’s all now you see: tomorrow began yesterday and yesterday won’t be over until tomorrow.
+ - My, my. A body does get around.
+ - Facts and truth really don’t have much to do with each other.
+ - You can’t. You just have to.
+ - Mississippi begins in a lobby of a Memphis, Tennessee hotel and extends south to the Gulf of Mexico.
+ - I decline to accept the end of man.
+ - All of us failed to match our dreams of perfection.
+ - We cannot choose freedom established on a hierarchy of degrees of freedom, on a caste system of equality like military rank. We must be free not because we claim freedom, but because we practice it.
+ - Knowing not grieving remembers a thousand savage and lonely streets.
+ - The salvation of the world is in man’s suffering.
+ - She clung to that which had robbed her, as people do.
+ - Even sound seemed to fail in this air, like the air was worn out with carrying sounds so long.
+ - Wonder. Go on and wonder.
+ - The best job that was ever offered to me was to become a landlord in a brothel. In my opinion it’s the perfect milieu for an artist to work in.
+ - A writer must teach himself that the basest of all things is to be afraid.
+ - Be scared. You can’t help that. But don’t be afraid. Ain’t nothing in the woods going to hurt you unless you corner it, or it smells that you are afraid. A bear or a deer, too, has got to be scared of a coward the same as a brave man has got to be.
+ - Though children can accept adults as adults, adults can never accept children as anything but adults too.
+ - There is that might-have-been which is the single rock we cling to above the maelstrom of unbearable reality.
+ - It takes two people to make you, and one people to die. That’s how the world is going to end.
+ - I believe in God, God. God, I believe in God.
+ - Sin and love and fear are just sounds that people who never sinned nor loved nor feared have for what they never had and cannot have until they forget the words.
+ - War is an episode, a crisis, a fever the purpose of which is to rid the body of fever. So the purpose of a war is to end the war.
+ - So long as the deceit ran along quiet and monotonous, all of us let ourselves be deceived, abetting it unawares or maybe through cowardice...
+ - I feel like a wet seed wild in the hot blind earth.
+ - We must just stay awake and see evil done for a little while it’s not always.
+ - It used to be I thought of death as a man something like Grandfather a friend of his a kind of private and particular friend like we used to think of Grandfather’s desk not to touch it not even to talk loud in the room where it was.
+ - To live anywhere in the world today and be against equality because of race or color is like living in Alaska and being against snow.
+ - I never promise a woman anything nor let her know what I’m going to give her. That’s the only way to manage them. Always keep them guessing. If you cant think of any other way to surprise them, give them a bust in the jaw.
+ - There is no such thing as was – only is. If was existed, there would be no grief or sorrow.
+ - A mule will labor ten years willingly and patiently for you, for the privilege of kicking you once.
+ - It’s not when you realise that nothing can help you – religion, pride, anything – it’s when you realise that you don’t need any aid.
+ - I’m bad and I’m going to hell, and I don’t care. I’d rather be in hell than anywhere where you are.
+ - Success is feminine and like a woman, if you cringe before her, she will override you.
+ - Man performs and engenders so much more than he can or should have to bear. That’s how he finds that he can bear anything.
+ - I will never lie again.
+ - That’s the one trouble with this country: everything, weather, all, hangs on too long. Like our rivers, our land: opaque, slow, violent; shaping and creating the life of man in its implacable and brooding image.
+ - People to whom sin is just a matter of words, to them salvation is just words too.
+ - She was bored. She loved, had capacity to love, for love, to give and accept love. Only she tried twice and failed twice to find somebody not just strong enough to deserve it, earn it, match it, but even brave enough to accept it.
+ - I love Virginians because Virginians are all snobs and I like snobs. A snob has to spend so much time being a snob that he has little time left to meddle with you.
+ - We have all heard what we wanted to hear! Truth that sounds right to our ears!
+ - Caddy got the box and set it on the floor and opened it. It was full of stars. When I was still, they were still. When I moved, they glinted and sparkled. I hushed.
+ - The scattered tea goes with the leaves and every day a sunset dies.
+ - Always dream and shoot higher than you know you can do.
+ - Because no battle is ever won he said. They are not even fought. The field only reveals to man his own folly and despair, and victory is an illusion of philosophers and fools.
+ - Women do have an affinity for evil, for believing that no woman is to be trusted, but that some men are too innocent to protect themselves.
+ - I don’t care much for facts, am not much interested in them, you can’t stand a fact up, you’ve got to prop it up, and when you move to one side a little and look at it from that angle, it’s not thick enough to cast a shadow in that direction.
+ - Tell about the South. What’s it like there. What do they do there. Why do they live there. Why do they live at all.
+ - For every Southern boy fourteen years old, not once but whenever he wants it, there is the instant when it’s still not yet two o’clock on that July afternoon in 1863.
+ - Riches is nothing in the face of the Lord, for He can see into the heart.
+ - Most men are a little better than their circumstances give them a chance to be.
+ - I knew that nobody but a luckless man could ever need a doctor in the face of a cyclone.
+ - Hollywood is a place where a man can get stabbed in the back while climbing a ladder.
+ - All of us failed to match our dreams of perfection. So I rate us on the base of our splendid failure to do the impossible.
+ - The reason you will not say it is, when you say it, even to yourself, you will know it is true.
+ - You’re looking, sir, at a very dull survivor of a very gaudy life. Crippled, paralyzed in both legs. Very little I can eat, and my sleep is so near waking that it’s hardly worth the name. I seem to exist largely on heat, like a newborn spider.
+ - A man’s moral conscience is the curse he had to accept from the gods in order to gain from them the right to dream.
+ - The work never matches the dream of perfection the artist has to start with.
+ - The aim of every artist is to arrest motion, which is life, by artificial means.
+ - By artist I mean of course everyone who has tried to create something which was not here before him, with no other tools and material than the uncommer-ciable ones of the human spirit.
+ - I took out my watch and listened to it clicking away, not knowing it couldn’t even lie.
+ - Man the sum of what have you. A problem in impure properties carried tediously to an unvarying nil: stalemate of dust and desire.
+ - Every man has a different idea of what’s beautiful, and it’s best to take the gesture, the shadow of the branch, and let the mind create the tree.
+ - Just when do men that have different blood in them stop hating one another?
+ - Life was created in the valleys. It blew up onto the hills on the old terrors, the old lusts, the old despairs. That’s why you must walk up the hills so you can ride down.
+ - Surely heaven must have something of the color and shape of whatever village or hill or cottage of which the believer says, This is my own.
+ - It’s always the idle habits you acquire which you will regret. Father said that. That Christ was not crucified: he was worn away by a minute clicking of little wheels. That had no sister.
+ - Curiosity is a mistress whose slaves decline no sacrifice.
+ - You should approach Joyce’s Ulysses as the illiterate Baptist preacher approaches the Old Testament: with faith.
+ - People need trouble – a little frustration to sharpen the spirit on, toughen it. Artists do; I don’t mean you need to live in a rat hole or gutter, but you have to learn fortitude, endurance. Only vegetables are happy.
+ - Dear God, let me be damned a little longer, a little while.
+ - It’s a shame that the only thing a man can do for eight hours a day is work. He can’t eat for eight hours; he can’t drink for eight hours; he can’t make love for eight hours. The only thing a man can do for eight hours is work.
+ - Purity is a negative state and therefore contrary to nature.
+ - I do not rewrite unless I am absolutely sure that I can express the material better if I do rewrite it.
+ - Did you ever have a sister? did you?
+ - The air brightened, the running shadow patches were now the obverse, and it seemed to him that the fact that the day was clearing was another cunning stroke on the part of the foe, the fresh battle toward which he was carrying ancient wounds.
+ - War and drink are the two things man is never too poor to buy.
+ - Fear is the most damnable, damaging thing to human personality in the whole world.
+ - I have found that the greatest help in meeting any problem with decency and self-respect and whatever courage is demanded, is to know where you yourself stand. That is, to have in words what you believe and are acting from.
+ - Don Quixote – I read that every year, as some do the Bible.
+ - I would say that music is the easiest means in which to express, but since words are my talent, I must try to express clumsily in words what the pure music would have done better.
+ - A hack writer who would have been considered fourth rate in Europe, who tried out a few of the old proven ‘sure-fire’ literary skeletons with sufficient local color to intrigue the superficial and the lazy.
+ - Everyone in the South has no time for reading because they are all too busy writing.
+ - I could just remember how my father used to say that the reason for living was to get ready to stay dead a long time.
+ - It wasn’t until the Nobel Prize that they really thawed out. They couldn’t understand my books, but they could understand $30,000.
+ - The next time you try to seduce anyone, don’t do it with talk, with words. Women know more about words than men ever will. And they know how little they can ever possibly mean.
+ - And even a liar can be scared into telling the truth, same as honest man can be tortured into telling a lie.
+ - One day I was talking to Cora. She prayed for me because she believed I was blind to sin, wanting me to kneel and pray too, because people to whom sin is just a matter of words, to them salvation is just words too.
+ - How do our lives ravel out into the no-wind, no-sound, the weary gestures wearily recapitulant: echoes of old compulsions with no-hand on no-string: in sunset we fall into furious attitudes, dead gestures of dolls.
+ - When my horse is running good, I don’t stop to give him sugar.
+ - Men have been pacifists for every reason under the sun except to avoid danger and fighting.
+ - I suppose that people, using themselves and each other so much by words, are at least consistent in attributing wisdom to a still tongue...
+ - He was looking at her from behind the smiling that wasn’t smiling but was something you were not supposed to see beyond.
+ - Love in the young requires as little of hope as of desire to feed upon.
+ - I’d have wasted a lot of time and trouble before I learned that the best way to take all people, black or white, is to take them for what they think they are, then leave them alone.
+ - The only environment the artist needs is whatever peace, whatever solitude, and whatever pleasure he can get at not too high a cost.
+ - We shall not kill and maybe next time we even won’t.
+ - In every writer there is a certain amount of the scavenger.
+ - It is assumed that anyone who makes a million dollars has a unique gift, though he might have made it off some useless gadget.
+ - That which is destroying the Church is not the outward groping of those within it nor the inward groping of those without, but the professionals who control it and who have removed the bells from its steeples.
+ - Man knows so little about his fellows. In his eyes all men or women act upon what he believes would motivate him if we were mad enough to do what that other man or woman is doing.
+ - I know now that what makes a fool is an inability to take even his own good advice.
+ - I’m inclined to think that a military background wouldn’t hurt anyone.
+ - Listen to the voices.
+ - A writer is congenitally unable to tell the truth and that is why we call what he writes fiction.
+ - So vast, so limitless in capacity is man’s imagination to disperse and burn away the rubble-dross of fact and probability, leaving only truth and dream.
+ - This is a free country. Folks have a right to send me letters, and I have a right not to read them.
+ - They say that it is the practiced liar who can deceive. But so often the practiced and chronic liar deceives only himself; it is the man who all his life has been selfconvicted of veracity whose lies find quickest credence.
+ - The phenomenon of war is its hermaphroditism: the principles of victory and of defeat inhabit the same body and the necessary opponent, enemy, is merely the bed they self-exhaust each other on.
+ - What a writer’s obituary should read – he wrote the books, then he died.
+ - The last sound on the worthless earth will be two human beings trying to launch a homemade spaceship and already quarreling about where they are going next.
+ - Well, between Scotch and nothin’, I suppose I’d take Scotch. It’s the nearest thing to good moonshine I can find.
+ - There are some things for which three words are three too many, and three thousand words that many words too less.
+ - It’s terrible to be young. It’s terrible. Terrible.
+ - Thank God you can flee, can escape from that massy five-foot-thick maggot-cheesy solidarity which overlays the earth, in which men and women in couples are ranked like ninepins.
+ - If there is a God what the hell is He for?
+ - The most important thing is insight, that is to be – curious – to wonder, to mull, and to muse why it is that man does what he does.
+ - Be scared. You can’t help that. But don’t be afraid.
+ - Henry James was one of the nicest old ladies I ever met.
+ - You intend to kiss me and yet you are going to all this damn trouble about it.
+ - Then Ben wailed again, hopeless and prolonged. It was nothing. Just sound. It might have been all time and injustice and sorrow become vocal for an instant by a conjunction of planets.
+ - Poor man. Poor mankind.
+ - Let the past abolish the past when – and if – it can substitute something better.
+ - The poet’s voice need not merely be the record of man, it can be one of the props, the pillars to help him endure and prevail.
+ - Love doesn’t die; the men and women do.
+ - When I was a boy I first learned how much better water tastes when it has set a while in a cedar bucket. Warmish-cool, with a faint taste like the hot July wind in Cedar trees smells.
+ - Like a fellow running from or toward a gun ain’t got time to worry whether the word for what he is doing is courage or cowardice.
+ - Hemingway shot himself. I don’t like a man that takes the short way home.
+ - It was like something you have dreaded and feared and dodged for years until it seemed like all your life, then despite everything it happened to you and all it was was just pain, all it did was hurt and so it was all over, all finished, all right.
+ - The clock tick-tocked, solemn and profound. It might have been the dry pulse of the decaying house itself, after a while it whirred and cleared its throat and struck six times.
+ - When I was little there was a picture in one of our books, a dark place into which a single weak ray of light came slanting upon two faces lifted out of the shadow.
+ - There is no such thing as bad whiskey. Some whiskeys just happen to be better than others. But a man shouldn’t fool with booze until he’s fifty; then he’s a damn fool if he doesn’t.
+ - In my opinion it’s a shame that there is so much work in the world.
+ - The writer has three sources: imagination, observation, and experience.
+ - Everything goes by the board: honor, pride, decency to get the book written.
+ - Life is a process of preparing to be dead for a long time.
+ - The poets are almost always wrong about the facts. That’s because they’re not interested in the facts, only the truth.
+ - The only rule I have is to quit while it’s still hot. Never write yourself out. Always quit when it’s going good. Then it’s easier to take it up again. If you exhaust yourself, then you’ll get into a dead spell and you’ll have trouble with it.
+ - In Europe, being an artist is a form of behavior. In America, it’s an excuse for a form of behavior.
+ - I am trying to say it all in one sentence, between one cap and one period.
+ - Maybe times are never strange to women: it is just one continuous monotonous thing full of the repeated follies of their menfolks.
+ - Whatever its symbol – cross or crescent or whatever – that symbol is man’s reminder of his duty inside the human race.
+ - She forced herself once more to think of nothing, to keep her consciousness immersed, as a little dog that one keeps under water until he has stopped struggling.
+ - When I have one martini, I feel bigger, wiser, taller. When I have a second, I feel superlative. When I have more, there’s no holding me.
+ - She wouldn’t say what we both knew. ‘The reason you will not say it is, when you say it, even to yourself, you will know it is true: is that it? But you know it is true now. I can almost tell you the day when you knew it is true. Why won’t you say it, even to yourself?’ She will not say it.
+ - The quality an artist must have is objectivity in judging his work, plus the honesty and courage not to kid himself about it.
+ - The good artist believes that nobody is good enough to give him advice. He has supreme vanity. No matter how much he admires the old writer, he wants to beat him.
+ - The books I read are the ones I knew and loved when I was a young man and to which I return as you do to old friends.
+ - Necessity has a way of obliterating from our conduct various delicate scruples regarding honor and pride.
+ - I draw no petty social lines. A man to me is a man, wherever I find him.
+ - I say money has no value; it’s just the way you spend it.
+ - He has never been known to use a word that might send a reader to the dictionary.
+ - She is like all the rest of them. Whether they are seventeen or fortyseven, when they finally come to surrender completely, it’s going to be in words.
+ - My own experience has been that the tools I need for my trade are paper, tobacco, food, and a little whisky.
+ - You don’t dare think whole even to yourself the entirety of a dear hope or wish let alone a desperate one else you yourself have doomed it.
+ - A writer strives to express a universal truth in the way that rings the most bells in the shortest amount of time.
+ - I don’t know anything about inspiration because I don’t know what inspiration is; I’ve heard about it, but I never saw it.
+ - And I will look down and see my murmuring bones and the deep water like wind, like a roof of wind, and after a long time they cannot distinguish even bones upon the lonely and inviolate sand.
+ - The whiskey died away in time and was renewed and died again, but the street ran on. From that night the thousand streets ran as one street, with imperceptible corners and changes of scene...
+ - He is thinking quietly: I should not have got out of the habit of prayer.
+ - It feels almost soft, like something to be caressed. Only gold feels that way.
+ - Had Passion and Purity never encountered, Tenderness had never come into the world.
+ - That’s a very good way to learn the craft of writing – from reading.
+ - The writer doesn’t need economic freedom. All he needs is a pencil and some paper.
+ - There were many things I could do for two or three days and earn enough money to live on for the rest of the month. By temperament I’m a vagabond and a tramp.
+ - That’s sad too, people cannot do anything that dreadful they cannot do anything very dreadful at all they cannot even remember tomorrow what seemed dreadful today.
+ - To the man grown the long crowded mile of his boyhood becomes less than the throw of a stone.
+ - I don’t want money badly enough to work for it.
+ - Menfolks listens to somebody because of what he says. Women don’t. They don’t care what he said. They listens because of what he is.
+ - We have to start teaching ourselves not to be afraid.
+ - No one individual can tell the truth.
+ - Let the writer take up surgery or bricklaying if he is interested in technique.
+ - The writer’s only responsibility is to his art.
+ - A writer is trying to create believable people in credible moving situations in the most moving way he can.
+ - Who is he who will affirm that there must be a web of flesh and bone to hold the shape of love?
+ - Nothing can injure a man’s writing if he’s a first-rate writer. If a man is not a first-rate writer, there’s not anything can help it much. The problem does not apply if he is not first rate because he has already sold his soul for a swimming pool.
+ - They all talked at once, their voices insistent and contradictory and impatient, making of unreality a possibility, then a probability, then an incontrovertible fact, as people will when their desires become words.
+ - A man never gets anywhere if facts and his ledgers don’t square.
+ - If I were reincarnated, I’d want to come back a buzzard. Nothing hates him or envies him or wants him or needs him. He is never bothered or in danger, and he can eat anything.
+ - The necessity of the idea creates its own style. The material itself dictates how it should be written.
+ - Gough never pretended to perfection or to sainthood – well, hardly ever. Although when he set off the metal detector at airport security, he would blame his aura.
+ - This does not matter. This is not anything yet. It all depends on what you do with it, afterward.
+ - The artist is still a little like the old court jester. He’s supposed to speak his vicious paradoxes with some sense in them, but he isn’t part of whatever the fabric is that makes a nation.
+ - It is not proof that I sought. I, of all men, know that proof is but a fallacy invented by man to justify to himself and his fellows his own crass lust and folly.
+ - I learned little save that most of the deeds, good and bad both, incurring opprobrium or plaudits or reward either, within the scope of man’s abilities, had already been performed and were to be learned about only from books.
+ - An artist is a creature driven by demons. He doesn’t know why they choose him and he’s usually too busy to wonder why.
+ - When ideas come, I write them; when they don’t come, I don’t.
+ - The artists who want to be writers, read the reviews; the artists who want to write, don’t.
+ - Marriage is long enough to have plenty of room for time behind it.
+ - With me, a story usually begins with a single idea or mental picture. The writing of the story is simply a matter of working up to that moment, to explain why it happened or what caused it to follow.
+ - Maybe the only thing worse than having to give gratitude constantlyall the time, is having to accept it.
+ - And when I think about that, I think that if nothing but being married will help a man, he’s durn nigh hopeless.
+ - It is my ambition to be, as a private individual, abolished and voided from history, leaving it markless.
+ - The Swiss are not a people so much as a neat, clean, quite solvent business.
+
+274 quotes

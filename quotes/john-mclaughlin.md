@@ -1,0 +1,35 @@
+ - I’m not any different from you or the guy down the street or across the globe, we’re all connected in some way and hopefully my music can integrate that feeling of human connectedness.
+ - Only in spontaneity can we be who we truly are.
+ - I practice all the scales. Everyone should know lots of scales. Actually, I feel there are only scales. What is a chord, if not the notes of a scale hooked together?
+ - The moment you start to talk about playing music, you destroy music. It cannot be talked about. It can only be played, enjoyed and listened to.
+ - I believe everybody is spiritual and no one is any more spiritual than anyone else.
+ - My entire life is dedicated to music, and at my age, that makes a lot of years! But all the work and dedication is only that I’m able to forget myself and let the music do the ‘talking.’
+ - The mathematics of rhythm are universal. They don’t belong to any particular culture.
+ - I never read comics growing up. I didn’t have money and I don’t like to touch paper.
+ - Interplay and interaction are the integral parts of music – they’re as important as the notes.
+ - Music speaks from spirit to spirit and in that sense you could call it a true spiritual language.
+ - I was dealing with a lot of spiritual questions like “Who am I?” “What is God” “What is the meaning of life?” All of these questions that I think we can either face head on or choose to ignore, it’s up to us.
+ - I think I’m built like a painter. I have friends who are painters and they reflect a similar psychological attitude towards their work. They don’t know what’s coming next, they just wait for the message, for orders to come and then off they go on their next project.
+ - I just want to keep exploring music and hopefully the orders will keep coming in and I’ll be able to keep growing the interior and exterior sides of my life.
+ - When I hear a great musician, I can feel his life inside the music.
+ - Music that touches the transcendental aspect of a human being is reserved for a marginal audience.
+ - When you open box after box of old comics and they’re ALL “Archie,” you have suffered a trauma from which it is difficult to ever recover.
+ - The whole point of working and practicing your whole life is so that you’re ready when that moment arrives; when the inspiration arrives, you are ready to be at the disposal of inspiration.
+ - I find Indian music very funky. I mean it’s very soulful, with their own kind of blues. But it’s the only other school on the planet that develops improvisation to the high degree that you find in jazz music. So we have a lot of common ground.
+ - For me, rhythm is a type of divine mathematics in a way. No matter where you’re from, we can all understand the mathematics of rhythm. I try to apply this mathematical thinking to my playing.
+ - The biggest government waste: The death penalty. An individual death-penalty case could climb to $100 million, much of it spent at the litigation level. Also, DNA evidence has exonerated nearly 300 death-row inmates.
+ - I’m never trying to preach to anybody with my music, but I’m aware of the universal nature of the human experience and I try to reach out and connect with people in that manner.
+ - When Indian musicians play a raga it’s very restrictive. But, in a way these restraints are essential to liberate yourself through them, if that makes sense. I’m very much of this school of rhythm, it’s the direction I’m drawn in when I’m writing and improvising.
+ - There is really no spiritual message that I’m trying to convey with my music, it’s just a personal thing. I really believe that the more personal we get, in a way, the more universal the implications.
+ - Everyone can lock into the rhythm on a tune. It’s organic in nature. It connects the band as a whole and connects the band to the audience.
+ - In a way records are like paintings. Instead of using paints and brushes we use sounds and instruments.
+ - There are two kinds of success. One is musical or artistic and the other is commercial.
+ - Absolutely, all guitars are different. You can go into a store and grab five guitars, all the same model, and even though they look identical they’re not identical. They play differently, they feel a bit different and they sound slightly different.
+ - I don’t have any particular goals in making a recording. In a way the recording is itself the goal. The music comes into my mind, and from there the main job is to give form to it.
+ - When the music arrives in my mind, it gives me the direction and the form at the same time. It’s integrated into the music itself.
+ - Spirituality is worthless if it’s not practical. Music is my work. I am a musician.
+ - You can have the greatest player in terms of mastering an instrument and you could be yawning your head off when you hear them. So, it’s not what you do, but the way you’re doing it and in the end that’s all that we have.
+ - At the risk of sounding hopelessly romantic, love is the key element. I really love to play with different musicians who come from different cultural backgrounds.
+ - The music dictates to me which instrument I use. I’m basically waiting for orders as it were.
+
+33 quotes

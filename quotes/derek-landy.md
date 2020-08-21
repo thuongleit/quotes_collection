@@ -1,0 +1,80 @@
+ - The sparrow flies south for the winter.
+ - The world is bigger than you know, and scarier than you might imagine. The only currency worth anything is being true to yourself, and the only goal worth seeking is finding out who you truly are.
+ - Doors are for people with no imagination.
+ - Don’t be jealous of my genius.
+ - The calm before the storm.
+ - We’re not retreating, we’re advancing in reverse.? – Skulduggery Pleasant.
+ - Embrace your inner lunatic. Fun times guaranteed.
+ - I’m sophisticated, charming, suave, and debonair, Professor. But I have never claimed to be civilized.
+ - Every solution to every problem is simple. It’s the distance between the two where the mystery lies.
+ - The lies we tell other people are nothing to the lies we tell ourselves.
+ - I’m placing you under arrest for murder, conspiracy to commit murder and, I don’t know, possibly littering.
+ - If things go wrong, I’ll lead them away. Once it’s clear, get back to the car. If you don’t see me in five minutes, then I’ve probably died a very brave and heroic death. Oh and don’t Oh, and don’t touch the radio – I’ve got it tuned right where I want it and I don’t want you messing that up.
+ - I try not to underestimate my opponents, no matter how ridiculous their beards.
+ - Well, for future reference, this is my serious face.
+ - That’s a shame. I’m sure somebody, somewhere, cares.
+ - He stepped closer to her. “Thank you for saving me,” he said softly, and wrapped the bones of his arms around her. Valkyrie smiled and hugged him back.
+ - Just because an apple falls one hundred times out of a hundred does not mean it will fall on the hundred and first.
+ - I swear, talking to you is like talking to a really good-looking and mildly stupid brick wall.
+ - That’s beautiful,? Valkyrie said, looking at it. Isn’t it? This necklace has cost two very fine men their lives. At times, I wear it in tribute to their sacrifice. Other times, I wear it because it goes with this skirt.
+ - Plans are invitation to disappointment.
+ - Love is finding someone better than you are, and holding on for dear life.
+ - Tides do what tides do–they turn.
+ - Come and have a go, if you think you’re hard enough.
+ - I just want to let you know that I love you all. Even those of you that I don’t like; that’s you Beryl.
+ - While my insides may be rotten, I still like a good reason to kill someone. It has to be either business, personal, or out of sheer boredom.
+ - Suddenly Saracen Rue looked old and tired, and Skulduggery Pleasant came into focus as what he really was – a genius, a killer, a tortured soul, and the only true dead man among them.
+ - Sometimes it’s not what you say, Valkyrie, it’s just the fact that you’re saying it.
+ - We don’t do what we do for the glory or the fame or the credit; we do it for the quiet satisfaction of making the world a better place, saving the lives of innocents, and being better than you are.
+ - So he has no head’ ‘Thats usually what headless means’ ‘No head at all?’ ‘Your really not getting the whole headless thing are you?’ ‘Its just kind of silly even for us...
+ - I love you all, even those I don’t particularly like. That’s you, Beryl.
+ - She wants to be polite and not hurt your feelings, so she’s not going to laugh right now. But inside, inside she’s laughing.
+ - The rain battered the cottage. Valkyrie risked a look up at Skulduggery. “What is it?” she whispered. “It’s a box,” he whispered back. “What kind of box?” “A wooden one.” She gave him a look.
+ - It’s a white-knuckle roller-coaster ride.
+ - It always surprised Valkyrie whenever she realized just how close the weird and the wonderful, and the fierce and the frightening, lived to the rest pf the non-magical, mortal world.
+ - Scapegrace leaped up. “I am the Killer Supreme! I make murder into an art form!” Skulduggery hit him again and Scapegrace did a little twirl before falling.
+ - I find it rude to laugh at a man with a sword.
+ - Are you taking my hat hostage?
+ - Are you going to shoot me?? Vengeous sneered. ‘I wouldn’t be surprised. What would a thing like you know about honor? Only a heathen would bring a gun to a sword fight.’ And only a moron would bring a sword to a gunfight.
+ - But I’m really enjoying my retirement. I get to sleep in every day. I do crossword puzzles and eat cake.
+ - The next time? Oh, my dear Eliza, you’re not going to carry on with this, are you? The Faceless Ones had their chance. They returned and they were sent away again. It’s time to move on. Time to take up another hobby, like crocheting, or serial killing.
+ - She had been a teenager once, and she knew that, despite the apparent contradictions, a person’s teenage years lasted well into their fifties.
+ - Still, he figured, sometimes you’ve got to do what you’ve got to do, and then sometimes you’ve just got to run like hell after it’s done.
+ - Talking about one’s feelings defeats the purpose of having those feelings. Once you try to put the human experience into words, it becomes little more than a spectator sport. Everything must have a cause, and a name. Every random thought must have a root in something else.
+ - You’re not stealing anything, you’re not breaking anything, so I’d guess you’re Stephanie.
+ - Absolutely. I would never have tripped. I’m far too graceful.
+ - Stephanie could see the greed seep into the watery eyes of her father’s other brother, a horrible little man called Fergus, as he nodded sadly and spoke sombrely and pocketed the silverware when he thought no one was looking.
+ - I know how easy it is to be swept away by stories, by things you wish were real.
+ - Fletcher was always going to be your ex-boyfriend, from the moment you met him. He’s just finally caught up with where he’s supposed to be.
+ - I’m sorry? No more smooches is worse than the world ending?
+ - Are you kidding? I jumped off a building – of course I’m hurt.
+ - I’m fairly certain. I could be some ghastly hallucination, a figment of my own imagination.
+ - I could’ve died because you had to tie your shoelace?
+ - A living skeleton isn’t enough for you, is it? What does it take to impress young people these days?
+ - If anyone stops us, as long as we mumble something pretentious about the glory of death, we should be fine.
+ - There’s enough sedative in these darts to bring down a werewolf, which is exactly what we’re hunting. Why would we want to bring down an elephant if we’re not hunting elephants?
+ - If there is one regret that I have had in my life, it is that I never fathered any children. There are times, when I look at what Fergus and Beryl have produced, when I consider myself fortunate, but there are also times when it breaks my heart.
+ - Is he all scarred now? Magic gets rid of most physical scars, but I like to think I scarred him emotionally.
+ - I am a rational man, but haven’t you heard? i’m also insane. It gives me a unique perspective on things.
+ - You’re under arrest for multiple counts of murder. You have the right to not much at all, really. Do you have anything to say in your defense?
+ - I cannot have chaos erupting around me until I am prepared for it. I am a collector. I am an observer. I don’t participate. My resources, and my standing, must be secure before I can allow the uncertainty of war to crash down upon us.
+ - Sanguine felt the ridiculous urge to reach out and poke him, just to see if he’d react, but he’d seen that kind of anger before. It was the quiet kind. The dangerous kind.
+ - Personally, I think knees should be kept for the eighth or ninth date, or the wedding day. As a nice surprise you know? ’oh, my darling, you have knees! I never would have thought.
+ - I woke up, a bag of bones. Literally. They had gathered up my bones and put them in a bag and thrown the bag into a river.
+ - Right, well, we’ve got to work out what we need. We’ve got to work out what we need, how we get it, and what we need to get to get what we need.
+ - You can only anticipate what someone is going to do if you know exactly what that someone has just done.? – Skulduggery.
+ - Dublin City was quiet when they reached the Waxwork Museum, as if it was holding its breath.
+ - Even as she’d been writing it, she wondered if she was using too many exclamation marks, but she was glad she left them in. Nothing says “all is good in the world” like exclamation marks, after all.
+ - Annis had never been a people person, unless ‘people person’ was defined as a person who ate people.
+ - And then the Necromancers pulled out their sub-atomic machine guns.
+ - He is the best, in my whole life i have only read his books!!!!!!
+ - I cross the place where my heart used to be and hope to be even deader than I am now.
+ - With his sunglasses gone and his scarf hanging down, there was no denying that he had no flesh, he had no skin, he had no eyes and he had no face. All he had was a skull for a head.
+ - Stephanie had no problem doing what she was told, just so long as she was given a good reason why she should.
+ - The end is now the beginning...
+ - By the time they got to Denholm Street, day had been beaten back and the night was soaking through the city.
+ - Oh my god you’re thicker than you look.
+ - I’m just waiting for the violent urges to subside.
+ - Well, to put it delicately, she has the power to suck out people’s brains.
+
+78 quotes

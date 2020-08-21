@@ -1,0 +1,74 @@
+ - Then, one day, when you least expect it, the great adventure finds you.
+ - Above all things, I believe in love.
+ - I love skiing, scuba diving and hang-gliding.
+ - I’ve been waiting nearly twenty years to have my own light saber. Nothing’s cooler than being a Jedi Knight.
+ - I especially love my Moto Guzzi.
+ - Success is tricky to deal with, both professionally and in your personal life.
+ - What matters most with any regimen, whether it’s to lose weight or stop drinking or smoking, is your willingness to seek help and your desire to say ’no more.
+ - Ultimately, you have to not worry about people thinking you should have played him differently. You’re the one playing the part so it has to be yours.
+ - My heart aches completely, every hour, every day, and only when I’m with you does the pain go away.
+ - I’m doing my bit for the women’s movement. The women have always been naked in movies, and now I’m just desperate to take my clothes off as much as possible.
+ - I really want to play Princess Leia. Stick some big pastries on my head. Now that would be interesting.
+ - I’ve played in pipe bands in Scotland, and I’ve always played guitars and drums and stuff.
+ - I fight cynicism. It’s too easy. It’s really boring. It’s much harder to be positive and see the wonder of everything. Cynicism is a bunch of people who aren’t as talented as other people, knocking them because they make them feel even more untalented.
+ - UNICEF is successfully giving children and young people all over the world opportunities and hope. Just like the ones we met on the Long Way Down – protecting them from exploitation and giving them chances in life.
+ - I was with a friend of mine recently who was dying and while he was lying there with his family around his bed, I just knew that was it, that was the best you can hope for in life – to have your family and the people who love you around you at the end.
+ - I’m fiercely proud to be Scottish.
+ - Isn’t Halle Berry the most beautiful woman? I have a film I’d like to be in her with. I mean, I’d like to be with her in.
+ - I loved being in Trainspotting and having to dive into the filthiest toilet in Scotland.
+ - People are incredibly rude about it sometimes. Like, ‘What? You’re married?’ Strange reaction to have. Proves what people’s ideas about marriage are. ‘We’re having a baby.’ ‘What?’ As if it’s the end of the world. Of course, it’s the start of a brilliant world.
+ - I don’t do things lightly; I don’t take a job then just phone it in – I’ve never done that.
+ - If you’re suddenly doing something you don’t want to do for four years, just so you’ve got something to fall back on, by the time you come out you don’t have that 16-year-old drive any more and you’ll spend your life doing something you never wanted to do in the first place.
+ - No, I’m putting it away, trying to buy a house for my family. The goal is to use the money to move into a big house, so my daughter can have a garden.
+ - The thing about parenting rules is there aren’t any. That’s what makes it so difficult.
+ - I left halfway through my third year to start Lipstick On Your Collar, which was the first thing I ever did.
+ - I don’t think having separate bathrooms is a key to a successful marriage, if you love one another.
+ - My feeling about seeing the world is that its going to change you necessarily, just the very fact of being out there and meeting people from different cultures and different ways of life.
+ - Mainly I was able to perform with music – I played the French horn, I would sing, and I was a drummer in the pipe band. So I think it was a way to show off.
+ - I remember in Shallow Grave I remember a few times when we’d only have to do one take But when you did have to do more than one, you’d build on the one you’d done.
+ - I got married because I fell in love with this woman. I had a baby with her because we wanted to have children. But that’s not because of some philosophical ideal at all, no.
+ - A tent, a roll mat, a little bit of food, a bit of petrol in your tank and a vague idea of where you’re going and that’s all you need.
+ - I hate the word celebrity. I’m not a celebrity, I’m an actor.
+ - I worked as a waiter when I was 15 and got a chance to appreciate good, simple food. There’s nothing better than a boiled egg with toast.
+ - I like the idea of being a sculptor. Just me alone, making something – that solitary existence.
+ - Giving kids whatever they ask for is disastrous parenting. There’s no sense of something earned. I’m sorry, but when you’re 12, you don’t need a new cell phone every few months just because a new one comes out.
+ - I’m just looking for that moment to drop my Jedi knickers and pull out my real light saber.
+ - I was born in ’71, so I remember bits of glam rock on ‘Top of the Pops’ toward the late ’70s, but I had no idea what kind of world it was. I didn’t like the music, either.
+ - A lot of parents tell their children that if they want to be an actor, that’s fine, but they should do something else first, so they’ve got something to fall back on. It doesn’t work like that, as far as I’m concerned.
+ - It’s just fantastic to go out and meet people in the world and get to really remote places.
+ - I am so honoured to have been given this opportunity to become an Ambassador. It’s a new and different venture for me and one that I know will widen my wider perspective on life. I’m in a position to use the recognition from my work to do something really positive for children.
+ - Producing good stuff can be quite tough, and it involves a lot of frustration, but I always like things to be jolly and happy, and I forget thats actually not the point at the end of the day.
+ - I find that the acting’s getting easier – with experience, everything is more instinctual.
+ - I love romance. It goes back to the films I watched as a kid.
+ - Everything you do on set is directly related to your imagination when you read the script for the first time.
+ - I find politicians so desperately boring. I don’t trust them and don’t believe in them.
+ - Then I left school at 16 and worked in Perth Repertory Theatre, which was quite nearby where I lived. And I worked there for about six or seven months, as part of the stage crew.
+ - I never imagined it wouldn’t work out for me. I had that absolute certainty in myself that has seen me through, I think, and my parents were absolutely behind me all the way.
+ - I love acting and don’t find it to be very hard. I recognize when I’ve nailed it, and I can be very proud of myself.
+ - I think rehearsal can be important if it’s done in a way that works. Often, rehearsal can be a waste of time.
+ - I’ve always been really uninterested in politicians and the acts of the Houses of Parliament, or government as an idea. But I’m interested in politics in that I’m a member of the world, and I have strong feelings of right and wrong, but I can’t get into the ins and outs of it.
+ - I started watching golf for the first time yesterday. I’m really worried about myself. I was actually enjoying it.
+ - If you want to produce really horrible, obnoxious kids, say yes to them all the time.
+ - I want to wear skinny jeans when I’m in my 70s. Why not? Who cares?
+ - There is some really good crack when I come back here. This is where I learned to swear.
+ - I certainly have no plans to leave London. It’s a great town.
+ - Conservative’s the last thing I am.
+ - Once you’ve agreed the script, you must be willing to go as far as it needs to go on set.
+ - I don’t pay much attention to career or what other people think. I’ve always been quite arrogant.
+ - The beautiful thing about it is that no two directors or actors work the same way. You also learn not to be afraid of discussion and conflict.
+ - It’s not my job to try and alter the director’s style – he’s in charge, and I’ll always give him my trust.
+ - At school there was no acting to be had other than school plays which I did now and again.
+ - I played music all through school and I kind of performed that way.
+ - I was determined to make working with UNICEF not just something that I did on the trip but something I’d do for the rest of my life.
+ - I’m not really attracted to action sequences, because my experience is that it’s quite a slow process to shoot them, and often we’re not involved as actors.
+ - As fathers, we know what a force for life children can be. They represent all of our futures.
+ - I trained in the theatre and I love the theatre. I get such a thrill seeing anything in the theatre.
+ - Of course I voted for him. He wasn’t a politician; he was a craze.
+ - I’m just into making quality stuff if I can, with interesting people and good scripts. But it’s very important that it’s about something and that it says something. Otherwise, I don’t know what the point is, really.
+ - There are people who are younger than I who are more uptight than I am. It’s not necessarily an age thing. I mean nobody is offering me 20-year old leads any more.
+ - I like to dance, but it’s not my weekend activity. I’m not a clubber.
+ - It’s important, that spirit of youth, and when you’re 16 that can get you kickstarted.
+ - From there I did a one year theatre acting course in Fife, and then three years of drama school in London.
+ - The script, I always believe, is the foundation of everything.
+
+72 quotes

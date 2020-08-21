@@ -1,0 +1,36 @@
+ - Truth doesn’t have to be liked. It only has to be spoken. Speak it out. The truth may hurt you, but it will set you free.
+ - The opposite of love is not hate, its apathy, when you simply don’t bother about that person!
+ - A man becomes a Mahadev, only when he fights for good. A Mahadev is not born from his mother’s womb. He is forged in the heat of battle, when he wages a war to destroy evil. Har Har Mahadev – All of us are Mahadev.
+ - Weak people never admit that they are responsible for their own state. They always blame either circumstances or others.
+ - A man becomes Mahadev only when he fights for good.
+ - Whether a man is a legend or not is decided by history, not fortune tellers.
+ - Creating music is a wonderful way to celebrate our devotion for Lord Shiva.
+ - If you have to write a fictional adventure to convey a philosophy of evil, the best person is the destroyer of evil himself, Lord Shiva.
+ - Creation and destruction are the two ends of the same moment. And everything between the creation and the next destruction is the journey of life.
+ - No. The purpose is not the destination but the journey itself. Only those who understand this simple truth can experience true happiness.
+ - There is your truth and there is my truth. As for the universal truth, it does not exist.
+ - Nothing is more important than life. Nothing. You realise the simplicity of that point only when you confront death everyday.
+ - There are no bystanders in a dharmayudh – it is a holy war.
+ - Don’t turn blue all over now.
+ - It’s our greed to extract more and more from good that turns it into evil.
+ - Rather than the destination it is the journey that lends meaning to our lives, great Neelkanth. Being faithful to our path will lead to consequences, both good as well as bad. For that is the way of the universe.
+ - Truth is one, though the sages know it as many. God is one, though different religions approach Him differently Call Him Shiva, Vishnu, Allah, Jesus or any other form of God that you believe in. Our paths may be different. Our destination is the same.
+ - Nature is not concerned about fairness, it only interested in efficiency.
+ - Standing by and doing nothing while a sin is committed is as bad as committing the sin itself.
+ - The most powerful force in a woman’s life is the need to be appreciated, loved and cherished for what she is.
+ - Fate controls only the weak, Your Highness. The strong mould the providence the want.
+ - As a writer, its important to stay true to your story without giving a hoot about publishers, critics and readers. You should do your karma as an author the way you want to, and rest is up to God.
+ - A person’s ethics and character are not tested in good times. It is only in bad times that a person shows how steadfast he is to his dharma.
+ - The oppposite of love is not hate. Hate is just love gone bad. The actual oppposite of love is apathy. When you don’t care a damn as to what happens to the other person.
+ - People do what their society rewards them to do. If the society rewards trust, people will be trusting.
+ - What is forgotten, however, is that many times the Good we create leads to Evil that will destroy us.
+ - I don’t believe anything till I have seen the proof. For anything without proof, I think we should believe the theory that gives us peace. It doesn’t matter whether the theory is true or not.
+ - Civilization is very fragile, all it takes is a few decades of chaos for us to forget humanity and turn into animals. Our base natures can take over very fast. We can forget that we are sentient beings, with laws and codes and ethics.
+ - I loved history in my school days, and I have always been a voracious reader. But in India, you end up doing MBA, engineering or medicine.
+ - Strong people stick to their morals, no matter what the trials and tribulations, Weak people, many a times, do not even realize how low they have sunk.
+ - The distance between Evil and Good is a vast expanse in which many can exist without being either.
+ - Lord Manu had said it’s not people who are evil. True evil exists beyond them. It attracts people. It causes confusion amongst its enemies. But Evil in itself is too big to be confined to to just a few.
+ - There are many realities. There are many versions of what may appear obvious. Whatever appears as the unshakeable truth, its exact opposite may also be true in another context. After all, one’s reality is but perception, viewed through various prisms of context.
+ - I believe if you want to convey a complex philosophy, its advisable to keep it simple: day-to-day lingo.
+
+34 quotes

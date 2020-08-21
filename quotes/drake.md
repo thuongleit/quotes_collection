@@ -1,0 +1,40 @@
+ - I was born to make mistakes, not to fake perfection.
+ - Pain makes you stronger. Fear makes you braver. Heartbreak makes you wiser.
+ - Beauty isn’t about having a pretty face it’s about having a pretty mind, a pretty heart, and a pretty soul.
+ - Sometimes it’s the journey that teaches you a lot about your destination.
+ - Live without pretending, love without depending, listen without defending, speak without offending.
+ - Sometimes you have to erase the messages, delete the numbers, and move on. You don’t have to forget who that person was to you, but you do have to accept that they aren’t that person anymore.
+ - No matter how dirty your past is, your future is still spotless.
+ - Haters will broadcast your failure, but whisper your success.
+ - When you look ahead and darkness is all you see, faith and determination will pull you through.
+ - Insecurity is an ugly thing. It makes you hate people you don’t even know.
+ - I learned working with the negatives could make for better pictures.
+ - You know it’s real when you are who you think you are.
+ - Boys will break your heart. Real men will pick up the pieces.
+ - Jealousy is just love and hate at the same time.
+ - To be human is to be broken and broken is its own kind of beautiful.
+ - The worse feeling is when someone makes you feel special, then suddenly leaves you hanging, and you have to act like you don’t care at all.
+ - The hardest thing about the business is minding your own.
+ - I live for the nights that I can’t remember, with the people that I won’t forget.
+ - I’m obsessed with perfection. I want to work. I don’t want to stop. I want to take advantage and make myself the best possible me that I can be.
+ - I can’t hear the critics talking over the applause.
+ - Seven days without love makes one weak.
+ - It’s great when two strangers become best friends but not when best friends become two strangers.
+ - Lights get low and that’s when I have my brightest ideas.
+ - Knowledge is pain that’s why it hurts to know.
+ - You never worry about the last laugh if you’ve been laughing the whole time.
+ - A girl should have two things: a smile, and a guy who inspires it.
+ - Never say that you regret something, because at one point in your life, you wanted it.
+ - Patience is key for getting over a breakup. That, and trailing off your interaction after the breakup.
+ - If you were a star you’d be the one I’m searching for
+ - I took a chance with my heart and I feel it taking over.
+ - You don’t make stupid internet videos or show people you have too much free time, you just say the right things and they’ll be like, Damn this dude’s a real person and I can relate to that. That can make somebody’s life, that can make somebody’s day, that can be a line that they never forget.
+ - When I’m writing, I’m thinking about how the songs are going to play live. Fifty bars of rap don’t translate onstage. No matter how potent the music, you lose the crowd. They want a hook; they want to sing your stuff back to you.
+ - The game ain’t always fair and that’s the thing though. You can play your heart out, everyone don’t get a ring though.
+ - Always gone but never hard to find. And since you can’t escape me, do I ever cross your mind?
+ - I always view my music like a city at night, like Atlanta. I view my music in lights. So Far Gone would be my experiences in Toronto at night.
+ - If a guy can’t handle you in sweatpants, than he doesn’t deserve you in a wedding dress.
+ - Reviews condition people. At the end of the day, a lot of human minds are malleable. They can be easily shaped with strong words.
+ - There will be days when I walk in an arena and people will cheer and then there might be days when I walk in an arena and people might boo, but it all sounds the same to me because it’s all just noise that lets me know that I’m relevant.
+
+38 quotes

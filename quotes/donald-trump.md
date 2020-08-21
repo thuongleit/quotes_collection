@@ -1,0 +1,465 @@
+ - As long as you are going to be thinking anyway, think big.
+ - Get going. Move forward. Aim High. Plan a takeoff. Don't just sit on the runway and hope someone will come along and push the airplane. It simply won't happen. Change your attitude and gain some altitude. Believe me, you'll love it up here.
+ - Sometimes by losing a battle you find a new way to win the war.
+ - What separates the winners from the losers is how a person reacts to each new twist of fate.
+ - Part of being a winner is knowing when enough is enough. Sometimes you have to give up the fight and walk away, and move on to something that’s more productive.
+ - Work hard. Someone’s always watching.
+ - Never ever ever give up. You can change and move around but NEVER ever give up.
+ - Nothing is easy, but who wants nothing?
+ - It’s always good to be underestimated.
+ - If you hang around with losers you become a loser.
+ - Money was never a big motivation for me, except as a way to keep score. The real excitement is playing the game.
+ - When somebody challenges you, fight back. Be brutal, be tough.
+ - I have never met a successful person that was a quitter. Successful people never, ever, give up!
+ - Show me someone without an ego, and I’ll show you a loser.
+ - Don’t be afraid of being unique. It’s like being afraid of your best self.
+ - Think BIG and always focus on the positive.
+ - To get momentum, you must first focus on a specific goal with passion and intensity.
+ - Sometimes your best investments are the ones you don’t make.
+ - Leaders, true leaders, take responsibility for the success of the team and understand that they must also take responsibility for the failure.
+ - I won’t take no for an answer.
+ - Without passion, you don’t have any energy, and without energy, you simply have nothing.
+ - If you’re interested in ‘balancing’ work and pleasure, stop trying to balance them. Instead make your work more pleasurable.
+ - Manage the downside; the upside will take care of itself.
+ - Don’t compromise your principles.
+ - Success doesn’t just happen. It starts for those who take action.
+ - If you don’t have a positive attitude in business and in life, you will never, ever be successful.
+ - Sadly the American dream is dead.
+ - Watch, listen and learn. You can’t know it all yourself. Anyone who thinks they do is destined for mediocrity.
+ - Experience taught me to listen to your gut, no matter how good something sounds on paper.
+ - The first thing the secretary types is the boss.
+ - Sheer persistence is the difference between success and failure.
+ - You have to see yourself as victorious.
+ - Show me someone without an ego, and I’ll show you a loser – having a healthy ego, or high opinion of yourself, is a real positive in life!
+ - If your business is not a brand, it’s a commodity.
+ - When you have momentum going, play the momentum.
+ - The budget was unlimited, but I exceeded it.
+ - If you’re going to be truly successful, then set yourself apart from everyone else. Go beyond the limits of what classifies the average person and be exceptional.
+ - Make an effort to exert yourself-everyday. Don’t fail because you never allowed yourself to get started! Don’t avoid success because you think the responsibility might be too much-just focus and get going! You’d be surprised at what intelligent effort can produce.
+ - Aim High, Drive hard.
+ - Always try to learn from other people’s mistakes, not your own- it is much cheaper that way!
+ - If Hillary Clinton can’t satisfy her husband what makes her think she can satisfy America?
+ - The best investments you ever make are investments in yourself – and your education. Those investments always pay big dividends.
+ - Everything in life is luck.
+ - Make your mistakes work for you by learning from them.
+ - Vision remains vision until you focus, do the work, and bring it down to earth where it will do some good.
+ - Don’t be so petty. Sometimes you have to do business with people you don’t like. It doesn’t mean you have to be like them or like them.
+ - Change your attitude and gain some altitude. Believe me, you’ll love it up here.
+ - What matters is where you want to go. Focus in the right direction!
+ - I built a tremendous company and all I want to do is make America great again.
+ - The real excitement is playing the game.
+ - You have to put the idea into action. If you don’t have the motivation and the enthusiasm, your great idea will simply sit on top of your desk or inside your head and go nowhere.
+ - If you don’t tell people about your success, they probably won’t know about it.
+ - Treat people how you want to be treated.
+ - You can’t know it all. No matter how smart you are, no matter how comprehensive your education, no matter how wide ranging your experience, there is simply no way to acquire all the wisdom you need to make your business thrive.
+ - Listen. Don’t just wait to talk.
+ - It pays to trust your instinct.
+ - The Second Amendment to our Constitution is clear. The right of the people to keep and bear Arms shall not be infringed upon. Period.
+ - Protecting our second amendment will make America great again.
+ - Remember, if you don’t promote yourself, then no one else will! Likewise, believe in yourself – or no one else will either.
+ - Confidence is a very important thing. But confidence isn’t something you just develop by saying “I’m going to do this or that.” You really have to believe it.
+ - The beauty of me is that I’m very rich.
+ - Deals work best when each side gets something it wants from the other.
+ - Good people equals good management and good management equals good people.
+ - Success does not happen all at once. In life, there is no instant pudding.
+ - Have fun. I don’t kid myself. Life is very fragile, and success doesn’t change that. If anything, success makes it more fragile. Anything can change, without warning, and that’s why I try not to take any of what’s happened too seriously.
+ - If I lost everything and had to start again, I would find myself a great network marketing company and get to work!
+ - You can’t be scared. You do your thing, you hold your ground, you stand up tall, and whatever happens, happens.
+ - Winning is important, but survival is even more important. If you don’t survive, you don’t get to fight the next battle.
+ - The old saying that “success breeds success” has something to it. It’s that feeling of confidence that can banish negativity and procrastination and get you going the right way.
+ - I have never seen a thin person drinking Diet Coke.
+ - It doesn’t hurt to get more education.
+ - Experience comes in two different flavors: your own and the experience of others. Most people can learn from their own experiences quite well, but many people simply ignore the experiences and lessons of others.
+ - I love beautiful women, and beautiful women love me. It has to be both ways.
+ - Our military is a disaster.
+ - Sometimes it pays to be a little wild.
+ - I’m only interested in Libya if we keep the oil. If we don’t keep the oil, I’m not interested.
+ - Now, if your boss is a sadist, then you have a big problem. In that case, fire your boss and get a new job.
+ - Picasso obviously viewed his art as a business, which it was. I view my business as an art, which it is.
+ - I’m not a schmuck. Even if the world goes to hell in a handbasket, I won’t lose a penny.
+ - You cannot stop. If there is a concrete wall in front of you, you have to go through it. You can never, ever give up or even think in terms of giving up.
+ - Thoreau said: “I know of no more encouraging fact than the unquestioned ability of a man to elevate his life by conscious endeavor.” That is not only an encouraging statement, it is also an empowering one. It means you can accomplish a lot by applying your brainpower and then moving forward with it.
+ - When I get attacked, I always attack back, if I am attacked unfairly. I’ve been attacked many times and I don’t do it back because they happen to be right. I mean, people happen to be right.
+ - I’ve never taken drugs of any kind, never had a glass of alcohol. Never had a cigarette, never had a cup of coffee.
+ - The point is that you can’t be too greedy.
+ - When people call you brilliant it’s always good, especially when the person heads up Russia.
+ - You cannot be successful without passion. If you don’t love what you’re doing, if you don’t have passion for it – forget it. Do something else. You’ll be much more successful and you’ll lead a lot happier life.
+ - Life is difficult no matter what, but hard work and perseverance make it a lot easier.
+ - I love pitting people against each other. My whole life is based on that. It brings out the best in people and the worst in people. If the worst comes out, you don’t want them working for you.
+ - I am the only one who can make America truly great again!
+ - The line of ‘Make America great again,’ the phrase, that was mine, I came up with it about a year ago, and I kept using it, and everybody’s using it, they are all loving it. I don’t know I guess I should copyright it, maybe I have copyrighted it.
+ - First of all, these lenders are not babies. These are total killers. These are not the nice, sweet little people you think. You’re living in a world of make-believe.
+ - I don’t mind having a big beautiful door in that wall so that people can come into this country legally. I don’t mind having a big beautiful door in that wall so that people can come into this country legally.
+ - I’m a big fan of Israel and frankly a strong prime minister is a strong Israel.
+ - When you hit a wall find ways to go under and over, but never give up.
+ - Opportunities are never lost, just found by those who clearly see the power of trends and timing.
+ - Our country doesn’t win anymore. We don’t win on trade. We don’t win on the military. We can’t defeat ISIS. We’re not taking care of our great people, the veterans. We’re not taking care of them.
+ - You don’t have to believe in Feng Shui for it to work. I just know it brings me money.
+ - There’s nobody bigger or better at the military than I am.
+ - This is a movement. This is not Trump. This is not anything. This is a movement. Remember, it is a movement. We used to say silent majority. It’s not a silent majority, it’s really a noisy majority.
+ - My fingers are long and beautiful, as, it has been well been documented, are various other parts of my body.
+ - People say, ‘Oh, you don’t like China,’ no, I love them. But their leaders are much smarter than our leaders, and we can’t sustain ourself with that.
+ - When you’re under audit, you don’t give your papers. An audit is – I have been under audit for so many years. Every year, I get audited. For, I think, over 10 years, maybe even 12 years, I have been audited. And I think it’s very fair. And I think I’m being singled out.
+ - I’ve had bad luck with all my wives. The first one left me and the second one didn’t. The third gave me more children!
+ - I’ve read hundreds of books about China over the decades. I know the Chinese. I’ve made a lot of money with the Chinese. I understand the Chinese mind.
+ - I’m not a debater. I get things done.
+ - It does not cost anything to dream. Spend your time enjoying your big dreams.
+ - If you don’t have passion, everything you do will ultimately fizzle out or, at best, be mediocre. Is that how you want to live your life?
+ - There’s something going on and it’s bad. And I’m saying we have to get to the bottom of it.
+ - If you cannot handle the pressure, don’t be an entrepreneur. Go get a job!
+ - I try to learn from the past, but I plan for the future by focusing exclusively on the present. That’s where the fun is.
+ - One of the key problems today is that politics is such a disgrace, good people don’t go into government.
+ - It’s important to focus on the solution, not the problem.
+ - In the end, you’re measured not by how much you undertake but by what you finally accomplish.
+ - We live in a big world, and it is important for us to be aware of culture other than our own. Learn something new, whether you think you’re interested in it or not. That’s the opposite of having a closed mind or a closed door.
+ - Black guys counting my money! I hate it. The only kind of people I want counting my money are little short guys that wear yarmulkes every day.
+ - I was relentless, even in the face of total lack of encouragement, because much more often than you’d think, sheer persistence is the difference between success and failure.
+ - You have to love what you do. Without passion, great success is hard to come by. An entrepreneur will have tough times if he or she isn’t passionate about what they’re doing. People who love what they’re doing don’t give up. It’s never even a consideration. It’s a pretty simple formula.
+ - I think, for me, nuclear is just the power, the devastation is very important to me.
+ - I fire people that win gold medals, great champions, everything else, and, you know, it’s not – it’s not easy. People say oh well it comes easy for me, it doesn’t. And it’s never fun. It’s all to easier though when I don’t like somebody or when they’re really, really bad then it becomes much easier.
+ - If Iran was a stock, you folks should go out and buy it right now.
+ - And if it can’t be fun, what’s the point?
+ - Avoid your comfort zone – it’s probably outdated anyway.
+ - We have no borders. Our vets are being treated horribly. Illegal immigration is beyond belief.
+ - Part of being a winner is knowing when enough is enough.
+ - I am the least racist person there is.
+ - People who think achieving success is a linear A-to-Z process, a straight shot to the top, simply aren’t in touch with reality.
+ - Don’t get sidetracked. If you do get sidetracked, get back on track as soon as possible. Ultimately sidetracking kills you.
+ - You really have to believe it.
+ - Life is actually a series of tests. It’s a social test, a happiness test, a business success test. You’d like to get A’s in all of them.
+ - Our country is being run by incompetent people.
+ - Anyone who thinks my story is anywhere near over is sadly mistaken.
+ - The image of success is important, but even more important is the ability to focus on solutions instead of on problems. That way, you’ll never be thinking like a loser, and you probably won’t look like one either.
+ - If I’m going to be president, I will try the best I can, and I’m a very good dealmaker, believe me.
+ - I use my brain as a playground, not as a calendar.
+ - Leaders are people who can discern the inevitable and act accordingly. When people talk about business acumen, discernment is a big part of it. It’s a bit like gut instinct, but a little more developed.
+ - Pay attention, people! There’s no excuse for making the same mistakes that others have made. If you do, it’s your own fault and you should expect no sympathy, no compassion.
+ - Real estate is at the core of almost every business, and it’s certainly at the core of most people’s wealth. In order to build your wealth and improve your business smarts, you need to know about real estate.
+ - You have to remain cool under fire and let criticism roll off you. Good leaders handle conflict easily and bad ones are eaten up by it.
+ - It’s not like I’m anti-China. I just think it’s ridiculous that we allow them to do what they’re doing to this country, with the manipulation of the currency, that you write about and understand, and all of the other things that they do.
+ - Well, real estate is always good, as far as I’m concerned.
+ - I was a great student at a great school, Wharton School of Finance.
+ - A certificate of live birth is not the same thing by any stretch of the imagination as a birth certificate.
+ - We’re going to protect Christianity. We don’t have to be politically correct about it.
+ - Other people paint beautifully on canvas or write wonderful poetry. I like making deals. Preferably big ones.
+ - That’s one of the reasons I’m successful, I do tend to do the right thing.
+ - Confidence can get you where you want to go, and getting there is a daily process. It’s so much easier when you feel good about yourself, your abilities and talents.
+ - I assume I can give you a letter from a big law firm saying that we’re under audit.
+ - When you love what you do, you tend to work harder anyway.
+ - I want to make the United States great again. This country is a hell-hole. We are going down fast and I’m a conservative but I have a big heart. I will take care of people, but a lot of people want me to run, and we’ll see what happens.
+ - We don’t have time for tone. We have to go out and get the job done.
+ - When I build something for somebody, I always add $50 million or $60 million onto the price. My guys come in, they say it’s going to cost $75 million. I say it’s going to cost $125 million, and I build it for $100 million. Basically, I did a lousy job. But they think I did a great job.
+ - We have to be extremely vigilant and extremely careful when it comes to nuclear. Nuclear changes the whole ball game.
+ - Robert Pattinson should not take back Kristen Stewart. She cheated on him like a dog and will do it again – just watch. He can do much better!
+ - Diplomats do not know how to negotiate, they only know how to keep their job.
+ - I’m asking you to make at least some of your Christmas giving important.
+ - Hillary Clinton was saying Bill Clinton has tendencies toward being sexist.
+ - I think maybe my greatest weakness is that I trust people too much. I’m too trusting. And when they let me down, if they let me down, I never forgive. I find it very, very hard to forgive people that deceived me. So I don’t know if you would call that a weakness, but my wife said “let up.”
+ - I like Mexico. I love the Mexican people. I do business with the Mexican people, but you have people coming through the border that are from all over. And they’re bad. They’re really bad.
+ - If people screw me, I screw back in spades.
+ - Going through tough times is a wonderful thing, and everybody should try it. Once.
+ - Nelson Mandela and myself had a wonderful relationship – he was a special man and will be missed.
+ - I love producing children. It’s fun! I don’t like taking care of children, but I love producing children.
+ - I’ll tell you, it’s Big Business. If there is one word to describe Atlantic City, it’s Big Business. Or two words – Big Business.
+ - My style of deal-making is quite simple and straightforward. I aim very high, and the I just keep pushing and pushing and pushing to get what I’m after.
+ - I am no stranger to working hard. I have done it all my life. As a result I have become accustomed to expecting success in everything I do. Some people call me lucky, but I know better.
+ - We can’t let this happen. We should march on Washington and stop this travesty. Our nation is totally divided!’Let’s fight like hell and stop this great and disgusting injustice! The world is laughing at us.
+ - When luck is on your side it is not the time to be modest or timid. It is the time to go for the biggest success you can possibly achieve.
+ - The cost of appearing with a bloviating ignoramus is obvious, it seems to me. Donald Trump is redundant evidence that if your net worth is high enough, your IQ can be very low and you can still intrude into American politics.
+ - My policy is to learn from the past, focus on the present, and dream about the future. I’m a firm believer in learning from adversity. Often the worst of times can turn to your advantage – my life is a study of that.
+ - It’s tangible, it’s solid, it’s beautiful. It’s artistic, from my standpoint, and I just love real estate.
+ - Set the bar high – do the best you possibly can.
+ - All of a sudden everybody’s saying, “take the oil.” It wasn’t so fashionable to take the oil six months ago. I’ve been saying it for years.
+ - I’m dealing with very, very talented people, smart people, good people. And I think they will be competing. We still have a competition. I had great victory yesterday. South Carolina was amazing. New Hampshire was amazing. The size of the victories, I think, were incredible.
+ - You look at our borders, they’re like swiss cheese, everybody pours in.
+ - I don’t hire a lot of number-crunchers, and I don’t trust fancy marketing surveys. I do my own surveys and draw my own conclusions.
+ - I will build a great, great wall on our southern border and I will make Mexico pay for that wall.
+ - Life is what you do while you’re waiting to die.
+ - Radical Islamic terrorism came into effect even more so than it has been in the past. People like what I say. People respect what I say. And we’ve opened up a very big discussion that needed to be opened up.
+ - Pope is questioning my faith. I was very surprised to see it. But I am a Christian, and I’m proud of it.
+ - As you sit there and as I sit here, they are going in. They’re taking over, and they just walk in and they can do whatever they want. They have essentially already taken it over.
+ - I want a strong border. I do want a wall. Walls do work, you just have to speak to the folks in Israel. Walls work if they’re properly constructed. I know how to build, believe me, I know how to build.
+ - When employees and employers, even coworkers, have a commitment to one another, everyone benefits. I have people who have been in business with me for decades. I reward their loyalty to the organization and to me. I know that they’ll always be dedicated to what we’re trying to accomplish.
+ - The biggest problem that the world has is nuclear weapons. Global warming is not our big problem. Our big problem is the maniacs that are controlling weaponry that has never been like it is today.
+ - We have to stick up for ourselves as people and we have to stick up for our country when we’re being mistreated, remember that.
+ - Finding your purpose may be a lifelong pursuit or you may have discovered it when you were 5 years old. There’s no absolute timeline for anyone. That’s a good reason never to give up, to keep on discovering things every day.
+ - I want, we’re going to repeal and replace Obamacare. Obamacare is a total and complete disaster. It’s going to be gone.
+ - I don’t think I changed a lot although I learned a lot. Adversity can be a wonderful teacher. Some people can’t handle the pressure of it. For me it was a great thing. I learned about myself going through tough times. I guess I learned well.
+ - I wasn’t the president. And my first wife thinks I’m great. And my second wife and my – and I have a great marriage. I mean, I have a great marriage.
+ - Ultimately, if you’re not doing what you love, you’re not going to be fulfilled. Sure, to make money, you have to be tough, you have to have some smarts and a little luck would help, but the bottom line is: You have to love what you do.
+ - In life you have to rely on the past, and that’s called history.
+ - We have been there for 15 years in the Middle East, and much more than that probably. And we have spent probably $4 trillion, maybe more than that. And it’s time to do something about it. And it’s time to also knock ISIS out. You got to knock ISIS out.
+ - Israel, Palestine, if you’re going to make it, that probably is the hardest deal there is to make. People are born with hatred, they’re taught hatred.
+ - For entrepreneurs, ignorance is not bliss. It’s fatal. It’s costly. And it’s for losers. You either get organized, or get crushed.
+ - There’s some nastiness, there’s some meanness there. There’s something going on in the mosques and other places.
+ - You have to have passion, go with your gut, go against the tide.
+ - I have made the tough decisions, always with an eye toward the bottom line. Perhaps it’s time America was run like a business.
+ - I think the only difference between me and the other candidates is that I’m more honest and my women are more beautiful.
+ - I’m a bit of a P. T. Barnum. I make stars out of everyone.
+ - The final key to the way I promote is bravado. I play to people’s fantasies. People may not always think big themselves, but theycan still get very excited by those who do. That’s why a little hyperbole never hurts.
+ - Love him or hate him, Trump is a man who is certain about what he wants and sets out to get it, no holds barred. Women find his power almost as much of a turn-on as his money.
+ - We are going to start winning again. We don’t win on trade, we can’t beat Isil. We are going to win so much. We are going to make America greater than ever before.
+ - Mexico will not be taking advantage of us. They will not be having open borders.
+ - Getting things done in this country, if you want to build something, if you want to start a company, it’s getting to be virtually impossible with all of the bureaucracy and all of the approvals.
+ - Europe is being absolutely swamped and destroyed with the crime and the problems, and it could be some sinister plot.
+ - When asked if direct sales is a pyramid scheme. My reply is a corporation has only one person at the top.
+ - I’ve been dealing with politicians all my life. They are all talk, no action.
+ - I’m the No. 1 developer in New York, I’m the biggest in Atlantic City, and maybe we’ll keep it that way.
+ - Experience taught me a few things. One is to listen to your gut, no matter how good something sounds on paper. The second is that you’re generally better off sticking with what you know. And the third is that sometimes your best investments are the ones you don’t make.
+ - I’ve gained great respect for the Republican leadership. I’ve gained great respect for many – and I’m going to even say – I mean, in different forms for the people on the dais, in different forms.
+ - I feel a very, very strong bind, and really I’m bound to this country, we either have a border or we don’t. People can come into the country, we welcome people to come but they have to come in legally.
+ - America’s problem is too much political correctness.
+ - There are no guarantees, but being ready sure beats being taken by surprise.
+ - Friendship can be really tested only in bad times.
+ - I don’t like to sit back and gloat, because the world is fragile. Life is fragile, so I never really gloat.
+ - I’m a busy guy but I set aside quiet time every morning and every evening to keep my equilibrium centered on my own path. I don’t like being swayed by anything that might be negative or damaging.
+ - When you are wronged repeatedly, the worst thing you can do is continue taking it – fight back!
+ - The debt limits have to come down. The whole world of debt has to be changed as far as this country is concerned. We have to create jobs and we have to create them rapidly because if we don’t things are just going to head in a direction that’s going to be almost impossible to recover from.
+ - There has always been a display of wealth and always will be, until the depression comes, which it always does. And let me tell you, a display is a good thing. It shows people that you can be successful. It can show you a way of life.
+ - A friend called me up the other day and talked about investing in a dot-com that sells lobsters. Internet lobsters. Where will this end? The next day he sent me a huge package of lobsters on ice. How low can you stoop?
+ - Peter Gammons went on to Sports Illustrated and ESPN, and was on everyone’s shortlist of best baseball writers ever.
+ - I love to remember my enemies and I love to get my enemies. I had some enemies. I had people that really I helped a lot. And when I needed the help, in some cases, they were not there for me.
+ - We need a toughness. We need strength. We’re not respected, as a nation anymore. We don’t have that level of respect that we need. And if we don’t get it back fast, we’re just going to go weaker, weaker and just disintegrate.
+ - We won with the military. We won with highly educated, pretty well educated and poorly educated. But we won with everything, tall people, short people, fat people, skinny people just won.
+ - We need strength, we need energy, we need quickness and we need brain in this country to turn it around.
+ - I do what I do out of pure enjoyment. Hopefully, nobody does it better. There’s a beauty to making a great deal. It’s my canvas. And I like painting it.
+ - I could never have imagined that firing 67 people on national television would actually make me more popular, especially with the younger generation.
+ - Entrepreneurs are always taking feedback, especially from their customers, bankers, workers, and sales force. Without straightforward feedback, entrepreneurs cannot make sound decisions.
+ - Putin is no different than any other powerful man, like a Senator, or a President.
+ - All over the world, I do business. I make great deals. I’ve made hundreds of millions of dollars against China. All over the world I make money and I build great things. Who’s going to build a wall like me on the southern border? I built a great company.
+ - There’s tremendous crime and illegal immigration is just incredible. As far as Rubio, he’s very weak on immigration, you know, I have great relations with Mexico and I love the Mexican people, and the spirit of the Mexican people. These are people just pouring across the border.
+ - The fact is the enemy right now is within the Muslim community. A small percentage but it’s there.
+ - Entrepreneurs: See yourself as victorious- and the best way to be victorious is to be passionate. Find something you love doing!
+ - I think The New York Times is one of the most dishonest media outlets I’ve ever seen in my life. The worst. The worst. The absolute worse. They have an agenda that you wouldn’t believe.
+ - I feel a lot of people listen to what I have to say.
+ - Always know you could be on the precipice of something great.
+ - A lot of people want me to run for things, for a lot of high offices. The polls always show that I win any election that I’m in. But I don’t have any real interest in running for office. I’m more interested in supporting people.
+ - I don’t make deals for the money. I’ve got enough, much more than I’ll ever need. I do it to do it.
+ - I think I understand life. I think I understand how to live. I’m enjoying my life. I don’t really live in an as extravagant way as people think.
+ - In business, I’ve discovered that my purpose is to do my best to my utmost ability every day. That’s my standard. I learned early in my life that I had high standards.
+ - Our healthcare is a horror show.
+ - We have to change our whole way, our health care system is a disaster. It’s going to implode in 2017, just like you’re sitting there. It doesn’t work. Nothing works in our country. If I’m elected president, we will win again.
+ - I’ve never once in my life known a person who was successful who didn’t have a big ego. Ego’s not a bad thing.
+ - Sirio Maccioni is the perfect Maestro. He does it all: great food, great entertainment, and always with a room full of the best people. He’s the only person I could ever imagine going into the restaurant business with!
+ - In business – every business – the bottom line is understanding the process. If you don’t understand the process, you’ll never reap the rewards of the process.
+ - This country right now owes $19 trillion. And they need somebody like me to straighten out that mess.
+ - The worst elements in Mexico are being pushed into the United States by the Mexican government. The Border Patrol knows this. Likewise, tremendous infectious disease is pouring across the border.
+ - Be careful with whom you associate. Loser’s rub off!
+ - Sometimes I’ll make a statement they’ll say, this is the end. This is the end! Right? This is the end. It’s finally going to happen.
+ - You can take the smartest kid at Wharton, the one who gets straight A’s and has a 170 IQ, and if he doesn’t have the instincts, he’ll never be a successful entrepreneur.
+ - You know the funny thing, I don’t get along with rich people. I get along with the middle class and the poor people better than I get along with the rich people.
+ - If Putin wants to knock the hell out of ISIS, I’m all for it 100 percent and I can’t understand how anybody would be against that.
+ - I was never one who looked at success as bad. For me, success was always good. I loved it, and still do.
+ - I support health care for people. I want people well taken care of. But I also want health care that we can afford as a country. I have people and friends closing down their businesses because of Obamacare.
+ - There’s nothing easy about running for president, I can tell you. It’s tough, it’s nasty, it’s mean, it’s vicious, it’s beautiful. When you win, it’s beautiful. And we are going to start – we are going to start winning for our country.
+ - Well, I am a Republican, and I would run as a Republican. And I have a lot of confidence in the Republican Party. I don’t have a lot of confidence in the president. I think what’s happening to this country is unbelievably bad. We’re no longer a respected country.
+ - You’re generally better off sticking with what you know.
+ - The Middle East is totally destabilized. A total and complete mess.
+ - I have a very hardline position, we have a country or we don’t have a country. People that have come into our country illegally, they have to go. They have to come back into through a legal process.
+ - Creative people rarely need to be motivated-they have their own inner drive that refuses to be bored. They refuse to be complacent. They live on the edge, which is precisely what is needed to be successful and remain successful.
+ - It’s a great thing when you can show that you’ve been successful and that you’ve made a lot of money and that you’ve employed a lot of people.
+ - I express myself very strongly it’s groveling, I’m trying to show groveling, but all of a sudden I found that I was mocking somebody.
+ - First of all, you have to born with a brain. I mean, you can’t be a dummy and say I’m going to become a multi-billionaire some day. But, more than anything else, you have to love what you do, and beyond that, you can’t ever give up.
+ - Most people who do have the instincts will never recognize that they do, because they don’t have the courage or the good fortune to discover their potential.
+ - You have Obama that wants to play golf instead of deal with people.
+ - It’s interesting about people who choke. I’m, believe it or not, a good athlete. I’ve watched people choke over the years.
+ - My big focus is China and OPEC and all of these countries that are just absolutely destroying the United States.
+ - I just love building buildings. I’m the largest developer in New York City. I’m having a lot of fun doing it. I think I’ve never had more fun. I’m just enjoying my life.
+ - Markets always change, and as soon as there’s downturn, cleanliness becomes a major value.
+ - You have 50,000 thoughts a day you might as well make them big ones...
+ - Providing jobs at three flat factories in Malawi to make school desks for kids who have never seen desks, and providing scholarships for girls to go to high school who would never otherwise be able to go to high school, is by far the most important work I do.
+ - I could stand in the middle Fifth Avenue and shoot somebody, and I wouldn’t lose any voters.
+ - You have to be born with enough brainpower.
+ - I supported John McCain for president. I raised a million dollars for him. Still a lot of money. I supported him. He lost. He let us down. So I never liked him as much after that because I don’t like losers.
+ - I think Ronald Reagan was one of the great presidents, period, not just recently. I thought he had the demeanor. I thought he had the bearing. I thought he had the thought process.
+ - Brainpower is the ultimate leverage.
+ - I’ve always felt fine about Putin. I think he is a strong leader, he’s a powerful leader, he’s represented his country the way – the country is being represented.
+ - I talk about jobs, I talk about our veterans being mistreated.
+ - I think I have great knowledge of foreign policy, frankly. And despite what some people said, I was always against the war in Iraq, and a lot of people weren’t.
+ - We’re going to have a lot of different options. Right now you have no options. You know why? Because the insurance company controlled Obama because they gave him a lot of money. That’s why you have lines around the states. And you can’t get competitive bidding.
+ - I have never fired anyone or kept anyone because of ratings or because of entertainment. I keep the people that I think are the best.
+ - Do you mind if I sit back a little? Because your breath is very bad.
+ - It’s very hard to get people, because it’s just one of those things. I mean, everybody is working. And then during the off- season, it’s easy, but we don’t have the people during the off-season, because the club closes during off-season, so lot of people don’t want a part-time job.
+ - If you really want to succeed, you’ll have to go for it every day like I do. The big time isn’t for slackers. Keep up your mental stamina and remain curious. I think that bored people are unintelligent people.
+ - I don’t want our country to be taken away from us, and that’s what’s happening. The policies that we’ve suffered under other presidents have been a disaster for our country. We want to make America great again.
+ - First of all, very few people listen to Hugh Hewitt, radio show, that’s the good news. Check out the ratings.
+ - Iran is taking over Iraq. They’ve been trying to for many, many decades. And now they’re finally taking over Iraq. As we sit here, they’re taking over Iraq. We get nothing.
+ - I would guess that it might have made a difference. It certainly didn’t hurt us in any way. Feng shui creates a balance that I believe adds to the comfort zone of rooms and space, and that is felt by guests and residents.
+ - I think what’s happening is that you’re seeing change from existing and kind of a left right political paradigm to one that is being made into something different. Maybe an up down paradigm, or something along those lines. It’s a dramatic change. It’s a shift I think of all different in language.
+ - Obama and his attack dogs have nothing but hate and anger in their hearts and spew it whenever possible.
+ - Learning to expect problems saved me from a lot of wasted energy. Winners see problems as just another way to prove themselves.
+ - I don’t want ISIS using our Internet to take our young, impressionable youth and watching the media talking about how they’re masterminds – these are masterminds. They shouldn’t be using the word “mastermind.”
+ - I said, the pope is saying bad things about me the day before the election? And then I gathered myself, and I realized that it had to do with illegal immigration, that he was opposed to my measures, which is basically creating a border.
+ - This is a problem that Islam has. I called upon Muslim leaders to call out and denounce these murders, these terrorists. Decrying violence isn’t enough.
+ - I’ve used the laws of the country to my advantage.
+ - A little more moderation would be good. Of course, my life hasn’t exactly been one of moderation.
+ - The one sure way to success is to know everything you can about what you do.
+ - In business, when things aren’t working it’s time to mix it up.
+ - People get caught up in wonderful, eye-catching pitches, but they don’t do enough to close the deal. It’s no good if you don’t make the sale. Even if your foot is in the door or you bring someone into a conference room, you don’t win the deal unless you actually get them to sign on the dotted line.
+ - Mexican leadership has been doing serious damage to the United States by out-negotiating our representatives and political leaders.
+ - You must work well with others and be loyal to your team. Disloyalty is the worst of all traits. I seldom use the words “You’re fired!” in business, unless somebody is really scum and stole from me.
+ - If Iran was a stock, you folks should go out and buy it right now because you’ll quadruple – this, what’s happening in Iran, is a disgrace, and it’s going to lead to destruction in large portions of the world.
+ - The only category I do badly in is my personality. And that’s OK. Who cares? And you know what? You want to know something? I’m a better person than the people I’m running against. I see it.
+ - We need a great president.
+ - The first thing I learned is when times are tough, you need to hedge your bets – you need to diversify.
+ - In business you must give something back.
+ - Certainly would never have made that horrible, disgusting, absolutely incompetent deal with Iran where they get $150 billion. They’re a terrorist nation.
+ - It’s very, very hard to hire people, qualified people. And a lot of people didn’t want the job because it’s a three- or four-month job.
+ - Ted Cruz new line of attack is that I’ve become establishment. Oh, give me a break. No, he’s having a hard time. He had his moment, and he blew it.
+ - We have done a tremendous disservice, not only to Middle East, we’ve done a tremendous disservice to humanity.
+ - Marco Rubio has got the number one worst attendance record, and they want him to be president, right?
+ - You have to love what you’re doing. I’ve never seen anyone succeed who didn’t love what they were doing.
+ - Copying is the greatest form of flattery, I guess. I am actually a little surprised that Vincent Lo didn’t try and make a deal to be on The Apprentice,.
+ - That’s part of the problem with the Republicans, where somehow they got fed into this horrible position. We’re going to take care of people. But no, people don’t have to have it. We’re going to have great plans, they’re going to be a lot less expensive than Obamacare.
+ - What you do to China is you say if you don’t behave we’re going to have to start taxing your goods coming into our country.
+ - I would certainly be open to closing areas where we are at war with somebody. I sure as hell don’t want to let people that want to kill us and kill our nation use our Internet.
+ - I am really rich. All of my life I have heard a truly successful, and even a modestly successful person, cannot run for public office – just can’t happen. Yet that’s the kind of mindset you need to make this country great again.
+ - We have to do one thing at a time. We can’t go – and I watched Lindsey Graham, he said, I have been here for 10 years fighting. Well, he will be there with that thinking for another 50 years. He won’t be able to solve the problem.
+ - I always say to my people, how come I’m always audited and friends of mine are never audited?
+ - We’re the highest taxed in the world, we’re the highest taxed country right now, and it’s not even close.
+ - Your money should be at work at all times.
+ - The nice part about being wealthy is I can do what I want to do. If it doesn’t work, it doesn’t work. But I have to be honest.
+ - There’s always luck involved in things, luck is involved in life; you’re born a certain way, you’re born in a certain location, you’re born – country, there’s always luck. And some people disagree that there’s no such thing as luck, well, I’ll take them on anytime you want.
+ - I have thousands and thousands of people on my payroll. Over the years, I have had tens of thousands of people that work for me. You’re picking up one club where it has a high season where it’s very, very hard. It’s very hard to get people in Palm Beach during the season, during the social season.
+ - The point is that if you are a little different, or a little outrageous, or if you do things that are bold or controversial, the press is going to write about you.
+ - What’s the point of having great knowledge and keeping them all to yourself?
+ - I give money to everybody. When they call, I give. And you know what, when I need something from them two years later, three years later, I call them and they are there for me.
+ - The Arab League tells us to go in and take out Qaddafi. We’ve spent billions of dollars already with respect to the Arab League. Billions of dollars, because they told us to do it. Why aren’t they paying for it? They don’t like Qaddafi, Qaddafi’s been a terrible thorn in their side.
+ - Donald Trump is calling for a total and complete shutdown of Muslims entering the United States until our country’s representatives can figure out what the hell is going on.
+ - I wasn’t satisfied just to earn a good living. I was looking to make a statement.
+ - I never planned on becoming a brand name. The success of the Trump name worldwide has been a surprise.
+ - If you talk about people that lie, this Ted Cruz, this is the biggest liar I’ve ever seen.
+ - Every penny of the $7 billion going to Africa as per Obama will be stolen – corruption is rampant!
+ - You have to stay focused. You cannot take your eye of your goal.
+ - It’s important to adhere to the principles of a large group of people that truly believe these principles, and if they believe them, then that’s good enough for me.
+ - You know, l don’t kid myself about the show. If it doesn’t get ratings, it’s off. Look, if I came up with the cure for cancer and it didn’t get ratings, they wouldn’t put it on. That’s how vicious that business is.
+ - I wish we had the $4 trillion or $5 trillion. I wish it were spent right here in the United States, on our schools, hospitals, roads, airports, and everything else that are all falling apart.
+ - It’s very important that people aspire to be successful. The only way you can do it is if you look at somebody who is.
+ - You have to pinpoint the market, and if you don’t pinpoint the market, you won’t be successful.
+ - Every time there’s a tragedy, everything goes up.
+ - We do have to look at the mosques very carefully. The mosques, a lot of things are happening in there, folks, a lot of things.
+ - I’ve always told people that to be successful you have to enjoy what you’re doing and right now I really enjoy what I’m doing. I’m having too much fun with my life. Why would I want to do something else? Why would I want to run for governor?
+ - Case in point: Take adversity and make it an asset.
+ - I’m not sure everybody agrees with me. I guess a lot of people don’t. We are living in a time that’s as evil as any time that there has ever been.
+ - We have to be much tougher. We have to be much stronger than we’ve been.
+ - Despite the bigoted nature of Donald Trump’s plan to keep Muslims – all Muslims out of this country and almost universal condemnation of that plan by prominent Republican leaders, new polling out suggests that what Trump wants to do may be perfectly acceptable to rank and file GOP voters.
+ - It’s very important to make nuclear deals but you have to make them from strength, not from weakness.
+ - Every decision you make is an important one, whether there are twenty thousand people working for you or just one.
+ - Ever notice how your senses are heightened when you are in challenging situations? You’re experiencing an adrenaline rush that gives you extra energy. If you see every day as a challenge, you’d be surprised how efficient you can become, and how much can be accomplished.
+ - Everything of real value is in my financial disclosure form.
+ - A number of the pundits said well, if a couple of the other candidates drop out, if you add their scores together they don’t understand that as they drop out, we’ll get the votes.
+ - Pope actually said that maybe I’m not a good Christian or something. It’s unbelievable. Which is really not a nice thing to say.
+ - I don’t like being negative to people who are so nice to me.
+ - We won with everything! We won with women! I love the women! We won with evangelicals. Like, unbelievable.
+ - I think the media is among the most dishonest groups of people I’ve ever met.
+ - I don’t think it’s fair, the way that the establishment is treating Donald Trump. I will be honest.
+ - I’d hate to see something like this get in his way, but a lot of people are talking about it and I know that even some states are looking at it very strongly, that the fact that Ted Cruz was born in Canada and he has a double passport.
+ - The most important thing in life is to love what you’re dong, because that’s the only way you’ll ever be really good at it.
+ - The Obama representatives like Robert Gibbs attack people viciously, but people like me will not be silent and will answer them back.
+ - If you look – look at – I mean, look at what’s going on with your gasoline prices. They’re going to go to $5, $6, $7 and we don’t have anybody in Washington that calls OPEC and says, ‘Fellas, it’s time. It’s over. You’re not going to do it anymore.’
+ - I don’t believe you can ever get hurt by buying a good location at a low price.
+ - Wow. Ted Cruz falsely suggested Marco Rubio mocked the bible and was just forced to fire his communications director. More dirty tricks.
+ - If I’m so fortunate to be chosen, I think I’ll do very well. I will do everything in my power to beat Hillary Clinton, I promise you.
+ - These are terrible people in ISIS, not masterminds.
+ - I would absolutely authorize something beyond waterboarding. And believe me, it will be effective.
+ - Sometimes I don’t like people. And, you know, it doesn’t bother me. The hard ones are when you really like somebody, really respect somebody and they make a mistake.
+ - One of the keys to thinking big is total focus. I think of it almost as a controlled neurosis, which is a quality I’ve noticed in many highly successful entrepreneurs.
+ - I bought properties inexpensively and made a lot of money. I began to think it was easy.
+ - I can promise you that the pope would have only wished and prayed that Donald Trump would have been president.
+ - I do have my ducks in line if I want to do it, but I’d love to see the Republicans pick somebody that was going to win and take over this country and frankly, to use the expression, ‘Make America great again.’
+ - That never goes over big with your wife. I will be a very good husband for a change.
+ - I was in a state of shock, because I have never seen the pope talk about something as unimportant as Donald Trump. OK? And I was like, the pope is talking about me? This can’t be happening. And then I said, is it good or bad? They said it’s bad.
+ - We’re going to do things beyond waterboarding perhaps, if that happens to come.
+ - We can’t be fighting everybody at one time.
+ - Everybody is going to bring the money back in. It’s going to be used in our country and so many other things.
+ - I have used the laws of this country just like the greatest people that you read about every day in business have used the laws of this country, the chapter laws, to do a great job for my company, for myself, for my employees, for my family, et cetera.
+ - Politicians are making deals for their benefit. Now we are going to make the deals for the American people.
+ - Every time you walk down the street people are screaming, ‘You’re fired!’
+ - I have already released my financials, which are massive, and, by the way, which showed a tremendous company. It’s over $10 billion in net worth that I have built with a very, very small starter loan years ago.
+ - Take the pains required to become what you want to become, or you might end up becoming something you’d rather not be. That is also a daily discipline and worth considering.
+ - We have to take care of the people that can’t take care of themselves. And I will do that through a different system.
+ - Marco Rubio hit my hands. Nobody has ever hit my hands. I’ve never heard of this. What – look at those hands. Are they small hands? And he referred to my hands – if they’re small, something else must be small. I guarantee you, there’s no problem. I guarantee you.
+ - We have to be very careful, we have to be very vigilant but to think that Apple won’t allow us to get into her cell phone – who do they think they are? Now we have to open it up.
+ - Business is full of complexities. That’s what makes it so interesting. Anyone who thinks it’s boring hasn’t given it much thought.
+ - If you have a problem with someone you have to go after them, and it’s not necessarily to teach that person a lesson, it’s to teach all the people that are watching a lesson that you don’t take crap, and if you do take crap, you’re just not going to well.
+ - When it comes to security, when it comes to ISIS, when it comes to the military, every single category I’m leading, like, by a lot.
+ - I’m not running for office. I don’t have to be politically correct. I don’t have to be a nice person. Like I watch some of these weak-kneed politicians, it’s disgusting. I don’t have to be that way.
+ - I’ve never been a politician, but, I am totally committed to the Republican Party. I feel very honored to be the front runner.
+ - If I’m the nominee, I will pledge I will not run as an independent. I want to win as the Republican. I want to run as the Republican nominee.
+ - I do great with Latino voters. I employee so many Latinos, I have so many people working for me, the Latinos love Trump, and I Iove them.
+ - As far as the Internet is concerned, we’re not talking about closing the Internet. I’m talking about parts of Syria, parts of Iraq, where ISIS is, spotting it.
+ - There’s plenty of other evidence Trump is in sync with the base, including a major survey released that found that 76 percent of Republicans think Islam is incompatible with the American way of life.
+ - I built a net worth of more than $10 billion. I have a great, great company. I employ thousands of people. And I’m very proud of the job I did.
+ - Nobody can solve debt problems like me.
+ - In an age of so many people getting hurt in real estate, it shows that you can still do well in real estate.
+ - Obama does not like the issue of where he was born.
+ - If I’m president, we’re not going to have people dying on the streets. I don’t call it a mandate, I just say it’s common sense.
+ - My total focus was on building up our military, building up our strength, building up our borders, making sure that China, Japan, Mexico, both at the border and in trade, no longer takes advantage of our country.
+ - This is about safety. This has nothing to do with religion.
+ - In July of 2004, I came out strongly against the war with Iraq, because it was going to destabilize the Middle East.
+ - If you want to buy something; it’s obviously in your best interest to convince the seller that what he’s got isn’t worth very much.
+ - The Republican Party is not treating me right, and they’re not treating the people that I represent right.
+ - Entrepreneurs are motivated by independence as well as challenge, knowing they are ultimately responsible for themselves. Monetary success is certainly helpful, but it often becomes more of a score card than anything else.
+ - I wasn’t a politician. I had no – no – even thought of being a politician. So, nobody even talked to me about the war. Nobody said, should we do the war, should we not? It’s not like now, where every day you’re being asked questions about things.
+ - If I’m president, we will win on everything we do.
+ - Today, and I’m very strongly against tax increases.
+ - That’s one of the nice things. I mean, part of the beauty of me is that I’m very rich. So if I need $600 million, I can put $600 million myself. That’s a huge advantage. I must tell you, that’s a huge advantage over the other candidates.
+ - Not teaching your kids about money is like not caring whether they eat. If they enter the world without financial knowledge, they will have a much harder go of it.
+ - I’ve taken advantage of the laws. And frankly, so has everybody else in my position.
+ - All my life I’ve dealt with politicians. I know politicians better than anybody. And honestly, if you can’t deal with a politician, there’s something wrong with you.
+ - I deal with foreign countries. I made a lot of money dealing against China. I’ve made a lot of money dealing against many other countries.
+ - The best advice I can give to new parents is to realize immediately that your children will be unique individuals. Give them the space to be themselves and to develop their own personalities and characteristics.
+ - I think I have a big advantage. But it’s certainly a three-person race. And you have a couple of other people that are very talented there too. So we have a five-man race. And I think that it’s going to be not easy. I have a big advantage. But a long way from being won.
+ - I mean, there’s no arguing. There is no anything. There is no beating around the bush. ‘You’re fired’ is a very strong term.
+ - If we think there is an undermining now, just wait if Sharia is adopted or utilized by justices in the United States.
+ - If I am the nominee, I will not run as an Independent.
+ - I’ve dealt with politicians my entire life. You never make a bad deal with a politician. They’re so easy.
+ - I love what I’m doing. But I love the USA more. And I can straighten it out. And I can truly make this country great again and nobody else can do what I do.
+ - A lot of people feel very good about Mitt Romney and I think he’s going to do a great job.
+ - The guys at Smartax are the most renowned Accountants in the world!
+ - People might not think that, but the Republicans have all of the cards. And this is the time to get rid of Obamacare. This is the time to make the great deal.
+ - Look, again, I’m competing against professional politicians, senators, top of the line. I know Ben Carson is still in, and he’s a terrific guy and a talented guy. And so I’m competing against a lot of very good people.
+ - Senator Marco ‘amnesty’ Rubio, while proponents of immigration reform say the Florida Republican was quick to retreat when the going got tough.
+ - I love what I am doing. I have a wonderful business. I have a wonderful television show that’s doing – continues to do phenomenally in the ratings. I mean, it’s been really a lot of fun.
+ - All of the women on The Apprentice flirted with me – consciously or unconsciously. That’s to be expected.
+ - With the coldest winter ever recorded, with snow setting record levels up and down the coast, the Nobel committee should take the Nobel Prize back from Al Gore.
+ - The last few months of George Bush’s presidency brought Obama and nobody can be happy about that.
+ - For a religious leader to question a person’s faith is disgraceful. I’m proud to be a Christian, and as president, I will not allow Christianity to be consistently attacked and weakened, unlike what is happening now.
+ - So Bush certainly wasn’t the greatest, and Obama has not done the job. And he’s created a lot of disincentive. He’s created a lot of great dissatisfaction. Regulations and regulatory is going through the roof. It’s almost impossible to get anything done in the country.
+ - I love the people and I actually think they like me a lot.
+ - People move into a house a block down the road. You know who’s going in. You can see and you report them to the local police. Everybody’s their own cop in a way. You got to do it.
+ - I have never gone bankrupt.
+ - When I tell somebody to do something I’m not going to get a lobbyist calling me the next day to say please don’t do that even though it’s good for America.
+ - But I believe in fair trade, and I will tell you, I have many, many friends heading up corporations, and people that do just business in China, they say it’s virtually impossible. It’s very, very hard to come into China. And yet, we welcome them with open arms.
+ - A lot of the people that we have made offers to, and where we make offers, when they hear it’s a part-time job, or a it’s four-month or five-month job – and I understand this – they’re not interested. They’re American people. They’re not interested.
+ - I saw Vicente Fox use the word that he used. I can only tell you, if I would have used even half of that word, it would have been national scandal. This guy used a filthy, disgusting word on television, and he should be ashamed of himself, and he should apologize, OK?
+ - What I admire most are people who put themselves directly on the line.
+ - Ted Cruz has been playing an ad about me that is so ridiculously false, no basis in fact. Take ad down, Ted. Biggest liar in politics.
+ - We’re not going to let people die in squalor because we are Republicans.
+ - I have always thought that Donald Trump was an incredibly clever politician, but he’s – at some point he’s going to become unwound and maybe this is it.
+ - I get these lightweights like Marco Rubio, he gets up and says’Oh, Donald Trump didn’t talk about foreign policy’.
+ - One of the things that I heard for years and years, never drive Russia and China together. And Obama has done that.
+ - You look what’s happening all over Europe – Europe is being absolutely swamped and destroyed.
+ - The best thing I’ve done? Well, I’ve created four beautiful children.
+ - But what those critics don’t know is that these same assets that excite me in the chase often, once they are acquired, leave me bored.
+ - When has the pope ever questioned the faith of another private citizen?
+ - Senator Marco ‘amnesty’ Rubio, who has worst voting record in Senate, just hit me on national security – but I said don’t go into Iraq.
+ - I stand by whatever I read from Univision.
+ - I have a great relationship with the blacks. I’ve always had a great relationship with the blacks.
+ - Well, yes, I’ve fired a lot of people. Generally I like other people to fire, because it’s always a lousy task. But I have fired many people.
+ - Obama has no solutions. Obama has failed the country and its great citizens, and they don’t like it when somebody such as myself speaks the truth about this – it hurts too much.
+ - Most people think small because most people are afraid of success, afraid of making decisions, afraid of winning. And that gives people like me a great advantage.
+ - I would have said get out of Syria; get out – if we didn’t have the power of weaponry today. The power is so massive that we can’t just leave areas that 50 years ago or 75 years ago we wouldn’t care. It was hand-to-hand combat.
+ - I’ve been challenged by so many people, and I don’t frankly have time for total political correctness. And to be honest with you, this country doesn’t have time either. This country is in big trouble. We don’t win anymore.
+ - I was in Moscow and I will tell you – you can get along with those people and get along with them well. You can make deals with those people. Obama can’t.
+ - In 2012 Roger Ailes, you know, desperately tried to get who into the race? Chris Christie, a somewhat moderate if tough talking from a purple state. They were very interested this David Petraeus, a figure who served in the Obama administration as CIA chief.
+ - I think Les Moonves is the most highly overrated person in television.
+ - You really have to love what you are doing, so you don’t give up.
+ - When they talk about raising your taxes, I think raise the taxes on some of these countries that are taking advantage of the United States.
+ - You just have to be the kind of guy to get people to do things.
+ - I was a very, very establishment person prior to wanting to run.
+ - I think George Will is somebody that said recently that the Republicans will not lose, as a Republican, that the Republicans will not win the election. I think it was a terrible statement.
+ - The rest of what I learned about baseball came from Peter Gammons, the Boston Globe’s best baseball writer when I was in high school.
+ - I’m a believer in the Tea Party. I love the Tea Party. I love the people in the Tea Party. And, yes, I have a lot of different likes and maybe dislikes. And I don’t know why.
+
+463 quotes

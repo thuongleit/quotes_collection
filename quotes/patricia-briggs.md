@@ -1,0 +1,172 @@
+ - Happiness is German engineering, Italian cooking, and Belgian chocolate.
+ - Never trust a mechanic who drives new cars. They’re either charging too much money for their work, or they can’t keep an old car running – maybe both.
+ - The only certainty life contains is death.
+ - It is hard to accept being different, hard to have people avoid looking at you, and still believe in yourself.
+ - Hard truths can be dealt with, triumphed over, but lies will destroy your soul.
+ - Nothing says you’re sorry like a dead bunny.
+ - He loved her beyond all reason and didn’t expect her to love him back. He was just waiting for her to wise up.
+ - A man says a lot of things in summer he doesn’t mean in winter.
+ - Women are sneaky.
+ - Anger is stupid, and stupidity will kill you more surely than your opponent’s blade.
+ - I am the reality of all coyotes. The archetype. The epitome. You are just a reflection of me.
+ - Read good books. Read bad books – and figure out why you don’t like them. Then don’t do it when you write. If you are a science fiction or fantasy writer, going to conventions and attending panels is very useful.
+ - Sometimes I have the urge to conquer large parts of Europe.
+ - Take a note: it usually works better if you wait until I do something stupid before getting mad at me.
+ - Civilization is vastly overrated.
+ - Zealots are like one track-pony. Don’t get in their way without expecting to get hurt.
+ - When life doesn’t meet your expectations, it was important to take it with grace.
+ - All change brings bad things and good things to replace the bad and good things that were before. It is natural to look back and say it was better before – but that does not make it true. Different is not worse. It is just different.
+ - Coyote never loses. Because I change the rules of the games my enemies play. What are the rules of your game?
+ - Intelligent men are dangerous.
+ - I don’t break; I bounce.
+ - I’ve been a storyteller all my life. When I was in high school, I used to amuse myself by driving through the woods at night and see how long it would be before I scared the pants off my friends – and if I could do it before I scared myself.
+ - My father said that a silent person is trying to hide something.
+ - If it would benefit you, I would kill every wolf here. But there are things that you need to do – and interfering with that is not protecting, not in my book. The best way for me to protect you is to encourage you to be able to protect yourself.
+ - He’d woken up after flying from Boston to Montana to find his da cooking breakfast for them: sausage and pancakes shaped like deer. It wasn’t just any deer, either – they looked like Bambi from the disney cartoon. Charles didn’t want to know how his father had managed that.
+ - Wizards are a secretive lot.
+ - Let’s save tomorrow’s troubles for tomorrow.
+ - I’m a coyote shapeshifter playing in a world of werewolves and vampires – outmatched is n understatement.
+ - But you can’t marry someone to fix him, even if you love them.
+ - Cheeses crusty, got all musty, got damp on the stone of a peach.
+ - Only cowards torture women.
+ - My father always said that too many words cheapened the value of a man’s speech.
+ - Pack is for comfort when you hurt, I thought, putting my head back down. And for the first time in a long time, maybe the first time ever, I appreciated being a part of one.
+ - Sometimes broken people stay broken.
+ - A dominant wolf’s desire to protect was a strong instinct- Samuel was very dominant. Give him an inch, and he’s take over the world- my life, if I let him. Mercy.
+ - Don’t make light of any man’s pain.
+ - You will eat this and go to sleep, so your pronouns get their antecedents back.
+ - Where does a werewolf sleep? Anywhere he wants to.
+ - He had lived a very long time, and only since he gained Anna had he learned to fear. He’d discovered that he had never been brave before – just indifferent. She had taught him that to be brave, you have to fear losing something.
+ - My will broke at the sound of his voice, and my head turned with as much inevitability as a sunflower turning its face to the sun.
+ - There are big bad wolves all over the world who tremble at the sound of his name, yet a little puny coyote girl peanut-buttered the seat of Bran Cornick’s car because he told her that she should wear a dress to perform for the pack.
+ - A werewolf tossed me against a giant packing crate while I was trying to rescue a frightened young girl who’d been kidnapped by an evil witch and a drug lord.
+ - The best way for me to protect you is to encourage you to be able to protect yourself.
+ - You can’t cage an eagle for long without destroying it.
+ - Asil left Bran alone with his thoughts then, because if he stayed, Bran would argue with him. This way, Bran would have no one to argue with but himself. And Asil had always credited Bran with the ability to be persuasive.
+ - Things change whether you want them to, or not – unless you are dead. Don’t hold so hard to the past that you die with it.
+ - So in the sweltering heat of a July night, I sang a Christmas carol to a room full of fae, who had been driven out of their homelands by Christians and their cold-iron swords.
+ - I knew he would never leave me, never let me down-because the man had never abandoned anything in his long life. If I hadn’t taken the gold rope of our bond, I knew Adam would have sat on me and hog-tied me with it. I liked that. A lot.
+ - If it looks like a hallway, feels like a hallway, and acts like a hallway – is it important to figure out that it isn’t a hallway?
+ - I was going to fight vampires, and my name wasn’t Buffy – I was so screwed.
+ - I thought you were dead. Stupid. As if I’d die without taking you with me.
+ - She understood his passion because she felt the same way: as if nothing was more important than the touch of her skin to his, as if she’d die if he left her.
+ - Over a lifetime of dealing with difficult women, I have learned it is often better to give into their demands immediately.
+ - In this dream, I wasn’t a coyote shapeshifter trying to hold a werewolf, I was Coyote’s almost daughter, and I had all the strength of the world in my arms.
+ - If she kept wondering about how much of her life Bran engineered, she’d end up on a funny farm knitting caps for ducks.
+ - But that was the trouble with ancient artifacts – no one really knew what they did.
+ - What would a racist call werewolves? Wargs? She kind of liked that one, but suspected that racist bastards didn’t read Tolkien.
+ - A man who will risk nothing for love is not a man.
+ - Then he’d come back home and found out that war didn’t cause fear- love did.
+ - The devout belief that the world is explainable is both a terrible vulnerability and a stout shield.
+ - Charles could care less about shoes – and he suspected he wasn’t alone among men in his feelings. Shoe, no shoe, he didn’t care. Naked was good, though over the past couple of weeks he was beginning to think that dressed in his clothes was a decent second best.
+ - He bit the nape of my neck and I moaned.
+ - I was too busy fighting the river to worry about adjusting my beliefs in accordance to reality.
+ - Knowing someone desires you is the greatest aphrodisiac.
+ - A man’s immortality can be found in his children.
+ - Humans, werewolves, or, apparently, vampire, it doesn’t matter; get more than three of them together and the jockeying for power begins.
+ - The warmth of his body shouldn’t have felt good. He was angry and every muscle was tense. It was like being leaned on by a very heavy, warm brick. A sexy brick.
+ - I don’t like it when I outweigh my men.
+ - I didn’t like anyone except me having their hands all over him. There had been possession in Wolf’s touch, and Adam belonged to me.
+ - For the traditional fantasies, a lot more of my research comes from reading rather than doing. I like my worlds to feel real, so I do a lot of world building research.
+ - There is something incredibly arousing about being wanted. I pulled my hand back and sucked in a deep breath. “Adam,” I said.
+ - Any idiot can put up a website.
+ - Evil must always be fought.
+ - Bran was stripping her futon down to the bare mattress when she entered her apartment. It was sort of like watching the president mowing the White House lawn or taking out the trash.
+ - Over the years, she’d learned not to question him to closely – mostly because he wouldn’t answer her.
+ - Paranoia: the gift of the survivor and the burden of the overtired, stressed, and terrified...
+ - Some people will tell you werewolves can only shapechange under a full moon, but people also say there’s no such things as ghosts.
+ - She wondered that hope was so much harder then despair.
+ - Leslie had learned two valuable things about the fae that day. They were powerful and charming – and they ate children and puppies.
+ - Vampire politics make the very complicated dance of manners that is werewolf protocol look like the Hokey Pokey.
+ - It was complicated. I understood it, mostly, but I had to think a little sideways to do it.
+ - Fear makes idiots out of us all, at some time or other.
+ - Usually the people I do know are sufficient to spawn any number of nightmares without inventing any.
+ - The conflict between the creatures of Native Lore and the immigration of the European preternatural hosts is hinted at in ‘Blood Bound’ and reflects the conflicts between the human immigrants and the Indian people who were already here.
+ - And thus Charles found himself wandering around a hotel, trailing federal agents as he held a cardboard coffee cup holder in each hand, instead of out killing misbehaving werewolves.
+ - He stopped what he was doing and pulled out his magic phone. Okay, the phone wasn’t magic, but it does things my computer struggles with.
+ - The trick to going wherever you want unchallenged in a hospital is to walk briskly, nod to the people you know, and ignore the ones you don’t. The nod reassures everyone that you are known, the brisk pace that you have a mission and don’t want to talk.
+ - Never accept the blame for what evil people do. We are all responsible for our own actions.
+ - People who know other people’s secrets can’t afford to do things that impair their ability to control their mouths.
+ - I like to have a hero a little underpowered. I mean, Spiderman is far cooler than Superman. How do you challenge Superman?
+ - No-pocket jeans are only slightly less irritating than thong underwear.
+ - If creation was given no limit, ultimately everything would cease to exist.
+ - Don’t try threatening an Alpha. They don’t like it.
+ - A man learns with age, if he is lucky.
+ - I used my history degree about twice a year whether I needed to or not.
+ - I can’t protect you from knowledge.
+ - He didn’t say anything more, just waited for me to tell him what I’d been thinking. It was pure speculation, and I was opening myself up to ridicule by saying anything at all. I sat on the stool and realized that I had my loyalties, too.
+ - New rules. If you are smart enough to live, you won’t hit Charles’s mate in front of his father.
+ - I suppose we must work on being gracious and grateful until we can do for ourselves. Someday the wheel of fate will put us in a position to be of use to them, and we will remember how much easier it is to give help than it is to accept it.
+ - This was not a man who wanted to give up his mate. This was a man trying to do the honorable thing – and give her a choice, no matter hiw much it cost him.
+ - Tim was dead. And he’s always been a loser. I’d be damned if I was going to be the victim of a loser – or anyone else.
+ - Just as I’ve always known there are monsters in the world, monsters and things even more evil, I’ve always known that it is God who keeps evil at bay.
+ - The main thing to remember is that making love is at onces the silliest and the most sacred act humans can perform.
+ - Americans in particular are oddly innocent in their faith that science holds explanations for everything.
+ - She crawled on top of him, naked and warm and soft, smelling like a miracle that had saved him from a lifetime of aloneness.
+ - If she know how strongly he felt, she’d have run out the door. He wasn’t used to the possessive, or the savage joy she brought to his heart. It ate at his control, so he turned his attention to the music. He understood music.
+ - A stupid ruler is much more of a problem than an insane one.
+ - It is one of those lessons that every child should learn: Don’t play with fire, sharp objects, or ancient artifacts.
+ - Why is it that all cars are women? Because they’re fussy and demanding.
+ - Trouble seems to follow me around, waiting to club me with a tire iron.
+ - If there was such evil in the world, was it possible that there was good, too?
+ - This world has need of song and sword.
+ - Time was such an odd thing. One moment you could talk to someone, then suddenly, they were gone.
+ - She open her eyes and met his. The impact was so strong he was amazed that his figures continued playing with out pause.
+ - Bran was the only person I knew who could use words like “blackguard” and make them sound like swear words-but then he could have said “bunny rabbit” in that tone of voice and weaken my spine with the same shiver of fear.
+ - Being a martyr is highly overrated.
+ - Some people are boys longer than others.
+ - It Wasn’t Hard To Follow The Scent Of Blood To The Living Room Where The Fae Had Been Killed. It Had Been A Violent Death, Perfect For Creating Ghosts.
+ - When I put magic into a book – whether it’s a wizard or a crusty old werewolf – I’m asking a reader to swallow a huge leap that is counter to everything he or she knows. An extra big helping of reality makes that leap go down a lot easier.
+ - The cool thing about writing is that there is really never a typical day. Sometimes I get a rhythm going and head off to work every morning and come home at night. Sometimes I’ll write for two days straight and then be utterly blank for the next two.
+ - Mercy: “Can’t sleep with a dead man in my closet.” Ben: “You killed someone?” Ben asked with interest.
+ - It is not wise to give something old and powerful something they care about. And I am very old.
+ - People as old and powerful as he should never be given someone to love. For Anna he would destroy the world.
+ - Now, I’m not very vain. If I’d ever been, making my living covered in various grease and dirt mixtures would have cured me quickly. Still, I wasn’t up to facing two sexy men when I had one eye swollen mostly shut and half of my face black and blue.
+ - When I write, I get glimpses into future novels.
+ - Sometimes I think I live more closely to the past than the present.
+ - Some truths are truths, no matter who says them.
+ - Bran was always a deceptive bastard, gentle and mild right up until he ripped your throat out. He had many other fine qualities as well.
+ - There was I thinking being a shifter had its upsides. Looks like I was wrong.
+ - He was like Superman, but with fangs and oddly impaired morals.
+ - Knowledge is a better weapon than a sword.
+ - There isn’t a person in this city more dangerous than a wolf whose mate is in danger.
+ - People will do amazing things to ensure their survival.
+ - Someday, I’m going to meet some supernatural creature who tells me everything I should know up front and in a forthright manner – but I’m not going to hold my breath.
+ - Don’t fuss. I love you just as you are, Mercy. I don’t need to swallow you whole, I don’t need to be in your head at all times. I just need to know that you’re there.
+ - Charles was most comfortable by himself or, if that wasn’t possible, with his pack in the wild. Talking for hours in a crowded auditorium was not on any list of things he enjoyed – or things he was good at. At least no one had died. Yet.
+ - I was in the middle of a dream about garbage cans and frogs – don’t ask, and I won’t tell.
+ - Much awkwardness ensued.
+ - He was obviously dead. But since he was a vampire that wasn’t as hopless a thing as it might have been.
+ - It was unsettling to be in love with someone who looked like the face in her nightmares.
+ - I was talking cannibalism, not romance.
+ - You cannot sacrifice the world for your children.
+ - Truth is without flourishes or manners and runs with a logic all its own.
+ - She’d never have allowed herself to be held by anything as mundane as a few bars and a reinforced door.
+ - Don’t lick the guests, darling. Bad manners.
+ - When a man is on the verge of passing out from pain, it seemed wrong to notice how beautiful he was.
+ - Mmm, he rumbled into my ear. I thought that being married meant that I never go to bed hungry.
+ - Such a small thing to cause so much trouble.
+ - I hope this means you’ll quit asking me to kill you. It gives me indigestion.
+ - It is the way of mortals. They fling themselves at life and emerge broken.
+ - You don’t have the courage of a half-bred mongrel.
+ - You’d tell the world what your best friend wore to sleep if you thought it made a good enough story.
+ - Charles preferred his deer to taste like meat and his pancakes to look like pancakes. Brother Wolf thought he was too picky. Brother Wolf was probably right.
+ - Taking out werewolves, I gather and surmise, is akin to taking out a SEAL team.
+ - My mother was a children’s librarian. I remember when traditional stories were revised for modern audiences until they bore only a nodding acquaintance with the originals, but were released as ‘authentic Indian stories’ when they were, in fact, nothing of the kind.
+ - Mine. He was mine, and not even death would take him from me – not if I could help it.
+ - He can stop me in my tracks, but he can’t make me do someting I don’t want to.
+ - Adam didn’t approve of Wal-Mart.
+ - The Elders were closer to the Maker of All Things and should be deferred to whenever they made their will known.
+ - Even after all this time, I keep forgetting that heroes can be found in unlikely places and persons – like mechanics who can turn into coyotes.
+ - There is no cash in battling evil: just the opposite in my experience.
+ - Baking is like washing – the results are equally temporary.
+ - Wizards don’t all look alike.
+ - A king who trusts no man is weak.
+ - I was going to have to come up with a rank for myself besides Alpha’s mate. In the pack, I was just Mercy- but if ten more people called me the Alpha’s mate, I was going to hit someone. It sounded like a chess move.
+ - Most of the pack would rather have Darryl mad at them than Auriele.
+ - Death is not such a bad thing. What would be a bad thing would be living without challenges. Without knowing defeat, we cannot know what victory is. There is no life without death.
+ - Not that I’d really been planning on keeping the attack secret; it had just been an option I’d wanted to keep open if I could.
+ - Survivors can’t always choose their methods.
+ - To make great art, you had to expose your soul, and some things should be left safely in the dark.
+
+170 quotes

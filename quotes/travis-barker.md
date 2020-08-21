@@ -1,0 +1,27 @@
+ - I tattooed my body so I couldn’t fall back on anything. I purposely did that so I couldn’t get a normal job and live a normal life. I did it so I had to play music.
+ - I listen to everything from jazz to reggae to heavy metal and I kind of combine everything to make something different.
+ - Put me up in front of a million people and ask me to speak. I’ll flop. But put me behind my drums and I’ll always go with it.
+ - I practice every day, I warm up before I play.
+ - I’ve always loved playing in bands where there’s like three or four people and we’re all throwing out ideas and coming together to make an album.
+ - I love tour, but I don’t like traveling at night or driving long hours. But I love touring. If my kids could be out there full time, I’d probably never go home.
+ - I play Orange County drums. I love those guys. I’ve got a four piece kit.
+ - I want to beat the world record for the number of beats per second on a drum pad.
+ - Take care of your colon and your colon will take care of you.
+ - I’m obsessed with my children.
+ - On tour, you never have a home, you don’t get used to anything, and you’re always super busy.
+ - I can play punk rock, and I love playing punk rock, but I was into every other style of music before I played punk rock.
+ - My chops are still up, even though I’m not still in high school.
+ - And I played in jazz band as well during all three years in school.
+ - There’s a lot more responsibility at home, so a tour is like the opposite for me. It’s like a breath of fresh air.
+ - Oh, I was super serious about practicing and rudiments, and still am. I still have all my books.
+ - When I look at music, everything is blurred, and I like it that way. I grew up like that, hanging out with different types of people who listened to so many different types of music. I never wanted to be part of any one clique. I loved it all.
+ - I used to have friends come on tour and work as my drum tech, but they get bummed out when I have to tell them what to do. This time I’m just going to fly them out and let them hang. It’s all good.
+ - And I was in another band called Flash In The Pan, which was soca, Latin music, down in Laguna Beach.
+ - It seems like I have more in common – or hit it off better – with rappers than fools that are in rock music. It was always natural for me.
+ - I learned the songs and played the gigs, and then they called me about a month later. They told me they were like super stoked on me and asked me to join their band.
+ - Express yourself, put stuff down on tape, and see what lives.
+ - I’ve always liked Dennis Chambers, he’s real flashy.
+ - I was a kid, and I wasn’t even sure if I wanted to play the drums, you know? All I wanted to do was skateboard, but I was still learning and taking it in, so it was good.
+ - I want a certain thing for my children. I just want to be in their life. I don’t want nannies raising my kids.
+
+25 quotes

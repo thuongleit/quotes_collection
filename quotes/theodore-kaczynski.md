@@ -1,0 +1,28 @@
+ - The Industrial Revolution and its consequences have been a disaster for the human race.
+ - The concept of “mental health” in our society is defined largely by the extent to which an individual behaves in accord with the needs of the system and does so without showing signs of stress.
+ - The leftist is antagonistic to the concept of competition because, deep inside, he feels like a loser.
+ - Never lose hope, be persistent and stubborn and never give up. There are many instances in history where apparent losers suddenly turn out to be winners unexpectedly, so you should never conclude all hope is lost.
+ - It is not possible to make a LASTING compromise between technology and freedom, because technology is by far the more powerful social force and continually encroaches on freedom through REPEATED compromises.
+ - It is important not to confuse freedom with mere permissiveness.
+ - I believe in nothing.
+ - Those who are most sensitive about “politically incorrect” terminology are not the average black ghetto-dweller, Asian immigrant, abused woman or disabled person, but a minority of activists, many of whom do not even belong to any “oppressed” group but come from privileged strata of society.
+ - Some people have low susceptibility to advertising and marketing techniques. These are the people who aren’t interested in money. Material acquisition does not serve their need for the power process.
+ - But what first motivated me wasn’t anything I read. I just got mad seeing the machines ripping up the woods and so forth...
+ - We are not supposed to hate anyone, yet almost everyone hates somebody at some time or other, whether he admits it to himself or not.
+ - The big problem is that people don’t believe a revolution is possible, and it is not possible precisely because they do not believe it is possible.
+ - We can do anything we like as long as it is UNIMPORTANT.
+ - A theme that appears repeatedly in the writings of the social critics of the second half of the 20th century is the sense of purposelessness that afflicts many people in modern society.
+ - Consistent failure to attain goals throughout life results in defeatism, low self-esteem or depression.
+ - My occupation is an open question. I was once an assistant professor of mathematics. Since then, I have spent time living in the woods of Montana.
+ - Crowding, rapid change and the breakdown of communities have been widely recognized as sources of social problems. But we do not believe they are enough to account for the extent of the problems that are seen today.
+ - In any case it is not normal to put into the satisfaction of mere curiosity the amount of time and effort that scientists put into their work.
+ - I would just turn my back and wouldn’t talk to him.
+ - My occupation now, I suppose, is jail inmate.
+ - If the system breaks down the consequences will still be very painful. But the bigger the system grows the more disastrous the results of its breakdown will be, so if it is to break down it had best break down sooner rather than later.
+ - Manifesto. Read my Manifesto. I’ve written a Manifesto. It’s all in the Manfesto!
+ - People do not consciously and rationally choose the form of their society. Societies develop through processes of social evolution that are not under rational human control.
+ - In modern industrial society only minimal effort is necessary to satisfy one’s physical needs.
+ - I Don’t Want To Live Long. I Would Rather Get The Death Penalty Than Spend The Rest Of My Life In Prison.
+ - There is nothing wrong with violence in itself. In any particular case, whether violence is good or bad depends on how it is used and the purpose for which it is used.
+
+26 quotes

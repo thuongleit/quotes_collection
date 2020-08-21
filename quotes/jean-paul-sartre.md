@@ -1,0 +1,311 @@
+ - We are our choices.
+ - Every word has consequences. Every silence, too.
+ - Commitment is an act, not a word.
+ - Freedom is what you do with what’s been done to you.
+ - Man is condemned to be free.
+ - We make our own hell out of the people around us.
+ - Man is condemned to be free; because once thrown into the world, he is responsible for everything he does.
+ - It is up to you to give life a meaning.
+ - Man is nothing else but what he purposes, he exists only in so far as he realizes himself, he is therefore nothing else but the sum of his actions, nothing else but what his life is.
+ - Words are loaded pistols.
+ - Man is nothing else but what he makes of himself.
+ - There may be more beautiful times, but this one is ours.
+ - Once we know and are aware, we are responsible for our action and our inaction. We can do something about it or ignore it. Either way, we are still responsible.
+ - I hate victims who respect their executioners.
+ - To know what life is worth you have to risk it once in a while.
+ - If you are lonely when you’re alone, you are in bad company.
+ - What do we mean by saying that existence precedes essence? We mean that man first of all exists, encounters himself, surges up in the world-and defines himself afterward.
+ - All that I know about my life, it seems, I have learned in books.
+ - Better to die on one’s feet than to live on one’s knees.
+ - Only the guy who isn’t rowing has time to rock the boat.
+ - Life is a useless passion.
+ - Every existing thing is born without reason, prolongs itself out of weakness, and dies by chance.
+ - Life begins on the other side of despair.
+ - Death is a continuation of my life without me...
+ - We do not judge the people we love.
+ - Man’s existence precedes his essence.
+ - It is only in our decisions that we are important.
+ - We must act out passion before we can feel it.
+ - Consciousness is a being the nature of which is to be conscious of the nothingness of its being.
+ - I can always choose, but I ought to know that if I do not choose, I am still choosing.
+ - Man is fully responsible for his nature and his choices.
+ - When the rich wage war, it’s the poor who die.
+ - Life has no meaning the moment you lose the illusion of being eternal.
+ - I am myself and I am here.
+ - I think of death only with tranquility, as an end. I refuse to let death hamper life. Death must enter life only to define it.
+ - Like all dreamers, I mistook disenchantment for truth.
+ - Is there really nothing, nothing left of me?
+ - Introspection is always retrospection.
+ - There is only one day left, always starting over: it is given to us at dawn and taken away from us at dusk.
+ - To think new thoughts you have to break the bones in your head.
+ - All I can do is make the best of what I am, become accustomed to it, evaluate the possibilities, and take advantage of them the best I can.
+ - I found the human heart empty and insipid everywhere except in books.
+ - Hell is other people at breakfast.
+ - Man is what he wills himself to be.
+ - I wanted pure love: foolishness; to love one another is to hate a common enemy: I will thus espouse your hatred. I wanted Good: nonsense; on this earth and in these times, Good and Bad are inseparable: I accept to be evil in order to become good.
+ - A lost battle is a battle one thinks one has lost.
+ - Life is nothing until it is lived; but it is yours to make sense of, and the of it is nothing other than the sense you choose.
+ - The coward makes himself cowardly, the hero makes himself heroic.
+ - Several hours or several years make no difference once you have lost eternity.
+ - What is life but an unpleasant interruption to a peaceful nonexistence.
+ - Once you hear the details of victory, it is hard to distinguish it from a defeat.
+ - Man must be invented each day.
+ - In a word, man must create his own essence: it is in throwing himself into the world, suffering there, struggling there, that he gradually defines himself.
+ - When she is alone in the rooms I hear her humming to keep herself from thinking.
+ - It is certain that we cannot escape anguish, for we are anguish.
+ - In football everything is complicated by the presence of the opposite team.
+ - One cannot become a saint when one works sixteen hours a day.
+ - Smooth and smiling faces everywhere, but ruin in their eyes.
+ - Genius is what a man invents when he is looking for a way out.
+ - I have nothing but contempt for you idiotic chosen ones who have the heart to rejoice when there are the damned in Hell and the poor on earth; as for me, I am on the side of men and I will not leave it.
+ - I confused things with their names: that is belief.
+ - Everything comes to us from others. To Be is to belong to someone.
+ - Nothingness lies coiled in the heart of being – like a worm.
+ - The individual’s duty is to do what he wants to do, to think whatever he likes, to be accountable to no one but himself, to challenge every idea and every person.
+ - There is no love apart from the deeds of love; no potentiality of love other than that which is manifested in loving.
+ - This then is the age of reason.
+ - God is absence. God is the solitude of man.
+ - In order to make myself recognized by the Other, I must risk my own life. To risk one’s life, in fact, is to reveal oneself as not-bound to the objective form or to any determined existence – as not-bound to life.
+ - We are possessed by the things we possess. When I like an object, I always give it to someone. It isn’t generosity-it’s only because I want others to be enslaved by objects, not me.
+ - If you are not already dead, forgive. Rancor is heavy, it is worldly; leave it on earth: die light.
+ - I exist, that is all, and I find it nauseating.
+ - I do not feel that I am the product of chance, a speck of dust in the universe, but someone who was expected, prepared, prefigured. In short, a being whom only a Creator could put here; and this idea of a creating hand refers to God.
+ - I felt myself in a solitude so frightful that I contemplated suicide. What held me back was the idea that no one, absolutely no one, would be moved by my death, that I would be even more alone in death than in life.
+ - The existentialist says at once that man is anguish.
+ - Three o’clock is always too late or too early for anything you want to do.
+ - It is not the same thing if I sign Jean-Paul Sartre or if I sign Jean-Paul Sartre, Nobel Prize winner. A writer must refuse to allow himself to be transformed into an institution, even if it takes place in the most honorable form.
+ - I am alone in this white, garden-rimmed street. Alone and free. But this freedom is rather like death.
+ - To choose not to choose is still to act.
+ - A man is always a teller of tales, he lives surrounded by his stories and the stories of others, he sees everything that happens to him through them; and he tries to live his life as if he were recounting it.
+ - Some of these days, Oh, you’ll miss me honey.
+ - If you seek authenticity for authenticity’s sake you are no longer authentic.
+ - I had found my religion: nothing seemed more important to me than a book. I saw the library as a temple.
+ - Acting is happy agony.
+ - Fear? If I have gained anything by damning myself, it is that I no longer have anything to fear.
+ - Intellectuals cannot be good revolutionaries; they are just good enough to be assassins.
+ - For an occurrence to become an adventure, it is necessary and sufficient for one to recount it.
+ - I am a man, Jupiter, and each man must invent his own path.
+ - Once freedom lights its beacon in man’s heart, the gods are powerless against him.
+ - One could only damage oneself through the harm one did to others. One could never get directly at oneself.
+ - The viable jewels of life remain untouched when man forgets his vocation of searching for the truth of his existence.
+ - A kiss without a moustache, they said then, is like an egg without salt; I will add to it: and it is like Good without Evil.
+ - The more absurd life is, the more insupportable death is.
+ - Atheism is a cruel long term business, and I have gone through it to the end.
+ - If you begin by saying, ‘Thou shalt not lie,’ there is no longer any possibility of political action.
+ - Evil is the product of the ability of humans to make abstract that which is concrete.
+ - How can I, who was not able to retain my own past, hope to save that of another?
+ - Perhaps its inevitable, perhaps one has to choose between being nothing at all and impersonating what one is.
+ - This is the basis for the joy of love when there is joy; we feel that our existence is justified.
+ - It’s the well-behaved children that make the most formidable revolutionaries. They don’t say a word, they don’t hide under the table, they eat only one piece of chocolate at a time. But later on, they make society pay dearly.
+ - Let it crumble! Let the rocks revile me and flowers wilt at my coming. Your whole universe is not enough to prove me wrong. You are the king of gods, king of stones and stars, king of the waves of the sea. But you are not the king of man.
+ - To read a poem in January is as lovely as to go for a walk in June.
+ - Nothingness haunts Being.
+ - We do not know what we want and yet we are responsible for what we are – that is the fact.
+ - It’s quite an undertaking to start loving somebody. You have to have energy, generosity, blindness. There is even a moment right at the start where you have to jump across an abyss: if you think about it you don’t do it.
+ - I don’t know. Everything. Living. Smoking.
+ - So that is what hell is. I would never have believed it. You remember: the fire and brimstone, the torture. Ah! the farce. There is no need for torture: Hell is other people.
+ - Existence is an imperfection.
+ - For the time being I have seen enough of living things, of dogs, of men, of all flabby masses which move spontaneously.
+ - I have no religion, but if I were to choose one, it would be that of Shariati’s.
+ - What is boredom? It is when there is simultaneously too much and not enough.
+ - No finite point has meaning without an infinite reference point.
+ - Because we can imagine, we are free.
+ - I have no need for good souls: an accomplice is what I wanted.
+ - I’m going to smile, and my smile will sink down into your pupils, and heaven knows what it will become.
+ - Better a good journalist than a poor assassin.
+ - It is therefore senseless to think of complaining since nothing foreign has decided what we feel, what we live, or what we are.
+ - You are – your life, and nothing else.
+ - The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
+ - I’d come to realize that all our troubles spring from our failure to use plain, clear-cut language.
+ - The painful secret of gods and kings is that men are free, Aegistheus. You know it and they do not.
+ - L’homme est une passion inutile. Man is a useless passion.
+ - We only become what we are by the radical and deep-seated refusal of that which others have made of us.
+ - I construct my memories with my present. I am lost, abandoned in the present. I try in vain to rejoin the past: I cannot escape.
+ - Everything has been figured out, except how to live.
+ - The status of ‘native’ is a nervous condition introduced and maintained by the settler among colonized people with their consent.
+ - You must be afraid, my son. That is how one becomes an honest citizen.
+ - Man is not the sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
+ - Imagination is not an empirical or superadded power of consciousness, it is the whole of consciousness as it realizes its freedom.
+ - With despair, true optimism begins: the optimism of the man who expects nothing, who knows he has no rights and nothing coming to him, who rejoices in counting on himself alone and in acting alone for the good of all.
+ - I do not think therefore I am a moustache.
+ - Something begins in order to end: an adventure doesn’t let itself be extended it achieves significance only through its death.
+ - The consciousness that says ‘I am’ is not the consciousness that thinks.
+ - Anything, anything would be better than this agony of mind, this creeping pain that gnaws and fumbles and caresses one and never hurts quite enough.
+ - A madman’s ravings are absurd in relation to the situation in which he finds himself, but not in relation to his madness.
+ - I am no longer sure of anything. If I satiate my desires, I sin but I deliver myself from them; if I refuse to satisfy them, they infect the whole soul.
+ - What is not possible is not to choose.
+ - Naturally, in the course of my life I have made lots of mistakes, large and small, for one reason or another, but at the heart of it all, every time I made a mistake it was because I was not radical enough.
+ - To believe is to know you believe, and to know you believe is not to believe.
+ - Violence is good for those who have nothing to lose.
+ - I exist. It is soft, so soft, so slow. And light: it seems as though it suspends in the air. It moves.
+ - Therefore, in the nature of this will for freedom, which freedom itself implies, I may pass judgement on those who seek to hide from themselves the complete arbitrariness and the complete freedom of their existence.
+ - That God does not exist, I cannot deny, That my whole being cries out for God I cannot forget.
+ - What’s done at night belongs to the night. In the daytime you don’t talk about it.
+ - Words are more treacherous and powerful than we think.
+ - Our responsibility is much greater than we might have supposed, because it involves all mankind.
+ - I have such a desire to sleep and am so much behind my sleep. A good night, one good night and all this nonsense will be swept away.
+ - So much torture, bloodshed, deceit. You cannot make your young people practice torture twenty-four hours a day and not expect to pay a price for it.
+ - I suppose it is out of laziness that the world is the same day after day. Today it seemed to want to change. And then anything, anything could happen.
+ - The best work is not what is most difficult for you; it is what you do best.
+ - It is enough that one man hate another for hate to gain, little by little, all mankind.
+ - Remember, Orestes: you were part of my herd, you grazed in the fields along with my sheep. Your liberty is nothing but a mange eating away at you, it is nothing but an exile.
+ - A writer who takes political, social or literary positions must act only with the means that are his. These means are the written words.
+ - Perception is naturally surpassed toward action; better yet, it can be revealed only in and through projects of action. The world is revealed as an “always future hollow”, for we are always future to ourselves.
+ - Fascism is not defined by the number of its victims, but by the way it kills them.
+ - Ideas come in pairs and they contradict one another; their opposition is the principal engine of reflection.
+ - I was not the one to invent lies: they were created in a society divided by class and each of us inherited lies when we were born. It is not by refusing to lie that we will abolish lies: it is by eradicating class by any means necessary.
+ - Handing over a bank note is enough to make a bicycle belong to me, but my entire life is needed to realize this possession.
+ - If you die, I will lie down beside you and I will stay there until the end, without eating or drinking, you will rot in my arms and I will love you as carcass: for you love nothing if you do not love everything.
+ - We cannot withdraw our cards from the game. Were we as silent and mute as stones, our very passivity would be an act.
+ - Little flashes of sun on the surface of a cold, dark sea.
+ - God is the solitude of men. There was only me: I alone decided to commit Evil; alone, I invented Good. I am the one who cheated, I am the one who performed miracles, I am the one accusing myself today, I alone can absolve myself; me, the man.
+ - To be responsible is to be the uncontested author of an event or thing.
+ - I will not be modest. Humble, as much as you like, but not modest. Modesty is the virtue of the lukewarm.
+ - I respect orders but I respect myself too and I do not obey foolish rules made especially to humiliate me.
+ - Sometimes the truth is too simple for intellectuals.
+ - I am going to outlive myself. Eat, sleep, sleep, eat. Exist slowly, softly, like these trees, like a puddle of water, like the red bench in the streetcar.
+ - One should commit no stupidity twice, the variety of choice is, in the end, large enough.
+ - The world would get along very well without literature. It would get along even better without man.
+ - When I can’t see myself in the mirror, I can’t even feel myself, and I begin to wonder if I exist at all.
+ - Ha! to forget. How childish! I feel you in my bones. Your silence screams in my ears. You may nail your mouth shut, you may cut out your tongue, can you keep yourself from existing? Will you stop your thoughts.
+ - When we love animals and children too much, we love them at the expense of men.
+ - Night is falling: at dusk, you must have good eyesight to be able to tell the Good Lord from the Devil.
+ - I am alone in the midst of these happy, reasonable voices. All these creatures spend their time explaining, realizing happily that they agree with each other. In Heaven’s name, why is it so important to think the same things all together.
+ - Man can will nothing unless he has first understood that he must count on no one but himself.
+ - The For-itself, in fact, is nothing but the pure nihilation of the In-itself; it is like a hole of being at the heart of Being.
+ - It is meaningless that we are born, it is meaningless that we die.
+ - You see, I’m fond of teasing, it’s a second nature with me – and I’m used to teasing myself. Plaguing myself, if you prefer; I don’t tease nicely.
+ - To choose this or that is to affirm at the same time the value of what we choose, because we can never choose evil. We always choose the good, and nothing can be good for us without being good for all.
+ - Man is the being whose project it is to be God.
+ - That’s what existence means: draining one’s own self dry without the sense of thirst.
+ - In love, one and one are one.
+ - If I became a philosopher, if I have so keenly sought this fame for which I’m still waiting, it’s all been to seduce women basically.
+ - As for me, I am mean: that means that I need the suffering of others to exist. A flame. A flame in their hearts. When I am all alone, I am extinguished.
+ - When rich people fight wars with one another, poor people are the ones to die.
+ - I maintain that inversion is the effect of neither a prenatal choice nor an endocrinal malformation nor even the passive and determined result of complexes. It is an outlet that a child discovers when he is suffocating.
+ - You must be like me; you must suffer in rhythm.
+ - It is disgusting – Why must we have bodies?
+ - What do I care about Jupiter? Justice is a human issue, and I do not need a god to teach it to me.
+ - As far as men go, it is not what they are that interests me, but what they can become.
+ - Criticism often takes from the tree caterpillars and blossoms together.
+ - At times discreetly, at times disgustingly, I yielded to the most fatal temptation whenever I could no longer bear it: as a result of impatience, Orpheus lost Eurydice; as a result of impatience, I lost myself.
+ - Men equally honest, equally devoted to their fatherland, are momentarily separated by different conceptions of their duty.
+ - There is no human nature, since there is no god to conceive it.
+ - Don’t you feel the same way? When I cannot see myself, even though I touch myself, I wonder if I really exist.
+ - Man is abandoned on earth in the midst of his infinite responsibilities, without help, with no aim but what he sets himself.
+ - Thus it amounts to the same thing whether one gets drunk alone or is a leader of nations.
+ - Time is too large, it can’t be filled up. Everything you plunge into it is stretched and disintegrates.
+ - Listen to me: a family man is never a real family man. An assassin is never entirely assassin. They play a role, you understand. While a dead man, he is really dead. To be or not to be, right?
+ - I never could bear the idea of anyone’s expecting something from me. It always made me want to do just the opposite.
+ - Poetry creates the myth, the prose writer draws its portrait.
+ - Some men are born committed to action: they do not have a choice, they have been thrown on a path, at the end of that path, an act awaits them, their act.
+ - Words There is no good father, that’s the rule. Don’t lay the blame on men but on the bond of paternity, which is rotten. To beget children, nothing better; to have them, what iniquity!
+ - It disturbs me no more to find men base, unjust, or selfish than to see apes mischievous, wolves savage, or the vulture ravenous.
+ - My thought is me: that is why I cannot stop thinking. I exist because I think I cannot keep from thinking.
+ - Be quiet! Anyone can spit in my face, and call me a criminal and a prostitute. But no one has the right to judge my remorse.
+ - The real nature of the present revealed itself: it was what exists, all that was not present did not exist.
+ - If you want to deserve Hell, you need only stay in bed. The world is iniquity; if you accept it, you are an accomplice, if you change it you are an executioner.
+ - To whomever gives a kiss or a blow Render a kiss or blow But to whomever gives when you are unable to return Offer all the hatred in your heart For you were slaves and he enslaves you.
+ - I clung to nothing, in a way I was calm. But it was a horrible calm – because of my body; my body, I saw with its eyes, I heard with its ears, but it was no longer me; it sweated and trembled by itself and I didn’t recognize it any more.
+ - Once liberty has exploded in the soul of a man, the gods can do nothing against that man.
+ - If I relegate impossible Salvation to the prop room, what remains? A whole man, composed of all men and as good as all of them and no better than any.
+ - Existence is not something which lets itself be thought of form a distance; it must invade you suddenly, master you, weigh heavily on your heart like a great motionless beast – or else there is nothing at all.
+ - Nothing happens while you live. The scenery changes, people come in and go out, that’s all. There are no beginnings. Days are tacked on to days without rhyme or reason, an interminable, monotonous addition.
+ - Acting is a question of absorbing other people’s personalities and adding some of your own experience.
+ - As if there could be true stories: things happen in one way, and we retell them in the opposite way.
+ - Two people can form a community by excluding a third.
+ - Man is always separated from what he is by all the breadth of the being which he is not. He makes himself known to himself from the other side of the world and he looks from the horizon toward himself to recover his inner being.
+ - To eat is to appropriate by destruction.
+ - The appearance of the other in the world corresponds therefore to a congealed sliding of the whole universe.
+ - The revolution you dream of is not ours. You don’t want to change the world; you want to blow it up.
+ - I’ve dropped out of their hearts like a little sparrow fallen from its nest. So gather me up, dear, fold me to your heart – and you’ll see how nice I can be.
+ - The more one is absorbed in fighting evil, the less one is tempted to place the good in question.
+ - For common minds have an ugly ability to perceive in the deepest and richest saying nothing but their own everyday opinion.
+ - It is no longer possible to escape men. Farewell to the monsters, farewell to the saints. Farewell to pride. All that is left is men.
+ - One is still what one is going to cease to be and already what one is going to become. One lives one’s death, one dies one’s life.
+ - Life gave me everything I asked If all I asked was not a great deal, that’s my problem!
+ - One of the chief motives of artistic creation is certainly the need of feeling that we are essential in relationship to the world.
+ - I distrust the incommunicable; it is the source of all violence.
+ - If literature isn’t everything, it’s not worth a single hour of someone’s trouble.
+ - People who live in society have learnt how to see themselves, in mirrors, as they appear to their friends. I have no friends: is that why my flesh is so naked?
+ - The past is the luxury of proprietors.
+ - Abjection is a methodological conversion, like Cartesian doubt and Husserlian epoche: it establishes the world as a closed system which consciousness regards from without, in the manner of divine understanding.
+ - Love or hatred calls for self-surrender. He cuts a fine figure, the warm-blooded, prosperous man, solidly entrenched in his well-being, who one fine day surrenders all to love – or to hatred; himself, his house, his land, his memories.
+ - It’s just what people do when they’re getting old, when they’re sick of themselves and their life; they think of money and take care of themselves.
+ - Politics is a science. You can demonstrate that you are right and that others are wrong.
+ - Who can exhaust a man? Who knows a man’s resources?
+ - I tell you in truth: all men are Prophets or else God does not exist.
+ - One does not adopt a new idea, one slips into it.
+ - To keep hope alive one must, in spite of all mistakes, horrors, and crimes, recognize the obvious superiority of the socialist camp.
+ - What the painter adds to the canvas are the days of his life. The adventure of living, hurtling toward death.
+ - He is always becoming, and if it were not for the contingency of death, he would never end.
+ - Lord, you have cursed Cain and Cain’s children: thy will be done. You have allowed men’s hearts to be corrupted, that their intentions be rotten, that their actions putrefy and stink: thy will be done.
+ - Respectable society believed in God in order to avoid having to speak about him.
+ - I do not understand! I understand nothing! I cannot understand nor do I want to understand! I want to believe! To Believe!
+ - It is not a matter of indifference whether we like oysters or clams, snails or shrimp, if only we know how to unravel the existential significance of these foods.
+ - I am neither virgin nor priest enough to play with the inner life.
+ - One always dies too soon or too late. And yet, life is there, finished: the line is drawn, and it must all be added up. You are nothing other than your life.
+ - Il n’y a pas d’autre univers qu’un univers humain, l’univers de la subjectivite humaine. There is no other universe except the human universe, the universe of human subjectivity.
+ - Never have I thought that I was the happy possessor of a “talent;” my sole concern has been to save myself by work and faith.
+ - Criminals together. We’re in hell, my little friend, and there’s never any mistake there. People are not damned for nothing.
+ - There it is: I am gently slipping into the water’s depths, towards fear.
+ - I wanted my own words. But the ones I use have been dragged through I don’t know how many consciences.
+ - I say a murder is abstract. You pull the trigger and after that you do not understand anything that happens.
+ - All-powerful god, who am I but the fear that I inspire in others?
+ - Generosity is nothing else than a craze to possess. All which I abandon, all which I give, I enjoy in a higher manner through the fact that I give it away. To give is to enjoy possessively the object which one gives.
+ - There are two ways of destroying a people. Either condemn them en bloc or force them to repudiate the leaders they adopted. The second is the worse.
+ - Philosophy which does not help to illuminate the process of the liberation of the oppressed should be rejected.
+ - Un homme n’est rien d’autre qu’une se rie d’entreprises. A man is no other than a series of undertakings.
+ - A writer must refuse to allow himself to be transformed into an institution.
+ - The poor don’t know that their function in life is to exercise our generosity.
+ - In any case, if you ever leave me with a handsome man, do not tell me that you trust me because, let me warn you: that is not what will prevent me from deceiving you, if I want to. On the contrary.
+ - A good hanging now and then – that entertains folk in the provinces and robs death of its glamour.
+ - I am not virtuous. Our sons will be if we shed enough blood to give them the right to be.
+ - Every human endeavor, however singular it seems, involves the whole human race.
+ - Ah! How I hate the crimes of the new generation: they are dry and sterile as darnel.
+ - Through the lack of attaching myself to words, my thoughts remain nebulous most of the time. They sketch vague, pleasant shapes and then are swallowed up; I forget them almost immediately.
+ - Being is. Being is in-itself. Being is what it is.
+ - I think that is the big danger in keeping a diary: you exaggerate everything.
+ - I do not believe in God; his existence has been disproved by Science. But in the concentration camp, I learned to believe in men.
+ - Every age has its own poetry; in every age the circumstances of history choose a nation, a race, a class to take up the torch by creating situations that can be expressed or transcended only through poetry.
+ - I was escaping from Nature and at last becoming myself, that Other whom I was aspiring to be in the eyes of others.
+ - A human being who wakened in the morning with a queesy stomach, with fifteen hours to kill before next bedtime, had not much use for freedom.
+ - Outside nature, against nature, without excuse, beyond remedy, except what remedy I find within myself.
+ - The plight of modern man is that he is condemmed to be free.
+ - For the artist, the color, the bouquet, the tinkling of the spoon on the saucer, are things in the highest degree. He stops at the quality of the sound or the form. He returns to it constantly and is enchanted with it.
+ - So long as one believes in God, one has the right to do the Good in order to be moral.
+ - Neither sex, without some fertilization of the complimentary characters of the other, is capable of the highest reaches of human endeavor.
+ - I committed the first crime by creating men as mortals. After that, what more could you do, you the murderers? Come on; they already had death in them: at most you simply hastened things a little.
+ - It is better; heavier, crueler. The mouth you wear for hell.
+ - Good digestions, the gray monotony of provincial life, and the boredom-ah the soul-destroying boredom-of long days of mild content.
+ - I wanted the moments of my life to follow and order themselves like those of a life remembered. You might as well try and catch time by the tail.
+ - What never vary are the necessities of being in the world, of having to labor and to die there.
+ - Either the USSR was not the country of socialism, in which case socialism didn’t exist anywhere and doubtless, wasn’t possible: or else, socialism was that, this abominable monster, this police state, the power of beasts of prey.
+ - I am not asking for sensational revelations, but I would like to sense the meaning of that minute, to feel it’s urgency...
+ - A man who is free is like a mangy sheep in a herd. He will contaminate my entire kingdom and ruin my work.
+ - A man is involved in life, leaves his impress on it, and outside of that there is nothing.
+ - Man exists, turns up, appears on the scene and only afterwards, defines himself.
+ - The writer is committed when he plunges to the very depths of himself with the intent to disclose, not his individuality, but his person in the complex society that conditions and supports him.
+ - If a Jew is fascinated by Christians it is not because of their virtues, which he values little, but because they represent anonymity, humanity without race.
+ - An individual chooses and makes himself.
+ - Why do you keep maintaining your ideas are right if you can’t prove them?
+ - I can receive nothing more from these tragic solitudes than a little empty purity.
+ - Photographs are not ideas. They give us ideas.
+ - When one does nothing, one believes oneself responsible for everything.
+ - Man is always a wizard to man, and the social world is at first magical.
+ - Better to have beasts that let themselves be killed than men who run away.
+ - It is too early to love. We will buy the right to do so by shedding blood.
+ - I know only one Church: it is the society of men.
+ - My eyes feel all soft, all soft as flesh. I’m going to sleep.
+ - It is the same: a chosen one is a man whom God’s finger crushes against the wall.
+ - Ah! yes, I know: those who see me rarely trust my word: I must look too intelligent to keep it.
+ - Yes, I am so free. And what a superb absence is my soul.
+ - But I must finally realize that I am subject to these sudden transformations. The thing is that I rarely think; a crowd of small metamorphoses accumulate in me without my noticing it, and then, one fine day, a veritable revolution takes place.
+ - It is always more valuable to report the truth.
+ - Everything in my past, in my training, everything that has been most essential in my activity up to now has made me above all a man who writes, and it is too late for that to change.
+ - Ah! Do not judge the gods, young man, they have painful secrets.
+ - We do not wish to say only that a man is responsible for his own individuality, but that he is responsible for that of all men.
+ - I enjoy feeling fastidious and aloof. I enjoy saying no, always no, and I should be afraid of any attempt to construct a finally habitable world, because I should merely have to say – Yes; and act like other people.
+ - There are two types of poor people, those who are poor together and those who are poor alone. The first are the true poor, the others are rich people out of luck.
+
+309 quotes

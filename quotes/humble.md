@@ -1,0 +1,42 @@
+ - There is no substitute for hardwork. Always be humble and hungry. ~~Dwayne Johnson
+ - Be strong, but not rude; Be kind, but not weak; Be bold, but not bully; Be humble, but not timid; Be proud, but not arrogant. ~~Zig Ziglar
+ - Keep trying. Stay humble, Trust your instincts. Most importantly, act. When you come to a fork in the road, take it. ~~Yogi Berra
+ - Always asked, ‘Whats the key to success?’ The key is, there is no key. Be humble, hungry and always be the hardest worker in the room. ~~Dwayne Johnson
+ - Success comes to those who dedicate everything to their passion in life. To be successful, it is also very important to be humble and never let fame or money travel to your head. ~~A. R. Rahman
+ - Be humble, or you’ll stumble. ~~D.L. Moody
+ - A humble man is not afraid of failure. In fact, he is not afraid of anything, even himself, since perfect humility implies perfect confidence in the power of God. ~~Thomas Merton
+ - Stay hungry, stay young, stay foolish, stay curious, and above all, stay humble because just when you think you got all the answers, is the moment when some bitter twist of fate in the universe will remind you that you very much don’t. ~~Tom Hiddleston
+ - We come nearest to the great when we are great in humility. ~~Rabindranath Tagore
+ - To learn one must be humble. But life is the great teacher. ~~James Joyce
+ - Stay humble, stay grounded, remember what got you to that level-and that’s hard work. ~~Tim Howard
+ - Be humble because until the sun with all its grandeur, let the moon shine. ~~Bob Marley
+ - Be humble, be grateful, give back, share, pay it forward, chase your dreams, go for it, and take a moment to remember where it is ALL from. ~~Justin Bieber
+ - At home I am a nice guy: but I don’t want the world to know. Humble people, I’ve found, don’t get very far. ~~Muhammad Ali
+ - Humble living does not diminish. It fills. Going back to a simpler self gives wisdom. ~~Rumi
+ - If you’re not humble, life will visit humbleness upon you. ~~Mike Tyson
+ - Humility is dependence on God as pride is independence of Him. The humble soul is always the thankful soul. ~~Fulton J. Sheen
+ - If one assumes a humble attitude, one’s own good qualities will increase. Whereas if one is proud, one will become jealous of others, one will look down on others, and due to that there will be unhappiness in society. ~~Dalai Lama XIV
+ - Find a victory in every defeat to remain hopeful and find a defeat in every victory to remain humble. ~~Orrin Woodward
+ - We need women who are so strong they can be gentle, so educated they can be humble, so fierce they can be compassionate, so passionate they can be rational, and so disciplined they can be free. ~~Kavita Ramdas
+ - Always enter like a kitten and leave like a lion. But NEVER enter like a lion and leave like a kitten. Always be humble. ~~Carlson Gracie
+ - Being humble is cooler than being famous. ~~Robin S. Sharma
+ - Be grateful, be smart, be clean, be true, be humble, be prayerful. ~~Gordon B. Hinckley
+ - He who truly knows has no occasion to shout. ~~Leonardo da Vinci
+ - Live without pretending, love without depending, listen without defending, speak without offending. ~~Drake
+ - My life belongs the Lord Krishna now. I’m just the servant of Krishna. I’ve never been so humble in all my life, and I feel great! ~~George Harrison
+ - Man in his arrogance thinks himself a great work, worthy the interposition of a great deity. More humble and I believe true to consider him created from animals. ~~Charles Darwin
+ - The success of every woman should be the inspiration to another. We should raise each other up. Make sure you’re very courageous: be strong, be extremely kind, and above all be humble. ~~Serena Williams
+ - Whoever loves becomes humble. Those who love have, so to speak, pawned a part of their narcissism. ~~Sigmund Freud
+ - Being humble matters. ~~Kevin Hart
+ - Worship is humble and glad, worship forgets itself in remembering God; worship celebrates the truth as God’s truth, not its own. ~~N. T. Wright
+ - This genuine heart of sadness can teach us great compassion. It can humble us when we’re arrogant and soften us when we are unkind. ~~Pema Chödrön
+ - Humble people ask for help. ~~Joyce Meyer
+ - I humble myself before God, and there the list ends. ~~Sam Houston
+ - The Old Testament teaches us that if we humble ourselves and pray, God will hear from heaven and heal our land. And the New Testament assures us that the fervent prayers of righteous men can make a difference. ~~David Jeremiah
+ - We have to humble ourselves and the way you do that is by serving other people. ~~Tim Tebow
+ - Jealousy is just love and hate at the same time. ~~Drake
+ - I live for the nights that I can’t remember, with the people that I won’t forget. ~~Drake
+ - Be humble, believe in yourself, and have the love of the world in your heart. ~~Michael Jackson
+ - Negroes – Sweet and docile, Meek, humble, and kind: Beware the day – They change their mind. ~~Langston Hughes
+
+40 quotes

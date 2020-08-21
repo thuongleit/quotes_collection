@@ -1,0 +1,42 @@
+ - I never said it would be easy, I only said it would be worth it. ~~Mae West
+ - The man who goes alone can start today; but he who travels with another must wait till that other is ready. ~~Henry David Thoreau
+ - Do your thing and don’t care if they like it. ~~Tina Fey
+ - Confidence is what you have before you understand the problem. ~~Woody Allen
+ - I’m not anti-social. I’m just not social. ~~Woody Allen
+ - If a man does his best, what else is there? ~~George S. Patton Jr.
+ - When we talk to God, we’re praying. When God talks to us, we’re schizophrenic. ~~Jane Wagner
+ - The trouble with being in the rat race is that even if you win, you’re still a rat. ~~Lily Tomlin
+ - Common sense is not so common. ~~Voltaire
+ - The greatest risk is to risk nothing at all. ~~Leo Buscaglia
+ - Flying is learning how to throw yourself at the ground and miss. ~~Douglas Adams
+ - A bank is a place that will lend you money if you can prove that you don’t need it. ~~Bob Hope
+ - In most cases being a good boss means hiring talented people and then getting out of their way. ~~Tina Fey
+ - Advice is what we ask for when we already know the answer but wish we didn’t. ~~Erica Jong
+ - Forgive your enemies, but never forget their names. ~~John F. Kennedy
+ - If God exists, I hope he has a good excuse. ~~Woody Allen
+ - It is far better to grasp the universe as it really is than to persist in delusion, however satisfying and reassuring. ~~Carl Sagan
+ - Men, their rights, and nothing more; women, their rights, and nothing less. ~~Susan B. Anthony
+ - It is better to be feared than loved, if you cannot be both. ~~Niccolò Machiavelli
+ - I’ll sleep when I’m dead. ~~Warren Zevon
+ - Give me a museum and I’ll fill it. ~~Pablo Picasso
+ - We are all interested in the future, for that is where you and I are going to spend the rest of our lives. ~~Woody Allen
+ - Denial ain’t just a river in Egypt. ~~Mark Twain
+ - If truth is beauty, how come no one has their hair done in the library? ~~Lily Tomlin
+ - All truth passes through three stages. First, it is ridiculed. Second, it is violently opposed. Third, it is accepted as being self-evident. ~~Arthur Schopenhauer
+ - Fill the unforgiving minute with sixty seconds worth of distance run. ~~Rudyard Kipling
+ - I’m single because I was born that way. ~~Mae West
+ - Make everything as simple as possible, but not simpler. ~~Albert Einstein
+ - Suppose you were an idiot, and suppose you were a member of Congress; but I repeat myself. ~~Mark Twain
+ - Try to learn something about everything and everything about something. ~~Thomas Henry Huxley
+ - Every saint has a past, and every sinner has a future. ~~Oscar Wilde
+ - Never mistake motion for action. ~~Ernest Hemingway
+ - Behind every successful man is a woman, behind her is his wife. ~~Groucho Marx
+ - Moral indignation is jealousy with a halo. ~~H. G. Wells
+ - Hail, hail Freedonia, land of the free! ~~Groucho Marx
+ - You have to count on living every single day in a way you believe will make you feel good about your life – so that if it were over tomorrow, you’d be content with yourself. ~~Jane Seymour
+ - Marriage is an alliance entered into by a man who can’t sleep with the window shut, and a woman who can’t sleep with the window open. ~~George Bernard Shaw
+ - That’s why they call it the American Dream, because you have to be asleep to believe it. ~~George Carlin
+ - The only thing necessary for the triumph of evil is for good men to do nothing. ~~Edmund Burke
+ - Reality is merely an illusion, albeit a very persistent one. ~~Albert Einstein
+
+40 quotes

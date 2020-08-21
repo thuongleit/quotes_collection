@@ -1,0 +1,28 @@
+ - The cars we drive say a lot about us.
+ - The human overpopulation issue is the topic I see as the most vital to solve if our children and grandchildren are to have a good quality of life.
+ - I’m very much a lead by example person.
+ - Power, as in the power structure, is why we are still using gas in cars.
+ - Electric cars aren’t pollution-free; they have to get their energy from somewhere.
+ - My respect and empathy towards animals includes sea dwellers too – from dolphins to fish to lobsters. So, of course, I wouldn’t dream of eating them.
+ - If the whole world went vegan, there would be less war. How you eat determines your mood and your outlook on life.
+ - For me, going vegan was an ethical and environmental decision. I’m doing the right thing by the animals.
+ - I’m trying to practice owning less stuff.
+ - I don’t wear leather, wool, or silk.
+ - I know I’m an actor, but I’m not at all a believer in people watching a lot of TV. I’ve never had television in my home.
+ - I don’t always buy organic food. It is more expensive.
+ - Women have this obsession with shoes.
+ - I really believe in non-violence, but I also believe in a short of resistance that has to be respectful.
+ - We say the United States is a rich country, but how can we be rich when millions of poor American children go to bed hungry?
+ - The only way people are going to change their car buying habits, and the only way government will get behind alternatively fueled vehicles, is if gasoline prices continue to go up.
+ - I’ve always preferred food be on the blander side.
+ - I had never been able to get a car that said how much I cared about the environment until I drove electric.
+ - I’m not particularly impressed with going 50 miles per gallon. That doesn’t impress me when we can go to the moon.
+ - I loved doing Baywatch. It was so much fun!
+ - I don’t think I miss anything by not watching television.
+ - Unless everyone grasps the importance of having only two children per couple, wars won’t be over just oil anymore, they will be over water and food.
+ - There is a reason it is called fossil fuel-it is an outdated method of getting power.
+ - When the Exxon Valdez spilled in 1989, I was angry. I even wrote on the back of my car, Boycott Exxon!
+ - I really haven’t been cognitive of gas prices. It wasn’t until I filled up my husband’s Toyota Prius Hybrid that I had a moment of understanding of how people who drive gas cars feel.
+ - The big companies and their short-term bottom line rule this country.
+
+26 quotes

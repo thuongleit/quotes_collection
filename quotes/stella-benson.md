@@ -1,0 +1,25 @@
+ - Music is the ethereal connection between this world and the other.
+ - Imagination seems to be a glory and a misery, a blessing and a curse. Adam, to his sorrow, lacked it. Eve, to her sorrow, possessed it. Had both been blessed – or cursed – with it, there would have been much keener competition for the apple.
+ - Sometimes I think there are two kinds of people – the autobiographists and the biographists.
+ - Sometimes I pose, but sometimes I pose as posing.
+ - Call no man a foe, but never love a stranger.
+ - We travel because we do not know. We know that we do not know the best before we start. That is why we start. But we forget that we do not know the worst either. That is why we come back.
+ - Family jokes, though rightly cursed by strangers, are the bond that keeps most families alive.
+ - Twenty-three is said to be the prime of life by those who have reached so far and no farther. It shares this distinction with every age, from ten to three-score and ten.
+ - There are, broadly speaking, two kinds of workers in the world, the people who do all the work, and the people who think they do all the work. The latter class is generally the busiest, the former never have time to be busy.
+ - The sun was like a word written between the sea and the sky, a word that was swallowed up by the sea before any man had time to read it.
+ - The dense and godly wear consistency as a flower, the imaginative fling it joyfully behind them.
+ - Islands are gregarious animals, they decorate the ocean in conveys.
+ - There are some people who can never see a little cloud of fantasy float across the horizon of their dreams without building a heavy castle in the air upon it, and bringing it to earth.
+ - The more committees you belong to, the less of ordinary life you will understand. When your daily round becomes nothing more than a daily round of committees you might as well be dead.
+ - Curiosity needs food as much as any of us, and dies soon if denied it.
+ - Californians have brought suburb-making almost to an art. Their cities and their country-side are equally suburban. No-one has a country house in California; no-one has a city house. It is good to see trees always from city windows, but it is not so good always to see houses from country windows.
+ - Unpopularity is a excellent salve to the conscience; it is delicious to be misunderstood.
+ - The music paled like a candle and went out...
+ - Nearly everybody in San Francisco writes poetry. Few San Franciscans would admit this, but most of them would rather like to have their productions accidentally discovered.
+ - Los Angeles is a sophisticated city; it has no eccentricities and no heart.
+ - You can’t discover one foot of clay on an idol without suspecting the other.
+ - The Law likes to be argued with. Take away words and where is the Law? Silence always annoys it.
+ - The moment of cocoa-drinking was always the moment of confidences.
+
+23 quotes

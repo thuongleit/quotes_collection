@@ -1,0 +1,42 @@
+ - Good communication is the bridge between confusion and clarity. ~~Nat Turner
+ - Communication works for those who work at it. ~~John Powell
+ - Effective teamwork begins and ends with communication. ~~Mike Krzyzewski
+ - We have two ears and one mouth so that we can listen twice as much as we speak. ~~Epictetus
+ - All communication must lead to change. ~~Aristotle
+ - In many ways, effective communication begins with mutual respect, communication that inspires, encourages others to do their best. ~~Zig Ziglar
+ - Don’t talk unless you can improve the silence. ~~Jorge Luis Borges
+ - The essence of communication is intention. ~~Werner Erhard
+ - The limits of my language means the limits of my world. ~~Ludwig Wittgenstein
+ - A different language is a different vision of life. ~~Federico Fellini
+ - Communication is the key for any global business. ~~Anita Roddick
+ - Pride is concerned with who is right. Humility is concerned with what is right. ~~Ezra Taft Benson
+ - Effective communication is a key factor in the success of your product. ~~Jesse James Garrett
+ - Like a human being, a company has to have an internal communication mechanism, a “nervous system”, to coordinate its actions. ~~Bill Gates
+ - If we are strong, our strength will speak for itself. If we are weak, words will be of no help. ~~John F. Kennedy
+ - Integrated marketing communications is a way of looking at the whole marketing process from the view point of the customer. ~~Philip Kotler
+ - There is harmony in the tension of opposites, as in the case of the bow and lyre. ~~Heraclitus
+ - Don’t chase people. Be yourself, do your own thing and work hard. The right people – the ones who really belong in your life – will come to you. And Stay. ~~Will Smith
+ - A language is not just words. It’s a culture, a tradition, a unification of a community, a whole history that creates what a community is. It’s all embodied in a language. ~~Noam Chomsky
+ - If you wish to converse with me, define your terms. ~~Voltaire
+ - Don’t look over people’s shoulders. Look in their eyes. Don’t talk at your children. Take their faces in your hands and talk to them. Don’t make love to a body, make love to a person. ~~Leo Buscaglia
+ - Data is like garbage. You’d better know what you are going to do with it before you collect it. ~~Mark Twain
+ - Nonverbal communication is an elaborate secret code that is written nowhere, known by none, and understood by all. ~~Edward Sapir
+ - The true genius shudders at incompleteness – and usually prefers silence to saying something which is not everything it should be. ~~Edgar Allan Poe
+ - The greatest communication skill is paying value to others. ~~Denis Waitley
+ - To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. ~~Tony Robbins
+ - The royal road to a man’s heart is to talk to him about the things he treasures most. ~~Dale Carnegie
+ - Among men and women, those in love do not always announce themselves with declarations and vows. But they are the ones who weep when you’re gone. Who miss you every single night, especially when the sky is so deep and beautiful, and the ground so very cold. ~~Alice Hoffman
+ - Language is the blood of the soul into which thoughts run and out of which they grow. ~~Oliver Wendell Holmes
+ - If I was down to the last dollar of my marketing budget I’d spend it on PR! ~~Bill Gates
+ - For effective communication, use brevity. Jesus said, ‘Follow me.’ Now that’s brief! He could be brief because of all that he was that he didn’t have to say. ~~Jim Rohn
+ - Reading is that fruitful miracle of a communication in the midst of solitude. ~~Marcel Proust
+ - The best way to keep one's word is not to give it. ~~Napoleon
+ - Let the ruling classes tremble at a communist revolution. The proletarians have nothing to lose but their chains. They have a world to win. Workingmen of all countries, unite! ~~Karl Marx
+ - The only healthy communication style is assertive communication. ~~Jim Rohn
+ - Communism is the riddle of history solved, and it knows itself to be this solution. ~~Karl Marx
+ - Give me the gift of a listening heart. ~~Solomon
+ - The Way of a Warrior is to establish harmony. ~~Morihei Ueshiba
+ - Basically I don’t care what people think of me. I’m not in the communications business. ~~Mike Tyson
+ - For thought is a bird of space, that in a cage of words may indeed unfold its wings but cannot fly. ~~Khalil Gibran
+
+40 quotes

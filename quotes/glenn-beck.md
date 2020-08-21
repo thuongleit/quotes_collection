@@ -1,0 +1,123 @@
+ - Sometimes the hardest part of the journey is believing you’re worthy of the trip.
+ - Girl, you better check yourself before you wreck yourself!
+ - Always remember where we come from, how we got here, and Who led us into the warmth of the sunshine.
+ - Hello, you sick twisted freak.
+ - You never fully appreciate what you had until you don’t have it anymore.
+ - When you choose the path, you choose the destination.
+ - Life is what you make of it. There’s always fun and laughs right under your nose if you’re willing to open your eyes to see it.
+ - Everyone needs a place where they can go to just ponder for a while. Silence is important; it’s the only time you can hear the whispering of truth.
+ - Whoever thought a tiny candy bar should be called fun size was a moron.
+ - You can’t love your mother or father if you don’t also have the capacity to grieve their deaths and, perhaps even more so, grieve parts of their lives.
+ - People are inherently good. Our souls are magnificent and capable of extraordinary performance.
+ - Don’t fall into the trap of believing so deeply in your own ideology that you cannot even see the flaws in it.
+ - The moment you stop worrying about success is when success will happen.
+ - They want a race war. We must be peaceful people. They are gonna poke and poke and poke, and our government is going to stand by and let them do it. We must be – we must take the role of Martin Luther King, because I do not believe that Martin Luther King believed in, Kill all white babies.
+ - In my view, the right to bear arms is in the Constitution for three main reasons: self-protection, community protection, and protection from tyrrany.
+ - Apple might not love me, but I love Apple.
+ - When I turned 30, I knew my life was at a crossroads. It was either over, or I was going to restart.
+ - Fall to your knees and thank God for Fox News. Pray for Roger Ailes and Rupert Murdoch. Pray for them. Pray for strength and spine, and pray that everybody involved has chicken salad for lunch so it doesn’t clog anybody’s arteries. Keep them going.
+ - It is a bizarre world. It is an upside down, inside out, quantum physics world. It is the eve of destruction in America.
+ - If I’m ever in a weird car accident, or I commit suicide or something, after the media stops celebrating my death, could they check into it? Because I’m not suicidal. And I’m a pretty good driver.
+ - Besides, life isn’t meant to be safe. It’s only in our mistakes, our errors, and our faults that we grow and truly live.
+ - I believe that Thomas Jefferson said: ‘If it neither breaks my leg nor picks my pocket, what difference is it to me?’
+ - You know, we all have our inner demons. I, for one – I can’t speak for you, but I’m on the verge of moral collapse at any time. It can happen by the end of the show.
+ - Because others have let us down, it is now our duty to face the hard truths and do the right thing – no matter the personal cost.
+ - Following the herd is fine, until they all run off the side of a cliff together.
+ - All men are created equal. It is what you do from there that makes the difference. We are all free agents in life. We make our own decisions. We control our own destiny.
+ - Defeat anger, stop using it as a shield against truth, and you will find the compassion you need to forgive the people you love.
+ - If you treat an animal right, they don’t run away. They’re not like us. They run away from people they don’t trust; most times we run away from ourselves.
+ - You can either complain about how hard your life is, or you can realize that only you are responsible for it.
+ - I’m a Mormon, but I share your faith in the atonement of the savior, Jesus Christ. In my faith, we have a guy who gave his life for what he believed in. You don’t have to believe it; I’m not asking you to. I’m asking you, “What is it that you believe? Are you willing to give your life?”
+ - Most times we’re so focused on what we think we want that we can’t appreciate how happy we already are. It’s only when we forget about our problems and help others forget theirs that we realize how good we really have it.
+ - I remember feeling, ‘If you do not leave now, you won’t leave with your soul intact.’
+ - We have the State Department working together with Google, MTV, MSNBC, Facebook, all of these all of these giant corporations. Google now has two executives that we know of that were charged to help this revolution.
+ - What’s amazing to me? General Electric has a bigger budget for – special interest budget than all of the oil companies combined, and yet nobody says anything.
+ - What’s the difference between a communist or socialist and a progressive? Revolution or evolution? One requires a gun and the other eats away slowly.
+ - I am not a journalist. I’m just a guy who cares. I’m sorry. I’m just a guy who cares an awful lot about my country.
+ - You cannot take away freedom to protect it, you cannot destroy the free market to save it, and you cannot uphold freedom of speech by silencing those with whom you disagree. To take rights away to defend them or to spend your way out of debt defies common sense.
+ - What I am feeling in myself, and what is happening to my physical body, to some extent, and what is happening to me mentally, is not a depression, is not a death. It is a transformation. It is a transcendence.
+ - People should be free, people should be unencumbered by regulation as much as possible, that big government always goes corrupt and the truth shall always set you free.
+ - The shadows are only the darkest when the light is at its brightest.
+ - No one is guaranteed happiness. You can pursue it, but if you happen to find success along the way on that road to happiness, Conservatives believe you should not be demonized or penalized for it.
+ - Man, sometimes God really sucks.
+ - I am going to take something I learned over in Israel. Their Independence Day is preceded the 24 hours before with Memorial Day, so it gives them a chance to serve and reflect and then celebrate. I am going to try to start that tradition here in America.
+ - I’m thinking about killing Michael Moore, and I’m wondering if I could kill him myself, or if I would need to hire somebody to do it.
+ - Reformed rabbis are generally political in nature. It’s almost like Islam, radicalized Islam in a way, to where it is just radicalized Islam is less about religion than it is about politics. When you look at the Reform Judaism, it is more about politics.
+ - Capitalists, if you think that you can play footsies with these people, you’re wrong. They will come for you and drag you into the streets and kill you.
+ - You have three people in the White House that are in love with eugenics or whatever it is you would call it today.
+ - I’m the whitest guy you will ever meet. The first time I saw an African-American, my dad had to tell me to stop staring.
+ - I want you to understand clearly, I am not a journalist – be very clear on that. I am an opinion maker.
+ - Not a single time have we gotten our rights from Congress or the President, we get them from God. And when He gives us those rights, He puts a warning bell inside of us. When somebody tries to take them, a warning bell goes off. And that’s what America is feeling right now.
+ - I said about Van Jones. Be careful. This guy is extraordinarily dangerous and he is smart.
+ - It’s not about terror or anything else, it’s about politics, and so it becomes more about politics than it does about faith. Orthodox rabbis – that is about faith. There’s not a single Orthodox rabbi on this list. This is all Reformed rabbis that were – that made this list.
+ - So here you have Barack Obama going in and spending the money on embryonic stem cell research. Eugenics.
+ - Look, calling somebody in a wheelchair handicapable doesn’t all of a sudden give them the power to climb stairs or the ability to grab Ho-Hos off the top shelf.
+ - That’s what the tactics are, Nazi tactics. Nazi tactics are progressive tactics first.
+ - People aren’t happy unless they buy stuff, and that’s because we have become this industrialized nation.
+ - Timothy McVeigh was a coward. Violence is the stupid way out. It’ll discredit any real legitmate movement.
+ - I know the struggles that are ahead in my life and I know the struggles that are ahead in your life. It’s not going to be pretty.
+ - I was still searching for someone to blame for my suffering. I really wanted someone to transfer my hate to, so that I could stop hating myself.
+ - You’ve never met a more flawed guy than me.
+ - Somehow I understood without the storm I couldn’t know myself.
+ - I haven’t seen a half-monkey, half person yet.
+ - Hate is on a scale, and is growing on a planetary scale of unprecedented size. The violent left is coming to our streets, all of our streets, to smash, to tear down, to kill, to bankrupt, to destroy. It is will be global in its nature and global in its scope.
+ - For those that think men make progress collectively, I warn you, history teaches: You couldn’t be more wrong.
+ - Some may believe we’re on the road to the Hitler youth.
+ - I mean, I’m not a, you know, a fraidy cat. I mean, I am truly concerned in this country that we are moving towards fascism.
+ - Everyone wants to feel loved, but when all you feel is alone it’s tough to accomplish anything else.
+ - God takes attendance every day.
+ - If you have a priest that is pushing social justice, go find another parish. Go alert your bishop.
+ - I collapsed to my knees and looked up at the predawn sky. “I hate you,” I said softly.“I love you,” the voice whispered back.
+ - By the way, I’m not just one man with a chalkboard. I’m one man with four chalkboards.
+ - I come to the table from a conservative or libertarian point of view, and I admit that. I’m a commentator. I’m not a journalist or anything else.
+ - There was a shooting at a political camp, which sounds a little like, you know, the Hitler Youth or whatever. I mean, who does a camp for kids that’s all about politics? Disturbing.
+ - I’m the crazy one? This country has gone insane. Read about it. FCC orders NBC newsrooms to partner with Soros funded non-profits. That’s how the deal went through.
+ - Every time somebody new gets the Ebola virus, it mutates.
+ - Please stop teaching my children that everyone gets a trophy just for participating. What is this, the Nobel Prize? Not everybody gets a trophy.
+ - America, I’m gonna shoot straight with you, I think I’ve wasted your time. I think this is the first time I have wasted an hour of your time. I apologize for that.
+ - I told you, God is not coy. He’s more likely to hit you across the forehead with a two-by-four than whisper in your ear.
+ - I went to the movie this weekend with a gun. And surprise, surprise, I didn’t kill anybody!
+ - It’s frequently said that there is ‘no reason’ for such ‘military-style weapons’ as the Bushmaster to be available to citizens. But isn’t that a lot like saying there is no reason why any civilian should drive a military-style car like the Hummer?
+ - Even in the news division of Fox – which I want to make very clear and I have from the very beginning – I am not a journalist. In fact, I wear that as a badge of honor.
+ - It’s a different world we’re going into but it’s all based on the Internet. It’s all based on these connections. If you start limiting the connections, you’re going backwards as a society.
+ - If the average citizen thinks God has nothing to do with government, who then creates our rights and what makes them inalienable?
+ - The government is trying to now close the Lincoln Memorial for any kind of large gatherings.
+ - Thomas Jefferson creates the Marines for the Islamic pirates that were happening.
+ - I say on the air all time, “if you take what I say as gospel, you’re an idiot.”
+ - I could give a flying crap about the political process We’re an entertainment company.
+ - I’m not interested in breaking news. I’m interested in telling the story of what’s going on and then trying to figure it out.
+ - If you watch tonight’s show, I believe you know that I believe we’re heading into deep and treacherous waters.
+ - It is really one of the things in it that I heard yesterday in his testimony that I thought was disturbing was this what did he call it? a massive persuasion campaign. That sounded a little bit like Goebbels or Gore-bels.
+ - Advocating through art is known as propaganda. You should look up the name Goebbels.
+ - We have a president who apparently loves instability and revolution, and that is the antithesis of those two words, Social Security.
+ - If we just stop producing stuff, if we stop being so capitalist, we stop taking resources from other third world countries, we’ll be happy.
+ - I don’t think we came from monkeys. I think that’s ridiculous. I haven’t seen a half-monkey, half-person yet.
+ - If falling in love is anything like learning how to spell, I don’t want to do it. It takes too long.
+ - I’m a little of everything, a concerned dad, faith-based guy, businessman, entertainer and journalist. I don’t have formal training as a journalist, but I think that works to my advantage.
+ - The purpose of a just government is to prevent plunder, not facilitate it.
+ - I think the president is a racist.
+ - The Nazis learned their propaganda from the progressive movement in the United States.
+ - Americans also don’t need to be taught how to give. We don’t need to be taught how to take care of each other or how to be charitable.
+ - The reason that history so often repeats is not only human nature, but also human ignorance.
+ - I mean a racist, hate-filled host who is openly trying to get people to be violent would have zero viewers in the America I know and love.
+ - I contend that the reason why America is not as happy as it was in 1950 or 1920 or whenever, 100 years ago, is because our priorities are wrong, but it has nothing to do with exploiting the planet and has everything to do with losing faith in God.
+ - A country is made not by policy alone, but by its music, its entertainment shows, all of it.
+ - Has the luxury of not doing the political stuff, which is really where I want to be as a company.
+ - Every night I get down on my knees and pray that Dennis Kucinich will burst into flames.
+ - You know, honestly – look, I’m not a journalist. This is the first, you know, tragedy that I have covered on the air.
+ - We have allowed the system to be so corrupted that many want justice to be “empathetic,” not blind.
+ - We think Scott has real good vision and good tools. He’s quick and can run. He took care of the football for us and didn’t put it on the ground. When he saw a crack, he hit it. His line did a good job providing him with opportunities.
+ - Just do this one thing: promise yourself you’ll never deal underhanded to anybody. You’ll be honest in all of your business dealings. That is hard. Conquer that one. Demand it of yourself. Demand a higher standard for yourself and your children and do it.
+ - Look, I’m Mormon, and most Christians don’t recognize me as a Christian.
+ - So we went on what we now call “The Beck Family Church Tour” and man did we see some churches.
+ - There are a lot of universities that are as dangerous with the indoctrination of the children as terrorists are in Iran or North Korea. We have been setting up reeducation camps. We call them universities.
+ - Can you let your son’s body become the same temperature as your son’s head before you turn this into a political campaign against the president? Could you do that?
+ - You can’t convince me that the founding fathers wouldn’t allow you to secede.
+ - A-tone-ment-its a chance to fix the unfixable and to start all over again. It begins when you forgive yourself for all you’ve done wrong, and forgive others for all they’ve done to you. Your mistakes aren’t mistakes anymore, they’re just things that make you stronger.
+ - Some people thinks that I’m the Antichrist, which would be a really good disguise for the Antichrist. You’d never see a pudgy, out-of-shape guy, 5 o’clock in the afternoon, being the Antichrist, would you?
+ - When did it something of shame or ridicule to be a self-made man in America?
+ - If you don’t find a leader, perhaps it is because you were meant to lead.
+ - If we give all of the people who filed incorrect tax returns the benefit of the doubt and assume that every single one of them simply made an honest mistake, then doesn’t common sense tell us that maybe the tax code is just a little too complex?
+ - Sometimes our strengths are also our weaknesses. Sometimes to be strong you have to first be weak. You have to share your burdens; you have to lean on other people while you face your problems and yourself.
+
+121 quotes

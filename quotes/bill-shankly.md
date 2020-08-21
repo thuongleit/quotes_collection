@@ -1,0 +1,56 @@
+ - If you are first you are first. If you are second, you are nothing.
+ - Aim for the sky and you’ll reach the ceiling. Aim for the ceiling and you’ll stay on the floor.
+ - Liverpool was made for me and I was made for Liverpool.
+ - If you can’t support us when we lose or draw, don’t support us when we win.
+ - My life is my work. My work is my life.
+ - Some people think football is a matter of life and death. I assure you, it’s much more serious than that.
+ - I was in the game for the love of football – and I wanted to bring back happiness to the people of Liverpool.
+ - It’s the greatest thing in the world, natural enthusiasm. You are nothing without it.
+ - My idea was to build Liverpool into a bastion of invincibility. Had Napoleon had that idea he would have conquered the bloody world. I wanted Liverpool to be untouchable. My idea was to build Liverpool up and up until eventually everyone would have to submit and give in.
+ - In my time at Anfield we always said we had the best two teams on Merseyside – Liverpool and Liverpool reserves.
+ - The socialism I believe in is everybody working for the same goal and everybody having a share in the rewards. That’s how I see football, that’s how I see life.
+ - The trouble with referees is that they know the rules, but they do not know the game.
+ - Football is a simple game made complicated by people who should know better.
+ - We are a team. We share the ball, we share the game, we share the worries.
+ - Well the Kop’s exclusive. The Spion Kop at Liverpool is an institution. And if you are a member of the Kop you feel as if you are a member of a big society where you’ve got thousands of friends all roundabout you. And they’re united and loyal.
+ - A lot of football success is in the mind. You must believe you are the best and then make sure that you are.
+ - If Everton were playing down the bottom of my garden, I’d draw the curtains.
+ - I want to build a team that’s invincible, so that they have to send a team from bloody Mars to beat us.
+ - Its great grass at Anfield, professional grass.
+ - The very word ‘Anfield’ means more to me than I can describe.
+ - Fire in your belly comes from pride and passion in wearing the red shirt. We don’t need to motivate players because each of them is responsible for the performance of the team as a whole. The status of Liverpool’s players keeps them motivated.
+ - I always look in the Sunday paper to see where Everton are in the league – starting, of course, from the bottom up.
+ - Me having no education. I had to use my brains.
+ - It’s a 90 minute game for sure. In fact I used to train for a 190 minute game so that when the whistle blew at the end of the match I could have played another 90 minutes.
+ - I was the best manager in Britain because I was never devious or cheated anyone. I’d break my wife’s legs if I played against her, but I’d never cheat her.
+ - I’m a people’s man – only the people matter.
+ - At a football club, there’s a holy trinity – the players, the manager and the supporters. Directors don’t come into it. They are only there to sign the checks.
+ - I’ve been a slave to football. It follows you home, it follows you everywhere, and eats into your family life. But every working man misses out on some things because of his job.
+ - If you get to the edge of the penalty area with the ball and don’t know what to do next, just stick the ball in the net for now. We can evaluate the other options later.
+ - If you’re not sure what to do with the ball, just pop it in the net and we’ll discuss your options afterwards.
+ - Pressure is working down the pit. Pressure is having no work at all. Pressure is trying to escape relegation on 50 shillings a week. Pressure is not the European Cup or the Championship or the Cup Final. That’s the reward.
+ - I have been received more warmly by Everton than I have by Liverpool. It is scandalous that I should have to write these things about the club that I helped build into what it is today.
+ - Tommy Smith wasn’t born, he was quarried.
+ - Of course I didn’t take my wife to see Rochdale as an anniversary present. It was her birthday and would I have got married during the football season? Anyway, it was Rochdale reserves.
+ - What a great day for football, all we need is some green grass and a ball.
+ - A football team is like a piano. You need eight men to carry it and three who can play the damn thing.
+ - Football is a simple game based on the giving and taking of passes, of controlling the ball and of making yourself available to receive a pass. It is terribly simple.
+ - Chairman Mao has never seen a greater show of red strength.
+ - The difference between Everton and the Queen Mary is that Everton carry more passengers!
+ - Forget the Beatles and all the rest. This is the real Liverpool sound. It’s real singing, and it’s what the Kop is all about.
+ - Yes, Roger Hunt misses a few, but he gets in the right place to miss them.
+ - If a player is not interfering with play or seeking to gain an advantage, then he should be.
+ - Although I’m a Scot, I’d be proud to be called a Scouser.
+ - Laddie, that man scored 200 goals in 270 matches – an incredible record – and he has won cup after cup as a manager. When he talks, pin back your ears.
+ - When I’ve got nothing better to do, I look down the league table to see how Everton are getting along.
+ - Tom Finney would have been great in any team, in any match and in any age, even if he had been wearing an overcoat.
+ - I’m just one of the people who stands on the Kop. They think the same as I do, and I think the same as they do. It’s a kind of marriage of people who like each other.
+ - Train the right way. Help each other. It’s a form of socialism without the politics.
+ - Ian Callaghan is everything good that a man can be. No praise is too high for him. Words cannot do justice to the amount he has contributed to the game. Ian Callaghan will go down as one of the game’s truly great players.
+ - I have not been short of invitations to other clubs and have been received more warmly by Everton than I have by Liverpool.
+ - I have always had the deepest respect for Bill Nicholson as a person and as a manager. The Spurs boss is an honest Yorkshireman and you will go a long way before finding a straighter character than that. Bill has never wavered in his determination to give White Hart Lane fans the best.
+ - Denis Law could dance on eggshells.
+ - We absolutely annihilated England. It was a massacre. We beat them 5-4.
+ - I never drop a player I only make changes.
+
+54 quotes

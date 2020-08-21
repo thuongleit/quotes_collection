@@ -1,0 +1,47 @@
+ - I was looking for the key for years But the door was always open.
+ - When I was writing ‘The White Tiger’ I lived in a building pretty much exactly like the one I described in this novel, and the people in the book are the people I lived with back then. So I didn’t have to do much research to find them.
+ - Neither you nor I speak English, but there are some things that can be said only in English.
+ - The trustworthiness of servants is the basis of the entire Indian economy.
+ - Inconvenience in progress, work is regretted.
+ - Every book is a kind of struggle, and it’s a miracle when it comes out.
+ - It’s amazing. The moment you show cash, everyone knows your language.
+ - You ask ‘Are you a man or a demon?’ Neither, I say. I have woken up, and the rest of you are sleeping, and that is the only difference between us.
+ - Do we loathe our masters behind a facade of love – or do we love them behind a facade of loathing?
+ - Let animals live like animals; let humans live like humans. That’s my whole philosophy in a sentence.
+ - You can’t expect a man in a dung heap to smell sweet.
+ - The story of a poor man’s life is written on his body, in a sharp pen.
+ - The moment you recognize what is beautiful in this world, you stop being a slave.
+ - Strange thoughts brew in your heart when you spend too much time with old books.
+ - Mangalore, the coastal Indian town where I lived until I was almost 16, is now a booming city of malls and call-centres. But, in the 1980s, it was a provincial town in a socialist country.
+ - Iqbal, that great poet, was so right. The moment you recognize what is beautiful in this world, you stop being a slave. To hell with the Naxals and their guns shipped from China. If you taught every poor boy how to paint, that would be the end of the rich in India.
+ - Too much of Indian writing in English, it seemed to me, consisted of middle-class people writing about other middle-class people – and a small slice of life being passed off as an authentic portrait of the country.
+ - Nothing can stop a living thing that wants to be free.
+ - The coop is guarded from the inside.
+ - In terms of formal education, I may somewhat lacking. I never finished school. I am a self-taught entrepreneur, that’s the best kind there is, trust me.
+ - India’s great economic boom, the arrival of the Internet and outsourcing, have broken the wall between provincial India and the world.
+ - I am coming back to New York after five years, and it seems that psychics are taking over the city.
+ - If only a man could spit his past out so easily.
+ - What keeps India safe really is the heroism of millions of poor Indians who every day reject the allure of terrorism. What keeps India safe is just the courage of poor Indians, not the actions of its government.
+ - A man’s past keeps growing, even when his future has come to a full stop.
+ - Like most people who live in India, I complain about corruption, but know that I can live with corrupt men. It is the honest ones I secretly worry about.
+ - In India, it’s the rich who have problems with obesity. And the poor are darker-skinned because they work outside and often work without their tops on so you can see their ribs.
+ - In my family, as in most middle-class Indian families I knew when I was growing up, science and mathematics were held in awe.
+ - I grew up, as many Indians do, in an archipelago of tongues. My maternal grandfather, who was a surgeon in the city of Madras, was fluent in at least four languages and used each of them daily.
+ - In a sense, being a full-time writer is less fun because there’s no office to go to anymore, there’s no set routine, there’s no schedule. It can be quite isolating.
+ - When I was growing up in the south Indian city of Madras, there were only two political parties that mattered; one was run by a former matinee idol, and the other was run by his former screenwriter.
+ - At a time when India is going through great changes and, with China, is likely to inherit the world from the West, it is important that writers like me try to highlight the brutal injustices of society.
+ - The book of your revolution sits in the pit of your belly, young Indian. Crap it out, and read. Instead of which, they’re all sitting in front of color TVs and watching cricket and shampoo advertisements.
+ - Greenwich Village always had its share of mind readers, but there are many more these days, and they seem to have moved closer to the mainstream of life in the city. What was crazy 10 years ago is now respectable, even among the best-educated New Yorkers.
+ - Columbia University, where I went to study in 1993, insisted its undergraduates learn a foreign language, so I discovered French.
+ - Because in this world, there is a line: on one side are the men who cannot get things done, and on the other side are the men who can. And not one in a hundred will cross that line. Will you?
+ - An honest politician has no goodies to toss around. This limits his effectiveness profoundly, because political power in India is dispersed throughout a multi-tiered federal structure; a local official who has not been paid off can sometimes stop a billion-dollar project.
+ - Like most of my friends in school, I was a member of multiple circulating libraries; and all of us, to begin with, borrowed and read the same things.
+ - It has always been very difficult for writers to survive commercially in India because the market was so small. But that’s not true at all any more. It’s one of the world’s fastest growing and most vibrant markets for books, especially in English.
+ - I want to read Keats and Wordsworth, Hemingway, George Orwell.
+ - Neither. I am just one who has woken up while the rest of you are still sleeping.
+ - Any good society survives on a circulation of favours.
+ - I had grown up in a privileged, upper-caste Hindu community; and because my father worked for a Catholic hospital, we lived in a prosperous Christian neighborhood.
+ - I’ve lived in several countries and been a disaster everywhere.
+ - A White Tiger keeps no friends. It’s too dangerous.
+
+45 quotes

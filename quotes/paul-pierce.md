@@ -1,0 +1,48 @@
+ - Ubuntu is about a community coming together to help one another.
+ - The game isn’t over till the clock says zero.
+ - Making the big shot wouldn’t feel so good if missing it didn’t feel so awful.
+ - At the end of the day, the ultimate goal is winning the ballgame.
+ - It’s always been my dream to play in the NBA.
+ - I always wanted a little brother because I felt like the little brother had to do everything.
+ - When you win a championship, it is a great feeling, and you really don’t want that feeling to go away.
+ - It’s all a learning process. You’ve got to learn from experience, the battles you go through. Some guys continue to grow. Hopefully, that’s what I’ll continue do.
+ - Life changes when you have a child, when you have your own family. You become more careful about what you do. You’re not going to be out late, going out to clubs, hanging out with your friends. You’re going to be at home, taking care of your daughter, playing with her.
+ - When you gotta go through something tough, I’ve always been a guy that just wants to get it out of the way.
+ - There’s a line that separates having confidence and being conceited. I don’t cross that line, but I have a lot of confidence in myself.
+ - The Celtics don’t celebrate anything but championships.
+ - Kids get influenced by other kids.
+ - I look for challenges to keep me going.
+ - Listening and talking to my teammates has helped me learn the NBA game. I know that talent can only take you so far.
+ - The rim is looking bigger and bigger every game.
+ - Who cares who gets the last shot or scores the most points? Who cares who gets the credit? If we win, we’re all winners.
+ - Man, there’s a lot of pressure when you put on that Kansas uniform with the high expectations everyone has.
+ - A lot of people that I’ve had around me have been my closest friends since junior high, back when we were exchanging each other’s clothes, staying at each other’s houses. That was before I had anything.
+ - I probably visualize myself, the shots I’m going to get in the game, how I’m going to play defense, what we have to do to stop the other team’s best player, what it’s going to take out of me, the whole aspect of the game.
+ - Pulp Fiction is my favorite movie of all time.
+ - Being in the Final Four was a dream of mine growing up, and I was unable to fulfill that dream, but I feel like I had a great college career and won a lot of games.
+ - I just take what comes to me. If the drive is there, Im going to take it. If its not there, Ill take a pull-up shot. Im a confident player down the stretch and I feel like I can make the play when I have to.
+ - You’ve got to watch your back. We are targets as basketball payers.
+ - At some point we all have to move on. Im here to create some kind of legacy in Brooklyn.
+ - I try to play within the flow of the team’s offense.
+ - Once people start making comparisons to a player of the past, they want you to be that player. I try to go out there and create my own image, my own style, my own type of game. Right now I can’t even think of one guy I’ve been compared to.
+ - My favorite quarterback is Donovan McNabb. I think he’s a complete quarterback. I love the way he can scramble and throw on the run. He can do it all. He can control a game.
+ - I like the Raiders. That’s my favorite team.
+ - I’ve always been a late bloomer. My body developed late. From ninth to 10th grade, I grew like 3 inches. Just kind of stretched out. I was like 6-1, grew to 6-4 in 10th grade.
+ - It’s been a pleasure to bring my talents to south beach now on to Memphis.
+ - I don’t think Kobe is the best player. I’m the best player.
+ - Both teams want to win and they want to do everything possible. You don’t think about the fatigue factor. You’re just trying to grind it out to get the win.
+ - When you got it going, you got it going. I just keep my focus down the stretch. Thats when I want the ball. Im just not afraid to fail.
+ - I’ve never been on the cover of a game. When people go into the store and see me on the cover of a game, maybe that will entice them to buy it.
+ - At the beginning of the season, I set my goal to see if I can lead the league in scoring, because I feel I have that kind of ability. A lot of guys say it, but it’s not really in their grasp. I feel that’s really in my grasp.
+ - A lot of players know I’ve been around 13 years and this is my second lockout. I got a lot of respect. I know what’s going on both for the league and the union.
+ - You know coaches. Sometimes they ramble.
+ - I’m a competitive player, and I love being on the court. If the NBA cancels the season I’m definitely looking at my options and considering going overseas.
+ - I worked at a hospital for a week. And at a golf course when I was in college at Kansas for about a week. The tips weren’t good so I quit.
+ - I think the most important thing I work on is just my mental approach to every day, my mental approach to the game. How to come in each and every day focused, doing what I want to do, I think that’s just the biggest issue.
+ - I don’t get caught in the match-ups, trying to outduel somebody. It’s a team game.
+ - When you give a team life, give a team confidence, anything can happen in a Game 7.
+ - Mostly I play sports games – football and basketball. ‘Inside Drive’ and ‘NFL Fever.’
+ - I’ve never even been into those supplements or any of that. I don’t even drink energy shakes. I’m not into that kind of stuff. You just get me an In-N-Out burger and some Popeye’s fried chicken and I’m straight.
+ - A lot of guys look toward me for leadership. I feel like I can provide some of that.
+
+46 quotes

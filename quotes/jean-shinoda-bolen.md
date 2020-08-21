@@ -1,0 +1,22 @@
+ - When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.
+ - Synchronicity holds the promise that if we will change within, the patterns in our outer life will change also.
+ - To be a soulful person means to go against all the pervasive, prove-yourself values of our culture and instead treasure what is unique and internal and valuable in yourself and your own personal evolution.
+ - Whenever I experience something beautiful, I am with Soul. That moment of inward breath, that pause and awareness of “how beautiful this is” is a prayer of appreciation, a moment of gratitude in which I behold beauty and am one with it.
+ - Syncronistic meetings are like mirrors that reflect something of ourselves. If we want to grow spiritually, all we have to do is take a good look. Synchronicity holds the promise that if we want to change inside, the patterns of our external life will change as well.
+ - I believe that the thought that women together can change the world is emerging into the minds and hearts of many of us, and that the vessel for personal and planetary evolution is the circle with a spiritual center.
+ - To know how to choose a path with heart is to learn how to follow intuitive feeling. Logic can tell you superficially where a path might lead to, but it cannot judge whether your heart will be in it.
+ - While everyone has a different experience of what is soulful, these experiences do share similar beginnings. We start by giving ourselves permission to be soulful, to take seriously this aspect of ourselves, our soul and our soul needs.
+ - Life presents us with repeated opportunities to face what we fear, what we need to become conscious of, or what we need to master.
+ - There is a potential heroine in every woman.
+ - When we enter a forest phase in our lives we enter a period of wandering and a time of potential soul growth. Here it is possible to find what we have cut off from, to “remember” a once vital aspect of ourselves. We may uncover a wellspring of creativity that has been hidden for decades.
+ - Synchronistic events offer us perceptions that may be useful in our psychological and spiritual growth and may reveal to us, through intuitive knowledge, that our lives have meaning.
+ - We need to meditate on what is peaceful. Once we have ‘filled up’ in this way, we once again have an abundance of love to send out into the world.
+ - Before you can do something that you’ve never done, you have to be able to imagine it is possible.
+ - To know how to choose a path with heart is to learn how to follow intuitive feeling.
+ - To voice something you’re feeling and put observations into words with another person who is totally present is a creative act embodying soul and love.
+ - At your most daring moments you believe that what is going on is the ultimate human work the shaping of a soul. The power of life comes from within; go there; pray; meditate. Reach for those luminous places in yourself.
+ - I feel that one must deliberate then act, must scan every life choice with rational thinking but then base the decision on whether one’s heart will be in it.
+ - I think people don’t place a high enough value on how much they are nurtured by doing whatever it is that totally absorbs them.
+ - I think that whenever soul is present, it’s because what you’re doing, whom you’re with, where you are, evokes love without your thinking about it. You are totally absorbed in the place of person or event, without ego and without judgment.
+
+20 quotes

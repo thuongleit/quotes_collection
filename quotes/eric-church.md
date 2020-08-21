@@ -1,0 +1,43 @@
+ - Stay young and wild as long as you can.
+ - It’s always the roughest path, but I think it’s got the most reward at the end.
+ - I wouldn’t be the man I am today, If not for those I’ve loved along the way.
+ - Many people have come to think they can just wake up and have things handed to them.
+ - There’s just a lot of people that hold on to what country means to them. I love fiddle, I love steel, but I don’t think it should be a rule that it has to be used in every song. I think that’s not what defines or makes country music.
+ - I’m not a guy who can go in and go, “Hey, are we doing right or wrong?” I just do it. And whatever it is, it is.
+ - Country fans are the best fans out there because of the loyalty, and the way that they apply your music to every aspect of their life.
+ - I have a huge chip on my shoulder.
+ - The evolution of the music is what allows it to survive.
+ - We’re all given a window of opportunity, I think all artists are, of any genre. A window when you’re truly relevant, the spotlight’s on you and people are watching what you do.
+ - I’m not a trust-fund type.
+ - The key to songwriting is just to be able to observe, and put yourself in situations to be around people, and let those ideas come to you.
+ - Funny how a melody sounds like a memory.
+ - I have a new hobby and it’s pretty much logging.
+ - I am very thankful and blessed to have a healthy and happy baby boy and baby mama.
+ - I think too many people, if you are 46 you want to look 36, and if you’re 36 you want to look 26. I didn’t want to do that. I’ve earned the gray hairs. So I wanted to show that level of honesty.
+ - I’ve always thought, it’s the artist that write the songs and make the records. And it’s our responsibility to set the tone for what’s happening in the industry. And I take that seriously.
+ - I’m going to do everything I can to keep from being mainstream.
+ - The most important thing for me as an artist is having an identity.
+ - As far as writing, it’s grown because I’ve really grown comfortable with who I am.
+ - I want to be the guy out there on the edge.
+ - Life doesn’t get more real than having a newborn at home.
+ - I’ve always made music that was representative of real life.
+ - Everybody always tells you what an awesome and unique experience being a parent is. Words can never do the feeling justice.
+ - I’ve played shows with injuries before but unfortunately cannot overcome having no voice.
+ - I come from a long line of Sinners like me.
+ - Now me and my brother go to see him some times but he don’t have much to say anymore. So we sit on his headstone with a fifth of Jack D. Here’s to a long line of sinners like me.
+ - In the digital age we’re in now, with satellite radio and Pandora and stuff like that, it’s not about, “I listen to this kind of music.” It’s about, “I listen to good music and bad music.”
+ - The best advice I’ve been given is kind of the “dance with the one who brought you” thing. You got here on what you do so don’t change that.
+ - I don’t use the big video screens that a lot of other artists use because personally, I think it’s kind of a crutch. I think sometimes it’s like watching television as opposed to really getting involved with what is happening onstage and the people in your section.
+ - Bob Seger was a huge inspiration.
+ - I don’t care if I starve.
+ - When I first started, you could go to a college campus and it was not cool to wear a country artist’s shirt on campus. It was taboo, and there was a stigma involved. In the time from then till now, I’m amazed at how much things have changed. It’s young now, it’s cool, it’s hip.
+ - I think right now, you’ve seen these artists pop up over the last decade who’ve flirted with branching together a lot of different kinds of music. Some of them have been huge, and sold millions of records. And I think over time it’s become a little bit of what the industry can be.
+ - When I feel like every day when I get up I’m writing songs, that’s the time to make a record.
+ - The town I came from really had one industry, and that was furniture.
+ - Music’s cyclical. There’s always that next generation that always comes along.
+ - I think a lot of times, artists and albums can become formulaic. You’re known for a certain thing, and you continue to do that. You just change the subject matter, but it’s the same song. And that’s what you do.
+ - The biggest thing is to continue to do what you do. A lot of people, when they get to a certain level, start thinking about it too much and they change what they do.
+ - If I wanted the ticket to be a $200 ticket, I’d have made it a $200 ticket, but I don’t want it to be that.
+ - I can’t stand making records.
+
+41 quotes

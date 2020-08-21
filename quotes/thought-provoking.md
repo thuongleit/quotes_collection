@@ -1,0 +1,42 @@
+ - A wise man will be master of his mind, a fool will be its slave. ~~Publilius Syrus
+ - Nobody can teach me who I am. You can describe parts of me, but who I am – and what I need – is something I have to find out myself. ~~Chinua Achebe
+ - Courage is never to let your actions be influenced by your fears. ~~Arthur Koestler
+ - Electric communication will never be a substitute for the face of someone who with their soul encourages another person to be brave and true. ~~Charles Dickens
+ - If you don’t like someone’s story, write your own. ~~Chinua Achebe
+ - The only thing we have learnt from experience is that we learn nothing from experience. ~~Chinua Achebe
+ - Information is not knowledge. ~~Albert Einstein
+ - The time for change is now. ~~Jacqueline Novogratz
+ - If you’re losing your soul and you know it, then you’ve still got a soul left to lose. ~~Charles Bukowski
+ - Libraries are our friends. ~~Neil Gaiman
+ - The oldest, shortest words – ‘yes’ and ‘no’ – are those which require the most thought. ~~Pythagoras
+ - You have power over your mind, not outside events. Realize this, and you will find strength. ~~Marcus Aurelius
+ - Our wretched species is so made that those who walk on the well-trodden path always throw stones at those who are showing a new road. ~~Voltaire
+ - The stillness in stillness is not the real stillness; only when there is stillness in movement does the universal rhythm manifest. ~~Bruce Lee
+ - Librarians are tour-guides for all of knowledge. ~~Patrick Ness
+ - It must be wonderful to be seventeen, and to know everything. ~~Arthur C. Clarke
+ - Lukewarm people don’t really want to be saved from their sin; they want only to be saved from the penalty of their sin. ~~Francis Chan
+ - It took me a long time to understand that God is not the enemy of my enemies. God is not even the enemy of God’s enemies. ~~Martin Niemöller
+ - Any word you have to hunt for in a thesaurus is the wrong word. There are no exceptions to this rule. ~~Stephen King
+ - You never know what is enough unless you know what is more than enough. ~~William Blake
+ - Words are loaded pistols. ~~Jean-Paul Sartre
+ - The irony is that while God doesn’t need us but still wants us, we desperately need God but don’t really want Him most of the time. ~~Francis Chan
+ - As a man is, so he sees. ~~William Blake
+ - Lukewarm people will serve God and others, but there are limits to how far they will go or how much time, money, and energy they are willing to give. ~~Francis Chan
+ - I ransack public libraries, and find them full of sunk treasure. ~~Virginia Woolf
+ - We chose it because we deal with huge amounts of data. Besides, it sounds really cool. ~~Larry Page
+ - Perhaps no place in any community is so totally democratic as the town library. The only entrance requirement is interest. ~~Lady Bird Johnson
+ - True faith means holding nothing back; it bets everything on the hope of eternity. ~~Francis Chan
+ - Anyone who says failure is not an option has also ruled out innovation. ~~Seth Godin
+ - To do a dull thing with style-now that’s what I call art. ~~Charles Bukowski
+ - And yet, now that years have passed, I recall it and wonder that it could distress me so much. It will be the same thing, too, with this trouble. Time will go by and I shall not mind about this either. ~~Leo Tolstoy
+ - Where all think alike there is little danger of innovation. ~~Edward Abbey
+ - If you ask managers what they do, they will most likely tell you that they plan, organise, co-ordinate and control. Then watch what they do. Don’t be surprised if you can’t relate what you see to those four words. ~~Henry Mintzberg
+ - A house that has a library in it has a soul. ~~Plato
+ - A disciple is a disciple maker. ~~Francis Chan
+ - In a closed society where everybody’s guilty, the only crime is getting caught. In a world of thieves, the only final sin is stupidity. ~~Hunter S. Thompson
+ - When suffering knocks at your door and you say there is no seat for him, he tells you not to worry because he has brought his own stool. ~~Chinua Achebe
+ - The person who praises God is on the tracks of justice. ~~Soren Kierkegaard
+ - People can lose their lives in libraries. They ought to be warned. ~~Saul Bellow
+ - We don’t see profit as a blind instrument. ~~Jacqueline Novogratz
+
+40 quotes

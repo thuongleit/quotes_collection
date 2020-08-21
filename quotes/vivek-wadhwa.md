@@ -1,0 +1,21 @@
+ - We can either build a Star Trek future, in which our civilization rises to new heights, or descend into a Mad Max world. It is up to us.
+ - Doing the right thing doesn’t always bring success. But compromising ethics almost always leads to failure.
+ - A key to achieving success is to assemble a strong and stable management team.
+ - The mentor-mentee relationship is ideally like that of the guru and disciple: motivated by the desire of the guru to impart knowledge to the disciple.
+ - A key ingredient in innovation is the ability to challenge authority and break rules.
+ - The natives of Silicon Valley learned long ago that when you share your knowledge with someone else, one plus one usually equals three. You both learn each other’s ideas, and you come up with new ones.
+ - Innovation is all about people. Innovation thrives when the population is diverse, accepting and willing to cooperate.
+ - Most business schools are geared toward churning out investment bankers and management consultants.
+ - Over the last 10 years, India’s perception has gone from being a beggar country to an economic superpower.
+ - What you want in a mentor is someone who truly cares for you and who will look after your interests and not just their own. When you do come across the right person to mentor you, start by showing them that the time they spend with you is worthwhile.
+ - Outsourcing was the bogeyman of the 90s. Protectionists portrayed it as an evil that would take American jobs away. Yes, some jobs did go offshore as people feared, but it made the global economic pie grow bigger.
+ - Most successful entrepreneurs share their knowledge as a way of giving back. They do not demand compensation. Those who do are usually trying to take advantage of you.
+ - The truth is that entrepreneurship is more like a roller coaster ride than a cruise.
+ - Corporate executives and business owners need to realize that there can be no compromise when it comes to ethics, and there are no easy shortcuts to success. Ethics need to be carefully sown into the fabric of their companies.
+ - Business executives need to start by spelling out and communicating their values. Then they need to lead by example. This means getting rid of the bad apples and declining opportunities that bring instant wealth at the cost of selling one’s soul.
+ - What the tech industry often forgets is that with age comes wisdom. Older workers are usually better at following direction, mentoring, and leading.
+ - We must first get over the myth that older workers can’t innovate.
+ - The goal should be to build a sustainable lifestyle business that does good for employees and customers – and that steadily builds wealth.
+ - No matter how well things are going, failure and disaster are just around the corner. So celebrate the good, but be ready for the bad.
+
+19 quotes

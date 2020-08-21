@@ -1,0 +1,65 @@
+ - Try a little tenderness...
+ - Remember that no matter where I am or what I’m doing I’ve got a special place inside me that’s all for you. It’s been there since the day we met.
+ - In a way, “failure” is just another word for “the journey,” for not being there yet but on the way. It’s the road we walk on to get wherever it is we’re trying to go.
+ - Some people come into your life and leave a mark.
+ - That’s how you know you really trust someone, I think; when you don’t have to talk all the time to make sure they still like you or prove that you have interesting stuff to say.
+ - And he left. I watched him walk out – he didn’t say good-bye, he didn’t even look back. It scared me, how easy it was for him to do that.
+ - Your greatest creation is your creative life. It’s all in your hands. Rejection can’t take it away; reviews can’t take it away. The life you create for yourself as an artist, may be the only thing that’s really yours. Create a life you can center yourself in calmly as you wait for your work to grow.
+ - The importance of our connection, what it meant to find each other again, the way it made what happened to us and between us not be a waste, not be for nothing. He would know, he had to know, that not saying good-bye would be the worst end of all.
+ - When the remembering was done, the forgetting could begin.
+ - Life needed a fast forward button. Because there were days you just don’t want to live through, not again, but they kept coming around and you were powerless to stop time or speed it up or do anything to keep from having to face it.
+ - Life was mostly made up of things you couldn’t control, full of surprises, and they weren’t always good. Life wasn’t what you made it. You were what life made you.
+ - And I don’t just mean that they change you. A lot of people can change you – the first kid who called you a name, the first teacher who said you were smart, the first person who crowned you best friend. It’s the change you remember, the firsts and what they meant, not really the people.
+ - Sitting and waiting for something to happen was the worst kind of torture.
+ - I don’t want these memories to become slippery, to just disappear into the thin air of life the way most things seem to. I want them to stick – even the bad ones – so I repeat them often.
+ - Because love, love is never finished. It circles and circles, the memories out of order and not always complete.
+ - It’s like a Venn diagram of tragedy.
+ - No one measures a life in weeks and days. You measure life in years and by the things that happen to you.
+ - My whole life has been one big broken promise.
+ - Family or love or romance, whatever it is, is not restricted to perfect people. If it were, it wouldn’t exist. All of that comes out in my work in some way.
+ - Everyone has an identity crisis when they are 16 or 17 years old.
+ - It’s a jagged thing in my throat, how much I miss her.
+ - My first published book, Story of a Girl, was the fourth book I wrote.
+ - Forgetting isn’t enough. You can paddle away from the memories and think they are gone. But they will keep floating back, again and again and agian. They circle you, like sharks. Until, unless, something, someone? Can do more than just cover the wound.
+ - Katy skipped over, her low-rise jeans threatening to fall off her skinny hips. With some girls, that was a sexy look. With Katy, it made you nervous.
+ - It’s just so out of control. Life, I mean. The way it flies off in all these different directions without your permission.
+ - Because love, love never finishes.
+ - Sometimes you want to hear your own mother’s voice.
+ - I wonder how you’re supposed to know the exact moment when there’s no more hope.
+ - I do have a little bit more confidence in – or at least familiarity with – my process. For example, when it feels like it’s going badly or that I’m lost, I know I’ll eventually find my way because I’ve been through it before. But writing itself is still hard.
+ - It’s hard to say when my interest in writing began, or how. My mother read to my sister and me every night, and we always loved playing make-believe games. I had a well-primed imagination. I didn’t start thinking about writing as a serious pursuit, a career I could have, until after college.
+ - The one reader I’m trying to please as I write is me, and I’m pretty difficult to please.
+ - I lived too much in my head instead of the real world.
+ - I didn’t ‘decide’ to write YA, per se. But every time I thought of a story, it featured characters 15, 16, 17.
+ - I’m not really a plot writer – I’m more interested in the characters and sort of small events that propel the story forward.
+ - I wouldn’t say I’m stuck in my adolescence, but I think, like a lot of people, I carry my teen years with me. I feel really in touch with those feelings, and how intense and complicated life seems in those years.
+ - The one thing that could never die or be buried was my loyalty to Cameron for everything he’d done for me and what we’d been through together, even if that loyalty was a ghost.
+ - I don’t like to do too much psychological research because it might turn a character into a patchwork.
+ - I never had a connection like that to anyone, where every day you think about what you’ll tell them and you wonder what they’re doing, and you know they’re wondering what you’re doing.
+ - A know a place called New Beginnings, but I don’t think it works quite like that. You can’t just erase everything that came before.
+ - My parents met in music school and my father was a music professor and conductor. Growing up, we always had classical and contemporary music playing. There was a lot of Mozart and the Beatles.
+ - Ethan couldn’t possibly understand it, what Cameron and I meant to each other and how different it was from anything like a romance or a crush.
+ - What brings two people together anyway?
+ - Sometimes rescue comes to you. It just shows up, and you do nothing. Maybe you deserve it, maybe you don’t. But be ready, when it comes, to decide if you will take the outstretched hand and let it pull you ashore.
+ - That’s how life feels to me. Everyone is doing it; everyone knows how. To live and be who they are and find a place, find a moment. I’m still waiting.
+ - I grew up in San Francisco in the 1970s. We were part of a church that belonged to the California Jesus movement.
+ - I’m always in a place that is sincere but conflicted about different things that come with being a Christian and being an active, churchgoing Christian.
+ - You were never what I wanted to forget.
+ - My first job is to write the characters as full and authentic people as well as I can.
+ - It makes me think of Lazarus. He must have had those shadows after his miracle. You don’t spend time in the tomb without it changing you, and everyone who was waiting for you to come out.
+ - My books usually end where they began. I try to bring characters back to a point that is familiar but different because of the growth that they have gone through.
+ - I was a ‘learn by doing’ writer – I never took any formal writing classes. So it took a long time to figure things out and find my voice.
+ - The kind of life I want is to be a person who would get a personal note every day.
+ - When the reader and one narrator know something the other narrator does not, the opportunities for suspense and plot development and the shifting of reader sympathies get really interesting.
+ - The Lord doesn’t give a person more than he knows they can bear.
+ - Sometimes you should have something you don’t need but that you want.
+ - I wanted to be free to write the way I wanted to write, and my impression of Christian publishing, at least in fiction, was that there wasn’t room for what I wanted to write.
+ - I tried his cell over and over but he never answered. Then I’d call just to hear his voice on the outgoing message, until eventually that was gone too.
+ - I had them all fooled into believing I was normal and well-adjusted, a rock of sensibility who could always be counted on to have a positive attitude.
+ - One of my favorite authors is Robert Cormier. He was a devout Catholic and a very nice man, which might not be the impression you get from reading his books.
+ - I remember being in high school and listening to Vivaldi’s ‘Winter’ and being so overwhelmed with emotion.
+ - I looked at my hand resting on the shelf of the prop cabinet, thinking of the scars that were there whether anyone could see them or not.
+ - He felt it too, the air between us, the invisible lines that something or someone had drawn to connect us. That’s the way I remember it.
+ - I have no desire to go back to San Francisco.
+
+63 quotes

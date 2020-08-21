@@ -1,0 +1,36 @@
+ - You can’t be a strong or cool woman and be represented except in a harsh way, looking mean and cold and hard. It’s like reverse sexism.
+ - In The Argonauts, Maggie Nelson turns ‘making the personal public’ into a romantic, intellectual wet dream. A gorgeous book, inventive, fearless, and full of heart.
+ - If you don’t fit into a certain type, there’s a lot of strength in just being who you are.
+ - I see it as more of a teenage activity than, you know, she’s only 11, but you know, I think it’s great that she knows so many girls who want to play music. And I see it more as a teen activity than I do as going into music.
+ - It’s hard to write about a love story with a broken heart.
+ - People pay to see others believe in themselves.
+ - I tend to want to listen to melancholy music, but sometimes if you’re feeling too sad, you can’t.
+ - You’re always going to feel like you’re catching up, and part of that is just balancing work and motherhood and the whole feeling of needing to please, which I do think girls and women feel more than men.
+ - No one talks about woman power. The Spice Girls – they’re masquerading as little girls. It’s repulsive.
+ - No one ever questions the disorder behind her tarantula LA glamour – sociopathy, narcissism – because it’s good rock and roll, good entertainment! I have a low tolerance for manipulative, egomaniacal behaviour, and usually have to remind myself that the person might be mentally ill.
+ - I’m aware of how pop culture really infiltrates your expectations in a way that even if you think you’re savvy about pop culture, it’s so hard not to have these expectations of what a relationship should be. So I constantly feel like I have to bat those expectations down.
+ - I mean, who made up all the rules in the culture? Men-white male corporate society. So why wouldnt a woman want to rebel against that?
+ - Women make natural anarchists and revolutionaries .
+ - At the end of the day, women are expected to hold up the world, not annihilate it.
+ - I try not to think too much about what the audience is thinking and what they think I should do.
+ - Clothes are signifiers and symbols of how people communicate with each other.
+ - I always wanted to rebel.
+ - Someone once wrote that in between the lives we lead and the lives we fantasize about living is the place in our heads where most of us actually live.
+ - The clothes in themselves are empty. But what they throw off and what clothes mean as signifiers is incredibly interesting – to see what people do with it. That’s more interesting to me than flipping through a magazine or seeing the fall look.
+ - For me performing has a lot to do with being fearless.
+ - You know, we have our own audience, and it’s not like – they just know we’re not going to do certain things.
+ - I just think that playing bass, like punk rock bass with a pick, wasn’t meant to be done for 25 years.
+ - I mean, I don’t even think of myself as a musician, really.
+ - Everyone’s so interior now, they’re not really looking around them. They’re on their phones.
+ - Unless you’re singing something that’s kind of in rhythm with the bass, the melodies, it’s just difficult.
+ - I’m not saying Sonic Youth was a conceptual-art project for me, but in a way it was an extension of Warhol. Instead of making criticism about popular culture, as a lot of artists do, I worked within it to do something.
+ - There is something wonderful about singing and writing music, I think there is something special about creativity and the ability humans have in that area.
+ - I think of myself as unconventional. I maybe always had a problem with authority, like a stubbornness about what’s expected – despite wanting to get some recognition through performing – but also not always wanting to do the expected thing.
+ - There’s only so many small shows you can do. A lot of the smaller things are more side project things. Not everything is appropriate for Sonic Youth to do.
+ - And then, I was thinking of doing a record just like starting with voice, because I did this one song that was just kind of a cappella, and I did it for this art piece I did where people could come and play music to go with a voice.
+ - There’s the added element of adrenaline if you’re performing. You’re aware of spatial relationships and the music.
+ - Anyone becomes mannered if you think too much about what other people think.
+ - It’s really hard for me to sing and play bass.
+ - I just happened to start playing music for the conceptual ideas.
+
+34 quotes

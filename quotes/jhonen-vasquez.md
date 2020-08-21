@@ -1,0 +1,42 @@
+ - One day I will rule the world with a goat by my side!
+ - There’s nothing terribly wrong with feeling lost, so long as that feeling precedes some plan on your part to actually do something about it. Too often a person grows complacent with their disillusionment, perpetually wearing their “discomfort” like a favorite shirt.
+ - This is heaven. You can stop praying now.
+ - Witty closing remarks have been replaced by massive head trauma and severe hemorrhaging.
+ - Goth culture, as mired in the past as it is, even it goes through changes, so Goth when I was growing up is not what it is now. When I think of Goth culture as it is at the moment I think of mall culture.
+ - Nothing quite brings out the zest for life in a person like the thought of their impending death.
+ - It’s a frightening world to be alone in.
+ - Dear Die-ary, today I stuffed some dolls full of dead rats I put in the blender. I’m wondering if, maybe, there really is something wrong with me.
+ - The world would be a much nicer place if people only used guns on themselves.
+ - It’s cool that people like what I do, but I don’t work for the audience.
+ - I’m not the guy who wins awards and gets mentioned in magazines.
+ - In pre-school, I was drawing dinosaurs – I was huge into dinosaurs. I wanted to be a paleontologist, not a cartoonist or a filmmaker or anything like that – just a paleontologist. So I would draw dinosaurs.
+ - My delusionary hell does not agree with yours.
+ - Children are all criminally insane, and must be destroyed!
+ - Whether in a suit or in a loincloth people are ignorant little thorns cutting into one another. They seem incapable of advancing beyond the violent tendencies which at one time were necessary for survival.
+ - I got to draw monsters, robots and write funny stories. I loved doing that stuff and working with the actors. But it got to be less and less that stuff and more about trying to be everywhere and not being able to do one thing very enjoyably.
+ - I don’t really get hate mail, which surprises me, but people have better things to do than to write hate mail to somebody who writes a book about hating everything, I guess.
+ - Trust me, I know what self loathing is. But to kill myself? That would put a damper on my search for answers. Not at all productive. Besides, I’ve become increasingly doubtful as to whether I can die at all. But let’s not get into that.
+ - I don’t want little kids reading my comics.
+ - Doing something purely for one’s own enjoyment is fine, but, I must admit, finding that others enjoy it as well has a certain power over the corners of my mouth.
+ - I don’t like it when people dress up like Zim, because they look like Hulks.
+ - I’ve excluded happiness as one of those possibilities we seek for ourselves. Oh, I still want it, but that’s beside the point. Contentment – they say it’s the ultimate, but I can’t even wish for that. I don’t even want the desire to be content. I can only hope for silence.
+ - Why does this person who is sitting behind a desk and never watches cartoons is arguing about what cartoons should be like. Its so creepy realizing that this person is a lunatic.
+ - I take little bits and pieces of ideas that I may or may not believe in but I give them to this character and he runs with them. I have fun with however he handles the situation.
+ - But I couldn’t draw as fast as she requested. Thus, I tried to create the worst abomination of a comic that I could, so as to make her not want comics anymore. That abomination, my friends, was Happy Noodle Boy.
+ - I’m definitely incredibly attracted to the aesthetic of what is typically deemed goth stuff, but. A lot of my experience growing up was in being around that kind of thing, and it’s just what sinks into a person’s brain.
+ - I never killed anyone. I avoid going over that edge by writing about a guy who has taken a flying leap over it.
+ - I think there is something a little too self conscious about enjoying being an outsider.
+ - Because of the audience I get and the fact that these people aren’t traditional comics buyers I don’t think the comic industry looks at that and thinks that is a very respectable thing. I’m very used to it. I’m not the guy who wins awards and gets mentioned in magazines.
+ - All the power to them but I’m not interested in making yet another show that looks like some other show.
+ - As I got farther and farther along in the series I did less and less preparation. I didn’t use outlines or sketches. I just had a vague idea of what I wanted to tell and then the dialogue just came to me as I was inking the page.
+ - At this very moment I’m behind on a compilation that Slave Labor is doing for Free Comic Book Day.
+ - It’s very strange to go from being completely secluded and doing your own work for yourself, to having an audience – and having an audience that’s aware of what you do and expects you to do things that they like. It can make things difficult.
+ - I don’t go to things because I want to see violence, I go to things because I want to see them handled well.
+ - In certain ways it is incredibly damaging considering the stuff I did before certainly wasn’t for kids.
+ - After doing Johnny I wanted to just do something, I wouldn’t say innocent, but to not have any care in the world. Lots of setups and horrible happenings but its funny.
+ - I’m just doing little bits and pieces for other magazines right now.
+ - Ever since I’m done with Zim everyone thinks that I’m going to go back to comics. I’ve been flooded with emails asking me if I’m working on the new Johnny over and over again.
+ - But now I have a lot of little kids who watched Invader Zim whenever they could find it on television.
+ - I don’t particularly dislike any kind of person that might be reading my stuff. They like it and that’s cool, but I don’t do the work for any kind of group in particular, except for hobos, who just plain kick ass and light up my life.
+
+40 quotes

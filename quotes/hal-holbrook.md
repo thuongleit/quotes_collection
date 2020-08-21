@@ -1,0 +1,30 @@
+ - Man looks in the abyss, there’s nothing staring back at him. At that moment, man finds his character. And that is what keeps him out of the abyss.
+ - I walked the streets of New York for two years begging for a job, and I couldn’t get one.
+ - To communicate with each other, we got to get mad at each other sometimes.
+ - I got a feeling about political correctness. I hate it. It causes us to lie silently instead of saying what we think.
+ - Death ends a life. But it doesn’t end a relationship.
+ - The main thing about money, Bud, is that it makes you do things you don’t want to do.
+ - I have a suicide impulse.
+ - One of the problems with putting Huck Finn into a movie or on the stage is, you always make the white people stupid and racist. The point is, they don’t know they’re racist.
+ - Politics has become incendiary. People don’t find it so funny now so I have to be careful, but I have to wake them up with some truths and the truths I aim at them are over 100 years old. Facts that no one can dispute.
+ - You can go into Mark Twain’s material and prove anything you want. He was against war. He was for war. He was against rich people and he was for them. He was a kaleidoscope.
+ - Man is the religious animal. He is the only one that’s got true religion, several of them.
+ - I don’t play golf. Mark Twain is golf to me.
+ - This is a deep and personal topic in our society today. Read the papers. America is hurting because of it. For God’s sake, speak up. Don’t we need to learn respect for people’s feelings? What is going to school for? To learn how to add?
+ - I don’t have a director. The audience directs me.
+ - We live in a democracy. We have this extraordinary opportunity to use our mind and say what we think, speak as we think. Sometimes what we say is objectionable to other people. But that is part of a free society.
+ - Mark Twain cannot be defined.
+ - I developed a resistance to authority. Not to discipline – I learned that. But to authority. I like to think for myself. And I like to cause trouble.
+ - I like to be who I am.
+ - When the audience begins to see the sunrise on that it’s hard for them to turn away from it because they’re listening to a man talking to them from over a century ago. And nothing has changed. So what are you going to do about that?
+ - Please don’t refer to me as “channeling Mark Twain.” I’m an actor. Not a channeler. That word is an iPhone shortcut. Acting is more eloquent than that.
+ - I think I may drop dead on the stage someday. I hate to think of it. But it’s getting tough on me, the travel. The show, I somehow manage to rise up to it, you know. But I have no desire to retire.
+ - There’s no good guys and bad guys.
+ - Success is no longer content. It’s how it sells.
+ - I’ve had a very full career in the theater, on stage, in films and on television.
+ - There was so much to learn and it was all fun. But the best part was getting a laugh from an audience. That was like drowning in candy.
+ - I tended to lean toward character work. I love to disguise myself.
+ - We don’t have truth delivered to us very often, especially in this very commercialized world.
+ - Lobbyists in Washington are making six figure salaries selling our government out to the corporate interests and we just sit and smile as if nothing is happening while the poor folks are getting poorer and their pharmaceutical bills rise.
+
+28 quotes

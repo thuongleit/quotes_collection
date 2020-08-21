@@ -1,0 +1,44 @@
+ - My love for you is past the mind, beyond my heart, and into my soul.
+ - I believe trust is a choice.
+ - We are willing to weather the storm of multiple failures to achieve a goal. We’re so convinced in the destination that we are able to let go of the reins and give it to God.
+ - Don’t ignore the past, but deal with it, on your own pace. Once you deal with it, you are free of it; and you are free to embrace your life and be a happy loving person because if you don’t, the past will come back to haunt and keep coming back to haunt you.
+ - Sometimes in the black culture, being raised as an independent woman is misconstrued as someone who doesn’t need a man. I think that’s wrong. I think we all need someone.
+ - I was a professional tennis player in my teens. I played mostly in Europe. I was top 10 in the world in juniors, and then I messed up my back. I had three herniated discs and that put a stop to it.
+ - We shoot 12 to 14 hours a day. To do all that physical stuff yourself, you have to be on a nutritional plan. I have six or seven meals a day. I eat every hour and a half, and make sure it’s all clean. I have absolutely no sugar at all.
+ - Yet I wanted to have children, and I knew that was my purpose, but I wasn’t going to settle.
+ - I don’t care if you are religious or not and I think the message is that at the end of the day, everybody has to mature and everybody has to heal and mend their own injuries, emotional injuries, on their own pace.
+ - I love the fact that we, as black people, carry our faith with us. We share it and embrace it and love it and talk about it because we talk about everything else and why not that and that was the first impression that I had that really touched me.
+ - Everybody goes through obstacles and problems and issues and turn their backs on people that we are fond of and love just because we hurt; and everybody goes through that.
+ - I was looking to show people I could act. I was looking for something that would take me away from the whole hunk riding off into the sunset thing that people wanted me to play after Brown Sugar.
+ - I knew immediately that she was going to be in my life forever. I didn’t know in what capacity, but I knew that I had found someone who was going to be close to me for a long time. We became great friends fast.
+ - I like to laugh, I like to smile, and I don’t take myself too seriously. I can be a goofball.
+ - Gospel artists are messengers; they are vessels of a message.
+ - Let’s say black, the whole black religious experience, here, is very impressive to me, because when I first arrived I realized that people carry their faith with so much pride.
+ - Colloquialism is the toughest part of what we do, as foreign actors, because there are certain sayings that you guys have that absolutely don’t make any sense.
+ - I did have a bunch of goals I wanted to achieve when I was financially able to do so, but they had nothing to do with fame.
+ - I went back and researched the history of gospel; where it came from, slavery times, communicating with each other without their master knowing what they are saying, and that gospel artists view themselves differently.
+ - Secular artists see themselves with performance; they are more self involved, presentational.
+ - Usually, when you talk about serialized TV, you’re talking about one specific beat that you play, over and over again.
+ - I’ve always given people the benefit of the doubt until they prove me otherwise.
+ - I was always interested in medicine and I was actually a pre-med major.
+ - I’m the same person. I don’t put on a face. I’m the same guy every time you see me.
+ - When you work as actors in this business, you spend a lot of time apart. That’s why a lot of marriages fail. It’s not because of Hollywood, it’s because you don’t spend time together.
+ - After awhile, marriage gets a little stale and you’re looking for something to scratch that a little.
+ - I’m always an entrepreneur, but I’d probably be a teacher. I like teaching kids, whether that’s tennis on the courts or history in the classroom.
+ - We’re very open and outspoken about our faith and our beliefs. We also talk about our doubts, our moments of insecurities. We talk about it all day, how we’re inspired by God. We recognize little miracles every day, and that’s how we’re raising our daughter.
+ - We have relationships and know the exact outcome with that person because we don’t deal with ourselves and don’t deal with our issues and end up being attracted to the same person or the person is attracted to our energy.
+ - The Southern Baptist Church is a specific culture in itself. So, I had to study, talk to people, watch tape and go to performances to see how Gospel artists move compared to secular artists.
+ - As part of my relationship with my wife and my daughter, and we share everything and talk about everything.
+ - I never dealt with fame. It was never a goal of mine to become famous.
+ - Some of the best actors in the world are very exterior actors, Anthony Hopkins being one of them. He knows exactly how to turn his face to get a certain expression. He knows exactly what to do with eyes, and with his voice. It’s very exterior.
+ - It’s a tremendous honor to be asked to carry a show.
+ - I don’t need a gym. You can do a lot without the gym, so that’s what I’ve chosen to do.
+ - The whole time I was modeling, I had a place in Paris, and a place in New York, and I was really single.
+ - I know I can act and it doesn’t matter where you come from.
+ - I came to America because of a tennis scholarship. I really wanted to get away because I was really frustrated about my injury so my mother said, “Go to America for four months and just open your eyes and see that there’s more things than tennis.” That’s what happened.
+ - You can be very independent, but admit to wanting somebody close to you and that’s what me and my wife have. We don’t need each other but we want to be with each other and I think it’s important to educate the kids with that.
+ - I’m in the booth and first of all, I’m from Germany and I had never heard a gospel in my life.
+ - I had to study acting to basically educate myself.
+ - When I set goals, they’re more tangible than becoming famous. You don’t build a company or a foundation for fame.
+
+42 quotes

@@ -1,0 +1,55 @@
+ - You can’t change how people treat you or what they say about you. All you can do is change how you react to it.
+ - The most precious gift you can give someone is the gift of your time and attention.
+ - Church is not an organization you join; it is a family where you belong, a home where you are loved and a hospital where you find healing.
+ - People may hurt you but God will heal you. People may humiliate you but God will honour you. People may judge you but God will justify you.
+ - Until God opens the next door, praise Him in the hallway.
+ - The reason why people give up so fast is because they tend to look at how far they still have to go, instead of how far they have come.
+ - Your age doesn’t define your maturity; your grades don’t define your ability; and what people say about you doesn’t define who you are.
+ - Just because you are struggling does NOT mean you are failing. Every great success requires some kind of struggle to get there.
+ - Don’t undervalue yourself. God loves you. Your worth is what you are worth to God. Jesus died for you. You are of infinite value.
+ - We are very good judges for the mistakes of others, but very good defence lawyers for our own mistakes.
+ - Don’t be afraid of pressure. Pressure is what transforms a lump of coal into a diamond.
+ - Churches are not museums that display perfect people. They are hospitals where the wounded, hurt, injured and broken find healing.
+ - Life is too short to worry about stupid things. Pray. Trust God. Enjoy life. Don’t let the little things get you down.
+ - The words of the tongue should have three gatekeepers: Is it true? Is it kind? Is it necessary?
+ - Just because something isn’t happening for you right now, doesn’t mean it won’t happen. God’s timing is perfect.
+ - There is a story behind every person, a reason why they are the way they are. Don’t be quick to judge. Be kind and assume the best.
+ - Life is short. Make the most of it. Put God first. Love deeply. Forgive quickly. Laugh a lot. Find and live out your purpose.
+ - If you want your dreams to come true, don’t oversleep.
+ - Knowledge is like underwear. It is useful to have it, but not necessary to show it off.
+ - Difficulties come into our lives to develop us. Every storm is a school. Every trial is a teacher. Every experience is an education.
+ - When things aren’t working out as you wish, be patient. Stop trying to move ahead of God. His timing is perfect. Trust Him.
+ - Don’t worry about your future. God knows you completely, accepts you unconditionally and loves you wholeheartedly. You can trust Him.
+ - Appreciate those who love you. Serve those who need you. Forgive those who hurt you. Thank those who help you.
+ - Stop looking for the perfect church. It does not exist. Even if it did exist, the moment we joined it, it would no longer be perfect!
+ - It is only when we understand the transcendence of God that we see how amazing his immanence is, and what a huge privilege it is to be able to enjoy God’s intimate friendship.
+ - One person can stop a great injustice. One person can be a voice for truth. One person’s kindness can save a life.
+ - Just because you can’t see the air, doesn’t mean you stop breathing. And just because you can’t see God, doesn’t mean you stop believing.
+ - A happy relationship is made up of two good forgivers.
+ - Sometimes God calms the storm. Sometimes He lets the storm rage and He calms you.
+ - Don’t judge a person by their past. They don’t necessarily live there anymore.
+ - Sometimes God teaches us how to solve our problems. Sometimes God teaches us how to face our problems.
+ - Life is a huge privilege and opportunity. God has trusted you with gifts and abilities, which he wants you to use.
+ - Friendship multiplies joy and divides sorrow.
+ - We have been forgiven so much that nothing we forgive compares to the amount we have been forgiven.
+ - Don’t let regrets about the past or worries about the future rob you of your enjoyment of the present.
+ - Be thankful for every day. Learn from mistakes. Don’t dwell on regrets. Forgive with love. Gain strength from every struggle.
+ - The cross is bigger than your mistakes, bigger than your regrets, bigger than the secrets you hold. The cross stands above it all.
+ - Life is so short. Grudges are a waste of time. Laugh when you can, apologise when you should, and trust God with what you cannot change.
+ - A lot of problems in the world would be solved if we talked to each other instead of about each other.
+ - Kindness is better and can be more powerful than force. Kind words may unlock an iron door.
+ - The resurrection of Jesus is rooted in history, grounded in scripture and confirmed in experience.
+ - Too often we try to use God to change our circumstance, when God is trying to use our circumstance to change us.
+ - Success is not measured by what you do compared to what others do, it is measured by what you do with the ability God gave you.
+ - Anyone can stay true to your face, it’s the people who stay true behind your back that really count.
+ - If the grass looks greener on the other side, it is probably astroturf.
+ - In every generation, the world is changed by a few people, who stand for something, do not fear unpopularity and dare to make a difference.
+ - It is a great privilege to meet inspiring leaders from different parts of the church – Catholic, Baptist, Salvation Army, Pentecostal, Lutheran, Methodist, and so many more – and discover that what unites us is infinitely greater than what divides us.
+ - With our own shortcomings, we are in no position to judge anyone else. The best way to forget the faults of others is to remember our own.
+ - The strength of your faith is not measured by the absence of doubt, but by the faithfulness of your life in the face of doubt.
+ - If we knew what people had been through, their sorrow and suffering, we would not be so quick to judge.
+ - Things are changed by a faith that defies obstacles and laughs at impossibilities.
+ - What unites the church is infinitely more important than what divides us.
+ - You reveal your own character most clearly when you describe someone else’s.
+
+53 quotes

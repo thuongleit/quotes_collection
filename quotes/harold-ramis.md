@@ -1,0 +1,103 @@
+ - Life doesn’t care about your vision. You just gotta roll with it.
+ - I collect spores, molds, and fungus.
+ - I’m terrified beyond the capacity for rational thought.
+ - I never work just to work. It’s some combination of laziness and self-respect.
+ - I think satire is a luxury of literate middle-class people. People who are well fed and relatively secure in their beds can laugh at their troubles. They can enjoy sitcoms. For those who aren’t quite so lucky, well, the irony might be lost on them.
+ - I always claim that the writer has done 90 percent of the director’s work.
+ - Never hit anyone in anger, unless you’re absolutely sure you can get away with it.
+ - A psychologist said to me, there are only two important questions you have to ask yourself. What do you really feel? And, what do you really want? If you can answer those two, you probably can leave your neuroses behind you.
+ - We all wish we could be in more than one place at the same time. People with families feel guilty all the time-if we spend too much time with our family, we feel we’re not working hard enough.
+ - When you grow up in Chicago, your whole family is counting on you to go to college and do something distinguished. The last thing you’re thinking is that you’re going to make a career in show business.
+ - I made a handshake agreement with my best friend in college, Michael Shamberg, who is now a movie producer. We used to write shows together, and we said, “Let’s only do what’s fun. Let’s never take a job where we have to dress up in a suit.”
+ - Find the most talented person in the room and if it’s not you, go stand next to him. Hang out with him. try to be helpful.
+ - We tell our kids that policemen are good and God protects us and our country is noble, and at a certain point – and for some it comes quite early, five or six years old – we start to realize that it’s all a facade.
+ - Multiplicity was a movie that tested really well. People seeing the movie really liked it, but then the studio couldn’t market it. We opened on a weekend with nine other films.
+ - Where’s the great pay? Where’s the travel? Where’s the Winnebago, Goddamnit!
+ - I was the little guy who knew how to tie a necktie. It came from having absentee parents. They were tremendously loving and caring people who, by circumstance, had to go to work.
+ - I’m sure that the liability for doing a tracheotomy would be tremendous. You make one mistake, and it’s over. Most doctors won’t even do it.
+ - Stand-up is every man for himself; you learn from hanging out at these clubs and watching other guys, and then trying not to be like them.
+ - Nothing reinforces a professional relationship more than enjoying success with someone.
+ - There’s a personal story of my own that I will write at some point, and it’s a film that I will happily make. It could very well be the next thing I do, unless someone shows me something great.
+ - Everyone has experienced laughing at a funeral, and not even inappropriately. It could be a response to a moment of absurdity or some fond memory. We’re human beings so we understand that laughter and crying aren’t always disparate emotions.
+ - I did a comedy with Al Franken about his character Stuart Smalley, which was really about alcoholism and addiction and codependency. It had some painful stuff in it. When we showed it to focus groups, some of them actually said, “If I want to see a dysfunctional family, I’ll stay home.”
+ - We are all several different people. There are different aspects of our nature that are competing.
+ - The comic impulse is sometimes a reaction to sadness. You feel like you can make one choice or the other.
+ - My only conclusion about structure is that nothing works if you don’t have interesting characters and a good story to tell.
+ - When you’re young and you first see the extent and depth of the world’s hypocrisy, it’s fun to go after it. But by the time you’re sixty, it’s so commonplace. What’s the point in ridiculing people anymore? Their existence itself is a sort of sick joke.
+ - For me, most comedy scripts fail in the mechanical playing-out of the setup. They’ll pay lip service to a moral lesson or a psychological progression.
+ - The times change, and to the extent that comedy captures the spirit of the times, it will enjoy success.
+ - Comedy is essentially made by young men, or older men with some form of arrested development, for young men or immature older men.
+ - I look for the meaning in what’s funny, and I look for what’s funny about things that are meaningful to me.
+ - You don’t have to know much, just a little bit more than everybody else.
+ - You can perceive life as tragic, or you can laugh at the tragedy of it and that turns it into comedy. It doesn’t change the circumstances.
+ - A lot of people get into serious relationships thinking they’re going to heal someone with their love and attention, but it doesn’t usually work out that way. You can’t love somebody into a state of mental health.
+ - Films are big hits when they touch a lot of people. Things are not funny in a vacuum, they’re funny because we respond to some personal dislocation, some embarrassment, some humiliation, some pain we’ve suffered, or some desire we have.
+ - I’m a writer-director-actor, which I’ve always kind of enjoyed. I compared it to the Olympic biathlon. “Not only can he cross-country ski, but he’s a terrific marksman as well.” I want people to say, “You mean that writer performed a tracheotomy?” That’s right, I do everything.
+ - If people offer me decent roles in good films, of course I’ll take it. But I just didn’t like the actor lifestyle. You end up focusing all your energy on trying to get parts you don’t even want.
+ - I loved writing and performing, but the idea of doing it for a living seemed so remote. But I eventually let it devolve to the point where it was the only thing I could do.
+ - Chicago still remains a Mecca of the Midwest – people from both coasts are kind of amazed how good life is in Chicago, and what a good culture we’ve got. You can have a pretty wonderful artistic life and never leave Chicago.
+ - I’ve never taken a script to the stage or to principal photography and said, “This is perfect. This is as good as it can possibly be.” It’s not Shakespeare, you know; you know it can probably be better.
+ - First and foremost, you have to make the movie for yourself. And that’s not to say, to hell with everyone else, but what else have you got to go on but your own taste and judgment?
+ - It doesn’t take any longer to improvise 10 takes than it takes to shoot 10 takes of the same thing. It turns out to be just as responsible from a business point of view as anything else.
+ - My characters aren’t losers. They’re rebels. They win by their refusal to play by everyone else’s rules.
+ - At a certain point, you have to convince the actors that you’ve done the right thing. The way I work, if I can’t convince them, I’ve got to move on. I can’t coerce them or browbeat them.
+ - No one will laugh at how great things are for somebody.
+ - Analyze This is a good movie because Robert De Niro and Billy Crystal are really good. But without the material to put on the play, of course, they couldn’t be good. For me, it starts with the writing.
+ - The rule of thumb for a director or producer – which prevents them from just sticking their names on everything – is that you have to contribute substantially more than 50 percent of the character dialogue and story.
+ - Parents tell us things to protect us, or they educate us from their own misinformation or misconceptions.
+ - You can’t not have feelings about country clubs, whichever side you’re on.
+ - Whenever a critic mentions the salary of an actor, I’m thinking, He’s not talking about the movie.
+ - Most comedy is not very ambitious. You probably can’t name more than a handful of comedies that would qualify for Best Picture.
+ - With both Caddyshack and Vacation, it’s not like the subjects were serious enough that they engaged my interest for another round. I love the characters, and the actors were great, but I didn’t see the need to make another Vacation movie.
+ - Just expressing contempt for your leaders doesn’t really accomplish anything.
+ - I feel a big obligation to the audience, almost in a moral sense, to say something useful. If I’m going to spend a year of my life on these things, I want something that I feel that strongly about.
+ - Whatever bliss we think we’re going to find, we may find it in brief flashes, fleeting moments that come and go. There’s an impossibility to nailing down any good feeling.
+ - My job is to come up with something that you like and you agree with that you would play wholeheartedly. If we disagree, I may not be doing my job correctly.
+ - It’s like the old rule-if you introduce a gun into the first act of a play, it’s going to be used in the third act. So if you do a movie about criminals, you have to accept there’s going to be Some action.
+ - Once you’re alienated, you’re on your own. That takes you to the world of the existential, where things just kind of float.
+ - When a director writes, there’s a compulsory arbitration. You have a right to challenge any of the arbitrators, but they pick three of four arbitrators who read all the drafts with no names attached and then allocate credit.
+ - If Chevy Chase had not been an actor, he might have been a very popular guy in advertising or whatever field he would have gone into, because of his charisma.
+ - Some people have a fear of rejecting all the security that comes with family, church and state. They become fundamentalists.
+ - When someone’s an actor and you’re an actor, you meet them and you feel like you know them. We’re in the same business, and we all speak the same comedy language.
+ - I used to be married to a woman who pursued every spiritual trend with tremendous passion and dragged me along. I don’t believe in anything. I’d seen mediums and readers.
+ - I can’t imagine a successful comedy movie without a successful comedy performance at the heart of it.
+ - You can’t love somebody into a state of mental health.
+ - My first few films were institutional comedies, and you’re on pretty safe ground when you’re dealing with an institution that vast numbers of people have experienced: college, summer camp, the military, the country club.
+ - I never read Playboy before I started working there and stopped reading it the day I quit.
+ - I think of myself as a real writer, not just someone who dabbles in it, so I deserve some credit.
+ - I’ve tried to stay away from mild satire. I want an audience to feel something more powerful for their ten bucks. If they’re going to spend two hours with me, and trust me to lead them around, I’d like to take them someplace special.
+ - I have no trouble selling out – I’m a benevolent hack, in a certain way – but I want to pander for something I believe in.
+ - That’s one of the great things about DVD: In addition to reaching people who didn’t catch the movie in theaters, you get to have this interaction of sorts.
+ - I have tons of rescuing fantasies based on the movies I saw when I was growing up. I wanted to be Robin Hood and the Three Musketeers and the Scarlet Pimpernel.
+ - I’d like to think I’d never do a gratuitous fart joke.
+ - Groundhog Day was pretty clean. It may have to do with some puritanical feeling that comedy is a forbidden pleasure in a certain way. They make you laugh, and laughter is somehow an inferior emotion to tragedy.
+ - I try to measure the amount of truth in a work rather than just looking at the generic distinction between comedy and drama.
+ - As much as I liked acting for its playfulness and the reward of hearing big laughs wash over you on a stage, I always felt I should do something that I could control.
+ - When I’ve written for Bill Murray – I’ve written six films for him – people would read it and say, “Oh, that’s so perfectly Bill.” He’d read it and say, “Are you kidding? I can’t say these words.” So it’s all about perception.
+ - The trick with sequels is, you have to give people what they liked before, yet be innovative enough so they don’t feel like they’re seeing the same movie.
+ - No matter what I have to say, I’m still trying to say it in comedic form.
+ - It’s a great luxury for me to be able to write on the films that I direct, and kind of a nice thing to be able to write enough to get credit, which is difficult for a director.
+ - I’m not a believer in the pratfall. I don’t think it’s funny just to have someone fall down.
+ - Most people live somewhere on the spectrum of anxiety and depression.
+ - I’ve always thought that comedy was just another dramatic expression.
+ - The first comedy screenplay that I wrote was Animal House and I always thought I could and should be a director but no one was about to give me that opportunity on Animal House.
+ - I had a lot of fun working with John Candy. We had a pretty good rapport.
+ - When you’re a big enough part of the process that the Writers Guild gives you a lot of credit, that’s a good thing. It tells me that I’ve had a significant impact on the film as a writer.
+ - I learned over the years that it’s easy to appear smart referencing things that people don’t know.
+ - We were tremendously encouraged by the testing of Analyze That. Audiences loved it. They were telling us that they liked it as much as the original. We recorded the laughs in the theater.
+ - If you’re doing six takes, instead of doing six variations on the same words, why not just throw out the words and make them up as you go along, if you’re comfortable with it? It gives the movies a slightly rangier feeling, and more of an accidental feel, but it also makes them edgier.
+ - I had developed a survival skill of using my wit to score for myself. If a scene was dying, I’d lob in these little bombshell lines that would get me some attention and a laugh without really helping the scene.
+ - Most comedies are calculated. They tend to pander. They’re not about anything important.
+ - I’m thinking of doing a marital comedy for one of the studios, but I want it to be so painful that it’ll have a profound effect on married couples who see it together.
+ - The cutting room is where you discover the optimal length of the movie.
+ - There’s something very edgy about Bill Murray out there improvising.
+ - As an actor, you’re completely at the mercy of other people. You basically go begging for the opportunity to work. As a writer, at least nobody can tell me what to do. I can write what I want. I might not sell it, but at least I’m in control.
+ - I’ve been directing for 25 years almost, and I’ve only directed nine films in that time because I like to be careful.
+ - I believe things happen that can’t be explained, but so many people seem intent on explaining them. Everyone has an answer for them. Either aliens or things from the spirit world.
+ - I’d rather do comedies that strike at some bigger ideas.
+ - I met someone who said they’d figured out my genre: “madcap redemption comedy.” I’ll buy that.
+ - How one handles success or failure is determined by their early childhood.
+ - I’ve always had that overweening desire to be liked by the audience.
+ - I want to explore marriage without the usual Hallmark Card platitudes. Life is difficult, and I like movies that acknowledge that.
+
+101 quotes

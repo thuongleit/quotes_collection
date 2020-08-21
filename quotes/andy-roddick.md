@@ -1,0 +1,62 @@
+ - I’m the most successful bad player ever.
+ - At one point in your life, you’ll have the thing you want or the reasons why you don’t.
+ - I’m still missing that little something.
+ - If nothing else, I’m a decent quote.
+ - Stay in school kids or you’ll end up being an umpire.
+ - Once you get to a certain level, anybody can beat anybody else on any given day.
+ - Umpiring, the only job in the world where you can screw up on a daily basis and still have one!
+ - For every bad moment I’ve had, there have been 25 positives.
+ - It seems with every match I win, I get better-looking to other people.
+ - Is that the longest fifth set ever? It was? So, no, I’ve never played one longer than that!
+ - Having two older brothers is a healthy reminder that you’re always closer to the bottom than you are to the top.
+ - I used to, like, hit for a half hour and then go eat Cheetos the rest of the day, come out and drill forehands. Now I’m really trying to make it happen, being professional, really going for it, and I miss my Cheetos.
+ - I think the medical term for the injury is ‘the bottom of my ass hurts.’
+ - I try not to take myself too seriously. I like to have a good time.
+ - I want everyone to look back and think that I was awesome.
+ - When you come off something really disappointing, you want to come back and kind of regroup and get involved in something positive right away.
+ - I’m not going to go run and hide because I’m catching some heat. I’m not going to stay at home and pout.
+ - You can get the true essence of New Yorkers by just hanging out in Central Park.
+ - I definitely think the European weather has more of a factor than the European clay. I think the European weather changes from week to week, I mean, last year it was sunny and hot and this week it’s kind of playing tricks on us a little bit. I definitely think that is a factor.
+ - I’m gonna have to start winning some of the matches to call it a rivalry!
+ - I’ve been good about keeping my nose to the grindstone.
+ - You know, you can only throw in so many haymakers before one misses and you get knocked out.
+ - I enjoy hitting tennis balls. I haven’t lost any of the innocent parts of tennis. I just do it in front of less people.
+ - My backhand is definitely a lot more solid and consistent. There were times when I couldn’t hit it into the ocean.
+ - I don’t know that I’ll ever be the guy who needs to go to a tournament to be seen and to spectate. I feel like I can accomplish spectating from home.
+ - I’m convinced being a tennis analyst is the easiest job in the world.
+ - I think I have a lot of room for improvement. My serve is okay, but I need to work on a lot of things: return, transition game, backhand.
+ - If I wore a sleeveless shirt, people would try to feed me after the match.
+ - One of the cool things I remember is the Swiss people brought their big cowbells.
+ - No, if I wore a sleeveless shirt, people would try to feed me after the match. If you got the guns, go for it. I got two breadsticks sticking out of my sleeve. I’ll stick with sleeves.
+ - No, actually I wanted to play five. I definitely wanted to try to lose that fourth set and test the waters in the fifth.
+ - There’s no home team in tennis, no built-in fan base, so the players have to step up and do their fair share.
+ - I got to play in a crowd, play in Wimbledon finals, be the guy on a Davis Cup team for a while. Those are opportunities not a lot of people get.
+ - One little secret of the guys who have won one slam, is that we don’t want other guys to win one because its like a bit of a special fraternity.
+ - There have been great champions in every generation.
+ - I don’t really rate press conferences. It’s not as though I leave the room fist-pumping my way down the corridor after a good one.
+ - It’s pretty high up there on the list. Being able to return a serve at that speed is one of the biggest things that separates the professionals from the recreational players.
+ - I’ve pretty much been portrayed as every style thing you can be. After Wimbledon you are Andy Everyman, who everybody is rooting for. I think the meat and potatoes of who I am hasn’t been covered yet.
+ - I’ve become better at the net. I’ve got a 135 mph serve so I’d be stupid not to follow that in. Overall I’m a better player than I was last year.
+ - I don’t have much interest in being on a senior tour. I don’t think I retired so that I could be on tour.
+ - In the States, tennis is sixth or seventh on the totem pole as far as sports go.
+ - I like grass, I enjoy it and it suits my game.
+ - Almost everybody’s here doing the same thing. Who am I to come up with an excuse when there’s 64 other players here doing the same thing? 63 others, sorry.
+ - I cook a little – I’ve never taken classes or anything – but enough to get by.
+ - I don’t think anyone in their right mind takes me serious.
+ - If I can break one out of every three return games, I’m going to give myself a shot in a lot of matches.
+ - I think if I believe in something strongly enough, I’m pretty outspoken about it.
+ - I used to hear a lot that all I could do was hit a serve, I couldn’t volley, I can’t hit a backhand, I don’t return well, and then people would turn round and tell me I’m underachieving.
+ - I think I’ve always had a decent perspective on wins and losses on the tennis court.
+ - I don’t know that I’ve ever been someone who’s interested in existing on tour. I have a lot of interests and a lot of other things that excite me.
+ - I’ll be the first to admit it, the life I’m leading is basically a joke. I should probably be cooler about it, but I can’t fake it, you know?
+ - I’m not the savior of men’s tennis in America. I’m just a kid trying to win a few matches.
+ - The key to the match might have been his serving. Maybe I should have concentrated harder on watching them go by me, I don’t know.
+ - There’s no doubt there are issues with clay. Our issues have issues that are issues right now. That’s not a secret.
+ - I kind of know youre only as good as your last result.
+ - I don’t care when people use the term ‘one-Slam wonder’ with me.
+ - My aggression out there is my weapon. I think it’s more letting them know that I’m not going to let them get away with something, and I’m not just going to kind of poke it back and be content to stay in rallies.
+ - The only pressure I feel is what I put on myself.
+ - I played basketball in high school, and I love watching sports – I’ll watch everything except maybe hockey.
+ - I don’t want to live and die with every point that’s being played out there now. I’m going to let my coach live and die with every point.
+
+60 quotes

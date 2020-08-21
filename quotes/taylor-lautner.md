@@ -1,0 +1,43 @@
+ - Honesty and loyalty are key. If two people can be honest with each other about everything, that’s probably the biggest key to success.
+ - Probably the people around me and the people I care about. They are my motivation. That’s probably what drives me to succeed. Family and friends.
+ - I love challenging myself, doing different things and exploring different areas that I haven’t been to or gone to before. That’s what I love about acting, and that’s what I love about film.
+ - Canada is great. It’s one of the most beautiful cities and I’m definitely going to miss it a lot.
+ - I believe in the saying, ‘If you aim at nothing, you’re going to hit nothing.’ So if you don’t set goals, then you have nowhere to go.
+ - Does my being half-naked bother you?
+ - The day I finished ‘Twilight,’ I came home and started bulking up. For ‘New Moon,’ I’m 30 pounds heavier than I was in ‘Twilight.’
+ - I like to think of myself as very loyal, and I love everyone I surround myself with, whether they’re friends or girlfriends or whatever.
+ - Honestly I try to stay away from what has been written about me because if you let that stuff get to you and it’s not true, it can drive you crazy.
+ - I was exercising so hard that I began to lose weight.
+ - I love to have fun and goof around and be silly, so anybody who can also do that is good for me.
+ - I’ve been lucky enough to be surrounded by close friends and family and they’ve definitely kept me grounded.
+ - I’m reteaming with the producers of ‘Twilight’ on an awesome script. It’s very serious, dramatic and different for me. I’m excited to see what’s next. I love all aspects of film and all genres.
+ - I like to have fun, but I don’t think of myself as being funny. But I’m a big jokester, so I make fun of myself a lot!
+ - I love action films. I’d love to do an action drama. I’m always looking to give my character something action-oriented to do.
+ - If I start thinking, ‘Is this movie going to open? Is this movie going to do well?’ I’m not focusing on the job. The job is to make a good movie.
+ - If I love the character and if I love the story, and the character requires me to be shirtless, or if it requires me to lose 30 pounds, I’m ready to do it.
+ - There’s a million more pros than cons, for sure. Obviously, the privacy thing is a little different. It’s not normal to wake up and have 12 paparazzi cars waiting outside to follow you to Starbucks in the morning. But, there’s a lot more pros, and I’m willing to put up with those cons, for sure.
+ - I don’t want to become known as just a body.
+ - I’ve always been really active. I grew up playing sports, so I’m always shooting hoops or throwing the football with my friends. I’m super-active in that sense.
+ - Oh, it’s soo hard being famous! I can’t date anybody because everybody just wants my hot body and my Twilight millions!
+ - I got the famous Oprah hug!
+ - Playing hard to get is not the way to win me over. I’m definitely more for the girl who can smile and laugh all the time and just have a good time!
+ - I was not a vampire or werewolf fan at all. I’d never even heard of the series. I auditioned for the role, and as soon as I got it, I started reading the books. I’m not a reader, but I really did get hooked on them.
+ - I bounce my knees, but I do not have restless leg syndrome. I did an interview, I don’t even know who it was with, and they said I told them I have restless leg syndrome and it distracts me from my work. I do not have any syndrome.
+ - There’s no ex out there who I’m not friends with today, and I’m extremely thankful for that.
+ - The coolest thing about the series is that we stay very true to the books; it would be silly for us not to, because the books are exactly what the fans want to see. There’s an action side to it, which I love, and there are werewolves now. There aren’t just vampires. There’s a wolf pack.
+ - At one point I had to shove as much food in my body as possible to pack on calories. My trainer wanted me to do six meals a day and not go two hours without eating. If I would cheat on eating one day, I could tell – I’d drop a few pounds.
+ - Some of the actors that I love most have challenged themselves throughout their entire career. That’s my goal.
+ - When I went to Australia, I went shark diving. It was crazy. It was called ‘extreme’ shark diving because even though we were in cages, we literally could touch the sharks swimming by. They were huge and I’m terrified of sharks. Then I went to a wildlife park and held kangaroos. That was nice.
+ - Boxing is so loose and flowy, and martial arts is more stiff, and about strength and structure.
+ - I have had someone ask me to sign their ‘Team Taylor’ panties. She wasn’t a teenager. She was in her 40s.
+ - A dream acting role would be Matt Damon in the Bourne series. I would love to do something like that!
+ - If I had to choose, I would never take my shirt off again in a movie, but I guess that’s not very realistic. I certainly won’t be asking to do it, though.
+ - I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It’s a difficult one, but I’m aiming for it!
+ - When you do a normal film, you play the character for three months and you say goodbye to him. And then, when you watch the movie, you say, “I wish I could have done that differently. I wish I could have added this to it.”
+ - I get nervous before everything – dates, filming, awards shows.
+ - My parents are pretty good about keeping me humble. They brought me up good.
+ - I still help out with the garbage. I still help out with the lawn.
+ - I think the fans would love anybody who played Jacob. I’m just lucky to be the one who got the chance.
+ - I’ve never been in a love triangle. I would not want to be in that situation.
+
+41 quotes

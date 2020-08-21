@@ -1,0 +1,54 @@
+ - Gareth Bale literally has three lungs.
+ - In his youth Michael Owen was literally a greyhound.
+ - The importance of a warm up and cool down can’t be stressed enough.
+ - But there’s no point in looking back and saying I was unlucky.
+ - Me Grandad is 74 and he’s football bananas, so me nan gets loads of grief.
+ - People ask me why I keep getting injured but I have just had to accept it is one of those things that happen.
+ - I enjoy spending time at home or going out for a quiet meal in a restaurant.
+ - I know I’m 25 now, but there’s still that little lad inside me who likes his dad there to see him.
+ - My guilty pleasure is One Direction.
+ - The ball was coming down like a butterfly with sore feet.
+ - It’s not enough just being a good passer of the ball.
+ - My dad knows the business, and he tells me I’ve got to do what’s best for me.
+ - I never got to the point when I felt like running away from it all.
+ - You can’t just play on the edge of games – you have to be in the thick of it.
+ - Frank Lampard has a vision for seeing things.
+ - I’ve been at Liverpool for eight years, and the time has come for us to start achieving.
+ - I’ve worked on the physical side and I think I’m a player that can do most things.
+ - I’m enjoying myself this year and for once I’m not chasing my fitness.
+ - Most goals are scored between the posts.
+ - It’s a horrible feeling – there’s nothing worse for any player than to be thinking at the back of your mind that there’s something wrong with you.
+ - You look at Patrick Vieira and Emmanuel Petit at Arsenal or Roy Keane at Man United, and they are players that can do everything.
+ - I am a positive person and do not allow things to get on top of me.
+ - I suppose it hacks me off sometimes when people go on about all the other stuff, because I have really worked hard at my game, and I’ve been incredibly dedicated in getting myself fit, and getting my game right.
+ - Arsenal have been literally passed to death.
+ - You want to win things and I am at a club where we have the players to do that.
+ - Although my dad Harry is the manager of West Ham, we get on very well.
+ - Arsenal’s width comes from wide areas.
+ - Sometimes, you just get a label and it sticks.
+ - You’ve got to do it all, the physical as well as the skilful.
+ - I’m a footballer, that’s my job and that’s all I want to be known for.
+ - But what goes on in my life outside of the game should be my business.
+ - I’m looking out for myself, but I’m looking out for my dad, too.
+ - In the past I’ve had a bad injury, and then struggled when I’ve got back because I’ve been unfit.
+ - The way I am, I like to look forward instead of looking back.
+ - I have always passed the ball and worked on that part of my game.
+ - As I say, you get labeled. To stop all that, I’ve got to win things – that’s the only way you make your mark.
+ - From a personal point of view I want some medals because that is what you aim for when you start out playing.
+ - People have always thought of me as a passer of the ball, but you can’t just be that these days.
+ - But I just want to be known for my football.
+ - You have to be physical – that’s the way it is in a midfield in the modern game.
+ - I’ve had two or three injuries when with England and it’s been a bit bizarre.
+ - We need to win something for the fans because they have been patient and very understanding and we owe them.
+ - Suarez will improve and he will get better.
+ - Once Liverpool had asked me to sign again, there was no hesitation.
+ - Physically and mentally I’m stronger right now because an injury is not playing on my mind all the time.
+ - There is pressure every day as a footballer.
+ - People always seem to be interested in my private life because I’m married to a pop star.
+ - At no point was my career under threat, so I always knew that I would get back into action.
+ - When you play a team with as much attacking power as Barcelona and you restrict them to one shot on target in the second leg, you are doing something right. Have the best football team gone through? Yes. Have the best organised team gone through? No.
+ - I haven’t counted, obviously, but I reckon I’ve lost over a year and a half of my career through injury so far.
+ - You have to be professional and think about the future.
+ - I haven’t achieved as much as I should have done in my career.
+
+52 quotes

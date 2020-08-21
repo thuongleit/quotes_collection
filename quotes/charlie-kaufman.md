@@ -1,0 +1,117 @@
+ - You are what you love. Not what loves you.
+ - Constantly talking isn’t necessarily communicating.
+ - Meet me in Montauk...
+ - The world needs you. It doesn’t need you at a party having read a book about how to appear smart at parties – these books exist, and they’re tempting – but resist falling into that trap. The world needs you at the party starting real conversations, saying, ‘I don’t know,’ and being kind.
+ - Failure is a badge of honor. It means you risked failure. And if you don’t risk failure, you’re never going to do anything that’s different from what you’ve already done or what somebody else has done.
+ - There really is only one ending to any story. Human life ends in death. Until then, it keeps going and gets complicated and there’s loss. Everything involves loss; every relationship ends in one way or another.
+ - There are too many ideas and things and people. Too many directions to go. I was starting to believe the reason it matters to care passionately about something, is that it whittles the world down to a more manageable size.
+ - When I’m writing, I’m trying to immerse myself in the chaos of an emotional experience, rather than separate myself from it and look back at it from a distance with clarity and tell it as a story. Because that’s how life is lived, you know?
+ - I do like escapism. I like going to the movies on a Friday night and seeing something fun.
+ - There are nearly thirteen million people in the world. None of those people is an extra. They’re all the leads of their own stories. They have to be given their due.
+ - So when I write characters and situations and relationships, I try to sort of utilize what I know about the world, limited as it is, and what I hear from my friends and see with my relatives.
+ - I think everything I do is based on my experience in the world in one way or another.
+ - I just try to be honest, because I think that’s part of my job description as a writer.
+ - Sand is overrated. It’s just tiny little rocks.
+ - Everything is more complicated than you think. You only see a tenth of what is true.
+ - You and I share the same DNA. Is there anything more lonely than that?
+ - Why do I fall in love with every woman I see that shows me the least bit of attention?
+ - I have a lot of health anxiety.
+ - Do not simplify. Do not worry about failure. Failure is a badge of honour. It means you risked failure.
+ - There’s theater in life, obviously, and there’s life in theater.
+ - Scary is time passing and sickness and dying and regret and isolation and loneliness and relationship problems – as opposed to a guy in a hockey mask, which didn’t seem that scary.
+ - Writing is a journey into the unknown.
+ - We try to organize the world, which isn’t organized the way our brains want to organize it. We tell stories about the people in our lives, we project ideas onto them. We project relationships with people, we make our lives into stories. I don’t think we can avoid doing that.
+ - We’re all subjective beings and trapped in our own realities and our own biographical stories and physical bodies and our histories – and that’s the only way we can experience the world.
+ - David Lynch is very important to me, and he does dreamlike movies, but my dreams are not like David Lynch’s dreams. I have no interest in copying anybody’s work. It would never occur to me to want this to look like someone else’s thing.
+ - The passionate ones, the ones who go after what they want, may not get what they want, but they remain vital, in touch with themselves, and when they lie on their deathbeds, they have few regrets.
+ - I’m old enough, by a long shot, to remember going to the library and spending days researching. If I was looking for a line from a poem or something else I needed, that would be the trip I would have to take.
+ - I’m in my mind a lot. I live there.
+ - I hate a movie that will end by telling you that the first thing you should do is learn to love yourself. That is so insulting and condescending, and so meaningless. My characters don’t learn to love each other or themselves.
+ - There’s a point I can get to where I start writing character and then through the dialogue, after all of this preparation, the thing starts to feel like it’s a character developing through the dialogue. A lot of character traits do come from writing dialogue, but I have to be ready to do it.
+ - The way I work is not the way that you work, and the whole point of any creative act is that. What I have to offer is me, what you have to offer is you, and if you offer yourself with authenticity and generosity I will be moved.
+ - People will say things after a screening that it affects them in a certain way, which is why I don’t like to explain what certain things are about. I want them to have that. It limits people’s ability to understand something if I say it’s “about this.” That’s happened to us a bunch on this.
+ - I spend a lot of time in preproduction working with authors, and a lot of time in postproduction.: editing, music, all that sort of stuff. Casting. On the set there’s not a lot for me to do.
+ - I don’t think I’ve had a lonely moment in my life.
+ - I’m not a celebrity. I’m intentionally and defiantly not a celebrity. I don’t have any interest in it. I don’t have any talent for it. I keep my personal life out of my public life as cleanly as I can.
+ - I have ideas written down some places, but usually I can’t find them. I’m not very organized.
+ - I was trying to figure out what a memory feels like.
+ - I often have a theme in mind when I’m starting. I know that I want everything to be in a world of, say, evolution, or guilt.
+ - It occurred to me that every work of art is a synecdoche, there’s no way around it. Every creative work that someone does can only represent an aspect of the whole of something. I can’t think of an exception to that.
+ - I like for people to figure things out for themselves. It’s not like I have the right answer, but if I have a visceral reaction to something, I’m sure that other people will, too.
+ - I’m interested in art, and I think about the process of making art. It’s part of my personality, my experience of the world, so it ends up in the movies. It’s where my head is.
+ - The only honest and generous thing for me to do is to give people myself. That’s all I’ve got as an artist, so I want to do that in an unflinching way.
+ - I’ve kind of come to the conclusion that what passes for realism in movies has nothing to do with reality and that my stuff is more realistic than that.
+ - The sad thing about working on a movie is that you can never see the movie.
+ - And then to see the whole movie, you’re pretty much waiting until the end of production. And the major lifting in terms of editing and all that stuff is done before you shoot the movie. That’s an unusual way to work.
+ - The end is built into the beginning.
+ - I think if something resonates, even if it’s surreal, it’s because it is relatable and I think that that’s a core issue for me.
+ - The only way to do something interesting is not care if you fail.
+ - I actually think I’m probably more interested in structure than most people who write screenplays, because I think about it.
+ - As I’m writing, I start to see connections, and themes I didn’t see, and that sparks other things. So then I go back and rewrite things or alter them. It’s a combination of intuition and a lot of finessing. It becomes a combination of the rational and the irrational.
+ - I’m interested in trying to explore what I think is the truth at a given time in my life, and part of the process of being honest is – in my mind – talking about the idea that you’re watching a movie.
+ - When you approach middle age, lots of stuff happens. Your body is aging, you’re watching people around you get sick, you’re watching people die, your mortality becomes very present at that point in your life.
+ - I can talk endlessly about characters, or why someone did this or that, and what that dynamic and interaction is. I really love it, and I think that actors really respond positively to the fact that I like to talk about that stuff, because I’m not sure that all directors do.
+ - I do a lot of things intuitively. I’m not often consciously aware of what I’m doing. It’s like in a dream: There’s something going on that’s powerful but you don’t know exactly why.
+ - There is so much crap in the world, both in show and other businesses, that I try to be vulnerable myself, in the hopes that there is some truth I can get to, that makes people feel less alone in the world.
+ - There are so many people who are making movies now who can’t get any kind of distribution, so the market seems like it’s flooded.
+ - I try to make things interesting and thought-provoking.
+ - The biggest thing that I came across, right off the bat, was that you can’t shoot this like a regular movie with multiple takes. You have to, because it’s such a protracted process, break it down to the frame and pretty much get one shot.
+ - I don’t subscribe to anything. I sit there and I try to think about what seems honest to me.
+ - People ask me all the time, “What are your influences? Are you trying to do Beckett?” It’s like, “No, I’m trying to do me.” Whatever that is. I don’t know what that is, but that’s the basis. I’m trying to be true and I’m trying to be honest.
+ - I really don’t have any solutions and I don’t like movies that do.
+ - She was nice. Nice is good.
+ - As a writer, or as a filmmaker, you have to present yourself, and part of what yourself is is what you’re interested in, or what you think is funny, or what you think is sad, or what you think is horrible.
+ - You’re dealing with the body, and you’re dealing with bodily functions. We romanticize everything about people in movies.
+ - I think that people create the world that they live in. Your existence is very subjective, and you tell stories and organize the world outside of you into these stories to help you understand it.
+ - There’s no way to approach anything in an objective way. We’re completely subjective; our view of the world is completely controlled by who we are as human beings, as men or women, by our age, our history, our profession, by the state of the world.
+ - I think you just assume that your memory is just sort of a video playback of your experience, but it’s nothing like that at all. It’s a complete refabrication of an event and a lot of it is made up, because you’re filling in spaces.
+ - There are things that aren’t represented in movies that are a big part of everyone’s life. This is a movie about health and about the body.
+ - Sometimes I don’t like the books that I’m reading.
+ - I do have some theatrical background. I’ve written plays and seen plays and read plays. But I also read novels. One thing I don’t read is screenplays.
+ - I’m not into extreme sports or something. I just live a quiet life.
+ - I think generally I’m kind of interested in subjective experience, what goes on inside someone’s head, that being all they really know of the world.
+ - As a kid, I had a background in theater.
+ - I’m trying to tell a story and do it truthfully.
+ - I don’t think screenwriting is therapeutic. It’s actually really, really hard for me. It’s not an enjoyable process.
+ - Everything I’ve written is personal – it’s the only way I know how to write.
+ - I think directing and writing are very different jobs. Obviously, directing is a more social and managerial job. The other thing about directing is that it’s a very, very pragmatic job, and writing isn’t.
+ - I do throw out a lot of ideas, and I forget completely about them.
+ - My time on the set is the least of my involvement. Most of my time is in pre-production and post-production.
+ - Seriously, I don’t consider myself a writer. I don’t think I have writing talent. But I will continue to do it.
+ - I’m Jewish, and my family is Jewish. I was very interested in Woody Allen when I was growing up, but I don’t think of myself as a Jewish writer. I’m more from suburbia, American suburbia. I’m more from the ’70s than I am from Judaism.
+ - In a lot of movies, especially big studio ones, they’re not constructed in any other way than to get people to like them and then tell their friends. It’s a product.
+ - I try when I’m writing to leave enough “space” for people to have their own interpretation, and not to direct it toward one conclusion. Then the audience would not be reacting, because they are being preached to or lectured at. I don’t have that much to say that I think people should listen to me.
+ - Every day of your life, you have information that enters your head, and that information informs your understanding of things, or shifts it, or changes it, or deepens it, or confuses you. Every day, every moment of every day – it’s like this thing that happens.
+ - Directing is a more pragmatic experience, where you have to deal with the restrictions of time and money that force you to make certain decisions you don’t have to make when you’re writing.
+ - I like actors – I used to be one.
+ - It’s good when someone comes to a book or a movie and interacts with it. It’s the difference between an illustration and a painting. An illustration serves a specific purpose, and a painting is something you can immerse yourself in.
+ - I can never watch anything I’ve been involved in, because I know it, and I know what the making of it was like, and I know what’s been cut out and changed. I just know it.
+ - I love working with actors. I love visual things. I always intended to be a writer who directs and a director who writes.
+ - The difference between a movie and a play is that the production you end up with is the production. If a movie that I spent time on turns out to be crap, it’s never going to be made again.
+ - I graduated from college in 1980.
+ - I wanted to deal with someone’s idea of their relationship.
+ - Before you start production, you have characters you have created without actors in mind, then all of a sudden you’ve got actors. They bring an enormous amount in creating these characters, and creating the dynamics between the characters that you’ve written.
+ - I don’t have a style. I wouldn’t say I have a style as a writer, either. I know people have said “This is what he does,” but when I’m writing, I don’t think about that. I don’t think about a style.
+ - I try to present something that is true so I don’t further destroy the world with my contribution to it.
+ - I have a personality that tends to be somewhat compulsive, and I do tend to think in a circular way. I dwell on the same things over and over and I try to figure out different ways of looking at the same issue.
+ - I feel like I want to keep moving toward idiosyncracy. Personal, personal, personal.
+ - I’ve had to deal, a lot, with my own sense of intimidation at meeting famous people – especially actors, but really any famous people.
+ - I don’t write genre stuff in any form. I’m not interested in it. I always try to do the opposite of that.
+ - I do have, at different times, a certain kind of self-consciousness in the world, an insecurity.
+ - If you ever got me, you wouldn’t have a clue what to do with me.
+ - I choose to write characters from the inside because I feel like that’s the way I’m gonna get the most honest version of them.
+ - And so not only do you have to make that work, you can’t really start putting the thing together in any form because some of the shots are very short and obviously many of them take so long, you’re waiting months and months and months before you can see if it’s going to be working emotionally.
+ - I tend to not only read reviews, but also every little stupid thing online. It’s a very bad idea, and there’s a lot of angry people in the world. And it’s weird to absorb all that weirdness.
+ - I want to create situations that give people something to think about.
+ - I want to do my own thing, and I’m trying to get closer to realizing that as a filmmaker.
+ - I think of myself as a guy who tries to write screenplays and now has tried to direct one. Anything more than that is meaningless and it gets in the way of being a real human being.
+ - I have a tendency to hire people who tend to be unattractive to the studios. Maybe this is a bad idea.
+ - I think if I’ve worked anything through with screenwriting it’s that I’m not going to be able to work anything through.
+ - I don’t think the world objectively exists the way we think it exists. There’s a constant sort of storytelling process.
+ - I think I’ve had pretty good experiences for the most part with the people who have directed my screenplays.
+ - I like titles that are a little difficult, because it’s kind of counterintuitive.
+ - I will be dying and so will you, and so will everyone here. That’s what I want to explore. We’re all hurtling towards death, yet here we are for the moment, alive. Each of us knowing we’re going to die, each of us secretly believing we won’t.
+ - And also the idea of not making it apparent that it’s different from the rest of the film, even though there are visual differences, the audience is supposed to think that they are with him when he wakes up in the morning.
+ - I think dreams are metaphors. Everything you do in writing is metaphorical. So it seems like the same arena to me.
+
+115 quotes

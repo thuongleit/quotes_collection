@@ -1,0 +1,58 @@
+ - Management is the art of getting things done through people.
+ - Unity, not uniformity, must be our aim. We attain unity only through variety. Differences must be integrated, not annihilated, not absorbed.
+ - Leadership is not defined by the exercise of power but by the capacity to increase the sense of power among those led. The most essential work of the leader is to create more leaders.
+ - Conflict is resolved not through compromise, but through invention.
+ - Fear of difference is fear of life itself.
+ - It is not opposition but indifference which separates men.
+ - Idealism and realism meet in the actual.
+ - Leader and followers are both following the invisible leader-the common purpose.
+ - We must face life as it is and understand that diversity is its most essential feature.
+ - That is always our problem, not how to get control of people, but how all together we can get control of a situation.
+ - It is possible to conceive conflict as not necessarily a wasteful outbreak of incompatibilities, but a normal process by which socially valuable differences register themselves for the enrichment of all concerned.
+ - The best leader does not ask people to serve him, but the common end. The best leader has not followers, but men and women working with him.
+ - Coercive power is the curse of the universe, coactive power, the enrichment and advancement of every human soul.
+ - We have thought of peace as the passive and war as the active way of living. The opposite is true. War is not the most strenuous life. It is a kind of rest-cure compared to the task of reconciling our differences.
+ - The unifying of opposites is the eternal process.
+ - There are three ways of dealing with difference: domination, compromise, and integration. By domination only one side gets what it wants; by compromise neither side gets what it wants; by integration we find a way by which both sides may get what they wish.
+ - Responsiblity is the great developer of men.
+ - Part of the task of the leader is to make others participate in his leadership. The best leader knows how to make his followers actually feel power themselves, not merely acknowledge his power.
+ - The insight to see possible new paths, the courage to try them, the judgment to measure results – these are the qualities of a leader.
+ - It seems to me that whereas power usually means power-over, the power of some person or group over some other person or group, it is possible to develop the conception of power-with, a jointly developed power, a co-active, not a coercive power.
+ - Majority rule rests on numbers; democracy rests on the well-grounded assumption that society is neither a collection of units nor an organism but a network of human relations.
+ - Imitation is for shirkers, like-minded-ness for the comfort lovers, unifying for the creators.
+ - We should never allow ourselves to be bullied by an either-or. There is often the possibility of something better than either of these two alternatives.
+ - An order then should always be given not as a personal matter, not because the man giving it wants the thing done, but because it is the demand of the situation. And an order of this kind carries weight because it is the demand of the situation.
+ - The conflict of chemistry we do not think reprehensible. If we could look at social conflict as neither good nor bad, but simply a fact, we should make great strides in our thinking.
+ - We are sometime truly to see our life as positive, not negative, as made up of continuous willing, not of constraints and prohibition.
+ - The paradox of American democracy has been that its slogan of equal opportunity has meant, often, equal opportunity to get power over your fellows.
+ - Give your difference, welcome my difference, unify all difference in the larger whole – such is the law of growth. The unifying of difference is the eternal process of life – the creative synthesis, the highest act of creation, the at-onement.
+ - Unity, not uniformity, must be our aim.
+ - Most people are not for or against anything; the first object of getting people together is to make them respond somehow, to overcome inertia.
+ - In crowds we have unison, in groups harmony. We want the single voice but not the single note; that is the secret of the group.
+ - One of the greatest values of controversy is its revealing nature. The real issues at stake come into the open and have the possibility of being reconciled.
+ - The manager cannot share his power with division superintendent or foreman or workman, but he can give them opportunities for developing their power.
+ - There is no such thing as vicarious experience.
+ - While leadership depends on depth of conviction and the power coming therefrom, there must also be the ability to share that conviction with others.
+ - I do not think that we have psychological and ethical and economic problems. We have human problems, with psychological, ethical and economical aspects, and as many others as you like.
+ - The divorce of our so-called spiritual life from our daily activities is a fatal dualism.
+ - Power-over is resorted to time without number because people will not wait for the slower process of education.
+ - Democracy is self-creating coherence.
+ - I am convinced that any feeling of exaltation because we have people under us should be conquered, for I am sure that if we enjoy being over people, there will be something in our manner which will make them dislike being under us.
+ - In the small group then is where we shall find the inner meaning of democracy, its very heart and core.
+ - Experience may be hard but we claim its gifts because they are real, even though our feet bleed on its stones.
+ - What people often mean by getting rid of conflict is getting rid of diversity, and it is of the utmost importance that these should not be considered the same.
+ - The ignoring of differences is the most fatal mistake in politics or industry or international life: every difference that is swept up into a bigger conception feeds and enriches society; every difference which is ignored feeds on society and eventually corrupts it.
+ - Law should seek far more than mere reconciliation; it should be one of the great creative forces of our social life.
+ - Many people tell me what I ought to do and just how I ought to do it, but Few have made me want to do something...
+ - Crowd action is the outcome of agreement based on concurrence of emotion rather than of thought...
+ - Democracy must be conceived as a process, not a goal.
+ - The most successful leader of all is the one who sees another picture not yet actualised.
+ - Another idea that is changing is that the leader must be one who can make quick decisions. The leader to-day is often one who thinks out his decisions very slowly.
+ - The foreman today does not merely deal with trouble, he forestalls trouble. In fact, we don’t think much of a foreman who is always dealing with trouble; we feel that if he is doing his job properly, there won’t be so much trouble.
+ - Now that we are recognizing more fully the value of the individual, now that management is defining more exactly the function of each, many are coming to regard the leader as the man who can energize his group, who knows how to encourage initiative, how to draw from all what each has to give.
+ - Concepts can never be presented to me merely, they must be knitted into the structure of my being, and this can only be done through my own activity.
+ - The ablest administrators do not merely draw logical conclusions from the array of facts of the past which their expert assistants bring to them, they have a vision of the future.
+ - The state accumulates moral power only through the spiritual activity of their citizens.
+ - When leadership rises to genius it has the power of transforming, of transforming experience into power. And that is what experience is for, to be made into power. The great leader creates as well as directs power.
+
+56 quotes

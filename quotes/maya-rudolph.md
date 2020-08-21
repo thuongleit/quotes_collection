@@ -1,0 +1,33 @@
+ - I’m always learning when I’m surrounded by great people. In every experience, I feel like I’m learning. I’m not like, “Oh good. I’m done! I don’t have to learn anymore.”
+ - I feel like I’m a drag queen.
+ - I really love laughing.
+ - To have your childhood dream realized is a really big deal.
+ - Most of my life I didn’t feel very normal. There’s definitely been some moments where I feel like, all right, I’ve finally graduated and I’m a normal lady.
+ - You don’t want to be the first person to tell your 5-year-old, like, ‘You’re going to have a life filled with disappointments and letdowns – enjoy!’
+ - I never thought I’d get a chance to do what I’m doing. It’s such a dream.
+ - If my time with my kids is shorter than it was yesterday, it’s better than nothing.
+ - I don’t look my best when I wake up! But I do feel beautiful when I’m tired and happy and I’ve had a good laugh and a glass of champagne.
+ - I think that people who don’t like kids are awful people.
+ - The thing you can do better than anyone else is love your children, because they’re your children.
+ - I’ve never set out to write a funny movie or be a funny comedian as a woman. I am a woman. I don’t really have a choice in the matter. My goal is just to be funny.
+ - I like comedy as a group sport.
+ - When I first moved to New York, someone who thought they knew more than I did said: “You have to always look like you know where you’re going when you get out of the subway.”
+ - To grow up with the loss of your mother is a scar that never goes away.
+ - Without a doubt in sketch comedy there are fewer women than men.
+ - I thought she was the funniest woman, and I believed being a comedian was the most exciting thing you could be.
+ - Honestly, because it’s my third, I feel like I’ve been pregnant for like six years, seriously.
+ - I like being a funny lady. I think theres nothing sexier than a funny lady.
+ - I get anxious. That lovely Jewish guilt that comes with ancestry.
+ - I have an equal opportunity womb!
+ - I’ve met people who are baffled by children, as though they were never children themselves.
+ - I still have a fantasy of being a musician when I grow up.
+ - Before I had children, everything about my life was devoted to Saturday Night Live.
+ - There are days when I wonder why my mom couldn’t be here to see this.
+ - Lord knows I had what you could call many fashion Don’ts in my day.
+ - I feel like I come from a smaller off shoot of black people because I am mixed. People say I’m African American but that doesn’t include the other half of me.
+ - I learned the enormous power of writing for yourself, especially now that people seem to be receptive to the fact that women can write.
+ - I was a loud child, and if my mother sang to me, I would be quiet.
+ - I don’t know if comedy is a male sport. I always wondered that.
+ - Because you want to keep an air of calm and cool.
+
+31 quotes

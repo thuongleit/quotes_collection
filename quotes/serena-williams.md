@@ -1,0 +1,139 @@
+ - I really think a champion is defined not by their wins but by how they can recover when they fall.
+ - The success of every woman should be the inspiration to another. We should raise each other up. Make sure you’re very courageous: be strong, be extremely kind, and above all be humble.
+ - I am lucky that whatever fear I have inside me, my desire to win is always stronger.
+ - Nothing comes to a sleeper but a dream.
+ - Everyone’s dream can come true if you just stick to it and work hard.
+ - Luck has nothing to do with it, because I have spent many, many hours, countless hours, on the court working for my one moment in time, not knowing when it would come.
+ - I think you have to love yourself before you fall in love. I’m still learning to love myself.
+ - If you smile things will work out.
+ - I think in life you should work on yourself until the day you die.
+ - I just never give up. I fight to the end. You can’t go out and say, ‘I want a bag of never-say-die spirit.’ It’s not for sale. It has to be innate.
+ - Luck has nothing to do with it.
+ - We all know who the real number one is. Quite frankly, I’m the best in the world.
+ - I always believe I can beat the best, achieve the best. I always see myself in the top position.
+ - I’m not one to blame anyone else for anything. And I don’t think anyone else should either.
+ - I just hate to lose. When I am on the court, it is like my life depends on it.
+ - I’m not used to crying. It’s a little difficult. All my life I’ve had to fight. It’s just another fight I’m going to have to learn how to win, that’s all. I’m just going to have to keep smiling.
+ - If Plan A isn’t working, I have Plan B, Plan C, and even Plan D.
+ - I never thought about leaving a tennis legacy. I always thought about leaving a legacy of fulfillment, living out your dreams, and giving back.
+ - If anything, you know, I think losing makes me even more motivated.
+ - I always say that when I’m playing well, no one can beat me. I’m not just saying that to sound full of myself or anything, but it’s true.
+ - I’ve had to learn to fight all my life – got to learn to keep smiling. If you smile things will work out.
+ - I love who I am, and I encourage other people to love and embrace who they are. But it definitely wasn’t easy – it took me a while.
+ - Think of all the girls who could become top athletes but quit sports because they’re afraid of having too many defined muscles and being made fun of or called unattractive.
+ - Venus told me the other day that champions don’t get nervous in tight situations. That really helped me a lot. I decided I shouldn’t get nervous and just do the best I can.
+ - It’s me, and I love me. I learned to love me. I’ve been like this my whole life, and I embrace me. I love how I look. I love that I’m a full woman and I’m strong and I’m powerful and I’m beautiful at the same time. There’s nothing wrong with that.
+ - I’m a perfectionist. I’m pretty much insatiable. I feel there’s so many things I can improve on.
+ - I’ve always considered myself the best and the top. I never considered that I was out of it.
+ - Tennis just a game, family is forever.
+ - Since I don’t look like every other girl, it takes a while to be okay with that. To be different. But different is good.
+ - Growing up I wasn’t the richest, but I had a rich family in spirit. Standing here with 19 championships is something I never thought would happen. I went on a court just with a ball and a racket and with a hope.
+ - I don’t know if I’ve had my share of drama, but I’ve definitely had my share of hard times.
+ - When you lose, you get up, you make it better, you TRY AGAIN.
+ - I try not to be protected. Because I feel like you can become a little bit of a robot. That’s not who I am. And I don’t want to be monotone. It’s important to be yourself, whatever the cost.
+ - There are people who live, breathe and dress tennis.
+ - If I’m winning, I have to act like I’m not bored. If it’s A tough match, I have to act like I’m having A good time. I’m a drama queen.
+ - I meet people who say, “Girl, I watch every match, and I pray for you.” I feel that energy and those prayers. Sometimes when I’m down on the court, in the back of my mind, I’m thinking, “They want me to win. Is there anything else I can give?” It encourages me to do better, to fight harder.
+ - Victory is very, very sweet. It tastes better than any dessert you’ve ever had.
+ - I’m an athlete and I’m black, and a lot of black athletes go broke. I do not want to become a statistic, so maybe I overcompensate. But I’m paranoid. Oprah told me a long time ago, ‘You sign every check. Never let anyone sign any checks.’
+ - I am here to play women’s tennis. I’m a lady. Predominantly, most of the time I always like to play ladies.
+ - I’m like a chameleon. I can kind of change and get my game going to whatever the situation is. If I play well, which I don’t think I’ve even reached yet at all in this tournament, it’s really hard for anyone to beat me.
+ - For the younger sisters, we always look up to the older sisters because they’re always ahead of us and they always win.
+ - I don’t want to be like some of those celebrities walking around, just so full of themselves. I always want to be down-to-earth, want to be a person like when you meet them, they’re the same person that you think of them in the article or something.
+ - My smile is my favorite part of my body. I think a smile can make your whole body.
+ - Honestly, I could get in a car accident today and never play tennis again, and then I wouldn’t have anything to fall back on. But fortunately enough, I do.
+ - I love hitting aces. It’s not easy, but it makes your life a lot easier.
+ - I’m playing to around 30% of my potential – you’d be shocked at what I could do.
+ - I always say if I play my best it’s difficult to beat me.
+ - Everybody who plays me plays me so hard because they always want to beat me.
+ - Who says that your thirties is when you’re supposed to be done? I would like to know who made that rule!
+ - I’ve always been a fighter and I’ve always fought through things my whole life.
+ - Someone like Billie Jean King is completely my idol.
+ - What’s going to make me happy is going on the court and holding up trophies, singles and doubles.
+ - There’s always another record, then there’s always another person to catch up with or to pass.
+ - You can be whatever size you are, and you can be beautiful both inside and out. We’re always told what’s beautiful and what’s not, and that’s not right.
+ - I’m really super feminine, and I’m really soft. I’m very sensitive, I realized.
+ - I want to be a giving woman and just a nice person in general.
+ - I’m really exciting. I smile a lot, I win a lot, and I’m really sexy.
+ - I’m thankful to my family, friends, and fans for all of their support.
+ - Having a pulmonary embolism is definitely easier than heart break.
+ - I decided I can’t pay a person to rewind time, so I may as well get over it.
+ - I was having an out-of-body experience, it was so hot. I felt I was watching someone play in a blue dress, and it wasn’t me.
+ - My goal in a couple of years is to try to build a successful fashion house like Armani or Versace. I want that more than anything.
+ - We’re sisters, we’re roommates, we’re all that.
+ - I wish I could play like Roger Federer.
+ - I think my father is probably the best coach ever because if we talk about numbers, he’s got a lot and he’s only had two players.
+ - You can’t play well if you don’t look good.
+ - I grew up watching my mom in the kitchen, that’s how I know anything about cooking. I’ve always wanted to go to a culinary class actually.
+ - I just love leopard print.
+ - I’m an actress, model and athlete, and I’d put athlete third on the list.
+ - I feel like I don’t have to win anymore. I’ve had a wonderful career. Tennis has given me so much, things I would have never expected in my life. I feel honored to even be a part of such a wonderful sport.
+ - My coach has said to me, “When you win a match or a tournament, you don’t even think about it – the very next minute you’re like”.
+ - No one likes getting their nails done more than I do.
+ - I definitely want to have kids one day. That’s something I’ve always wanted since as long as I could remember. And the older I get, the more I’m like, “I’m too young!”
+ - I was talking to my mom one time, like, “Gosh, I’m 30.” And she’s like, “In your thirties you’re even stronger than in your twenties.” I didn’t believe her, but I have played better in my thirties.
+ - How many people yell at linespeople? I see it happening all the time. I don’t know how many times I have seen that happen.
+ - To this day, I don’t love my arms. People want more fit arms, but my arms are too fit. But I’m not complaining. They pay my bills.
+ - Hopefully, we can build a rivalry and we’ll be able to do this a lot. Make a legacy, then retire champions.
+ - I’m Serena Williams on the court, but away I have so many different names. I call myself Butterfly.
+ - When you travel so much, the best and most relaxing thing is to just sit on the couch and not move.
+ - I wanted to get really fit. I wanted to lose some weight. So I’ve been doing Pilates and yoga, trying to lean out my body so I won’t be bulky.
+ - Family’s first, and that’s what matters most. We realize that our love goes deeper than the tennis game.
+ - With my website, I’m really interactive. I’ve written a lot of things about me.
+ - Everyone is from Russia. Sometimes I think I’m from Russia, too. All these new Ovas. I don’t know anyone. I don’t really recognise anyone. That’s just how it is. I think my name must be Williamsova.
+ - Couple years ago I was No. 7 and I ended up top. So I kind of like the position that I’m at right now. It’s hot.
+ - When I’m 32? Hopefully I’ll have made my mark with a few different movies, some scary ones and some comedies. I’m really funny, I have a great personality on the camera.
+ - I’m so frugal, you wouldn’t believe it.
+ - I love going to movies.
+ - It’s a lot of bling to play with. You got to have the bling.
+ - It’s amazing, but I guess that happens when you become overly famous. Every week now, I get more famous.
+ - I feel like I’m really young and I’m only thinking about my career and continuing playing.
+ - Tennis is my job, but it’s not my life.
+ - I have started to realize that I am really just a world athlete and a world entertainer – I am a world-known person, I am a global icon.
+ - Legendary? I don’t know. I’m just Serena.
+ - I love designing dresses and tops.
+ - My dad is a marketing mastermind.
+ - I always ask my dad, ‘Why wasn’t I a lefty?’ Even when I was younger I wanted to be lefty. I could have been really good.
+ - The knee just isn’t 100 percent. It’s hard to be out there when you know that you can’t play at your best and could potentially make it worse.
+ - I’m an unbelievable designer.
+ - I’m definitely not at my best. Honestly, I’m under 50 percent. But I’ve won stuff under 50 percent before.
+ - Honestly, I don’t read the press. I don’t know what they’re saying.
+ - There’s one thing I’m really good at, and that’s hitting the ball over a net, in a box. I’m excellent.
+ - I talked with Tom Hanks. I saw that movie ‘Turner and Hooch’ at least 50 times. It took all my guts to go up to him. I went up to him, I was like, ‘Can I have a picture?’ We talked acting; he wanted to know what I was doing. We talked a little tennis. I mean, he knew all about myself and my sister.
+ - Dad thanks for leaning in by helping me become a role model for young girls.
+ - I’m not taking Zika lightly. Especially being older, I definitely am going everywhere protected. I’m protecting myself.
+ - I think a smile can make your whole body. Models, they look fabulous, but they don’t smile, and they look so mad.
+ - I just could never have imagined that I would be mentioned with Chris Evert or with Martina Navratilova, because I was just a kid with a dream and a racquet. Living in Compton, this never happened before.
+ - My dad is the nicest guy you’ll ever meet, and the easiest going.
+ - It’s always good to get a smaller tournament under your belt so that by the time you get to the Slams, you have a lot of experience.
+ - The guy is the greatest male athletes of all time.
+ - I love tennis more than designing because it’s actually easier and I don’t get nearly as nervous.
+ - I feel as a brand I’m here to be around for a long time.
+ - I’ve been getting my reel together. I think they are looking at me more as an actress because I have a lot of potential and a lot of skills.
+ - It’s so great to have that opportunity with so many young American players coming up now. It’s just so exciting. We have to root for the home country.
+ - I’ve always made some legendary comebacks since 1998 when it first started. So that’s kind of just been my MO for my whole career.
+ - I’ve been writing, but I haven’t been writing. In my mind I’ve been saying I want to write, but I haven’t actually physically picked up a pencil and started writing.
+ - We’re going in really fresh. We’re going to have fresh legs and bodies, we’re going to be able to stay the distance, and that’s our goal.
+ - I am basically a blazer. If I were a clothing item, I would be a legging and a blazer.
+ - Yeah, um, I do twitter because I want people to, you know, get to know me, my fans, or my fans to get to know me, you know, just see what type of person I am. You know, hopefully be more on an intimate level with me as opposed to a distant level.
+ - I don’t want to end my career and then start something, I like to do something while my career is still hot and I’ve always enjoyed designing. There’s plenty of time after my tennis to definitely go full-time fashion, when I have arthritis and all that fun stuff.
+ - Everyone in this room knows that Venus is probably one of the greatest people on the tour. She’s really great. She’s super professional. Complete opposite of me.
+ - People see me on the court only as a superhero, grunting and winning. They think you’re a robot, and I’m not.
+ - I’ve developed a karaoke habit. I’ve become a crooner.
+ - I’ll probably be wearing something fun and sexy as usual, but I can’t say it will be the ‘Catsuit.’
+ - If you can keep playing tennis when somebody is shooting a gun down the street, that’s concentration.
+ - I am not a robot. I have a heart and I bleed.
+ - I think it’s bad when people start booing between serves.
+ - I know a lot of people who are 12 and doing things they shouldnt be doing. Whether youre an actress or a singer, its always the sexier ones that are selling more tickets or selling more albums.
+ - You have to believe in yourself when no one else does.
+ - It’s a corset design making me look very, very slim and trim. I call it a corset dress. Very Hollywood glamour with the silk.
+ - I would be really excellent in a horror film because I have a great scream. I’d be really good in a comedy too. I’m top, top, top quality.
+ - A lifetime with Venus Williams will not be enough.
+ - Am I the greatest? I don’t know. I’m the greatest that I can be.
+ - I’m currently writing a screenplay that I haven’t started yet.
+ - I do want to look good still; I do want to be healthy.
+ - I’ve never felt invincible. I’ve never used that word to describe me ever.
+ - I definitely have found a balance. I’ve had so many offers in the past to do different movies or different things and I always choose tournaments over it.
+ - My mom’s chicken, with rice and gravy was my favorite dish as a kid, and it still is now. That’s my favorite meal from her or from anybody. It’s a family favorite.
+
+137 quotes

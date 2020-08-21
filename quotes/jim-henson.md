@@ -1,0 +1,69 @@
+ - If you can’t beat them. Join them.
+ - Beauty is in the eye of the beholder and it may be necessary from time to time to give a stupid or misinformed beholder a black eye.
+ - Watch out for each other. Love everyone and forgive everyone, including yourself. Forgive your anger. Forgive your guilt. Your shame. Your sadness. Embrace and open up your love, your joy, your truth, and most especially your heart.
+ - My hope still is to leave the world a bit better than when I got here.
+ - Through dangers untold and hardships unnumbered I have fought my way here to the castle beyond the Goblin City to take back the child you have stolen, for my will is as strong as yours and my kingdom as great. You have no power over me!
+ - The only way the magic works is by hard work. But hard work can be fun.
+ - If you care about what you do and work hard at it, there isn’t anything you can’t do if you want to.
+ - As children, we all live in a world of imagination, of fantasy, and for some of us that world of make-believe continues into adulthood.
+ - There’s not a word yet, for old friends who’ve just met.
+ - When I was young, my ambition was to be one of the people who made a difference in this world. My hope is to leave the world a little better for having been there.
+ - Please watch out for each other and love and forgive everybody. It’s a good life, enjoy it.
+ - The most sophisticated people I know – inside they are all children.
+ - Life’s like a movie, write your own ending. Keep believing, keep pretending.
+ - Do everything at 100 percent of its potential and never accept second best.
+ - Only time can heal your broken heart. Just as only time can heal his broken arms and legs.
+ - The attitude you have as a parent is what your kids will learn from more than what you tell them. They don’t remember what you try to teach them. They remember what you are.
+ - It’s a wonderful life and I love it.
+ - Life is meant to be fun, and joyous, and fulfilling.
+ - Do the jobs you like least first. It makes each successive job easier.
+ - I know I drive some people crazy with what seems like ridiculous optimism, but it has always worked for me.
+ - But with The Dark Crystal, instead of puppetry we’re trying to go toward a sense of realism – toward a reality of creatures that are actually alive and we’re mixing up puppetry and all kinds of other techniques.
+ - No time is wasted time.
+ - The beauty of nature has been one of the great inspirations in my life.
+ - When I was a kid, I never saw a puppet show. I never played with puppets or had any interest in them.
+ - Television is basically teaching whether you want it to or not.
+ - Take what you got and fly with it.
+ - If our ‘message’ is anything, it’s a positive approach to life. That life is basically good. People are basically good.
+ - I’ve always tried to present a positive view of the world in my work. It’s so much easier to be negative and cynical and predict doom for the world than it is to try and figure out how to make things better. We have an obligation to do the latter.
+ - Never eat anything at one sitting that you can’t lift.
+ - Watch out for the icy patch.
+ - Music is an essential part of everything we do. Like puppetry, music has an abstract quality which speaks to a worldwide audience in a wonderful way that nourishes the soul.
+ - I guess I was wrong when I said I never promised anyone. I promised me.
+ - Certainly I’ve lived my whole life through my imagination. But the world of imagination is there for all of us – a sense of play, of pretending, of wonder. It’s there with us as we live.
+ - I try hard not to judge anyone, and I try to bless everyone who is a part of my life, particularly anyone with whom I am having any problems.
+ - At the University of Maryland, my first year I started off planning to major in art because I was interested in theatre design, stage design or television design.
+ - All of a sudden you realise that you are the person who has control of your life.
+ - It all ends in one of two ways: either someone gets eaten or something blows up.
+ - I believe that life is basically a process of growth-that we go through many lives, choosing those situations and problems that we will learn through.
+ - Follow your enthusiasm. It’s something I’ve always believed in. Find those parts of your life you enjoy the most. Do what you enjoy doing.
+ - I hope that something better comes along.
+ - Nobody creates a fad. It just happens. People love going along with the idea of a beautiful pig. It’s like a conspiracy.
+ - Who said that every wish would be heard and answered when wished on an evening star? Somebody thought of it and someone believed it, and look what its done so far.
+ - I believe that we form our own lives, that we create our own reality, and that everything works out for the best.
+ - When The Muppet Show ended, we all sat around and said, what kind of television show would we like to do. We felt the need these days are for some quality children’s programming.
+ - I don’t know exactly where ideas come from, it’s just a matter of us figuring out how to receive the ideas waiting to be heard.
+ - I decided that what I really wanted to do was go off and paint.
+ - I think my own strengths are in television production.
+ - I’ve never felt any sense of competition with anybody, and we’re all friends; we’re all good friends.
+ - I was very interested in theatre, mostly in stage design. I did a little bit of acting.
+ - If anything, there’s a difference in working with color in England and the color in the US.
+ - At the time of Polaroid – and I did a couple of other commercials just before I stopped doing that stuff – at that point I was at the level where they respect you and your opinion and all that sort of thing.
+ - Yeah, I think we did the term Muppets before we got the show Sam and Friends – a few months after I started working.
+ - Somebody like a Piggy or a Kermit, there needs to be several versions and so there will be several of them.
+ - Yeah, well when I first started working, it was $5 a show; it was probably a little higher by the time I got to my own show, but I remember that they put me under contract at $100 a week, which to me was really an astronomical price.
+ - A film is not done by one person. It’s done by a lot of people. I love this whole collaborative aspect. When it works well, you end up with something better than any of us started out to do.
+ - Well, Detroit Institute is kind of a key – probably the largest permanent collection of puppets in the US.
+ - I do remember doing shows strictly in black and white, too, so you’re right.
+ - There was a little afternoon show that was called Afternoon. Back in those days in television, most local stations had a midday show for housewives that had a series of things. It was like a variety show for midday.
+ - No, there’s not much competition between puppeteers in general because everybody’s working their own style.
+ - It has always been difficult to get Big Bird to be very pretty. Big Bird in England is much more gorgeous.
+ - You’re assisting the audience to understand; you’re giving them a bridge or an access. And if you don’t give them that, if you keep it more abstract, it’s almost more pure. It’s a cooler thing.
+ - If you take a character and you call him a frog, or like Rowlf, our dog, call him a dog, you immediately give the audience a handle.
+ - Actually the copies of characters is something I don’t particularly like to talk about in articles but just for your information, most characters there’s only one.
+ - I think if you study – if you learn too much of what others have done, you may tend to take the same direction as everybody else.
+ - Yeah, I did some small parts in high school and the first year of college and then fairly soon thereafter I settled into the backstage scenery, and then at the University of Maryland I was doing posters for their productions.
+ - NBC was trying to convert all of their local programming to color right away to encourage the sale of the sets, so I barely remember working in black and white, although I do know that I did do it, but there was not a major difference, though.
+ - Yeah, we pretty much had a form and a shape by that time – a style – and I think one of the advantages of not having any relationship to any other puppeteer was that it gave me a reason to put those together myself for the needs of television.
+
+67 quotes

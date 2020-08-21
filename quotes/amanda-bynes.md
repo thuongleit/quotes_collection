@@ -1,0 +1,40 @@
+ - Whatever is meant to be will be and you just have to trust that things happen for a reason. It’s made handling disappointments that much easier because I just remember my mom’s words and know that something better is meant to come my way.
+ - I love making people who already hate me hate me more.
+ - Slow and steady wins the race, and I believe in paying your dues.
+ - Some people still see me as a kid, but I’m a 23-year-old woman now.
+ - I’m far from perfect, but I’ll be perfect for that imperfect person that’s perfect for me.
+ - I love Rihanna. She’s such a beauty!
+ - I don’t care what you say about me if I don’t find you physically attractive.
+ - If you’re not hot I don’t care about you.
+ - Going to another country you’re not in your house, you’re with people you’ve never met before, and I think it’s definitely a good growing experience.
+ - To an ant on the ground, an airplane probably looks like an ant.
+ - Chris Brown beat you because you’re not pretty enough.
+ - I really enjoy acting, and whether it’s TV or films, I feel lucky to be doing it at all. In the end, I’d love to do films, but I’m not going to work just to do work. I only want to do something that I feel right about.
+ - I had a soccer double, but most of what is in the movie is me!
+ - I loved ‘Clueless.’ That was one of my favorite movies of all time.
+ - So many people comment that I’m much more mature than average. In this business, you can get taken advantage of if you’re not aware and you’re not tough.
+ - I don’t like being compared to anyone or being in a class with someone. I’m a teen actress and therefore I’m competing against Hilary Duff. We’re different people like everyone else.
+ - I don’t want to be Marilyn Monroe. In many ways, that’s a good comparison. Because Marilyn Monroe was a sexpot, all that stuff that I have no interest in. For me, it’s much easier to just try to make people laugh than to try to be the hottest thing in the world.
+ - Yes! I’m also a big fan of the movie ‘10 Things I Hate About You,’ which was also based on Shakespeare.
+ - I want to be known for the work I’ve done, as opposed to where I go on Saturday nights...
+ - It doesn’t matter if you feel sexy if you don’t look sexy.
+ - Being an actress isn’t as fun as it may seem. If I don’t love something, I stop doing it. I don’t love acting anymore, so I’ve stopped doing it.
+ - I Want A Million Dollars A Year For Illegally Having My Mind Read And Privacy Stolen.
+ - I feel like people start to believe things that people say about them and start to think they’re really important. If you have a family that is down to earth and cool, I don’t see how you can be like that.
+ - I can’t help but laugh at all of you writing fake stories about me. I was not in any hit and runs. I don’t drink so the DUI is false.
+ - When you’re doing movies, you’re traveling all over the world and you really can’t be home.
+ - I get a script and it’s really interesting with scripts, because you never really know. It’s paper and it could be great or awful. Even scripts that are good could end up not working.
+ - Not having hair makes me feel like a cancer patient.
+ - I want to be married and I want to be away from people.
+ - Well I loved the idea of playing a girl who dresses up like a dude...
+ - We try to magnify the difference between Americans and the English. In real life they like the same music and dress the same. It’s really much more similar than anyone thinks or how we show it.
+ - I have actor friends, but they’re not famous. I feel like if you’re an actor or – famous, you have to overly prove that you’re a normal, cool person.
+ - Part of me relates to Perez Hilton because he’s an outcast. I don’t have a lot of friends who are actresses. They’re catty, and they’ll cut you down. I like that Perez is proud of who he is and doesn’t care what anybody thinks.
+ - I’ve grown up with kids watching me and as they’re growing up, I’m growing up.
+ - I don’t like the way I look in a car. The lighting is very bad.
+ - I’ve never wanted to be the hottest star. I always wanted to do good movies.
+ - I’m so protected in my Nickelodeon bubble and ‘What I Like About You.’ It’s all pretty much the same people I’ve worked with and it was pretty protected.
+ - I never wanted to be a model. I never wanted to be a serious actress. I started off doing comedy. I did a stand-up comedy camp at the Laugh Factory, and I started out on Nickelodeon.
+ - I did theater before I got into TV and everything I did was serious, so it was definitely fun for me to pull out those chops, I definitely wanted to do a movie that just wasn’t comedy.
+
+38 quotes

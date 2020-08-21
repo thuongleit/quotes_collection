@@ -1,0 +1,139 @@
+ - Better to write for yourself and have no public, than to write for the public and have no self.
+ - While thoughts exist, words are alive and literature becomes an escape, not from, but into living.
+ - The English language is like a broad river on whose bank a few patient anglers are sitting, while, higher up, the stream is being polluted by a string of refuse-barges tipping out their muck.
+ - When in doubt, choose greatness.
+ - We create the world in which we live; if that world becomes unfit for human life, it is because we tire of our responsibility.
+ - No education is worth having that does not teach the lesson of concentration on a task, however unattractive. These lessons, if not learnt early, will be learnt, if at all, with pain and grief in later life.
+ - Whom the gods wish to destroy they first call promising.
+ - Friendships that last are those wherein each friend respects the other’s dignity to the point of not really wanting anything from them.
+ - The goal of every culture is to decay through over-civilization; the factors of decadence, – luxury, skepticism, weariness and superstition, – are constant. The civilization of one epoch becomes the manure of the next.
+ - We are all serving a life sentence in the dungeon of the self.
+ - Sheep with a nasty side.
+ - Obesity is a mental state, a disease brought on by boredom and disappointment.
+ - No city should be too large for a man to walk out of in a morning.
+ - Everyone has the right to express an opinion. No one has the right to be listened to.
+ - There is no suicide for which all society is not responsible.
+ - In my religion all believers would stop work at sundown and have a drink together.
+ - It is after creation, in the elation of success, or the gloom of failure, that love becomes essential.
+ - Hate is the consequence of fear; we fear something before we hate it; a child who fears noises becomes a man who hates noise.
+ - Fallen leaves lying on the grass in the November sun bring more happiness than the daffodils.
+ - Green leaves on a dead tree is our epitaph-green leaves, dear reader, on a dead tree.
+ - The headmistress was an able instructress in French and history and we learned with her as fast as fear could teach us.
+ - Miserable Orpheus who, turning to lose his Eurydice, beholds her for the first time as well as the last.
+ - Boys do not grow up gradually. They move forward in spurts like the hands of clocks in railway stations.
+ - Greed, like the love of comfort, is a kind of fear.
+ - The secret of success is to be in harmony with existence, to be always calm to let each wave of life wash us a little farther up the shore.
+ - Youth is a period of missed opportunities.
+ - Marriage is the permanent conversation between two people who talk over everything and everyone until death breaks the record.
+ - A lazy person, whatever the talents with which he set out, will have condemned himself to second-hand thoughts and to second-rate friends.
+ - Like water, we are truest to our nature in repose.
+ - Everything is a dangerous drug except reality which is unendurable.
+ - The man who is master of his passions is Reason’s slave.
+ - Like the bee its sting, the promiscuous leave behind them in each encounter something of themselves by which they are made to suffer.
+ - There is no pain equal to that which two lovers can inflict on one another. This should be made clear to all who contemplate such a union. The avoidance of this pain is the beginning of wisdom, for it is strong enough to contaminate the rest of our lives.
+ - Melancholy and remorse form the deep leaden keel which enables us to sail into the wind of reality; we run aground sooner than the flat-bottomed pleasure-lovers but we venture out in weather that would sink them and we choose our direction.
+ - The past is the only dead thing that smells sweet.
+ - No-one was ever made wretched in a brothel.
+ - Imprisoned in every fat man a thin man is wildly signaling to be let out.
+ - There is no more sombre enemy of good art than the pram in the hall.
+ - The true index of a man’s character is the health of his wife.
+ - The books I haven’t written are better than the books other people have.
+ - The civilized are those who get more out of life than the uncivilized, and for this we are not likely to be forgiven.
+ - Slums may well be breeding grounds of crime, but middle class suburbs are incubators of apathy and delirium.
+ - The civilization of one epoch becomes the manure of the next.
+ - Purity engenders Wisdom, Passion avarice, and Ignorance folly, infatuation and darkness.
+ - There are only three things which make life worth living: to be writing a tolerably good book, to be in a dinner party of six, and to be traveling south with someone whom your conscience permits you to love.
+ - The more I see of life the more I perceive that only through solitary communion with nature can one gain an idea of its richness and meaning.
+ - Hemingway is great in that alone of living writers he has saturated his work with the memory of physical pleasure, with sunshine and salt water, with food, wine and making love and the remorse which is the shadow of that sun.
+ - Except for poverty, incompatibility, opposition of parents, absence of love on one side and of desire to marry on both, nothing stands in the way of our happy union.
+ - Imagination is nostalgia for the past, the absent it is the liquid solution in which art develops the snapshot of reality.
+ - Literature is the art of writing something that will be read twice; journalism what will be grasped at once.
+ - Hate is crystallized fear, fear’s dividend, fear objectified. We hate what we fear and so where hate is, fear will be lurking.
+ - Life is a maze in which we take the wrong turning before we have learned to walk.
+ - Like those crabs which dress themselves with seaweed, we wear belief and custom.
+ - The Expulsion from Eden is an act of vindictive womanish spite; the Fall of Man, as recounted in the Bible, comes nearer to the Fall of God.
+ - Industrial society seems likely to be entering a period of severe stress, due in part to problems of human behavior and in part to economic and environmental problems.
+ - Optimism and self-pity are the positive and negative poles of modern cowardice.
+ - Classical and romantic: private language of a family quarrel, a dead dispute over the distribution of emphasis between man and nature.
+ - That sinister Stonehenge of economic man, Rockefeller Center.
+ - Two weeks before his death, a friend asked him half jokingly if he had discovered any meaning in life. “Yes,” he replied, “there is a meaning; at least, for me, there is one thing that matters – to set a chime of words tinkling in the minds of a few fastidious people.”
+ - The river of truth is always splitting up into arms that reunite. Islanded between them, the inhabitants argue for a lifetime as to which is the mainstream.
+ - As repressed sadists are supposed to become policemen or butchers so those with an irrational fear of life become publishers.
+ - The disasters of the world are due to its inhabitants not being able to grow old simultaneously. There is always a raw and intolerant nation eager to destroy the tolerant and mellow.
+ - For what is liberty but the unhampered translation of will into act?
+ - We fear something before we hate it...
+ - The one way to get thin is to re-establish a purpose in life.
+ - We must select the illusion which appeals to our temperament, and embrace it with passion, if we want to be happy.
+ - It is a mistake to expect good work from expatriates for it is not what they do that matters but what they are not doing.
+ - Carelessness is not fatal to journalism, nor are cliches, for the eye rests lightly on them. But what is intended to be read once can seldom be read more than once; a journalist has to accept the fact that his work, by its very todayness, is excluded from any share in tomorrow.
+ - Poets arguing about modern poetry: jackals snarling over a dried-up well.
+ - Longevity is the revenge of talent upon genius.
+ - It is the fear of middle-age in the young, of old-age in the middle-aged, which is the prime cause of infidelity, that infallible rejuvenator.
+ - Beneath this mask of selfish tranquility nothing exists except bitterness and boredom. I am one of those whom suffering has made empty and frivilous: each night in my dreams I pull the scab off a wound; each day, vacuous and habit ridden, I let it reform.
+ - There are many who dare not kill themselves for fear of what the neighbours will say.
+ - No one can achieve Serenity until the glare of passion is past the meridian.
+ - Happiness lies in the fulfillment of the spirit through the body.
+ - There is no pain equal to that which two lovers can inflict on one another.
+ - If one is too lazy to think, too vain to do a thing badly, too cowardly to admit it, one will never attain wisdom.
+ - The artist is a member of the leisured classes who cannot pay for his leisure.
+ - Beneath a mask of selfish tranquility nothing exists except bitterness and boredom.
+ - Melancholy and remorse forms the deep leaden keel which enables us to sail into the wind of reality.
+ - Believing in Hell must distort every judgement on this life.
+ - In youth the life of reason is not in itself sufficient; afterwards the life of emotion, except for short periods, becomes unbearable.
+ - A mistake which is commonly made about neurotics is to suppose that they are interesting. It is not interesting to be always unhappy, engrossed with oneself, malignant and ungrateful, and never quite in touch with reality.
+ - In a perfect union the man and woman are like a strung bow. Who is to say whether the string bends the bow, or the bow tightens the string?
+ - Civilization is maintained by a very few people in a small number of places and we need only some bombs and a few prisons to blot it out altogether.
+ - The artist one day falls through a hole in the brambles, and from that moment he is following the dark rapids of an underground river which may sometimes flow so near to the surface that the laughing picnic parties are heard above.
+ - When even despair ceases to serve any creative purpose, then surely we are justified in suicide.
+ - Promise is the capacity for letting people down.
+ - How many books did Renoir write on how to paint?
+ - The American language is in a state of flux based upon survival of the unfittest.
+ - Idleness is only a coarse name for my infinite capacity for living in the present.
+ - All charming people have something to conceal, usually their total dependence on the appreciation of others.
+ - An aesthetic movement with a revolutionary dynamism and no popular appeal should proceed quite otherwise than by public scandal, publicity stunt, noisy expulsion and excommunication.
+ - Beautiful women must think about their beauty as capitalists think about their investments or politicians about their majorities; it is all they have to insure their places in the world.
+ - We may assume that we keep people waiting symbolically because we do not wish to see them and that our anxiety is due not to being late, but to having to see them at all.
+ - We cannot be happy until we can love ourselves without egotism and our friends without tyranny.
+ - From now on – specialize; never again make any concession to the ninety-nine percent of you which is like everyon else at the expense of the one percent which is unique.
+ - Civilization is an active deposit which is formed by the combustion of the Present with the Past. Neither in countries without a Present nor in those without a Past is it to be discovered.
+ - It is a consolation of human life that the sick forget what it is like to feel well, or the miserable to be happy.
+ - When young we are faithful to individuals, when older we grow loyal to situations and to types.
+ - There is no fury like an ex-wife searching for a new lover.
+ - In my religion, there would be no exclusive doctrine; all would be love, poetry, and doubt.
+ - Always be nice to those younger than you, because they are the ones who will be writing about you.
+ - A woman’s desire for revenge outlasts all her other emotions.
+ - The true function of a writer is to produce a masterpiece and no other task is of any consequence.
+ - English Law: where there are two alternatives: one intelligent, one stupid; one attractive, one vulgar; one noble, one ape-like; one serious and sincere, one undignified and false; one far-sighted, one short; EVERYBODY will INVARIABLY choose the latter.
+ - Most of the beauty of women evaporates when they achieve domestic happiness at the price of their independence.
+ - The lesson one can learn from Firbank is that of inconsequence. There is the vein which he tapped and which has not yet been fully exploited.
+ - The greatest problem with women is how to contrive that they should seem our equals.
+ - No one over thirty-five is worth meeting who has not something to teach us, something more than we could learn for ourselves, from a book.
+ - Doing is overrated, and success undesirable, but the bitterness of failure even more so.
+ - Nothing dates like hate and in literature a little of it goes a very long way.
+ - No taste is so acquired as that for someone else’s quality of mind.
+ - The true work of art is the one which the seventh wave of genius throws up the beach where the undertow of time cannot drag it back.
+ - We love but once, for once only are we perfectly equipped for loving.
+ - The refractory pupil of Socrates, Aristippus the Cyrene, who believed happiness to be the sum of particular pleasures and golden moments and not, as Epicurus, a prolonged intermediary state between ecstasy and pain.
+ - Words today are like the shells and rope of seaweed which a child brings home glistening from the beach and which in an hour have lost their luster.
+ - A great writer created a world of his own and his readers are proud to live in it. A lesser writer may entice them in for a moment, but soon he will watch them filing out.
+ - The shock, for an intelligent writer, of discovering for the first time that there are people younger than himself who think him stupid is severe.
+ - Only by avoiding the beginning of things can we escape their end.
+ - The only way for writers to meet is to share a quick peek over a common lamp-post.
+ - The reward of art is not fame or success but intoxication.
+ - Today the function of the artist is to bring imagination to science and science to imagination, where they meet, in the myth.
+ - There cannot be a personal God without a pessimistic religion. As soon as there is a personal God he is a disappointing God.
+ - A life based on reason will always require to be balanced by an occasional bout of violent and irrational emotion, for instinctual drives must be satisfied.
+ - An author arrives at a good style when his language performs what is required of it without shyness.
+ - Our memories are card indexes consulted and then returned in disorder by authorities whom we do not control.
+ - A writer is in danger of allowing his talent to dull who lets more than a year go past without finding himself in his rightful place of composition, the small single unluxurious retreat of the twentieth century, the hotel bedroom.
+ - If our elaborate and dominating bodies are given us to be denied at every turn, if our nature is always wrong and wicked, how ineffectual we are; like fishes not meant to swim.
+ - Approaching forty, I had a singular dream in which I almost grasped the meaning and understood the nature of what it is that wastes in wasted time.
+ - When I write after dark the shades of evening scatter their purple through my prose.
+ - The worst vice of the solitary is the worship of his food.
+ - Those of us who were brought up as Christians and have lost our faith have retained the sense of sin without the saving belief in redemption. This poisons our thought and so paralyses us in action.
+ - It is only in the country that we can get to know a person or a book.
+ - Most people do not believe in anything very much and our greatest poetry is given to us by those who do.
+ - The artist secretes nostalgia around life.
+ - The dread of loneliness is greater than the fear of bondage, so we get married.
+
+137 quotes

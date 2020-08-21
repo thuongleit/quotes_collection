@@ -1,0 +1,28 @@
+ - Hard times always lead to something great.
+ - Keep your sunny side up, keep yourself beautiful, and indulge yourself!
+ - With over 3 million women battling breast cancer today, everywhere you turn there is a mother, daughter, sister, or friend who has been affected by breast cancer.
+ - You have to hold onto your fantasy.
+ - Real success is being totally indulgent about your own trip. You put your blinders on about the garbage and go full speed ahead.
+ - I used to design for my body, which was flat-chested with big hips. That’s why my clothes were tight on top with full skirts.
+ - Always have fun with fashion. Dress to entertain yourself.
+ - I don’t like to have time on my wall; it’s too-in-your-face.
+ - Girls don’t dress for boys...
+ - When you’re designing clothing, you really only have one point of focus, and that’s the body. But home is fabrics and furniture and floors and natural light. If fashion is a planet, home is more like a universe.
+ - Girls do not dress for boys. They dress for themselves, of course, each other. If girls dressed for boys, they’d just walk around naked at all times.
+ - It’s just been so heartwarming to see my clothes on people in wheelchairs and people needing physical support.
+ - There is an excitement about having nightmares.
+ - If a girl comes to me first for a prom or a bar mitzvah and she likes the way she looks and her boyfriend likes the way she looks, she’ll come back.
+ - Love is a disease of the heartin the end, there is no treatment curable and it might just kill you.
+ - I was a cheerleader for nine years!
+ - If it hadn’t been for the rise of the working woman’s wardrobe, I never would have found the time to sneak a kid in.
+ - I was always dancing and acrobatics was my specialty.
+ - My customer isn’t wrapped up in labels and money.
+ - I never wanted to join fashion industry or being another Donna or another Dianne. I made clothes that I wanted to wear. I would cut, I would sew and I would wear, and it made me to feel better.
+ - I’m not the type of person who dwells too much on bad things.
+ - Just to see what a pink dress can mean to a woman, any woman, but a disabled woman, that’s extra special and thrilling because they shouldn’t be separated and their disabilities don’t have to separate them in anyway.
+ - I never keep anything beautiful in the closet.
+ - I couldn’t live if I wasn’t a designer.
+ - A good use for me is to let me go away with my sewing machine and come back with some really new stuff.
+ - I hate to say it, but the truth is that the upscale line is where I get respect as a designer. The higher the price range, the higher the respect level from the industry, even though it’s much easier to make a great $500 dress than a great $100 dress.
+
+26 quotes

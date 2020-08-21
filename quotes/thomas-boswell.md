@@ -1,0 +1,24 @@
+ - There is no substitute for excellence. Not even success.
+ - Cheating is baseball’s oldest profession. No other game is so rich in skullduggery, so suited to it or so proud of it.
+ - Quarterbacks have to ask the crowd to quiet down. Pitchers never do.
+ - Baseball is really two sports – the summer game and the autumn game. One is the leisurely pastime of our national mythology. The other is not so gentle.
+ - A good umpire, like a good FBI agent, is never noticed if he is doing his job.
+ - Born to an age where horror has become commonplace, where tragedy has, by its monotonous repetition, become a parody of sorrow, we need to fence off a few parks where humans try to be fair, where skill has some hope of reward, where absurdity has a harder time than usual getting a ticket.
+ - Baseball is not necessarily an obsessive-compulsive disorder, like washing your hands 100 times a day, but it’s beginning to seem that way. We’re reaching the point where you can be a truly dedicated, state-of-the-art fan or you can have a life. Take your pick.
+ - A narrative voice with conviction is often hard to find. But not in baseball. The minors teach two lost American arts: how to chew tobacco and how to tell a story.
+ - Baseball is religion without the mischief.
+ - More than any other American sport, baseball creates the magnetic, addictive illusion that it can almost be understood.
+ - Conversation is the blood of baseball. It flows through the game, an invigorating system of anecdotes. Ballplayers are tale tellers who have polished their malarkey and winnowed their wisdom for years.
+ - All baseball fans can be divided into two groups: those who come to batting practice and the others. Only those in the first category have much chance of amounting to anything.
+ - Baseball is to our everyday experience what poetry often is to common speech – a slightly elevated and concentrated form.
+ - An almost inexorable baseball law: A Red Sox ship with a single leak will always find a way to sink No team is worshipped with such a perverse sense of fatality.
+ - Baseball means Spring’s Here. Football means Winter’s Coming.
+ - Of the big four, the PGA is the most fair and the least fun. Basically, it’s just the US Open set up by nice, rather than nasty, fellows.
+ - Football is played best full of adrenaline and anger. Moderation seldom finds a place. Almost every act of baseball is a blending of effort and control; too much of either is fatal.
+ - Any person claiming to be a baseball fan who does not also claim to have invented the quickest, simplest and most complete method of keeping score probably is a fraud.
+ - Baseball has traditionally possessed a wonderful lack of seriousness. The game’s best player, Babe Ruth, was a Rabelaisian fat man, and its most loved manager, Casey Stengel, spoke gibberish. In this lazy sport, only the pitcher pours sweat. Then he takes three days off.
+ - As every golfer knows, no one ever lost his mind over one shot. It is rather the gradual process of shot after shot watching your score go to tatters – knowing that you have found a different way to bogey each hole.
+ - A major golf tournament is 40,000 sadists watching 144 masochists.
+ - I may be the only golfer never to have broken a single putter, if you don’t count the one I twisted into a loop and threw into a bush.
+
+22 quotes

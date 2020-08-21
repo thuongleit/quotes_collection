@@ -1,0 +1,52 @@
+ - Middle-class people are becoming desperate. It can cause a moral man to break bad.
+ - I practice yoga every day. The practice calms my spirit, and allows me to be present.
+ - I feel that our stories are cross culturally irrelevant, and I’m a member if a larger community of people who have no boundaries in terms of color or in terms of how I look at other people and their stories.
+ - I try to be careful with my persuasiveness. When my heart is really behind it, and when I have no ulterior motive, then I know I’m truly persuasive.
+ - I came from a divorced mother and father, obviously mixed race.
+ - I like to always wash the slate clean, and reinvigorate my spirit to be connected to the characters that I am doing. I am finding new ways to allow myself to soar beyond the parameters of what the writers have written. My key is to commit, and love your character.
+ - There is a price to pay for most of our actions. For every action, there is a reaction.
+ - I’m impatient sometimes.
+ - I had to work from a young age.
+ - I always wanted to be a boy scout but was too poor. Couldn’t do it.
+ - After ‘Breaking Bad,’ people are very frightened of who I am. They back away from me on the street.
+ - I often think about, ‘How do we return to a simpler way of living? Is there some way that we can start to think of each other as human beings again, instead of worshiping money, instead of worshiping electronics, instead of worshiping getting ahead just for me?’
+ - I feel that we have come a long way as American people, and we have to start looking at ourselves as human beings.
+ - I’m interested in spirituality and in religion and our relationship to the divine.
+ - I can fish from a stick and a string.
+ - It’s certain that the death of an actor can be on a television screen playing the same thing every week.
+ - Yoga has allowed me to bring my complete spirit together, which allows me to do less, which is more.
+ - My rule is simply “love what you do”. That certainly has brought me to the place I where am at right now. It really has been with the work.
+ - I’m a big fan of period pieces, and I’m a big fan of the old-time westerns.
+ - I never like to refer back to anything I’ve done when I’m working on a character, even if that character has the same occupation.
+ - I love the smell of fried chicken.
+ - For me, what I try to heal is the major thing that I think all of us go through, where we came from. From our family of origin.
+ - For me, listening to my breath in between the lines, allows me to be in deep connection to my spirit.
+ - If I can look at each character that I am given and create them in a different way from the last role, I’m happy.
+ - I’m not too into fast food, but you know if I was, it would be chicken.
+ - For me, I’ve lived a life as an athlete.
+ - There is a dream that the world could be at peace, but that requires that all the folks with arms disarm, or take over all the arms and allow us to trust them.
+ - To be a character actor is to be open, to be a chameleon.
+ - I look at ‘Breaking Bad’ as a show about the American family.
+ - I feel that sometimes, holding yourself as black, saying that is your sole identity, can sometimes stand in your way of being a member of the humanity of man, being a member of the family of the divine.
+ - It was amazing to be nominated by the Academy who saw fit for me to be nominated for best supporting actor. The Critic’s choice award was wonderful. I’m on cloud nine.
+ - I’m not someone who is a fan of a lot of violence.
+ - Who told you to step on my sneakers? Who told you to walk on my side of the block? Who told you to be in my neighborhood?
+ - I know from teaching that actors want to act. Even the subtlest actors can do a little too much.
+ - I want a body of work; I want a good story after a good story.
+ - I love to read, and I like the fact that there’s some silence in my life.
+ - Cable was a blessing for me. Thank god, I’ve done a show that’s going to be iconic. So, if I screw up, it’s all right because I already have something that’s going to be iconic.
+ - When I listen to my scene partners and listen to their breathing allows me to be connected to them in scenes. I am not trying to multi task, not trying to talk on the phone, but in my character.
+ - I have from time to time been a double A or triple A personality. I’m not anymore. I’m more lenient on myself.
+ - Well, with each character that I play in my life as an actor, I try to figure out how to find the challenge.
+ - When I perform on stage, you have to remember my performance or buy another ticket to the party! In television and film, you can see it over and over again.
+ - I believe acting is very physical, and when you have to fight or do those kinds of things, it takes a lot of respect not to allow yourself to go off and hurt yourself or someone else.
+ - I can only control what I do. I can try to suggest and be open, but trust is the key.
+ - When you have great acting partners, you hope that your reaction to them is propels you deeper into your own character.
+ - It feels amazing to work with writers that write really well.
+ - I think many people have contradictions to them and I love characters that deal with those contradictions.
+ - I don’t think anyone is black and white and I think we change our minds and our attitudes about certain things as we grow to our maturity.
+ - You can never lead unless you follow.
+ - I first felt successful when I was 13 and in a show called Seesaw. I came offstage and heard the applause of the theater audience and felt a sense of accomplishment. Around that time my role model for success was Burt Lancaster. He was one of the first ac.
+ - I feel that if you can transcend the color of your skin, with your talent, why carry that as a badge or a label?
+
+50 quotes

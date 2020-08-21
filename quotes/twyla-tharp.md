@@ -1,0 +1,180 @@
+ - Creativity is an act of defiance.
+ - Perfect practice makes perfect.
+ - Over time, as the daily routines become second nature, discipline morphs into habit.
+ - Before you can think out of the box, you have to start with a box.
+ - Art is the only way to run away without leaving home.
+ - Generosity is luck going in the opposite direction, away from you. If you’re generous to someone, if you do something to help him out, you are in effect making him lucky. This is important. It’s like inviting yourself into a community of good fortune.
+ - Our ability to grow is directly proportional to an ability to entertain the uncomfortable.
+ - Creativity is a habit, and the best creativity is a result of good work habits.
+ - Whom the gods wish to destroy, they give unlimited resources.
+ - To embrace luck, you have to enhance your tolerance for ambiguity.
+ - You may wonder which came first: the skill or the hard work. But that’s a moot point. The Zen master cleans his own studio. So should you.
+ - The blank space can be humbling. But I’ve faced it my whole professional life. It’s my job. It’s also my calling. Bottom line: Filling this empty space constitutes my identity.
+ - I don’t think that scheduling is uncreative. I think that structure is required for creativity.
+ - I began to discriminate between fear and excitement. The two, though very close, are completely different. Fear is negative excitement, choking your imagination. Real excitement produces an energy that overcomes apprehension and makes you want to close in on your goal.
+ - Ultimately there is no such thing as failure. There are lessons learned in different ways.
+ - You double your intensity with skill.
+ - When creativity has become your habit; when you’ve learned to manage time, resources, expectations, and the demands of others; when you understand the value and place of validation, continuity, and purity of purpose, then you’re on the way to an artist’s ultimate goal; the achievement of mastery.
+ - When you’re in a rut, you have to question everything except your ability to get out of it.
+ - Concentrate: you can’t have it all.
+ - Metaphor is the lifeblood of all art.
+ - The more you know, the better you can imagine.
+ - There are as many forms of memory as there are ways of perceiving, and every one of them is worth mining for inspiration.
+ - When it all comes together, a creative life has the nourishing power we normally associate with food, love and faith.
+ - If art is the bridge between what you see in your mind and what the world sees, then skill is how you build that bridge.
+ - I had always seen myself as a star; I wanted to be a galaxy.
+ - You don’t get into the mood to create – it’s discipline.
+ - The first steps of a creative act are like groping in the dark: random and chaotic, feverish and fearful, a lot of busy-ness with no apparent or definable end in sight.
+ - Without the little ideas, there are no big ideas.
+ - I don’t think politicians should be allowed into power who are not familiar with their bodies, because that’s where our bottom line is. And I know that they would make totally different decisions if they felt responsible simply for their own bodies.
+ - Optimism with some experience behind it is much more energizing than plain old experience with a certain degree of cynicism.
+ - Alone is a fact, a condition where no one else is around. Lonely is how you feel about that.
+ - Failing, and learning from it, is necessary. Unil you’ve done it, you’re missing an important piece of your creative arsenal.
+ - In the future, I will make certain that I commit to projects so there’s enough breathing space for me to have an emotional life.
+ - If you’re speaking of love, you really must include the element of uncertainty – and perhaps it’s best approached as the art of constant maintenance.
+ - Dancing is like bank robbery, it takes split-second timing.
+ - My mother was the first woman in the county in Indiana where we were born, in Jay County, to have a college degree. She was educated as a pianist and she wanted to concertize, but when the war came she was married, had a family, so she started teaching.
+ - You have to believe there’s something at the other side. And you have to have faith in yourself. You have to think that you have the tools to accomplish it.
+ - Skill is how you close the gap between what you can see in your mind’s eye and what you can produce; the more skill you have, the more sophisticated and accomplished your ideas can be. With absolute skill comes absolute confidence.
+ - Everyone has a talent. It’s simply a question of good discipline, of the good fortune to have an education that meshes with that talent, and a lot of luck.
+ - You’re only kidding yourself if you put creativity before craft.
+ - The ballet needs to tell its own story in such a way it can be received without having to be translated into language.
+ - The content and thematic materials of dance is, of itself, like boxing. You play tennis and baseball. But boxing is not a sport you play: you stand up and do it.
+ - Just when you arrive at the apex of your skills, it’s time to retire. But as it turned out, I decided that since it was the thing that I felt I did best, I owed it to all that be to pursue it.
+ - I started formal piano training when I was 4. From there I had little violas, and I had dancing lessons of every sort and description, and painting lessons. I had German. And shorthand.
+ - Solitude is an unavoidable part of creativity. Self-reliance is a happy by-product.
+ - As people who have commitments and obligations, we try to blockade emotions and go on our course towards excellence, and that’s a lie. I’ve definitely paid a price. Everything is an exchange.
+ - Creativity is not just for artists. It’s for businesspeople looking for a new way to close a sale; it’s for engineers trying to solve a problem; it’s for parents who want their children to see the world in more than one way.
+ - Once you accept the power of spine in the creative act, you will become much more efficient in your creativity. You will still get lost on occasion, but having a spine will anchor you.
+ - A dancer’s life is all about repetition.
+ - I walk into a large white room. It’s a dance studio in midtown Manhattan. The room is clean, virtually spotless if you don’t count the thousands of skid marks and footprints left there by dancers rehearsing. Other than the mirrors, the boom box, the skid marks, and me, the room is empty.
+ - The notion of the hero as outsider, as alien, is forget it, over, done with. It’s not about being against society anymore. It’s about standing there, holding something up. It’s not pulling away.
+ - I work because I have issues and questions and feelings and thoughts that I want to have a look at. I’m not in need of, or wanting, particularly, to know what other folk are up to.
+ - Whether it’s a painter finding his way each morning to the easel, or a medical researcher returning daily to the laboratory, the routine is as much a part of the creative process as the lightning bolt of inspiration, maybe more.
+ - My greatest fear in working is always the end. Lately I have taken to tricking myself into finishing by leaving a hole in the middle somewhere, then stitching the two pieces together – the Union Pacific approach.
+ - I read for growth, firmly believing that what you are today and what you will be in five years depends on two things: the people you meet and the books you read.
+ - Any comic is a tragic soul. Comedy is one of the things that allows one to survive. Particularly if one has been in the process of separating off the emotions, it’s one place you can process them.
+ - More often than not I’ve found, a rut is a consequence of sticking to tried and tested methods that don’t take into account how you or the world has changed.
+ - I’ve survived inattention. I hope to God I survive attention.
+ - The only thing I fear more than change is no change. The business of being static makes me nuts.
+ - Everything is raw material. Everything is relevant. Everything is usable. Everything feeds into my creativity. But without proper preparation, I cannot see it, retain it, and use it.
+ - Obligation is a flimsy base for creativity, way down the list behind passion, courage, instinct, and the desire to do something great.
+ - I have learned over the years that you should never save for two meetings what you can accomplish in one.
+ - This is the hard part. Knowing and admitting a problem are not the same as solving it. But executing a solution is also the fun part, because the solution save you and gets you moving again.
+ - Reading, conversation, environment, culture, heroes, mentors, nature – all are lottery tickets for creativity. Scratch away at them and you’ll find out how big a prize you’ve won.
+ - Creativity requires quite a lot of faith – not just in yourself but also in the knowledge that you have the right to proceed, even when you may not know exactly what you’re doing.
+ - I think that anyone who’s pushed to do the very best that they can is privileged. It’s a luxury.
+ - In dreams, anything can be anything, and everybody can do. We can fly, we can turn upside down, we can transform into anything.
+ - You can keep on chewing gum for ten hours, but after about a minute and a half you’ve got all the good out of it.
+ - The thing about creativity is, people are going to laugh at it. Get over it.
+ - I’m a known reader. That’s what I do with my time.
+ - It is extremely arrogant and very foolish to think that you can ever outwit your audience.
+ - Mastery is an elusive concept. You never know when you achieve it absolutely and it may not help you to feel you’ve attained it. We can recognize it more readily in others than we can in ourselves. We have to discover our own definition of it.
+ - By making the start of the sequence automatic, they replace doubt and fear with comfort and routine.
+ - I do everything I know how in a dance.
+ - I understand things that are American, for better or worse.
+ - I have a sort of tactility about music. I go into record stores and just run my fingers over it, the spines.
+ - I have to feel that each thing I’ve learned I can push to another point next time. I’m not very good with repetition. I would rather not work than feel that repetition is the order of the day.
+ - I was valedictorian. Did I enjoy going to school? I hated it. It wasn’t a choice on my part, it was expected.
+ - You only need one good reason to commit to an idea, not four hundred. But if you have four hundred reasons to say yes and one reason to say no, the answer is probably no.
+ - I think that probably the moments of discovery do come from a place that is not totally organized. Order is something that we already know about. Discoveries are in a place we don’t already know about.
+ - I had to become the greatest choreographer of my time. That was my mission, and that’s what I set out to do.
+ - It’s vital to establish some rituals-automatic but decisive patterns of behavior-at the beginning of the creative process, when you are most at peril of turning back, chickening out, giving up, or going the wrong way.
+ - A young person has to start making decisions for themselves at a much earlier age than an overbearing parent allows one.
+ - There really is nothing I ever had access to that I didn’t appreciate.
+ - I can’t emphasize this idea enough. Getting involved with your collaborator’s problems almost always distracts you from your own. That can be tempting. That can be a relief. But it usually leads to disaster.
+ - With each piece I’ve completed I have worked to make it intact, and each of them has been an equal high. It’s like children. A mother refuses to pick out one as a favorite, and I can’t do any better with the dances.
+ - I’m willing to be regarded as a tyrant to keep my vision intact.
+ - There’s this expression called postmodernism, which is kind of silly, and destroys a perfectly good word called modern, which now no longer means anything.
+ - That’s what improvising is like for me. There’s no tollbooth between my impulse and my action.
+ - In the not-for-profit world, there can be wastefulness because there’s not the desperate urgency of when you’re on a clock.
+ - Life is about moving, it’s about change. And when things stop doing that they’re dead.
+ - Whether or not God has kissed your brow, you still have to work. Without learning and preparation, you won’t know how to harness the power of that kiss.
+ - In the end all collaborations are love stories.
+ - Every dance I make is a dive into this well of ancient memory.
+ - Our guys have a vision of something bigger.
+ - Judgment is not my business. Existing is my business.
+ - The necessity to constantly turn in an excellent performance, to be absolutely wedded to this dedication and this ideal means that as a child you’re going to pay for it personally.
+ - Men and women are very different athletes, and frankly, I didn’t want to deal with the male potential.
+ - I think people want very much to simplify their lives enough so that they can control the things that make it possible to sleep at night.
+ - I write. I have read a great deal. I enjoy books. I like the wit of languages. Even French I like. I like to be able to think in different modes. I like to be able to use the language a great deal and carry on rehearsals in French.
+ - In creative endeavors luck is a skill.
+ - The formal education that I received made little sense to me.
+ - I was fortunate to love men, so I could put them on stage and make roles for them, and move through their bodies in a way that they enjoy doing.
+ - The way I enjoyed spending time most was dancing. That’s from the time I was a very small child, When I was 4 or 5 years old, I remember already having a regime. It was the way I always identified myself.
+ - Dance has never been a particularly easy life, and everybody knows that.
+ - One clear difference between art and commercial work is that commercial work is exploitive: the work may be high quality but the intention is to sell product or tickets. Art exists with or without ticket sales.
+ - I always, somehow, knew that I was going to dance.
+ - I was privileged to be able to study a year with Martha Graham, the last year she was teaching.
+ - There is obviously a power and a truth in action that doesn’t lie, which words easily can do.
+ - Every work of art needs a spine – an underlying theme, a motive for coming into existence. It doesn’t have to be apparent to the audience. But you need it at the start of the creative process to guide you and keep you going.
+ - A lot of people insisted on a wall between modern dance and ballet. I’m beginning to think that walls are very unhealthy things.
+ - If you only do what you know and do it very, very well, chances are that you won’t fail. You’ll just stagnate, and your work will get less and less interesting, and that’s failure by erosion.
+ - Easily acquired. Inexpensive. Perfectly functional. Portable. Identifiable. Disposable. Eternal enough. These are my criteria for the perfect storage system. And I’ve found the answer in the simple file box.
+ - My mother was a dominant force in my life. She had a very specific idea about education, which was: you should know everything about everything. It was quite simple. There was no exclusivity, and there really was no judgment.
+ - I began ear training when I was about six months old. My mother was a concert pianist, and she started all of her children with music before they were a year old. Then she began to see that I had a musical gift.
+ - This is not a pleasant route for many young people to consider. You have to be either hopelessly passionate, or very stupid.
+ - We’re a machine and we have to be worked in the same way we have to be fed.
+ - Doing is better than not doing, and if you do something badly you’ll learn to do it better.
+ - When I’m in the studio, when I’m warm, when I’m what people call improvising, I feel a very special connection. I feel the most right. I don’t want to become too mystic about this, but things feel as though they’re in the best order at that particular moment.
+ - No one is born with skill. It is developed through exercise, through repetition, through a blend of learning and reflection that’s both painstaking and rewarding. And it takes time.
+ - When you stimulate your body, your brain comes alive in ways you can’t simulate in a sedentary position.
+ - You don’t have a really good idea until you combine two little ideas.
+ - Creativity is more about taking the facts, fictions, and feelings we store away and finding new ways to connect them.
+ - I learned very early that an audience would relax and look at things differently if they felt they could laugh with you from time to time. There’s an energy that comes through the release of tension that is laughter.
+ - The disasteris not the money, although the money will be missed. The disaster is the disrespect – this belief that the arts are dispensable, that they’re not critical to a culture’s existence.
+ - I’m much stronger than most women. When I work with men, or when I’m partnered by men, we can actually go into kinds of movement that haven’t been available before, simply because I’ve strengthened myself as a woman, not because I’ve weakened him.
+ - It was not until I had graduated from college that I made a professional commitment to it. Frankly, I didn’t think it wise. I was my own interior parental force, and it’s very difficult to justify a profession as a dancer.
+ - I don’t believe in rushing and saying this is done and over with. That form of rebellion doesn’t make sense to me. I’ve always attempted to familiarize myself with the traditions, and consider that a responsibility of the artist.
+ - Dance is the stepchild of the arts.
+ - I often say that in making dances I can make a world where I think things are done morally, done democratically, done honestly.
+ - I think of music as fuel, its spectrum of energy governed by tempi, volume, and heart.
+ - I feel I can handle the architecture of dance as well as anybody.
+ - I never studied with Balanchine, but his work was very important to me.
+ - Traveling the paths of greatness, even in someone else’s footprints, is a vital means to acquiring skill.
+ - Later in life, one of the compensations is gliding effortlessly into focus in a thing. Since it is who we are, anything that is not the focus or supportive thereof is just not us. Even outside issues, when they arise, are interesting in that they only help define the focus more clearly.
+ - The routine is as much a part of the creative process as the lightening bold of inspiration, maybe more. And this routine is available to everyone.
+ - I’m not one who divides music, dance or art into various categories. Either something works, or it doesn’t.
+ - I am fairly concise when I work and I work quickly because I think work is done better in a high gear than done our in a gear when everyone’s exhausted. Get focused, do it!
+ - I have always felt one of the things dance should do – its business being so clearly physical – is challenge the culture’s gender stereotypes.
+ - I don’t mean this, but I’m going to say it anyway. I don’t really think of pop art and serious art as being that far apart.
+ - Well, Mozart is extraordinary not only in that he became virtuoso along the lines of his father, but that he had that compositional gift, that melodic gift. By the time he was four, he was doing piano concertos with harmony in the background.
+ - I think a sense of humor will help get a girl out of a dark place.
+ - Playwrights have texts, composers have scores, painters and sculptors have the residue of those activities, and dance is traditionally an ephemeral, effervescent, here-today-gone-tomorrow kind of thing.
+ - To make real change, you have to be well anchored – not only in the belief that it can be done, but also in some pretty real ways about who you are and what you can do.
+ - Usually kids who are talented have the brashness to think they can do anything, but they don’t often get the chance to see how close they can come.
+ - Living had little use for me other than how it could be funneled into dance.
+ - I thought I had to make an impact on history. I had to become the greatest choreographer of my time. That was my mission. Posterity deals with us however it sees fit. But I gave it 20 years of my best shot.
+ - I have not wanted to intimidate audiences. I have not wanted my dancing to be an elitist form. That doesn’t mean I haven’t wanted it to be excellent.
+ - What I do remember is visualization of the sound of music, seeing bodies in movement in relation to how music sounded, because my mother practiced at the keyboard a lot and I also went to her lessons. As a two year old, three year old I remember seeing things in movement.
+ - I’ve always found it necessity to strip away everything but the most fundamental ways to work – the rest is style.
+ - I have the wherewithal to challenge myself for my entire life. That’s a great gift.
+ - I’ve always thought my creative life began the moment my mother called me Twyla.
+ - I always find that the best collaborations are when you work with people that know what they’re doing, and you leave them alone to do it.
+ - I do believe that when dancing is right, the movement possesses a logic common to us all.
+ - I was interested in becoming a show dancer, for which I tried, but I’m not tall enough.
+ - We get into ruts when we run with the first idea that pops into our head, not the last one.
+ - Never worry that rote exercises aimed at developing skills will suffocate creativity. At the same time, it’s important to recognize that demonstrating great technique is not the same as being creative.
+ - Energy and time are finite resources; conserving them is very important.
+ - Art is an investigation.
+ - Milos Forman is a great director, Jim Brooks is a wonderful writer and director.
+ - The rewards of dancing are very different from choreographing.
+ - Nobody likes to see that which they’ve invested in disappear from the face of the earth before they’ve even died. This is not cool. We can now see what the landmarks are.
+ - In terms of individuals who actually inspired me, very few of the academic people that I had access to had that power over me. Maybe it’s simply because I wasn’t that committed to geometry.
+ - Whenever I feel I’m working in a groove it’s invariably because I feel I am being the benefactor in the situation rather than the beneficiary. I am sharing my art with others, lending my craft to theirs, interest-free with no IOU.
+ - Without passion, all the skill in the world won’t lift you above craft. Without skill, all the passion in the world will leave you eager but floundering. Combining the two is the essence of the creative life.
+ - There’s an energy that comes through the release of tension that is laughter.
+ - Limits are a secret blessing, and bounty can be a curse.
+ - In those days, male dancers were a rarer breed than women. as they are still today, A good male dancer, one as strong as we were, was very difficult to come by if you couldn’t afford to pay them.
+ - I’ve always had to keep the walls in place, and the only way to do that is to keep yourself constantly occupied. From the time I was 8 years old, until I went to college, I worked. There was no social life.
+ - The more you fail in private, the less you will fail in public.
+ - It’s very difficult to justify a profession as a dancer.
+ - A commission is an invitation to fall in love.
+ - I would have to challenge the term, modern dance. I don’t really use that term in relation to my work. I simply think of it as dancing. I think of it as moving.
+ - In order to be creative, you have to know how to prepare to be creative.
+ - I think Tolstoy had an unbelievably complicated relationship with women.
+ - Modern dancers should be doing things no one else is doing, and it should come from the gut...
+ - But obligation, I eventually saw, is not the same as commitment, and it’s certainly not an acceptable reason to stick with something that isn’t working.
+ - The great ones never take fundamentals for granted.
+
+178 quotes

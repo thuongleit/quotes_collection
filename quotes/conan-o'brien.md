@@ -1,0 +1,384 @@
+ - Work hard, be kind, and amazing things will happen.
+ - Nobody in life gets exactly what they thought they were going to get. But if you work really hard and you’re kind, amazing things will happen.
+ - It is our failure to become our perceived ideal that ultimately defines us and makes us unique. It’s not easy, but if you accept your misfortune and handle it right your perceived failure can become a catalyst for profound re-invention.
+ - Nietzsche famously said, ‘Whatever doesn’t kill you makes you stronger.’ What he failed to stress is that it ALMOST kills you.
+ - When all else fails there’s always delusion.
+ - It is our failure to become our perceived ideal that ultimately defines us and makes us unique.
+ - Fall down. Make a mess. Break something occasionally. Know that your mistakes are your own unique way of getting to where you need to be. And remember that the story is never over.
+ - I like being tested. I get as scared as anyone. But the feeling of putting yourself on the line, betting on your talent and having it work; that’s the most exhilarating feeling in the world.
+ - Over-thinking in your brain is anathema to the process of thinking on your feet.
+ - The beauty is that through disappointment you can gain clarity, and with clarity comes conviction and true originality.
+ - I just want to say to the kids out there watching: You can do anything you want in life. Unless Jay Leno wants to do it too.
+ - If you can really laugh at yourself loud and hard every time you fall, people will think you’re drunk.
+ - Though you should not fear failure, you should do your very best to avoid it.
+ - Nobody knows really what they’re doing and there’s two ways to go with that information. One is to be afraid and the other is to be liberated, and I choose to be liberated by it.
+ - Today in Sri Lanka, Pope Francis visited a Buddhist temple. When asked why, the Pope said, ‘Just keeping my options open. It’s a dicey job market. You never know.’
+ - If life gives you lemons, make some kind of fruity juice.
+ - Real life is about reacting quickly to the opportunity at hand, not the opportunity you envisioned. Not thinking and scheming for the future, but letting it happen.
+ - I hate cynicism – it’s my least favorite quality and it doesn’t lead anywhere.
+ - Don’t be cynical; it leads nowhere. If you work hard, and are kind, amazing things will happen to you.
+ - Applaud my idiocy.
+ - There are few things more liberating in this life than having your worst fear realized.
+ - Ukraine announced plans to open Chernobyl, their nuclear disaster site, to tourists. They say it’s just like Disneyland, except the 6-foot mouse is real.
+ - The results of a new study are out this week saying that New Jersey is one of the most livable states in the country. The study has a margin of error of 100 percent.
+ - Fish recognize a bad leader.
+ - There’s no cure for getting depressed. There’s no cure for self-loathing or periods of it. But figure out enough about it so that when it happens, you can get over it and keep moving and just accomplish more.
+ - At the economic summit in China, Vladimir Putin is being accused of flirting with the first lady of China. Then again, Putin does have a history of not respecting boundaries.
+ - Donald Trump said that if President Obama releases his birth certificate, Trump will release his tax return. Obama said he won’t run for a second term if Trump releases that thing on his head.
+ - Donald Trump is the grandson of German immigrants. Don’t worry. The last time a German guy with crazy hair took over a country, everything turned out fine.
+ - Al Gore announced he is finishing up a new book about global warming and the environment. Yeah, the first chapter talks about how you shouldn’t chop down trees to make a book that no one will read.
+ - Don’t thank your parents. If you were raised in a nurturing environment, you wouldn’t be in show business. Don’t say, ‘Wow, this is heavy.’ Of course it’s heavy. It contains the shattered dreams of four other people.
+ - North Korea is creating its own time zone. It’s going to push the country’s time back a half hour. So it’s not bad enough that they don’t have food and they’re ruled by an insane dictator. Now they have to wait until 8:00 to watch ‘Wheel of Fortune.’
+ - North Korean leader Kim Jong Un has been awarded the highest rank in the country’s military. The decision was praised by everyone from Parliamentary leader Kim Jong Un to opposition leader Kim Jong Un.
+ - There are 17 more shopping days until Christmas. So, guys, that means 16 more days till we start shopping, right?
+ - Saudi Arabia’s first female athlete will be allowed to compete while wearing a head scarf. The Saudi woman said she was thrilled about the ruling all she needs now is a man to drive her to the Olympics.
+ - One’s dream is constantly evolving, rising and falling, changing course. This happens in every job, but because I have worked in comedy for twenty-five years, I can probably speak best about my own profession.
+ - The first thing men notice about a woman is her eyes. Then, when her eyes aren’t looking, they notice her breasts.
+ - Your path at 22 will not necessarily be your path at 32 or 42.
+ - They say there are only two kinds of people on St. Patrick’s Day: the Irish, and the people that drive them home.
+ - Whatever doesn’t kill you, makes you watch a lot of Cartoon Network and drink mid-price Chardonnay at 11 in the morning.
+ - Happy Cinco de Mayo! It’s a holiday that’s as respectful of Mexican traditions as Epcot Center’s Mexican food pavilion.
+ - Today was the annual Easter egg roll on the White House lawn. Usually when you see something rolling on the White House lawn it’s a drunk Secret Service agent.
+ - Iran may have attacked ISIS. Do you know how long it’s been since I have been able to wear my “Go Iran” T-shirt?
+ - Today Donald Trump reaffirmed his stance against gay marriage. Trump said marriage is between a rich guy and his much younger third wife.
+ - Russia has named Vladimir Putin its man of the year for the 15th year in a row. Putin got 143 million votes and the guy he was up against got killed in a mysterious boating accident. The boat was in a warehouse.
+ - An American judo fighter was expelled from the Olympics after testing positive for marijuana. Officials became suspicious when he kept stopping the match and saying, ‘What are we fighting for, man?’
+ - A lawyer from Africa wants to marry Malia Obama in exchange for goats, sheep, and cows. In response, President Obama said, ‘Don’t be ridiculous. My daughter isn’t marrying a lawyer.’
+ - Medical marijuana users are now lobbying for the right to carry firearms. Because no one is a better shot than a stoned old man with glaucoma.
+ - Some people are saying that the reason Michael Phelps isn’t doing so well is because he let himself get too out of shape. I just have to say that I have been watching the Olympics, and if that guy is out of shape, I have been dead for five years.
+ - Toyota has announced it will start integrating Microsoft technology into their vehicles. It’s perfect for the person who wants a car that crashes every ten minutes.
+ - Patriots quarterback Tom Brady says he thinks it would be great if Donald Trump was president. Which is really weird because I thought Brady didn’t like things that are filled with too much air.
+ - The Secret Service said there have been 40 fence-jumping incidents at the White House in the past five years. Half of them were intruders trying to get in. The other half was President Obama trying to get out.
+ - In West Virginia yesterday, a man was arrested for stealing several blow-up dolls. Reportedly, police didn’t have any trouble catching the man because he was completely out of breath.
+ - The drug lord is on the run. His name is El Chapo. Donald Trump is in a Twitter feud with this Mexican drug lord. It’s historic – the first time Americans have ever sided with a Mexican drug lord.
+ - I’m a paranoid person. And I think – I’m the kind of person that can come up with lots of negative scenarios. But I remembered thinking that seemed like – that was a stretch even for me.
+ - In the Year 2000 the discovery of extraterrestrial life will create a revolution in science, art, and pornography.
+ - CNN’s Rick Sanchez said the Jews run CNN. Ah, so that’s who we blame for Rick Sanchez.
+ - Scientists say because of global warming they expect the world’s oceans to rise four and a half feet. The scientists say this can mean only one thing: Gary Coleman is going to drown.
+ - I hear YouTube, Twitter and Facebook are merging to form a super Social Media site – YouTwitFace.
+ - Tomorrow is Election Day. That’s the day we Americans wake up, consider our options, and then remember we didn’t register to vote.
+ - Donald Trump called George W. Bush ‘the worst president in the history of the United States.’ Then he added, ‘Until, of course, I’m elected.’
+ - President Obama and Vladimir Putin are both in China attending the same economic summit. Obama saw Putin and said, ‘After those midterms, it’s nice to finally see a friendly face.’
+ - For the first time American astronauts on the International Space Station ate vegetables grown in space. In other words, even space is getting more rain than California.
+ - Scientists say the European space probe that landed on the comet has detected organic matter. This means there could be either life in space or a Whole Foods. We just don’t know.
+ - Over the weekend, former Enron executives Jeffrey Skilling and Rebecca Carter married each other during a huge ceremony in Houston. The happy couple is planning to honeymoon for three weeks in front of Congress.
+ - It’s rumored that Arnold Schwarzenegger’s son is cheating on his girlfriend Miley Cyrus. After hearing about it Arnold said, ‘That’s my boy.’
+ - At the State of the Union address last night, President Obama made history by using the words transgender, lesbian, and bisexual in that speech. It was the part of the speech where he was just reading Craigslist personals.
+ - I have an abacus at home.
+ - Martha Stewart showed up at Manhattan FBI Headquarters to have her finger prints taken and pose for a mug shot. Then Martha explained how to get ink off your fingers using seltzer water and lemon juice.
+ - A new survey reveals that women would rather give up sex than give up the remote control for the TV. Men, on the other hand, would be willing to have sex with the remote for the TV.
+ - Presidential campaign getting kind of ugly, did you hear about this? Yesterday, a 27-year-old woman came for to deny rumors that she had an affair with Democratic front-runner John Kerry. The woman added, ‘I would never cheat on Bill Clinton.’
+ - Mexico is offering a $3.8 million reward for information leading to the capture of the escaped billionaire drug lord, El Chapo. Mexico said they’ll get the money by borrowing it from El Chapo.
+ - The Olive Garden is bringing back its ‘Pasta Pass,’ which lets you eat as much pasta as you want for seven weeks. In a related story, Chris Christie just suspended his campaign.
+ - In his press conference last night, President Bush said he could not remember a single mistake he had made in the last two years. The president’s exact quote was: ‘I ain’t make none mistakes ever.’
+ - House Speaker John Boehner said the Republican Party will no longer stand in the way of gay marriage. Then Boehner said, ‘Now can I go to Elton John’s Oscar party?’
+ - Even though the Olympics take place during Ramadan, some Muslim athletes said they will not fast during games. Then, after sampling the British food, they said, on second thought, fasting sounds good.
+ - On a trip to Israel, Sarah Palin asked the Israelis why they’re apologizing all the time. They responded saying, ‘Because we told everyone Tina Fey was coming.’
+ - No charm, no humor, no wit – and a personality which can only be described as ‘icky.’ .
+ - Yesterday, the country of Kosovo unveiled an 11-foot tall statue of former President Clinton. Yeah. That’s right. The Clinton statue is so life-like, it’s already been slapped 12 times.
+ - President Bush got an early Christmas gift. This week, President Bush was chosen as ‘Person of the Year’ by Time magazine. Not only that, Martha Stewart was chosen as person of the year by Doing Time magazine.
+ - It was reported today that the machine on board the International Space Station that turns urine into drinking water has been fixed. After hearing this, an astronaut said, ‘Wait. You mean that wasn’t lemon Tang?’
+ - Earlier today Martha Stewart issued a statement saying ‘I am innocent and will fight to clear my name.’ Yeah, Martha then said ‘I look forward to the day when people stop thinking I am guilty and get back to thinking I am cold and arrogant.’
+ - Did you hear this big scandal? Eight female badminton players were expelled from the Olympics for trying to lose on purpose. So tragically, they’ll never have another chance to play badminton unless they get invited to a picnic.
+ - California had its first medical marijuana job fair. Over 2 million people meant to show up.
+ - Dropkick Murphys, everybody! That’s a band!
+ - Chris Christie said he will top Donald Trump’s Iowa State Fair helicopter entrance by riding in on a pony. As a result, all the ponies in Iowa have gone into hiding.
+ - The TSA is under fire for major security lapses. The TSA has let through pipe bombs, knives, and the last three Nicolas Cage movies.
+ - In Montana, a math teacher is running for the Senate. Win or lose, she plans on demanding a recount because math is fun.
+ - I’ve always heard that women secretly want their father. So I used to walk around in a 1950s business suit, with a hat and a pipe. My opening line would be, ‘You should be getting to bed now.’
+ - On Fox News, Donald Trump said Obama’s birth certificate could indicate that he’s a Muslim. Trump said he doesn’t trust anyone with a foreign-sounding name, and neither does his daughter Ivanka.
+ - This Halloween, the most popular mask is the Arnold Schwarzenegger mask. And the best part? With a mouth full of candy you will sound just like him.
+ - Taco Bell is going to start selling nachos and chicken nuggets wrapped in a tortilla. In other words, thank God we’re going to keep Obamacare.
+ - Success is a lot like a bright, white tuxedo. You feel terrific when you get it, but then you’re desperately afraid of getting it dirty, of spoiling it in any way.
+ - Iran is celebrating the nuclear deal. The Iranians are going crazy. They’re drinking non-alcoholic champagne and thinking about dancing. That’s how excited they are.
+ - President Obama has appointed a transgender woman to a position in the Department of Commerce. You know, in this era of partisan bickering, President Obama deserves a lot of credit for taking a chance on Ann Coulter, I think.
+ - President Obama held a ceremony at the White House to celebrate the first night of Hanukkah. In response, Republicans said, ‘It’s even worse than we thought. He’s a Jewish Muslim.’
+ - A new report says that dogs can sniff out prostate cancer with almost 98 percent accuracy. The report also finds that cats can sniff it out with 100 percent accuracy but they prefer to watch you die.
+ - This year’s Olympics will be replacing the women’s beach volleyball bikinis with uniforms that are less revealing. The stricter dress code was made to appease the conservative nation of ‘Buzzkillistan.’
+ - When it comes to being visionary in stealing, the Republicans do better than anybody. It’s really something to see.
+ - Texas is reportedly going to give college students the right to carry guns on campus. So I guess that next semester, every college student in Texas is getting straight A’s.
+ - The Justice Department ruled that Native American tribes are allowed to grow and sell marijuana on reservations. This decision was hailed as a victory by Native American leader Giggling Eagle.
+ - Pamela Anderson Lee released a statement confirming that she has had her breast implants removed. Doctors say that Pamela is doing fine and that her old implants are now dating Charlie Sheen.
+ - Donald Trump is not running for president. This is devastating news for Trump’s supporters – all of whom are late night comedians.
+ - In Texas a high school student was arrested for bringing what authorities thought was a bomb to school but turned out to be a clock. Now the kid is in bigger trouble for carrying a device that could bring Texas into the future.
+ - A woman on a Southwest Airlines flight gave birth to a baby. As soon as he was born, the baby said, ‘I had more leg room in the womb.’
+ - This week a group of activists, known as Anonymous, hacked the Twitter account of the KKK. The KKK is furious. They said Anonymous is just a bunch of cowards who don’t have the courage to show their faces.
+ - Howard Dean came in a disappointing third place. Afterwards Dean said ‘Iowa is behind me and now I look forward to screaming at voters in New Hampshire.’
+ - President Bush delivered a commencement speech at a university in Wisconsin. A very inspirational speech. Apparently Bush told the students, ‘You can do anything in life if your parents work hard enough.’
+ - The New Oxford Dictionary has declared Sarah Palin’s word ‘refudiate’ to be the 2010 Word of the Year. Palin was honored and said she would do her best to ‘dismangle’ the English language.
+ - Hillary Clinton is now driving from New York to Iowa. It’s been called the least-exciting spring break trip in history.
+ - It was reported that Anna Kournikova is coming out with her own brand of deodorant. Apparently, the ads show Kournikova holding up her deodorant and saying now only her tennis game stinks.
+ - According to new statistics, Pope Francis is the most talked about person on the Internet. And not only that, he has the most viewed profile on Christian Mingle.
+ - Republicans have called for a National African-American Museum. The plan is being held up by finding a location that isn’t in their neighborhood.
+ - President Obama filled out his March Madness bracket. You can tell Obama’s mind is elsewhere because his top two picks were Israel and Iran.
+ - Sarah Palin gave a speech in South Korea. Just what the Koreans needed: Two crazy dictators in fashionable lady’s glasses.
+ - San Francisco is the only city in America where marijuana is legal but plastic bags are not.
+ - A public relations firm said that rock star David Lee Roth owes them over $110,000. The strange thing is that it’s the first time that David Lee Roth has had any publicity in ten years.
+ - North Korean dictator Kim Jong Un reportedly has had 15 of his top officials executed. So the lesson here is when Kim Jong Un comes to work with a new haircut, you tell him, ‘Looking good, Un.’
+ - Today Secretary of State John Kerry visited the small African nation of Djibouti. Or to use the official diplomatic term, he made a Djibouti call.
+ - I picked out my Halloween costume. I’m going as ‘Slutty Madeleine Albright.’
+ - The head of the AFL-CIO endorsed John Kerry, saying, ‘The time has come to come behind one man, one leader, one candidate.’ Then he said, ‘And until we find that man, we will endorse John Kerry.’
+ - A study in the Washington Post says that women have better verbal skills than men. I just want to say to the authors of that study: ‘Duh.’
+ - It’s been reported that some of Arnold Schwarzenegger’s opponents have been circulating naked pictures of Arnold on the Internet. Yeah, in a related story, Arnold is leading the other candidates by four inches.
+ - Earlier today, President Bush said Kerry will be a tough and hard-charging opponent. That explains why Bush’s nickname for Kerry is math.
+ - North Korea threatened to launch a missile at South Korea. North Korea backed down after South Korea threatened to launch a sequel to ‘Gangnam Style.’
+ - George Clooney says he’s had sex with too many women to ever run for office. He was immediately made Prime Minister of Italy.
+ - In the press this week, NBC has been calling me every name in the book. In fact, they think I’m such an idiot they now want me to run the network.
+ - People in China criticized President Obama for chewing gum while entering the economic summit in Beijing. They’re saying he looked like a rapper. Then again, to be fair, in China I look like a rapper.
+ - CBS news anchor Dan Rather has interviewed Iraqi dictator Saddam Hussein. When asked what it was like to talk to a crazy man, Saddam said, ‘It’s not so bad.’
+ - California officials want to contain a measles outbreak that originated in Disneyland last month. They are in luck because everyone who is exposed to it is still in line at Space Mountain.
+ - Herman Cain compared his run for president to Moses leading his people out of Egypt. Cain said it took Moses 40 years to lead his people out of Egypt, but he could do it in 30 minutes or less.
+ - Analysts say Obama’s new immigration plan will focus on deporting violent criminals. So, this could impact your fantasy football team.
+ - NBC has suspended Brian Williams for six months without pay. Williams said he’s not worried because soon his veterans benefits will kick in.
+ - Supreme Court Justice Ruth Bader Ginsburg fell asleep during Obama’s speech. She woke up with the other justices drawing a gavel on her face.
+ - I can’t wait for the Republican debates to start and there’s literally 65 guys on one stage.
+ - In Iraq, four American soldiers have been arrested and charged with stealing a million dollars cash. After hearing about it the Fox network announced plans for a new reality show called ‘GI Joe Millionaire.’
+ - People are mad a Donald Trump for allegedly making a joke about Megyn Kelly having her period. Trump said, ‘Trust me, I know what goes on down there, because I’m a huge douche.’
+ - Bob Dole is going to be appearing in a Pepsi commercial with Britney Spears. Yeah, apparently Dole says that if this doesn’t cure his erectile dysfunction, nothing will.
+ - Just taught my kids about taxes by eating 38% of their ice cream.
+ - Representative Chris Lee was forced to resign after sending a shirtless picture of himself to a woman on Craigslist. On the bright side, he DID surprise his wife for Valentines Day.
+ - Egypt is in the second day of angry street protests. Secretary of State Hillary Clinton is calling for calm. Because nothing calms an enraged Arab country like a powerful woman ordering it around.
+ - Thousands of legal and illegal immigrants staged what they called a Day Without Immigrants. Or, as it’s known in Utah, Monday.
+ - Thousands of Mexicans gathered in Mexico City to protest high food prices. The protest only lasted an hour, because everyone had to leave for their jobs in Los Angeles.
+ - Seriously, the Olympic badminton players were apparently trying to lose on purpose, a big story. But really, think about it, if you train day and night for four years to be in the Olympics for badminton, in a way, haven’t you already lost?
+ - Pope Francis said that atheists are still eligible to go to heaven. To return the favor, atheists said Popes are still eligible to go into a void of nothingness.
+ - The Republican-controlled House voted to repeal the healthcare bill. If that goes well, they’ll see what they can do about this whole ‘women voting’ thing.
+ - Prince William’s pregnant wife, Kate Middleton, is past her due date. Doctors may have to induce labor. To speed up the birth, doctors have been telling the baby, ‘Come on out. You will never have to work a day in your life.’
+ - California has gone insane. According to the latest poll, Arnold Schwarzenegger is leading in California’s governor’s race by 34 points. You can tell that Governor Gray Davis is worried because he spent all day yesterday working on his pecs.
+ - Republican Congressman Duncan Hunter has filed papers to run for president. But in his official filing, he misspelled the word ‘president.’ Political experts say it’s all part of Hunter’s plan to attract Bush supporters.
+ - President Obama gave a speech about healthcare tonight, and yesterday he gave a pep talk to students. He told them that in order to succeed they need to work hard and study hard. Then today, former President George W. Bush presented the rebuttal.
+ - It’s starting to look like Donald Trump may be a serious presidential candidate. If you’re in my line of work, Trump running for president for real is the greatest thing that has ever happened.
+ - Presidential candidate Donald Trump had a meeting with Ted Cruz. He said he does not know why he agreed to fly to New York to meet Ted Cruz and then he promised to bring that kind of leadership to the Oval Office.
+ - Link Wray is the all-time legend.
+ - Yesterday, after the Thanksgiving parade, Donald Trump appeared at Macy’s to promote his new line of fragrances and business suits. Unfortunately, there were high winds and Trump’s hair nearly killed two people.
+ - Let’s just agree any group of 3 or more handsome British men should be referred to as a ‘cumberbatch.’
+ - Over the weekend, Vladimir Putin scored eight goals during a hockey game. It happened just after he had the goalie executed.
+ - California Marijuana farmers are worried that radiation from Japan could affect their crops. Or maybe for some strange reason they’re just being paranoid.
+ - Tough Olympic news for the Romneys. Ann Romney’s horse Rafalka did not advance to the Olympic finals. Apparently it was beat by a smooth-talking socialist horse from Kenya.
+ - Tax day was yesterday. And marijuana growers are complaining that they can’t write off a single expense thanks to federal laws. Well, apparently someone tried to claim the Phish tour as his home office and that’s not going to happen.
+ - Michael Jackson was inducted into the Rock and Roll Hall of Fame. It caused quite a controversy, because his nose isn’t eligible for another fifteen years.
+ - Donald Trump has come out in favor of shutting down Planned Parenthood. However, experts say, if he really wants Planned Parenthood to go under he should turn it into a Trump property.
+ - Yesterday Michael Phelps set an all-time Olympic record for most medals. Phelps has so much gold on his chest he’s been asked to join the cast of ‘Jersey Shore.’
+ - Donald Trump is going to make an announcement about running for President on the season finale of Celebrity Apprentice. Not to be outdone, the same night the Cake Boss will reveal his plan for overhauling Medicare.
+ - Congress is debating a kill switch that would allow President Obama to freeze all activity on the internet if there was a national emergency. The kill switch goes by the top-secret code name ‘Microsoft Windows.’
+ - In a new interview, Newt Gingrich says he cheated on two of his wives because he was too consumed with love for his country. Yeah, apparently he misunderstood the phrase, ‘Please rise for the Pledge of Allegiance.’
+ - A new Republican Congress is taking over. Sen. Ted Cruz has been appointed tooverseeing NASA in Congress. He says he wants NASA to focus on finding aliens so he can deport them.
+ - Some McDonald’s restaurants are taking reservations on Valentine’s Day. They are getting a lot of tables for one.
+ - After making insulting remarks about Mexicans, Donald Trump has been kicked off of NBC and Univision. On the bright side, Trump’s hair has a new show on Animal Planet.
+ - Kim Kardashian tweeted that she is supporting President Obama in the midterm elections. I think it worked because all of the polls are predicting that after tonight Barack Obama will still be president of the United States.
+ - Vanity Fair magazine reports that former President Clinton and Al Gore haven’t spoken to each other since George W. Bush’s inauguration. Not only that, Bill and his wife, Hillary, haven’t spoken since Richard Nixon’s inauguration.
+ - In China, people are selling their kidney to buy an iPhone 6. What’s going to happen when the iPhone 7 comes out?
+ - Earlier today, Arnold Schwarzenegger criticized the California school system, calling it disastrous. Arnold says California’s schools are so bad that its graduates are willing to vote for me.
+ - Scientists are adding an extra second to the year 2015. Yeah. Here’s the bad news. You just wasted it listening to this joke.
+ - Marco Rubio announced he’s running for president. Fun fact: Marco Rubio’s wife is a former Miami Dolphins cheerleader. In other words, she knows how to generate fake enthusiasm for someone who’s not going to win.
+ - Russia’s Vladimir Putin appeared in public for the first time after a mysterious 10-day absence. Putin said it took him that long to recover from the finale of ‘The Bachelor.’
+ - Trump Entertainment Resorts declared Chapter 11 bankruptcy. Or as Donald Trump describes Chapter 11, “Back-to-back number ones!”
+ - There’s a new children’s book that’s coming out that features Sarah Palin as a hero. I don’t want to give away the ending, but we finally find out who shot Bambi’s mother.
+ - By the power invested in me by the state of New York and the Universal Life Church, I now pronounce you husband and husband. You can kiss the groom.
+ - Macy’s has severed ties with Donald Trump and no longer will carry his men’s wear collection. From now on, men who want to look like Donald Trump will have to hunt and kill their own hair piece.
+ - Critics say it’s illegal for Donald Trump to run for president while hosting a TV show. It’s also illegal to run for president if your hair wasn’t born in this country.
+ - Utah could elect its first black Republican woman to Congress. In other words, Utah finally got one black person and the first thing they want to do is send her to Washington.
+ - So far China has won the most gold medals, ladies and gentlemen. The Chinese athletes can’t wait to get home and show the medals off to the kids who made them.
+ - The Senate has sent President Obama a spending bill that gives the government enough money to keep going for two weeks. Our Congress has the financial planning skills of a college sophomore.
+ - A congressman sent a tweet that compared president Obama to Adolf Hitler. He has now apologized. It’s not helping that he apologized to Hitler.
+ - Earlier tonight the second Republican debate took place here in California. With 10 men and only one woman, everyone thought they were watching ‘The Bachelorette.’
+ - In Sarah Palin’s new book, she says when she first laid eyes on her future husband, she said out loud, ‘Thank you, God,’ which is the same thing the Democrats said when they first laid eyes on Sarah Palin.
+ - Lenscrafters is upset with Tea Partier Michele Bachmann because she called Planned Parenthood ‘the Lenscrafters of abortion.’ Lenscrafters released a statement today calling her ‘the Costco of crazy.’
+ - California’s 74-year-old Senator Barbara Boxer announced she will not run for re-election in 2016. When I saw the headline ‘74-Year-Old Boxer,’ I assumed they were making another ‘Rocky’ movie.
+ - This week Apple stores are holding free computer programming classes for children. Or as that’s called in China, a job fair.
+ - Fidel Castro declared that a robot would do a better job as president than Barack Obama. After hearing this, Mitt Romney thanked Castro for his endorsement.
+ - Donald Trump insisted he’s always had a great relationship with women. He said, ‘I believe a woman can be anything she wants to be, whether that’s Miss USA or Miss Universe. Either one.’
+ - Hillary Clinton announced she’s running for president. Yesterday in Ohio, Hillary popped into a Chipotle and she ordered a burrito bowl with chips and salsa. And on her way out she said, ‘That locks down the Hispanic vote.’
+ - After Donald Trump’s derogatory comments about immigrants, NBC has officially cancelled Celebrity Apprentice. Think about it: Donald Trump isn’t even president yet, and he’s already made America a better place!
+ - A new study has found that watching Fox News can make you more conservative and watching MSNBC can make you more liberal. And watching CNN can make you think that no plane has ever safely reached its destination.
+ - Arnold Schwarzenegger is gonna be the new governor of California. During his acceptance speech Arnold said ‘I will not let you down.’ Unfortunately, at the time Arnold was holding a woman over his head and looking up her dress.
+ - Hillary Clinton is trying an entirely different approach with Iowa than the one she tried eight years ago when she lost there. She will not start speeches by saying, ‘Hello, Iowa, or Idaho, or whichever one you are.’
+ - Political analysts are saying that as a candidate, Donald Trump is ‘a totally unqualified nuisance.’ In other words, he is a legitimate contender for the Republican nomination.
+ - Despite the Brian Williams lying scandal, NBC News led in the ratings last week. Although I should note the figures were reported by Brian Williams.
+ - The prime minister of Ireland will be celebrating St. Patrick’s Day at the White House. So finally the Secret Service agents will have a drinking buddy.
+ - Earlier today, the jury at the Martha Stewart trial reached a verdict. Martha was found guilty on all charges. In a related story, there’s a huge sale at K-Mart.
+ - Yesterday, voters in the state of Maine voted no to gay marriage, but yes to medical marijuana. That’s right, people in Maine believe marriage should be a sacred institution between a really stoned man and a really stoned woman.
+ - Possible controversy for the Obama campaign. Republicans are now accusing Barack Obama’s campaign of voter fraud, because some of the people they’ve registered sound like they have fake names. Apparently, the fakest-sounding name is Barack Obama.
+ - Early on, they were timing my contract with an egg timer.
+ - A Saudi Arabian prince has said that oil may never again rise above $100 a barrel. He said it’s gotten so bad he can’t afford to buy his wife her own car that she’s not allowed to drive.
+ - Senator John Kerry is in trouble for making a joke about soldiers being uneducated. As a result, Kerry promised to stop making jokes and stick to boring people.
+ - Yesterday, Attorney General John Ashcroft had surgery to remove his gall bladder. Doctors say the surgery was difficult because Ashcroft refused to take his clothes off.
+ - According to a new study, most men would like women to occasionally pick up the check. The study also found that most women would occasionally like to be paid as much as men for doing the same job.
+ - I’m shocked to find out we still sell something people want.
+ - Donald Trump insisted yesterday that he is not racist, because one time an African-American won Apprentice. Because nothing says ‘not racist’ like making a black man run your errands.
+ - Yesterday was the New York City Marathon. The marathon was won in record time by a Democrat candidate running away from President Obama.
+ - According to a brand new report, alcohol abuse in Ireland is on the rise. Mainly because the guy who didn’t drink now does.
+ - People looking into Barack Obama’s campaign contributions say that Obama may have received $3.3 million from abroad. Yeah. It turns out that broad is Oprah Winfrey.
+ - President Obama said the small drone that flew over the White House fence yesterday could be bought at any RadioShack. After hearing this, the RadioShack CEO said, ‘I’m shocked to find out we still sell something people want.’
+ - Donald Trump said prior to the debate that he wants to be very civil. He said that instead of referring to all Hispanics as criminals, he’ll call them criminal Americans.
+ - First Lady Michelle Obama has posted an exercise video of her beating up a punching bag. But don’t worry, Vice President Biden is going to be OK.
+ - Los Angeles residents are going to vote on a tax on anything sold in a medical marijuana dispensary. If the measure passes the city could be solvent within 45 minutes.
+ - John Travolta said he sometimes lets his friends take control of his airplane even though they don’t know what they’re doing. Then Travolta said he often does the same thing with his career.
+ - The top two movies at the box office this weekend were ‘High School Musical 3’ and ‘Saw V.’ One movie features gruesome onscreen torture that is difficult to watch and the other is about a guy with a saw.
+ - Donald Trump unveiled his immigration policy and now he’s getting a lot of flak. His policy would have prevented his own grandfather from coming to America. That explains his new campaign slogan: ‘Vote Trump to prevent another Trump.’
+ - Today Facebook went public, just as Myspace’s last user went private.
+ - The nightmare is you spend the rest of your life being funny at parties and then people say, ‘Why didn’t you do that when you were on television?’
+ - A congressman from Texas sent out a tweet comparing President Obama to Hitler. That is ridiculous because at this point in his career Hitler had a much higher approval rating.
+ - The top 15 contenders for the Republican nomination own at least 40 guns among them. If we elect a Republican president no one is hopping over the White House fence ever again.
+ - During her Oscar acceptance speech, Patricia Arquette called for equal pay for women. Then Oprah stood up and said, ‘She’s right, I can’t live like this. I can’t take another second of this living hell.’
+ - Once you discover white paint, you’ll never wash your underwear again.
+ - Indiana’s governor is coming under fire for a new law that some people feel is anti-gay. The governor now says he is not anti-gay. Then immediately afterwards he said, ‘April Fools.’ It wasn’t his best joke.
+ - At his campaign launch, Donald Trump apparently paid extras $50 to cheer for him at the rally. Trump said, ‘Usually when I pay a person to like me, it’s my wife.’
+ - Michele Bachmann said she wants her three daughters to learn to shoot a gun. Mostly so they can put her campaign out of its misery.
+ - NBC is making a movie about Martha Stewart that will cover the recent stock scandal. They are thinking of calling it ‘The Road To Extradition.’
+ - The Canadian government continues to say they will not help us if we go to war with Iraq. However, the prime minister of Canada said he’d like to help, but he’s pretty sure that last time he checked, Canada had no army.
+ - Arnold Schwarzenegger has been offered a role in a sequel to ‘The Terminator.’ In this one he travels back in time and kills the person who suggested he run for governor.
+ - In a speech today, President Obama said that Michelle Obama is very strong and talented and she frequently tells him that he is wrong. As a result, Michelle Obama is now the Republican front-runner for 2016.
+ - A new report says that last year Colorado collected $44 million in marijuana taxes. Unfortunately, they can’t remember where they put it.
+ - It’s a good thing I was born in this century, when superfluous television seems to be part of the economy.
+ - It’s now come out just before his record-breaking 100-meter dash, gold medalist Usain Bolt ate at McDonald’s. Apparently he timed his meal so when the race started he would have exactly 9.63 seconds to get to a toilet.
+ - Hillary Clinton has reportedly accepted Barack Obama’s offer to become secretary of state. That’s what they’re saying in the New York Times. Yeah, according to Bill Clinton, this is the first time in 20 years that Hillary has said ‘yes.’
+ - I’d kill for ‘somewhat frosty.’
+ - Apparently the new high-tech Star Wars toys will be in stores any day now. The toys can talk and are interactive, so they can be easily distinguished from Star Wars fans.
+ - Among the top Google searches of 2014 were Ebola and the movie ‘Frozen.’ One leaves you with something highly infectious that’s impossible to get out of your system. The other is Ebola.
+ - President Obama has appointed a new head of the Secret Service. The new Secret Service director was so excited that he jumped over the White House fence for joy.
+ - At the state dinner for Chinese President Hu Jintao, Hu opened a fortune cookie that said, ‘You will lend us another trillion dollars.’
+ - Hillary Clinton is not the first woman to run for president. That title belongs to Victoria Woodhull, who ran for president in 1872. Her running mate was a young, scrappy John McCain.
+ - This Thursday, Barack Obama is gonna give his acceptance speech, and reportedly it’s going to include performances by Bon Jovi and Bruce Springsteen. Yeah. And they say Obama’s not black enough!
+ - Top Democrats have mixed feelings about Sen. Hillary Clinton running for president. Apparently, some Democrats don’t like the idea, while others hate it.
+ - The British government has urged its citizens to abstain from alcohol at least two days a week. Or to make it easier to remember, whenever they brush their teeth.
+ - Time magazine announced its person of the year. It’s health workers who treat Ebola. That’s a person of the year. Time magazine told the health workers, ‘No need to pick up your award, we’ll mail it to you.’
+ - The Oscars are this Sunday. Host Neil Patrick Harris said he hopes the broadcast will include a ‘Kanye moment.’ Unfortunately a Kanye moment may not be possible because that would require a black person to be at the Oscars.
+ - In response to criticism of its treatment of killer whales, Sea World said it will build them a larger habitat. When asked for comment, killer whales said, ‘Hey, you know what’s a larger habitat?’ THE OCEAN.
+ - In New York, we had primary elections for mayor. To improve their chances, all five candidates changed their name to Rudy Giuliani.
+ - Pope Francis announced that next year he is coming to the United States, or as Fox News is reporting it, ‘Obama lets in yet another guy from South America.’
+ - Former President George W. Bush has hired a man to lead his presidential think tank in Dallas. The man was hired because he was the only candidate who could say the words, ‘George W. Bush think tank’ with a straight face.
+ - Texas senator and tea party favorite Ted Cruz announced he’s running for president. He pledged to lead America boldly forward into the 1950s.
+ - The other day John McCain appeared on the show ‘The View,’ and one of the hosts accused McCain of being a liar. Yeah, she may have a point, because McCain started the interview by saying, ‘Ladies, you look beautiful.’
+ - Trump said that he hoped bin Laden suffered a lot. It looks like he got his wish, because the CIA said bin Laden spent his last hour watching ‘Celebrity Apprentice.’
+ - Jeb Bush is getting his presidential campaign in gear. Last week he said he supports a path to citizenship for immigrants. He said, ‘I believe in an America where hard work and dedication can lead to any job that your brother and dad once had.’
+ - During the Democratic presidential debate Howard Dean started off by apologizing to the crowd for having a cold. Then John Kerry apologized for once having a cold while serving his country in Vietnam.
+ - Yesterday, Arnold Schwarzenegger announced he would run for governor of California. The announcement was good news for Florida residents who now live in the second flakiest state in the country.
+ - The Olympics are getting mixed reviews. People are angry at NBC for showing a promo that revealed the winner of a swimming event even though the race hadn’t aired yet. NBC apologized saying, ‘We’re just not used to people watching our network.’
+ - It’s April 15, tax day. The federal tax code is over 74,000 pages long. But stick with it because after page 72,000, it gets really good.
+ - According to the latest poll in the Washington Post, 63 percent of Americans said that so far they approve of President Bush. Not surprisingly, the other 37 percent are English teachers.
+ - In an interview, Kim Cattrall said there could be another ‘Sex in the City’ movie. An hour later, ISIS surrendered – there’s only so much they can take.
+ - Today the Washington Post did an article; they compared the 2008 presidential election to the 1932 presidential election. They did a comparison, mainly because 1932 was the first time John McCain ran for president.
+ - Officials at the White House are saying that President Bush hasn’t changed his schedule much since the war started. The main difference, they say, is that he’s started watching the news and taping Sponge Bob.
+ - My favorite comedy is comedy where nothing is achieved and there is no point.
+ - I’ve always believed, in my heart of hearts, that it would be a better show if, when I crossed over to the desk, the band kept playing for an hour and I danced in a cage.
+ - McDonald’s released a new video showing how it makes their Chicken McNuggets. Apparently it turns out that McNuggets aren’t made out of chicken. They’re made out of people who ask too many questions.
+ - President Obama announced that he’s going to reopen diplomatic relations with Cuba. He wants to act before Seth Rogen makes a movie about Castro.
+ - Health officials are saying the number of measles cases that originated in Disneyland continues to grow. Which is why this year after the game the Super Bowl MVPshouted, ‘No way am I going to Disneyland!’
+ - Herman Cain has moved ahead of Mitt Romney. Can you believe that? Political analysts say this is because Americans don’t understand Mormonism but they do understand pizza.
+ - Olympic organizers are reportedly struggling to fill rows and rows of empty seats. Empty seats! In fact, yesterday officials put out a casting call asking for 200 Europeans or eight Americans.
+ - Arnold Schwarzenegger has hired billionaire Warren Buffett as his senior economic advisor. And not to be outdone Gary Coleman announced his senior economic adviser will be Thurston Howell the Third.
+ - The White House admitted that Vice President Biden’s endorsement of gay marriage forced him to come out in favor of it. So in a related story millions of Americans are trying to get Biden hooked on pot.
+ - President Obama has pledged $3 billion to aid poor nations. All of that $3 billion is going to the United States.
+ - Newly released transcripts reveal that President Nixon was drunk during the Arab-Israeli crisis of 1973. After hearing this, President Bush said, ‘Hey, so was I!’
+ - According to a recent survey, kids are receiving an average of 40 cents less from the tooth fairy. That’s right, the economy is so bad that even make-believe people are feeling the pinch.
+ - All the major networks declared Barack Obama the winner at 11 last night, except for MSNBC, which declared Obama the winner six months ago.
+ - Election officials say that in 2016, it may be possible to vote for the president on your smartphone. Can you imagine that? With one swipe you can choose a president and at the same time tell him or her where you want to hook up.
+ - Tom Cruise’s attorney said he is going to sue anyone who claims he is gay. In a related story, Ricky Martin’s attorney has been hospitalized for exhaustion.
+ - This morning, due to a massive storm, at least 150,000 people in San Francisco were left without power. Of course, people in San Francisco without power are usually called Republicans.
+ - Yesterday during a speech on national security, Jeb Bush mispronounced Boko Haram and got confused between Iran and Iraq. When reached for comment, his brother George W. said, ‘He sure sounds presidentiary to me.’
+ - Republicans are already trying to paint Hillary Clinton as too old to be president. In fact, a new ad claims she’s so old that she could be a Republican.
+ - According to some reports coming out of Washington today, President Obama said Kanye West is a ‘jackass.’ Not since ‘yes, we can’ has Obama found a slogan so many Americans can get behind.
+ - Lindsey Graham is now the seventh Republican running for president. If you’re keeping score, that’s basically one Republican candidate for every two Republican voters.
+ - People are saying that Rick Perry is really tough because he has executed over 200 people. And that was just while he was on vacation in Florida.
+ - The White House says they will release the Osama bin Laden death photo. Better yet, they’re doing it on a set of limited edition commemorative plates.
+ - In an interview, Hillary Clinton said she likes nearly every flavor of ice cream. When he heard this, Chris Christie said ‘Hey, she stole my speech.’
+ - NBC executives say that if Donald Trump does run for president, they will not renew The Apprentice. So some good may come out of this.
+ - It was reported today that Michelle Obama wants her mother to move into the White House with them. Yeah, this is expected to be the first time Barack uses his veto power.
+ - Today, Angelina Jolie met with Pope Francis at the Vatican. Long story short: She adopted him.
+ - This morning President Obama met with Britain’s Prince William in the Oval Office. It was a meeting between a symbolic ruler with no real power and the future king of England.
+ - I had an amazing experience in Cuba. People there are fantastic. But I do have to say it’s very nice to be back home in front of all of you capitalist pigs.
+ - Mitt Romney is saying his comments about liking to fire people were taken out of context. Yeah, what he actually said was he likes to set poor people on fire.
+ - Some scientists want to replace the handshake with the fist bump. Others want to replace the fist bump with the ‘tush push.’
+ - An Australian swimmer who failed to win a gold medal is blaming her loss on social media. In her defense, it is really hard to tweet when you’re swimming.
+ - Governor Chris Christie says if he’s president, he will crack down on the sale of marijuana. However, that was before he was told it also comes in a brownie.
+ - Scientists have found a way to keep middle-aged female mice from going through menopause. Now they’re working on a way to keep middle-aged male mice from buying expensive sports cars.
+ - The post office says they’re raising the price of stamps by one cent because they need to upgrade their equipment. Apparently, they’re going from semi-automatics to uzis...
+ - In a recent interview, Michelle Obama said that the Secret Service taught Malia how to drive. In exchange, Malia taught the Secret Service how to throw a party when her parents are away.
+ - If Sony’s not going to show ‘The Interview,’ that’s it. No more North Korean movies for me.
+ - Herman Cain said he wants people to know that there’s more between his ears than pepperoni and pizza sauce. He says there’s also a few napkins and crazy bread.
+ - NBC announced that during the summer Olympics they will set a new record by airing over 1200 hours of coverage. Which is amazing because that’s 10 hours longer than the coverage of Reagan’s funeral.
+ - Summer is a drag because even normal people become obsessed with their bodies. A bad bathing suit can humiliate you more tan anything else in life.
+ - For the first time since 2007, the FDA Has approved a new device to treat obesity. The amazing breakthrough is called a vegetable.
+ - People are questioning if Ted Cruz can legally run for president because he was born in Canada. And the last thing we want to do is pave the way for a President Bieber.
+ - President Obama answered questions on YouTube today. He was asked 7,500 times about legalizing marijuana. And that was just from Chad in Portland.
+ - Donald Trump announced today he is running for president of the United States. Traditionally that means six more weeks of comedy.
+ - Jeb Bush cheated on his diet and had a fried Snickers bar, pork on a stick, and a beer. Jeb Bush said he ate it so at least he could see some of his numbers go up.
+ - This week Disney opened its first ever theme park in China. More than ten thousand children showed up on opening day. And that was just to make the T-shirts.
+ - Being a Dad is the greatest, except for assembling things.
+ - Promoting his new book, President Bush visited the headquarters of Facebook. Unfortunately, he spent the whole visit on Farmville, clearing brush.
+ - President Bush left for Canada today to attend a trade summit. Reportedly, the trade summit got off to an awkward start when the president pulled out his baseball cards.
+ - You know why the French don’t want to bomb Saddam Hussein? Because he hates America, he loves mistresses, and he wears a beret. He is French, people.
+ - For the first time ever, a black Republican woman has been elected to Congress. President Obama told her, ‘You are all set. This country never turns against a black anything.’
+ - Rick Perry said America’s revolutionary war was fought in the 16th century. When told it was actually the 18th century, Perry apologized and said, ‘I never said I was a geology major.’
+ - MSNBC has abruptly ended their relationship with Keith Olbermann, and according to his contract he’s not allowed back on television for at least six months. Or as industry experts call it, The Conan.
+ - A new presidential poll reveals that Democrats have the edge among voters under 30. The good news for Republicans is that there’s only six people under 30 who actually vote.
+ - President Obama says he will not support a healthcare plan where the government gets to decide whether to, quote, ‘pull the plug on Grandma.’ Apparently, Obama’s plan calls for the much quicker pillow option.
+ - President Obama has decided that he wants his presidential library to be in Chicago, not Hawaii. Today Hawaii’s governor said, ‘Great, who’s going to want to come to Hawaii now?’
+ - Earlier this week – this is crazy – the country’s first marijuana cafe opened up, which not only sells medical marijuana, but also has a restaurant where customers can eat. In a related story, the recession is over.
+ - North Korea conducted a nuclear test and the blast was so small that many scientists are saying it was a dud. Apparently, the nuclear bomb didn’t work well because it was made in Korea.
+ - According to a CNN poll, Trump nearly doubled his support from March. Actually, he just combed his March numbers over his current ones.
+ - This is serious, if Martha gets the maximum sentence on all counts, she could serve 20 years in prison. Of course, you have to take off time off for good behavior, which means 20 years in prison.
+ - Oprah Winfrey just announced that she’s planning to attend Barack Obama’s inauguration. Oprah says she’s very excited to see Obama become the second-most powerful person in the world.
+ - The CEO of the Olive Garden blames his company’s low profits on Obamacare – which is odd because most people won’t eat at the Olive Garden until they have health insurance.
+ - Santa will be showing up with Rudolph the Red-Eyed Reindeer.
+ - The latest political rumor, North Korea ruler Kim Jong Il is close to naming his successor. Yeah, he said the only person with glasses big enough to replace me is Nicole Richie.
+ - Herman Cain is out there, he says a lot of provocative things. He said America should build its own Great Wall of China. Cain says it’s a great idea because if there’s one thing you don’t see in China, it’s Mexicans.
+ - The campaign to put a woman on the $20 bill has narrowed the choices down to four finalists. The four finalists are Rosa Parks, Harriet Tubman, Eleanor Roosevelt, and Flo from the Progressive Insurance ads.
+ - President Clinton signed a $10 million deal to write a book by 2003. Isn’t that amazing? Yes, and get this, not only that, President Bush signed a $10 million deal to read a book by 2003.
+ - Rev. Pat Robertson says that if more states legalize gay marriage, God will destroy America. He did say that afterwards, gays will come in and do a beautiful renovation.
+ - The Northeast is being hit with a major snowstorm. Forecasters said they’ve haven’t seen a whiteout like this since last week’s Oscar nominations.
+ - A European brewery has purchased Anheuser-Busch, the makers of Budweiser, for $52 billion. Which is a a shame because if they had waited until happy hour, they could have paid half that.
+ - Starbucks says they are going to start putting religious quotes on cups. The very first one will say, ‘Jesus! This cup is expensive!’
+ - Arnold Schwarzenegger is in trouble after tapes surfaced of him saying negative things about other Republicans. Actually the Schwarzenegger tapes surfaced last year, but they weren’t deciphered until this week.
+ - President Obama, by the way, has set a Guinness World Record as the fastest person to get a million Twitter followers. Obama now has as many followers as the Republicans have presidential candidates.
+ - Tomorrow night President Obama will announce his new immigration plan. Obama’s favorite part of his new immigration plan is that he gets to emigrate to another country. He’s tired of all this.
+ - The Romneys have a horse competing in the Olympics. Ann Romney’s horse failed to win a medal in the dressage event today, which is a shame because if there’s one thing that family needs, it’s more gold.
+ - After hearing that he has been nominated for the Nobel Peace Prize, Putin said, ‘Tell me who the other nominees are – and I will eliminate them.’
+ - A new report reveals that New Jersey Governor Chris Christie spent over $82,000 on food at NFL games. Christie said, ‘Hey, both of those games went into overtime.’
+ - Every comedian dreams of hosting ‘The Tonight Show’ and, for seven months, I got to. I did it my way, with people I love, and I do not regret a second.
+ - According to a new survey, 40 percent of adults in Mexico say they would move to the United States if they got a chance. The number would have been higher, but the other 60 percent already live here.
+ - It’s a mistake to read. Television is the only way.
+ - Just days after Mitt Romney suggested he might run for president, there’s been a backlash. The backlash is led by Jeb Bush, Mike Huckabee, and just to hedge his bets on every issue, Mitt Romney.
+ - The Republican Party had a big day in yesterday’s midterm elections and now controls the House and Senate. And don’t ask me how this happened, but the Republican Party also gained control of three seats in our show’s band.
+ - During last night’s Republican debate, Mike Huckabee got a big laugh when he said that Congress has been spending money like John Edwards at a beauty salon. Then Huckabee got an even bigger laugh when he said he’s running for president.
+ - A bank in Washington was robbed by two men in George W. Bush masks. Luckily, right afterwards two guys in President Obama masks came and bailed the bank out, so everything is fine.
+ - Breast feeding activists plan to descend on Washington for a public breast feeding demonstration. Also descending on Washington, thousands of men saying, ‘What? I’m looking at the baby.’
+ - Members of the Senate are considering a tax on cosmetic surgery. When they brought it up, you should have seen the look that Nancy Pelosi’s face tried to make.
+ - Yesterday the IRS announced that obese Americans are entitled to certain tax breaks. Apparently, under the new rules, you’re allowed to claim two or more chins as dependents.
+ - On Election Day, Ralph Nader will appear on the presidential ballot in only 45 states. Yeah, Nader said, this is really disappointing, I wanted to embarrass myself in all 50 states. That was the plan.
+ - Donald Trump refuses to give details about his policy plans. Trump apologized by saying, ‘When I announced I was running for president, I had no idea people would take me seriously.’
+ - President Obama, I guess, is starting to confess to some of his anxieties. In a recent interview, President Obama said, ‘I miss being anonymous.’ He said, ‘In the old days, I could blend in with all the other Hawaiian Barack Hussein Obamas.’
+ - Scientists say they’re getting closer to developing a pill to replace exercising. Americans heard this and said that it better come in cool ranch flavor.
+ - On Easter, the Pope asked for peace in the Middle East. There are two groups the Pope has to contend with – Jewish people and Muslims. They couldn’t wait to hear his suggestions.
+ - Scientists announced that they have located the gene for alcoholism. Scientists say they found it at a party, talking way too loudly.
+ - Jeb Bush welcomed his fourth grandchild. The new Bush grandchild is happy, healthy, and will be running for president in 2048.
+ - One of the candidates running for governor is a 100-year-old woman. Yeah, the 100-year-old says she’d like to recall Governor Gray Davis, but more importantly, she’d like to recall where she left her teeth.
+ - The New York Times reports that Moammar Gadhafi spent his last days hovering between defiance and delusion, surviving on rice and pasta. In other words, Gadhafi spent his last days as a sophomore in college. That’s what I did.
+ - Gary Busey said on the Today Show yesterday that Donald Trump would make a great President. Now Trump just needs endorsements from Randy Quaid and Charlie Sheen.
+ - The Obama administration announced a deal with Iran that would prevent the Iranians from making a nuclear weapon. In exchange, we’re giving the Iranians Netflix.
+ - Several hard-core Star Wars fans who had tickets for the first showing actually said that when the movie finally began, they started crying. Mainly because they realized that it’s 22 years later, and they still haven’t lost their virginity.
+ - Earlier today, the White House released President Bush’s tax return. Not surprisingly, under dependents, the president listed Iraq.
+ - Today President Obama is in the Middle East. He met the new king of Saudi Arabia. Obama also met Saudi Arabia’s first lady, the second lady, third lady, and fourth lady.
+ - In an interview, former vice-presidential candidate Paul Ryan said he does not have a racist bone in his body. However, he admitted he has three sexist bones and his spine is homophobic.
+ - In his apology, Arnold Schwarzenegger said he was sorry to the women that he groped, and he admitted that he had acted badly. Not only that, Arnold then apologized for acting badly in all of his movies.
+ - Hillary Clinton is making income inequality a central theme in her campaign. Yeah, for example, today she pointed out that her husband makes $300 million a year. She has to get by on $200 million a year, and that’s not fair.
+ - Egypt has responded to hundreds of thousands of protesters by shutting down the Internet. Just a word of advice: If you want people to stay at home and do nothing, you should turn the Internet back on.
+ - Olympic officials have disqualified a champion race walker after determining that he was doping. They disqualified him. The man said getting caught doping is almost as embarrassing as getting caught being a champion race walker.
+ - Donald Trump has fired a campaign adviser for posting racist remarks on Facebook. Isn’t that shocking? Donald Trump has a campaign adviser.
+ - Tough times for Martha Stewart. Yesterday, Martha Stewart reported to her parole officer and had to take a mandatory urine test for cocaine and marijuana. Martha was found to be drug-free and her urine was found to be a lovely yellow saffron.
+ - Apparently Arnold was inspired by President Bush, who proved you can be a successful politician in this country even if English is your second language.
+ - According to a new poll, nearly six out of 10 Republicans want Mitt Romney to run for president. So do 10 out of 10 Democrats.
+ - The hackers who hacked into Sony have leaked the upcoming script for the new James Bond movie. Some of the executives said the news left them shaken but not stirred.
+ - Tom Brady says he wants to give the truck he was given as the Super Bowl MVP to the guy who won the Super Bowl for the Patriots. So Brady’s giving his truck toSeahawks coach Pete Carroll.
+ - The Chinese government launched China’s first 24-hour news channel. And since the channel will only report stories that are favorable to the ruling party, they’ve decided to call it Fox News.
+ - A new report says ISIS is trying to recruit professionals like doctors, engineers, and accountants. Sorry, kids, even ISIS says they’re not hiring liberal arts majors.
+ - A new report just came out that says President Obama has mentioned Jesus Christ in more speeches than President Bush did. Can you believe that? Still, neither has used the phrase ‘Oh God, oh God,’ more than President Clinton.
+ - Texas Senator Ted Cruz said if elected president he would abolish the Department of Education. But not to worry. He promised to replace it with the less expensive Bureau of Book Learning.
+ - Spread your hate. It’ll last a lifetime.
+ - Time magazine has selected their person of the year. Guess what, it’s President-elect Barack Obama. Yeah, ironically, Ebony magazine announced their person of the year, and it’s Ed Begley Jr.
+ - Today, possible presidential candidate Donald Trump released his birth certificate. It lists his eyes as blue and his hair as ridiculous.
+ - Rick Perry dropped out of the presidential race. When asked what went wrong, Perry said, I guess America is not ready to elect a dumb guy from Texas. But in time.
+ - The Olympics have just started and the Greeks are already 14 medals in debt.
+
+382 quotes

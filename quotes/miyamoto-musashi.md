@@ -1,0 +1,120 @@
+ - There is nothing outside of yourself that can ever enable you to get better, stronger, richer, quicker, or smarter. Everything is within. Everything exists. Seek nothing outside of yourself.
+ - Do nothing that is of no use.
+ - If you wish to control others you must first control yourself.
+ - You must understand that there is more than one path to the top of the mountain.
+ - You can only fight the way you practice.
+ - Step by step walk the thousand mile road.
+ - Today is victory over yourself of yesterday; tomorrow is your victory over lesser men.
+ - Think lightly of yourself and deeply of the world.
+ - The ultimate aim of martial arts is not having to use them.
+ - To win any battle, you must fight as if you are already dead.
+ - It is difficult to understand the universe if you only study one planet.
+ - All men are the same except for their belief in their own selves, regardless of what others may think of them.
+ - No Fear, No Hesitation, No Surprise, No Doubt.
+ - It may seem difficult at first, but everything is difficult at first.
+ - If you do not control the enemy, the enemy will control you.
+ - In battle, if you you make your opponent flinch, you have already won.
+ - The true science of martial arts means practicing them in such a way that they will be useful at any time, and to teach them in such a way that they will be useful in all things.
+ - Truth is not what you want it to be; it is what it is, and you must bend to its power or live a lie.
+ - Respect the gods, without relying on their help.
+ - Be neither insufficiently spirited nor over spirited. An elevated spirit is weak and a low spirit is weak. Do not let the enemy see your spirit.
+ - In large-scale strategy, it is beneficial to strike at the corners of the enemy’s force, If the corners are overthrown, the spirit of the whole body will be overthrown.
+ - Fixation is the way to death. Fluidity is the way to life.
+ - The purpose of today’s training is to defeat yesterday’s understanding.
+ - Do not waste time idling or thinking after you have set your goals.
+ - The way is in training.
+ - If you know the way broadly you will see it in everything.
+ - Do not regret what you have done.
+ - Never stray from the Way.
+ - The only reason a warrior is alive is to fight, and the only reason a warrior fights is to win.
+ - Know your enemy, know his sword.
+ - As far as Im concerned, I regret nothing.
+ - Accept everything just the way it is.
+ - True warriors are fierce because their training is fierce.
+ - Perceive that which cannot be seen with the eye.
+ - Develop intuitive judgement and understanding for everything.
+ - Determine that today you will overcome your self of the day before, tomorrow you will win over those of lesser skill, and later you will win over those of greater skill.
+ - The path that leads to truth is littered with the bodies of the ignorant.
+ - Whatever your determination or will power, it is foolish to try to change the nature of things. Things work the way they do because that is the way of things.
+ - A man cannot understand the art he is studying if he only looks for the end result without taking the time to delve deeply into the reasoning of the study.
+ - You win battles by knowing the enemy’s timing, and using a timing which the enemy does not expect.
+ - In strategy your spiritual bearing must not be any different from normal. Both in fighting and in everyday life you should be determined though calm. Meet the situation without tenseness yet not recklessly, your spirit settled yet unbiased.
+ - In time, all things work to your advantage when you pursue them with an open heart.
+ - It is imperative to master the principles of the art of war and learn to be unmoved in mind even in the heat of the battle.
+ - Unless you really understand others, you can hardly attain your own self-understanding.
+ - Generally speaking, the Way of the warrior is resolute acceptance of death.
+ - There is timing in everything. Timing in strategy cannot be mastered without a great deal of practice.
+ - Water adopts the shape of its receptacle, it is sometimes a trickle and sometimes a wild sea.
+ - Polish your wisdom: learn public justice, distinguish between good and evil, study the ways of different arts one by one.
+ - You may abandon your own body but you must preserve your honour.
+ - See to it that you temper yourself with one thousand days of practice, and refine yourself with ten thousand days of training.
+ - Do not sleep under a roof. Carry no money or food. Go alone to places frightening to the common brand of men. Become a criminal of purpose. Be put in jail, and extricate yourself by your own wisdom.
+ - In all forms of strategy, it is necessary to maintain the combat stance in everyday life and to make your everyday stance your combat stance.
+ - When in a fight to the death, one wants to employ all one’s weapons to the utmost. I must say that to die with one’s sword still sheathed is most regrettable.
+ - Approach the enemy with the attitude of defeating him without delay.
+ - Perception is strong and sight weak. In strategy it is important to see distant things as if they were close and to take a distanced view of close things.
+ - One must make the warrior walk his everyday walk.
+ - Do not let the body be dragged along by mind nor the mind be dragged along by the body.
+ - Immature strategy is the cause of grief.
+ - It is said the warrior’s is the twofold Way of pen and sword, and he should have a taste for both Ways. Even if a man has no natural ability he can be a warrior by sticking assiduously to both divisions of the Way.
+ - No man is invincible, and therefore no man can fully understand that which would make him invincible.
+ - Get beyond love and grief: exist for the good of Man.
+ - If you want to learn the craft of war, ponder over this book. The teacher is as a needle, the disciple is as thread. You must practice constantly.
+ - Crossing at a ford occurs often in a man’s lifetime. It means setting sail even though your friends stay in harbour, knowing the route, knowing the soundness of your ship and the favour of the day.
+ - If the enemy stays spirited it is difficult to crush him.
+ - Speed is not part of the true Way of strategy. Speed implies that things seem fast or slow, according to whether or not they are in rhythm. Whatever the Way, the master of strategy does not appear fast.
+ - Fixed formation is bad. Study this well.
+ - Also by training you will be able to freely control your own body, conquer men with your body, and with sufficient training you will be able to beat ten men with your spirit. When you have reached this point, will it not mean that you are invincible?
+ - You should not have a favourite weapon. To become over-familiar with one weapon is as much a fault as not knowing it sufficiently well.
+ - Pay attention even to life’s trifles.
+ - To become the enemy, see yourself as the enemy of the enemy.
+ - If you do not look at things on a large scale, it will be difficult to master strategy.
+ - Do not act following customary beliefs.
+ - When the enemy starts to collapse you must pursue him without the chance of letting go. If you fail to take advantage of your enemies collapse, they may recover.
+ - If you learn indoor techniques, you will think narrowly and forget the true Way. Thus you will have difficulty in actual encounters.
+ - This is truth: When you sacrifice your life, you must make fullest use of your weaponry. It is false not to do so, and to die with a weapon as yet undrawn.
+ - When you have attained the way of strategy there will be nothing that you cannot understand. You will see the way in everything.
+ - People in this world look at things mistakenly, and think that what they do not understand must be the void. This is not the true void. It is bewilderment...
+ - In the void is virtue, and no evil. Wisdom has existence, principle has existence, the Way has existence, spirit is nothingness.
+ - If there is a Way involving the spirit of not being defeated, to help oneself and gain honour, it is the Way of Strategy.
+ - When you cannot be deceived by men you will have realised the wisdom of strategy.
+ - All things entail rising and falling timing. You must be able to discern this.
+ - The Way of the warrior does not include other ways, such as Confucianism, Buddhism, certain traditions, artistic accomplishments, and dancing. But even though these are not part of the Way, if you know the Way broadly, you will see it in everything.
+ - By knowing things that exist, you can know that which does not exist.
+ - Do not let your opponent see your spirit.
+ - To cut and slash are two different things. Cutting, whatever form of cutting it is, is decisive, with a resolute spirit. Slashing is nothing more than touching the enemy.
+ - When your spirit is not in the least clouded, when the clouds of bewilderment clear away, there is the true void.
+ - Always return your weapon along the same path it traveled out on. In this way you can use it again without having to relocate and rethink our attitude.
+ - The spirit of defeating a man is the same for ten million men. The strategist makes small things into big things, like building a great Buddha from a one foot model.
+ - With your spirit open and unconstricted, look at things from a high point of view.
+ - When you attack the enemy, your spirit must go to the extent of pulling the stakes out of a wall and using them as spears and halberds.
+ - In contests of strategy it is bad to be led about by the enemy. You must always be able to lead the enemy about.
+ - From inside fortifications, the gun has no equal among weapons. It is the supreme weapon on the field before the ranks clash, but once swords are crossed the gun becomes useless.
+ - Cutting down the enemy is the way of strategy, and there is no need for many refinements of it.
+ - There are many ways of understanding simple things, but generally the opposite is true for difficult ideas.
+ - It is difficult to realize the true Way just through sword-fencing. Know the smallest things and the biggest things, the shallowest things and the deepest things.
+ - The warrior is different in that studying the Way of strategy is based on overcoming men.
+ - Perception is strong and sight weak. In strategy it is...
+ - Second is the way of the merchant. The wine maker obtains his ingredients and puts them to use to make his living. The way of the merchant is always to live by taking profit.
+ - If you are not progressing along the true way, a slight twist in the mind can become a major twist. This must be pondered well.
+ - The bow is tactically strong at the commencement of battle, especially battles on a moor, as it is possible to shoot quickly among the spearmen.
+ - To know ten thousand things, know one well.
+ - Never depart from the way of martial arts.
+ - When you appreciate the power of nature, knowing the rhythm of any situation, you will be able to hit the enemy naturally and strike naturally.
+ - You should not have any special fondness for a particular weapon, or anything else, for that matter. Too much is the same as not enough. Without imitating anyone else, you should have as much weaponry as suits you.
+ - Even if a man has no natural ability, he can be a warrior.
+ - If the enemy thinks of the mountains, attack like the sea; and if he thinks of the sea, attack like the mountains.
+ - Consider yourself lightly; consider the world deeply.
+ - When your opponent is hurrying recklessly, you must act contrarily and keep calm. You must not be influenced by the opponent.
+ - Too much is the same as not enough.
+ - I dreamt of worldly success once.
+ - Fourthly, the way of the artisan. The way of the carpenter is to become proficient in the use of his tools, first to lay his plans with true measure and then perform his work according to plan. Thus he passes through life.
+ - A bullet from a gun does not make a distinction between practice and combat. You are training to be one and the same way in your life.
+ - Become acquainted with every art.
+ - The halberd is inferior to the spear on the battlefield. With the spear you can take the initiative, the halberd is defensive.
+ - Imitation is the surest form of flattery and failure. I am not interested with your talk about my ideas. I am more interested in your applying them to your life. If you do not, then you are essentially not in accord with your own mind.
+ - The important thing in strategy is to suppress the enemy’s useful actions but allow his useless actions.
+ - They speak of “This Dojo” and “That Dojo”. They are looking for profit.
+ - Whatever the Way, the master of strategy does not appear fast.
+
+118 quotes

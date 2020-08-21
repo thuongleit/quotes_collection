@@ -1,0 +1,34 @@
+ - Love can wait to give. Lust can’t wait to get.
+ - Love is the greatest form of evangelization because it makes an invisible God visible.
+ - Indecision is a decision.
+ - Don’t worry about finding your soul mate. Find yourself.
+ - Compatible comes from the Latin “compati”, meaning “to suffer with”. If you are not willing to suffer with someone until death do you part, then you are not compatible.
+ - The right relationship won’t distract you from God. It will bring you closer to Him.
+ - When a woman veils her body in modest clothing, she is not hiding herself from men. On the contrary, she is revealing her dignity to them.
+ - You don’t have to lower your morals to find love because, if you do, it’s not love that you’re finding.
+ - Carry the rosary with you everywhere, and it will carry you through anything.
+ - If you decide to live a pure life, don’t expect the world to understand your decision.
+ - The closer you get to God, the more you become yourself.
+ - If you do not speak to your teens about the meaning of human sexuality and love, the world will fill the void of your silence with a very contrary message.
+ - Without question, purity is beautiful. We’re not talking about repression or prudishness, but about having a confident and serene sense of your dignity and worth.
+ - Friends with benefits are neither.
+ - When you’re dating, abstinence is a greater expression of love than making love, because you’re doing what’s best for your beloved, not just what feels good in the moment.
+ - Authentic femininity is a combination of class, tenderness and virtue. When a woman possesses these traits, a man will naturally want to be more of a gentleman around her.
+ - When you feel far from God and far from everything that you wanted to be for Him, realize that you still have your whole future to give Him.
+ - Treat your date with the respect and purity you hope your future spouse will have. Keep in mind how you will expect a young man to treat your daughter one day. By listening to your conscience in this way, you’ll have a good idea of where to draw the line.
+ - Don’t let yourself be defined by the past. It’s done. All you have is now and the future.
+ - Look at a crucifix. This is how I got my bride to heaven. How else do you think you will get yours there?
+ - When a culture of ladies arises, a culture of gentlemen will follow.
+ - Jesus didn’t suffer so we wouldn’t have to suffer. He suffered so that we would know how to suffer.
+ - If your heart says, “Maybe I shouldn’t be doing this,” listen to your heart, pray for strength, and get out of the situation immediately.
+ - Purity is not about following a list of rules so that you’ll avoid hell. It’s about wanting heaven for the person you love.
+ - Women are not thousands of temptations to hell. They are thousands of reminders of the beauty of heaven.
+ - Women, be radiant on your wedding day. But make sure your soul matches your dress.
+ - The more ready you are to give yourselves to God and to others, the more you will discover the authentic meaning of life.
+ - If you own pornography of any kind, for the love of your future spouse, trash it immediately.
+ - Girls tend to get seduced through their ears. Guys tend to get seduced through their eyes.
+ - After every temptation you will be either closer to God or further from Him.
+ - If you sincerely want to know if you’re “going too far,” don’t ask yourself, “Is this bad?” Instead ask yourself, “Is this pure?”
+ - If by how you dress, you are saying to guys, “Hey, look at my body,” why would a guy want to get to know you?
+
+32 quotes

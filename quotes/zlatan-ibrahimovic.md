@@ -1,0 +1,37 @@
+ - I think I’m like wine. The older I get, the better I get.
+ - You bought a Ferrari but you drive it like a Fiat.
+ - We usually say that you cannot become a legend before death. But I am a living legend.
+ - Zlatan doesn’t do auditions.
+ - He’s a lucky guy Cristiano, he always gets first row tickets to see Messi win his awards.
+ - You don’t need a team leader, you need quality.
+ - I’m like Muhammed Ali. When he said he would knock someone out in the fourth round, he did it.
+ - Arsene Wenger asked me to have a trial with Arsenal when I was 17. I turned it down. Zlatan doesn’t do auditions.
+ - Kosovo is Serbian, only if my mother is a Virgin.
+ - I don’t need the Ballon d’Or to know I’m the best. It matters more to some players.
+ - It’s true I don’t know that much about Ligue 1, but Ligue 1 knows who I am.
+ - Only God knows You’re talking to him now.
+ - A World Cup without Zlatan is not worth watching.
+ - When I got the red card all the Chelsea players come around. It felt like I had a lot of babies around me.
+ - I can play in the 11 positions because a good player can play anywhere on the pitch.
+ - England is a very strong league, with three or four of the best teams in Europe, but, if I had played there, I would have destroyed it, like I have everywhere else.
+ - First I went left, he did too. Then I went right, and he did too. Then I went left again, and he went to buy a hot dog.
+ - Come to my house and you’ll see if I’m gay. And bring your sister.
+ - Wherever I go people recognize me, call my name, cheer for me. But there are names no one cares to remember, that no one cheers for: the 805 million people suffering from hunger in the world today.
+ - I like Balotelli: he’s even crazier than me. He can score a winner, then set fire to the hotel.
+ - At Barca, players were banned from driving their sports cars to training. I thought this was ridiculous – it was no one’s business what car I drive – so in April, before a match with Almeria, I drove my Ferrari Enzo to work. It caused a scene.
+ - Messi does not need his right foot. He only uses the left and he’s still the best in the world. Imagine if he also used his right foot, Then we would have serious problems.
+ - PSG’s project is to dream bigger, but if you buy Messi, you don’t dream bigger – you are bigger!
+ - I like being the one who makes a difference. On the pitch, I always try to create a special situation.
+ - Come over to my house with your sister, baby, and I’ll show you who’s gay!
+ - Everyone is equal – a strange Swedish mentality.
+ - Arsenal could have happened, as everybody knows, but I would not do a trial. Who do you think regrets that more – Arsene Wenger or Zlatan?
+ - You always need something to complain about. And if you can’t come up with anything better, you come along with team leaders. I don’t believe in this chitchat.
+ - It was the fault of David Trezeguet, who made me do one drink of vodka after another. I slept in the bathtub. Now I hold my vodka much better.
+ - An injured Zlatan is a pretty serious thing for any team.
+ - I like fireworks too, but I set them off in gardens or kebab stands. I never set fire to my own house.
+ - One thing is for sure, a World Cup without me is nothing to watch so it is not worthwhile to wait for the World Cup.
+ - It is nice when people recognize me and approach me in the street. Anyone who says they don’t like that is lying.
+ - That’s how it is with the English: if you score against them you’re a good player; if you don’t, you’re not.
+ - I am very proud. It is always fun to win such a prize, to be chosen as Swedens best player a certain year.
+
+35 quotes

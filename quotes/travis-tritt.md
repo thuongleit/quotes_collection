@@ -1,0 +1,21 @@
+ - It’s a great day to be alive. I know the sun’s still shining when I close my eyes.
+ - Here’s a quarter, call someone who cares.
+ - If you’re gonna sing, sing loud.
+ - The biggest cause of divorce is marriage.
+ - It’s the same old story you’ve heard a thousand times. Somebody’s trust gets broken. Somebody’s left behind.
+ - A woman warm and willing is what I’m looking for, cause the whiskey ain’t working anymore.
+ - I need one good honky tonk angel to turn my life around.
+ - People look at you, and they’ve got just the perfect little box for you, the perfect category. Call you a redneck. Call you a hillbilly. Like those were insults.
+ - Please tell me you will remember, no matter how much I do wrong that I had the best of intentions all along.
+ - I’m a member of a country club, country music is what I love.
+ - You left me for a dream you had to follow, but I thought goodbye wouldn’t last that long.
+ - When they talk about music getting in your blood, I understand exactly what they’re talking about, because that is me.
+ - The determination and enthusiasm of the Category 5 team makes it the perfect home for my music as I embark on this next stage of my career. The promotional savvy and level of support they’ve pledged meets or exceeds anything I’ve seen from the major labels I’ve been associated with.
+ - I simply find that as a songwriter, my goal is to try to move people. And I feel that before I can move other people, I have to genuinely be able to move myself.
+ - A little bit South you’ve got Macon, Georgia – home of the Allman Brothers, the Marshall Tucker Band and Capricorn Records. And off to west you’ve got Delta blues. Sprinkle Southern gospel over the top of that, and you’re talking about where I came from. I loved all of that music.
+ - I’ve been very fortunate to have had the opportunities to have the career I’ve had.
+ - I’ve been writing on my own. It’s like Roger Miller used to say, every now and then, like a dog having puppies, you have to crawl under the house and do it yourself.
+ - I know what it takes to put a record together, so I’m not looking for people to come in and shape it.
+ - Bluegrass is really a big part of my background.
+
+19 quotes

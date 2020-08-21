@@ -1,0 +1,22 @@
+ - I think you never stop learning.
+ - If you weren’t an optimist, it would be impossible to be an architect.
+ - As an architect you design for the present, with an awareness of the past, for a future which is essentially unknown.
+ - Everything inspires me; sometimes I think I see things others don’t.
+ - The pencil and computer are, if left to their own devices, equally dumb and only as good as the person driving them.
+ - It takes a lot of effort to make a building look effortless.
+ - Architecture is an expression of values.
+ - Since Stonehenge, architects have always been at the cutting edge of technology. And you cant separate technology from the humanistic and spiritual content of a building.
+ - I am always surprised by how much little emphasis schools of architecture, and indeed, many architects, place on the process of the mating of a building.
+ - You cannot separate the buildings out from the infrastructure of cites and the mobility of transit.
+ - Our object in life should be to accumulate a great number of grand questions to be asked and resolved in eternity...
+ - Every time I’ve flown an aircraft, or visited a steelworks, or watched a panel-beater at work, I’ve learned something new that can be applied to buildings.
+ - Manhattan, one of the most moneyed spots on the planet, also has one of the greatest concentrations of people in its skyscrapers. Its also, of course, the place where every architect wants to build his tower.
+ - There’s a snobbery at work in architecture. The subject is too often treated as a fine art, delicately wrapped in mumbo-jumbo. In reality, it’s an all-embracing discipline taking in science, art, maths, engineering, climate, nature, politics, economics.
+ - I’m not a creature of habit. I like to find things from unexpected sources.
+ - I was born in 1935, and as far back as I can remember, I was sketching designs. My first subject was an aircraft, which I imagined myself piloting.
+ - Google has already tested robot cars in San Francisco. If they can navigate San Francisco, they can probably manage just about anywhere.
+ - Control is the wrong word. The practice is very much about sharing, and, in any creative practice, some individuals, whether partners or directors, are much closer to certain projects than I could ever be.
+ - I would never wear anything with a logo. That I really find difficult. It’s a frustration that I’ll find a nice shirt or something and it’s got 50 prints of the logo on it – why do they do this?
+ - I tend to move between turtlenecks and shirts and ties. I don’t really have a uniform in the sense that some people might.
+
+20 quotes

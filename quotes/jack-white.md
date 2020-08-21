@@ -1,0 +1,151 @@
+ - Well, I sort of don’t trust anybody who doesn’t like Led Zeppelin.
+ - Failure comes when we don’t get back up and try again.
+ - I trust no one who hasn’t time for music.
+ - When I say nothing, I say everything.
+ - Telling yourself you have all the time in the world, all the colors in the palette, that just kills creativity.
+ - Selling is nothing more than asking questions and waiting for an answer.
+ - The bottom line is we must get off our duff and make an effort to succeed. Trust me on this, when you see someone successful in any of the arts they have been willing to make an extra effort.
+ - The secret is planning your work and working your plan. If you don’t know where you are going, how will you know when you arrive? You can’t stumble upon your destination.
+ - I’m one of those people that you have to keep your eye on or I’ll wander off into the woods and forget to come back.
+ - Happiness is more important than money any day.
+ - Life is simple unless we find a way to make it complicated.
+ - I’ve always worked to find really deep meaning of song and also at the same time having it covered in sugar, so it can be taken two or three different ways.
+ - The Eagle does not escape the storm. The Eagle simply uses the storm to lift it higher. It spreads its mighty wings and rises on the winds that bring the storm.
+ - Deadlines and things make you creative.
+ - This generation is so dead. You ask a kid, ‘What are you doing this Saturday?’ and they’ll be playing video games or watching cable, instead of building model cars or airplanes or doing something creative. Kids today never say, ‘Man, I’m really into remote-controlled steamboats.’
+ - I really don’t like to take the easy way out, if I can help it, on anything I do, I like to really make it a challenge. I don’t know how to create by taking the easy routes. I’ve tried, you know, I’ve tried to let myself, but I always struggle to compensate.
+ - The Bottom Line: If people don’t LOVE our work, we will not be able to sell what we make.
+ - Every time there’s a list of the 100 greatest records of all time, all those albums were recorded in two days. Hardly any of them took a year, I’ll tell you. In this day and age, I think it’s important that people know that.
+ - Jesus Christ, is this an NPR convention?
+ - Some people consider the way Shakespeare was writing about Ophelia as erotomania-that she was delusional in thinking that Hamlet was in love with her. But I don’t think so.
+ - Many days you will want to give up because of rejections and failures. Passion to be an artist will help you prevail where others fail.
+ - I love the way art moves people emotionally. I love the fact that when someone purchases art it is the one thing that will last for generations.
+ - Our art is an adventure. It is a dream come true.
+ - You can’t do better than that.
+ - Passion, for me, is like a shark – it never stops moving.
+ - Any man with a microphone can tell you what he loves the most.
+ - Can there be enough books to answer all your questions?
+ - That’s what happens nowadays with people working on computers. They can so easily fix things with their mouse and take out all the, ‘Oh, somebody coughed in the background; we need to take that out’ – or somebody hit a bad note. Those are all the best moments.
+ - It is not the style but the quality and emotional impact of work that makes it marketable. Unless we make art that connects with people, we won’t sell much, no matter what the style or subject.
+ - It seemed like there was no control over it. I think certain things just popped. God was blessing us in telling us that certain things were going the way they were supposed to go.
+ - Do not trust people who call themselves musicians or record collectors who say that they don’t like Bob Dylan or the Beatles. They do not love music if those words come out of their mouths.
+ - Passion is the breath we take, the water we drink to sustain ourselves. Without air and water we perish; without passion an artist will wither and blow away.
+ - I love the Arctic Monkeys. Who doesn’t? I’d love to see them live, but haven’t got round to it yet. I never get to see bands because I’m never in the same town for more than two seconds.
+ - I have so much music inside me I’m just trying to stay afloat. I don’t tend to write for a particular band – you have to just write the songs and then let God into the room and let the music tell you what to do.
+ - Mastery is the rudder, Mystery is the sail and Magic the wind to move you in your chosen direction.
+ - Captain Lone Wolf Gonzaullas was one of a kind. I’m sure he would agree to this truth, If you continuously compete with others, you will become bitter. If you constantly compete with yourself, you can become great.
+ - Vinyl is the real deal. I’ve always felt like, until you buy the vinyl record, you don’t really own the album. And it’s not just me or a little pet thing or some kind of retro romantic thing from the past. It is still alive.
+ - People talk about wanting amenities – downtown is the amenity.
+ - I have three dads: my biological father, God and Bob Dylan.
+ - There have been three times. Once I got in a car accident and shattered my finger. A few years ago I didn’t feel like being alive. That’s all I can say.
+ - With the White Stripes we were trying to trick people into not realising we were playing the blues. We did not want to come off like white kids trying to play black music from 100 years ago so a great way to distract them was by dressing in red, white and black.
+ - Inspiration and creativity, they ride right next to one anotherNot everyday are you going to wake up, the clouds are gonna part and the rays are gonna come downsometimes you gotta just get in there and force yourself to work and maybe something good will come out of it.
+ - We were like a white family from the 1920s or something. My parents had this bizarre, different way of looking at things from the people that surrounded us. I went to an all-Mexican grade school and an all-black high school, and not many people in those places liked the same stuff as me.
+ - It’s kind of ridiculous that I find inspiration in just getting away from everything. But when you’ve gone through it, you realize that it’s the enemy. It’s a distraction from what you’re really doing. You’ve got to keep moving. Like a shark.
+ - A songwriter’s heart is pure when they have the desire to keep digging deeper into music. And invariably, when you dig deeper it always leads you into the past.
+ - It is the pursuit of happiness that brings us happiness, and not the happiness achieved.
+ - It’s a sound bite. It’s very of this age, because that’s what people want.
+ - I dislike the word ‘emerging artist.’ Emerging connotes to me an alligator coming up from the water. I consider all artists to be artists, not rising, emerging, amateur, beginning, but the real thing.
+ - Like it or not, people tend to buy paintings to match their drapes, couch or carpet. I know you want them to be so overwhelmed with your skills they can’t resist hauling your art home. These three factors are what dictate most art sales.
+ - I’ve always been making up my own restrictions for myself, from day one, and it’s compelling, because it forces me to think. That’s always been a driving force for me.
+ - Technology is a big destroyer of emotion and truth. Auto-tuning doesn’t do anything for creativity. Yeah, it makes it easier and you can get home sooner; but it doesn’t make you a more creative person. That’s the disease we have to fight in any creative field: ease of use.
+ - I’ve always felt it’s ridiculous to say, of any of the females in my life: You’re my friend, you’re my wife, you’re my girlfriend, you’re my co-worker. ‘This is your box, and you’re not allowed to stray outside of it.’
+ - I’m always afraid, because I do most of my stuff at home, where nobody bothers me, and I don’t have to stroke somebody’s ego or be careful about hurting someone’s feelings. But I also want to know that I can still go into the world and be with other people and make music.
+ - Luck is when preparation meets opportunity. I’ll share the formula I learned while forging my way forward as a full-time painter for forty-four years. The steps all break down to one simple sentence: Make art that connects with enough folks for you to earn a splendid living.
+ - Success is having a career that you love with every fiber in your body.
+ - I consider music to be storytelling, melody and rhythm. A lot of hip-hop has broken music down. There are no instruments and no songwriting. So you’re left with just storytelling and rhythm. And the storytelling can be so braggadocious, you’re just left with rhythm.
+ - The price we sell things for is not important. What is important is we sell art that has to be replaced. You become good in art by doing art. The more you sell, the more you must produce.
+ - Inspiration and work ethic – they ride right next to each other.
+ - It’s funny because when you do become successful, you’re forced to look backwards and try to crawl back into the womb where you first started to create.
+ - I won’t let love disrupt, corrupt, or interrupt me.
+ - I came up from growing up with a lot of Catholic guilt, a lot of punk rock, hipster guilt in the later years where I think people have thrown a lot of things on me. Where I always felt like I’m not supposed to tell the horn section what to play or I don’t want to come off egotistical.
+ - In all my songs, I take on roles and play characters. It’s a unique way to explore ideas and decisions I might not think or make in real life.
+ - Punk is an attitude, not a genre, age group, or time period. What’s interesting is trying to define the blues and punk in different ways. They are very close cousins.
+ - Art is only worth what people will pay for it. Artists do not get paid by the hour.
+ - What you think is fake in your head comes off as not enough on camera, a lot of times. You almost have to overdo it, in this overly, sort of Broadway, large-gestures kind of way to come off as being realistic on camera. It’s strange. You almost have to act really fake to come off looking real.
+ - My mother’s the youngest of 10 children too, so we have sort of a special bond in that we know what that feels like. It’s a strange spot to be in.
+ - The wonderful news is that when a person with my lack of art background can be successful, then anyone can. I’m not super talented and had no art training. Nothing, nada, zip. No workshops or classes.
+ - I am a commercial artist because I paint to earn a living. We who earn money from what we produce are all commercial artists.
+ - Relationships of any kind are powerful, and they always influence an artist. It’s inescapable.
+ - The most exciting rock ‘n’ roll band of the last 50 years who are still on the road today.
+ - The true professional makes art when he is not feeling good, if the studio is too cold or too warm or the walls are falling down. We are painters and we paint. If I were a sculptor, I’d sculpt.
+ - Great work comes from great joy. Leave the angst for the movies; do art – that is fun.
+ - I gave myself over to music and art a long time ago, so I don’t get to relax and I don’t get to sit still. The best I can do is constantly create my own environment so it benefits what I need to accomplish in the next step.
+ - Worry means tormenting yourself with disturbing thoughts or fretting about things we have zero control over. If you live in the north there is no need to worry about the snow. You will get plenty each year. If you live in California or Texas you needn’t worry about rain because we won’t receive any.
+ - If you’re asking if I would be foolish enough, or insulting enough, to write about people in my life that I respect and sell it to the masses as a “break-up song,” I can’t imagine doing that to people I love.
+ - I’ve always loved the word blunderbuss. I’ve always thought that it was a beautiful word and that it could mean several different things.
+ - There’s Catholic guilt about things, then there’s the guilt of being the youngest of 10, so when nice things happen to you, you’re not really allowed to enjoy them.
+ - Nowadays, everybody assumes, when the wake up in the morning, if they have a question, it will get answered. Because they have the internet. No matter what the question is, someone will answer their question.
+ - Art doesn’t sell itself, it has to be sold.
+ - I’d make a White Stripes record right now. I’d be in the White Stripes for the rest of my life. That band is the most challenging, important, fulfilling thing ever to happen to me. I wish it was still here. It’s something I really, really miss.
+ - I’d got accepted to the seminary in Wisconsin, and I was gonna become a priest, but the last second I thought, ‘I’ll just go to public school.’ I had just gotten a new amplifier in my bedroom, and I didn’t think I was allowed to take it with me.
+ - I never wanted to play guitar when I was younger. I wanted to be a drummer because everybody plays guitar, and I didn’t want to do what everybody else wanted to do.
+ - I have trouble listening to people tell me about their dreams.
+ - It was really hard to find people to come over and play guitar and sing and write songs together. So that turned me into a songwriter that way, just so I could be able to play with other people.
+ - Saying you love something out loud with the wrong intonation in your face can damn you and destroy what you’re working on.
+ - The biggest failures come round and spring ultimate surprises of survival.
+ - Promotion and perception are synonymous twins of art marketing.
+ - You can’t steal an artist’s songs and also tell him he can’t license that music to a commercial.
+ - I keep guitars that are, you know, the neck’s a little bit bent and it’s a little bit out of tune. I want to work and battle it and conquer it and make it express whatever attitude I have at that moment. I want it to be a struggle.
+ - There are distractions, all around. There’s so much media, for a young kid to battle against, to get to something soulful. You have to make a decision, on your own, what you can take from these people, if you can dig deeper. It’s nice to be able to let people dig deeper.
+ - I think the sensitivity that you need to create certain things sometimes would spill over into things that shouldn’t have bothered me.
+ - If what you are doing is working, DON’T change just to be different. Just get better.
+ - You want to figure out how you want to play the guitar; what your niche would be. Well you just start digging deeper. When you’re digging deeper in rock and roll you’re on a freight train heading straight for the blues.
+ - There aren’t that many things left that haven’t already been done, especially with music. I’m interested in ideas that can shake us all up.
+ - People have sort of a problem trying to see an end to a situation as being positive or romantic.
+ - It is a myth that art has to be sold. It is not like stocking a grocery store where people fill a pushcart. Art is a product that has no apparent need. The salesperson builds the need in the mind of the buyer.
+ - For new bands, I think a major label is the safest place to be. Independent labels are the ones getting away with murder. A lot of them are hobbyists who rip-off young bands, taking advantage of people who would never get signed to a major.
+ - If you’re doing something that people want, they’ll find you.
+ - I don’t think about my mom when I’m onstage. I just don’t really think about my kids when I’m working, and when we press stop and I walk outside, they’re the first things I think about.
+ - I just think old old movies, they make you concentrate and pay attention so much more. They feel so warm. A lot of modern digital videotape, it’s just too bright. Don’t know why, it’s not warm.
+ - Onstage, I don’t feel any glory from people clapping in the audience, but when they’re pushing me to do something new that feels good.
+ - All of us need to self-promote. We cannot sit back and wait for our gallery or rep to do it all.
+ - I made a rule for myself in my early 20s not to become a record collector in the sense that I reference all my old records. I can’t live like that. I’d just be trapped in comparison, trying to emulate something, so I made a rule to just buy what I need, just the records I need.
+ - It’s harder to put yourself in a place where you could easily be seen as a fake. But that’s more interesting to me.
+ - I certainly wouldn’t want a song that I’d already written to be used on a commercial. That seems strange.
+ - I believe I am a better director than actor. I enjoy acting if the part is right. Directing comes very naturally to me. I enjoy it. I am very confident in my work.
+ - I think you can’t really escape any kind of spiritual education as a child, whether it’s New Age or Judaism or Buddhism or whatever it is. You can’t escape it, even if you completely disagree with it, you still have it as a foundation that you base things off of.
+ - I don’t think there is room for ‘artistic temperament.’ Professional artists understand art is a business. If businesses ran their companies like many artists do their careers, they would not stay open a year.
+ - I think the media’s the kind of thing where the truth doesn’t win, because it’s no fun. The truth’s no fun.
+ - I always stayed away from the studio environment as much as possible. But I just wanted to see if I could work in one. It’s not easy. Just having an engineer’s assistant around is enough for me to be uncomfortable. With more than one person there in the room, it feels strange.
+ - I have so many projects to work on I’m going to have to live to at least 120 to get some of them done.
+ - I wanted to be able to talk with people who have trade jobs and make records with them. I want to do more records with carpenters, electricians, people who specialize in even more bizarre trades that are off the beaten path.
+ - I would never be able to live in a huge city. I’d feel like one of 100,000 people doing the same thing.
+ - As an artist, you take things from your environment, and there’s going to be a style coming out of your environment.
+ - If you saw me working with construction crews or graphic designers, you’d see how much I’m really hoping for them to bring something to the table and let God in the room and let things happen naturally.
+ - Playing drums feels like coming home for me. Even during the White Stripes I thought: ‘I’ll do this for now, but I’m really a drummer.’ That’s what I’ll put on my passport application.
+ - From now on take time to be amazing, tell those who matter, I LOVE YOU.
+ - I have very little interest in the bottom line or signing artists to help make the label profit. That’s a lucky, unique position to be in, but it all comes out in the wash.
+ - I want to be part of the resurgence of things that are tangible, beautiful and soulful, rather than just give in to the digital age. But when I talk to people about this they just say, ‘Yeah, I know what you mean,’ and stare at their mobiles.
+ - I cannot judge what motivates people. We are all moved by one of four things or a combination of these four things: money, romance, recognition or survival.
+ - I won’t join another band again.
+ - The day that music is taken for free by the majority is the day that the phrase “sell out” doesn’t exist any more.
+ - Maybe we should all just listen to records and quit our jobs.
+ - I was in a Montessori school. There was a drum circle with all the kids passing around a little bongo drum. I was the last person in the circle, and when it got to me I played ‘Shave and a Haircut, Two Bits’ – in front of all the parents. Blew the crowd away at five years old.
+ - The secret of a successful art career is to make more art that folks think they need than pieces they just want. When a piece of art emotionally connects with a person the work becomes a need. You are then on your way to becoming successful.
+ - No. I know that’s blasphemous when you are from Detroit.
+ - Music is what I have to do, I only answer the questions so that I can do it.
+ - I have so much music inside me I’m just trying to stay afloat.
+ - I can’t imagine being anything creative in a major town because everybody’s doing the same exact thing you’re doing. How can you not get confused about what you yourself are doing?
+ - I probably could have a hip-hop-style entourage of 40 people coming with me to the club or whatever, and I don’t do that. And I think sometimes maybe I should. It just makes things easier – if you don’t like being by yourself, maybe just don’t do it ever.
+ - If you don’t have a struggle inside or around you, you have to make one up.
+ - In my bands, I don’t really walk around telling people what to play, just out of respect really. I mean, if there’s something I feel in my gut, I’ll bring it up.
+ - You need a little resistance-something to fight against.
+ - A lot of people in the media, and some everyday people, really aren’t in search of the truth. They’re in search of something worse than that. Money, yeah. I think the media’s the kind of a thing where the truth doesn’t win, because it’s no fun. The truth’s no fun.
+ - We learn to beat fear by doing.
+ - If you have twenty guys in the room and you just bring in one girl, you change the entire mood and everyone plays different.
+ - When you put something out there into the world, there’s all these words you don’t want to hear, that you hope people don’t say. I don’t like anything that starts with ‘re’ – like retro, reinvent, recreate – I hate that. It’s always like living in the past – copying, emulating.
+ - Your passion must be tempered with patience. Maybe long-suffering patience would be a better word.
+ - An auctioneer is such a uniquely American thing. I keep thinking in my head, perhaps it’s not as American as I think, but it feels so Southern. It feels so American. Like, hundreds of years of American tradition is involved in it.
+ - I think that most people, and by people I mean journalists, think that I pre-conceive everything and that I spend my afternoons dreaming up self-mythologizing points of interest.
+ - I say this often, THINK. There is something in life called common sense. Webster’s says common sense is sound and prudent judgment based on a simple perception of the situation or facts. Perhaps this is why in 1776, Thomas Paine used these words as a title for the most famous pamphlet ever written.
+ - I think it takes a lot of trickery to keep up with the media and its perception of you. I don’t know if I have it in me most of the time to care. The music is made first, and the interviews or photos to keep it alive come later as a necessary evil, I suppose.
+ - It’s hard to find other musicians that push you to go somewhere new all the time.
+ - Collectors are paying for our education by purchasing our art.
+ - I have a suggestion for all of those award seekers and blue ribbon hunters. Spend your efforts on making art that connects with people. Awards impress the grandkids but they don’t move the gauge on selling your product. Art needs to touch the emotions of the buyer.
+ - I think I’ve been a good boy long enough and given everyone around me a fair piece of the pie as far as all of the fleeting glory and reward that comes from the heavens – or the music press, whatever you want to call it.
+ - I think that sometimes love gets in the way of itself – you know, love interrupts itself. We want things so much that we sabotage them.
+ - This is a fact. If you don’t make art people like, you will never earn a living as an artist.
+ - The big picture is a nice way to think of things if you have the freedom to.
+
+149 quotes

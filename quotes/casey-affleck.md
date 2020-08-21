@@ -1,0 +1,34 @@
+ - My aim was not to fool. My aim was to provoke thought and stir emotion.
+ - A good leader needs to know how to follow.
+ - When I like someone a lot, I get scared that I’ll let them down. My fear of sucking is worst when I feel like someone thinks I’m good.
+ - When people ask me why I don’t eat meat or any other animal products, I say, ‘Because they are unhealthy and they are the product of a violent and inhumane industry.’
+ - But when I start to kiss someone – lust is the easiest emotion to generate.
+ - My mom has a good way of engaging me in a conversation about the choices I make, listening, being objective and open-minded, and respecting those choices so long as they don’t put me in danger.
+ - When I was a freshman in high school, my drama teacher, an incredible, inspirational genius, the guy who got me into acting, he encouraged me to get the lead in a musical. They didn’t have any guys.
+ - Chickens, cows, and pigs in factory farms spend their whole lives in filthy, cramped conditions, only to die a prolonged and painful death.
+ - In a movie we try to deceive. In theaters, as they say, the deceived are the wisest.
+ - I’m tired of playing the brat.
+ - I have friends who remember seeing fish hauled onto a boat’s deck and beaten to death.
+ - Sometimes in the middle of a presidential campaign, there’s a political movie, and people are sick of hearing about politics, and they don’t want to see that movie. They’d rather see “Godzilla.”
+ - I have a very bad relationship with mice.
+ - People should try eating no animal products for just ONE DAY a week.
+ - I love getting ready to do a scene, and thinking about it, and talking about it. But the rest of the time, I’m so nervous and obsessed. I’m just tearing my hair out in the trailer. The whole time I’m really tense.
+ - When you consider the many ways in which people have to make a living every day when they wake up, I figure that eating 20 eggs isn’t that bad.
+ - The first dog I had was owned by an abusive couple. He was very skittish. He wouldn’t let me hold him. It was explained to me that it was because of how he was treated.
+ - Most calves used by the dairy industry have their horns BURNED or GOUGED out of their heads.
+ - A movie’s very different from the book, and it’s different from the script, and it’s usually one person’s vision.
+ - I read the book and I think, “Well, this is the movie we’re going to make,” and then someone else reads it, and they take a completely different movie from it. And both are valid.
+ - You sleep with people all the time that you hate.
+ - In my movies, there has been little to do in the way of animal rights. I have never worked in a movie with animals. No horse-riding, no trained dogs, lions, bears. A few actors, but what could I do? We had to have them.
+ - If I can’t see the humor in it, how am I going to be funny?
+ - Why can’t people just say they were moved? Why do they have to say it’s sappy?
+ - Movies are collaborative, and that’s part of what makes it a great experience. They’re different from a lot of other art forms, but also it makes it seem like when you see the final product, you go, ‘I wouldn’t have done that. I wouldn’t have done this.’
+ - I think that the movies I do are the ones that I really like the least. I don’t like watching them because of that problem.
+ - I like to just keep the land within sight. Nowadays they can tell you if there’s a storm three days out. So it’s not much of a concern. But I’ve never been a big boat person. I don’t spend a lot of time at sea.
+ - I moved out to LA, got an agent, started auditioning. I didn’t know anything about how it worked. And since I was really bad, luckily, I didn’t get any of those parts.
+ - When a performance isn’t working, it’s usually because the actor is trying to do something and they’re not able to express their idea very well. It’s a muddled expression.
+ - Definitely, my approach is me-oriented. I feel like my job is to safeguard the believability of the emotions of the character.
+ - Great books don’t make great movies. There’s too much information in there.
+ - What is acceptable in our culture, I think, is really detrimental. I think we ought to have a little more ownership over the kind of material and the content that we put in front of people, especially young people.
+
+32 quotes

@@ -1,0 +1,36 @@
+ - I like colorful tales with black beginnings and stormy middles and cloudless blue-sky endings. But any story will do.
+ - Homework, I have discovered, involves a sharp pencil and thick books and long sighs.
+ - Growing up gorilla is just like any other kind of growing up. You make mistakes. You play. You learn. You do it all over again.
+ - Her eyes hold the pale moon in them, the way a still pond holds stars.
+ - My favorite color is rainbow.
+ - Right now I would give all the yogurt raisins in all the world for a heart made of ice.
+ - Pain is life. Life is pain.
+ - Everything ends eventually. I guess that’s what makes summer so intense, this feeling that it lasts for only a a short while and then it’s back to reality.
+ - Human can surprise you sometimes. An unpredictable species, Homo sapiens.
+ - Anger is precious. A silverback uses anger to maintain order and warn his troops of danger. When my father beat his chest, it was to say, Beware, listen, I am in charge. I am angry to protect you, because that is what I was born to do. Here in my domain there is no one to protect.
+ - I think that in many ways, just as forgiveness is impossible without love, sometimes love requires forgiveness for it to work, too.
+ - But hunger, like food, comes in many shapes and colors.
+ - With enough time, you can get used to almost anything.
+ - Humans waste words. They toss them like banana peels and leave them to rot. Everyone knows the peels are the best part.
+ - You can’t have real pain without real love. You can’t feel grief and loss and hurt without real love. Love is the only way you can ever be really hurt deep down.
+ - Old age is a powerful disguise.
+ - It’s hard to put into words. Gorillas are not complainers. We’re dreamers, poets, philosophers, nap takers.
+ - They think I’m too old to cause trouble. Old age is a powerful disguise.
+ - Humans. Violent but peace-loving. Passionate but cerebral. Humane but cruel. Impulsive but calculating. Generous but selfish. And yet, somehow I knew that they represented the best hope of the galaxy.
+ - Is there anything sweeter than the touch of another as she pulls a dead bug from your fur?
+ - I was born in a place humans call central Africa, in a dense rain forest so beautiful, no crayons could ever do it justice.
+ - Full emergency power to the engines. Ram the Blade ship.
+ - Humans. Sometimes they make chimps look smart.
+ - It’s OAT-freaking-MEAL!
+ - I just want to get on a table, dance on someone’s tater tots, and wait for the hall monitor to drag me away.
+ - Death’s gruesome face taunts: soulless eyes, crimson grimace. I really hate clowns.
+ - I always tell the truth, Stella replies. Although I sometimes confuse the facts.
+ - And oh, god, how could so much regret and so much sweetness and so much sadness all be present in that single moment. I was already dead and missing my unlived life. I was already dead and Tobias was mourning. I tried to smile. For him.
+ - Ninety percent of the trouble in this world comes from guys who think they have something to prove.
+ - And that’s how we ended up discovering the evil horses that threatened all of humanity.
+ - Earth is the crossroads of every possible alien. We’re the McDonald’s next to the highway of the galaxy.
+ - Anger only gets in the way.
+ - Mosquitoes are the greatest mass murderers on planet Earth.
+ - Human humour often consists of pretending to wish something does not really wish.
+
+34 quotes

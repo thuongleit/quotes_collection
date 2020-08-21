@@ -1,0 +1,49 @@
+ - Fight for the things that you care about, but do it in a way that will lead others to join you.
+ - Reading is the key that opens doors to many good things in life. Reading shaped my dreams, and more reading helped me make my dreams come true.
+ - Anger, resentment, envy, and self-pity are wasteful reactions. They greatly drain one’s time. They sap energy better devoted to productive endeavors.
+ - If you have a caring life partner, you help the other person when that person needs it. I had a life partner who thought my work was as important as his, and I think that made all the difference for me.
+ - Women’s rights are an essential part of the overall human rights agenda, trained on the equal dignity and ability to live in freedom all people should enjoy.
+ - I do hope that some of my dissents will one day be the law.
+ - My mother told me to be a lady. And for her, that meant be your own person, be independent.
+ - Dissents speak to a future age.
+ - I would not look to the United States Constitution if I were drafting a constitution in the year 2012.
+ - Generalizations about the “way women are” and estimates of what is appropriate for most women no longer justify denying opportunity to women whose talent and capacity place them outside the average description.
+ - It is not women’s liberation, it is women’s and men’s liberation.
+ - Women will only have true equality when men share with them the responsibility of bringing up the next generation.
+ - Promoting active liberty does not mean allowing the majority to run roughshod over minorities. It calls for taking special care that all groups have a chance to fully participate in society and the political process.
+ - There is a Constitutional right to prostitution.
+ - I became a lawyer for selfish reasons. I thought I could do a lawyer’s job better than any other.
+ - I am a judge born, raised, and proud of being a Jew. The demand for justice runs through the entirety of the Jewish tradition. I hope, in my years on the bench of the Supreme Court of the United States, I will have the strength and the courage to remain constant in the service of that demand.
+ - The written argument endures. The oral argument is fleeting.
+ - Sometimes people say unkind or thoughtless things, and when they do, it is best to be a little hard of hearing – to tune out and not snap back in anger or impatience.
+ - So that’s the dissenter’s hope: that they are writing not for today but for tomorrow.
+ - One might plausibly contend that Congress violates the spirit, if not the letter, of the constitutional doctrine of separation of powers when it exonerates itself from the impositions of the laws it obligates people outside the legislature to obey.
+ - If I had any talent God could give me, I would be a great diva.
+ - A prime part of the history of our Constitution is the story of the extension of constitutional rights to people once ignored or excluded.
+ - People who are well represented at trial do not get the death penalty.
+ - A constitution, as important as it is, will mean nothing unless the people are yearning for liberty and freedom.
+ - My rule was I will not answer a question that attempts to project how I will rule in a case that might come before the court.
+ - When contemplated in its extreme, almost any power looks dangerous.
+ - The state controlling a woman would mean denying her full autonomy and full equality.
+ - You can’t have it all, all at once. Who – man or woman – has it all, all at once? Over my lifespan I think I have had it all. But in different periods of time things were rough. And if you have a caring life partner, you help the other person when that person needs it.
+ - Every constitution written since the end of World War II includes a provision that men and women are citizens of equal stature. Ours does not.
+ - Prisons should be co-ed because separate quarters are discriminatory.
+ - All respect for the office of the presidency aside, I assumed that the obvious and unadulterated decline of freedom and constitutional sovereignty, not to mention the efforts to curb the power of judicial review, spoke for itself.
+ - Frankly, I had thought that at the time Roe was decided, there was concern about population growth and particularly growth in populations that we don’t want to have too many of.
+ - Throwing out preclearance when it has worked and is continuing to work to stop discriminatory changes is like throwing away your umbrella in a rainstorm because you are not getting wet.
+ - I said on the equality side of it, that it is essential to a woman’s equality with man that she be the decision-maker, that her choice be controlling.
+ - It is not like I have gone crazy, I just don’t want to take any chances. You never know what could happen.
+ - Religious organizations exist to foster the interests of persons subscribing to the same religious faith. Not so of for-profit corporations. Workers who sustain the operations of those corporations commonly are not drawn from one religious community.
+ - Racial discrimination in elections in Texas is no mere historical artifact. To the contrary, Texas has been found in violation of the Voting Rights Act in every redistricting cycle from and after 1970.
+ - Who will take responsibility for raising the next generation?
+ - I would not like to be the only woman on the court.
+ - The greatest threat to public confidence in elections in this case is the prospect of enforcing a purposefully discriminatory law, one that likely imposes an unconstitutional poll tax and risks denying the right to vote to hundreds of thousands of eligible voters.
+ - In sum, the Court’s conclusion that a constitutionally adequate recount is impractical is a prophecy the Court’s own judgment will not allow to be tested. Such an untested prophecy should not decide the Presidency of the United States. I dissent.
+ - When police or prosecutors conceal significant exculpatory or impeaching material, we hold, it is ordinarily incumbent on the state to set the record straight.
+ - If we gave up our freedom as the price of security, we would no longer be the great nation that we are.
+ - Arizona presents no specific reason for excepting capital defendants from the constitutional protections extended to defendants generally, and none is readily apparent.
+ - Members of the legislature, people who have run for office, know the connection between money and influence on what laws get passed.
+ - You’re saying, no, state said two kinds of marriage; the full marriage, and then this sort of skim-milk marriage.
+ - If there was one decision I would overrule, it would be Citizens United. I think the notion that we have all the democracy that money can buy strays so far from what our democracy is supposed to be.
+
+47 quotes

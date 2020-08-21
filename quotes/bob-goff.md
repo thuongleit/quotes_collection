@@ -1,0 +1,157 @@
+ - Embrace uncertainty. Some of the most beautiful chapters in our lives won’t have a title until much later.
+ - Stand up like a mountain; have faith like a rock; love like an avalanche.
+ - We won’t be distracted by comparison if we’re captivated with purpose.
+ - God’s big plan: go love everybody, always!
+ - I used to be afraid of failing at something that really mattered to me, but now I’m more afraid of succeeding at things that don’t matter.
+ - Figure out what fuels your joy, then do lots of that.
+ - Don’t save up love like you’re trying to retire on it; give it away like you’re made of it.
+ - I don’t know every step I’m supposed to take. I think Jesus just wants me to take the next step.
+ - Simply put: love does.
+ - Fix your eyes on Jesus; it’s ok to stare.
+ - If we only do what we’re familiar with, we might miss what we’ve been made for.
+ - Extravagant love is never wasted.
+ - Being engaged is a way of doing life, a way of living and loving. It’s about going to extremes and expressing the bright hope that life offers us, a hope that makes us brave and expels darkness with light. That’s what I want my life to be all about – full of abandon, whimsy, and in love.
+ - Loving people the way Jesus did, means living a life of constant interruptions. Bring it.
+ - Every time we see people as ordinary, we turn the wine back into water.
+ - Next to grace, I bet God thinks making us need each other was one of His best ideas.
+ - We might be known for what we believed, but we’re certain to be remembered for what we did about it.
+ - Most people need love and acceptance a lot more than they need advice.
+ - Day turned to night, His friends scattered and death thought it had won. But heaven just started counting to three.
+ - It’s easy to confuse a lot of activity with a purposeful life. Do what lasts; let the rest fall away.
+ - Selfless love is always costly; fear can’t afford it, pride doesn’t understand it and friends never forget it.
+ - The most beautiful scenery in the world is when our friends come into view.
+ - The way we deal with uncertainty says a lot about whether Jesus is ahead of us leading, or behind us just carrying our stuff.
+ - Courage doesn’t mean we’re not afraid anymore, it just means our actions aren’t controlled by our doubts.
+ - Don’t let other people decide who you are.
+ - When you love people like Jesus, you get messy. But messy looks good on you!
+ - Courage isn’t the absence of fear, it’s just deciding that fear isn’t calling the shots anymore.
+ - Don’t let who you were talk you out of who you are becoming.
+ - For me, it’s Jesus plus nothing-...
+ - The battle for our hearts is fought on the pages of our calendar.
+ - Most of our decisions are driven by either love or fear. Figure out who’s doing the talking, then decide what you’ll do.
+ - Don’t let uncertainty talk you into pursuing a backup plan instead of your purpose.
+ - Grace draws a circle around everyone and says they’re in.
+ - You can quit anything on a Thursday.
+ - Something happens when you feel ownership. You no longer act like a spectator or consumer, because you’re an owner. Faith is at its best when it’s that way too. It’s best lived when it’s owned.
+ - Here’s our job as believers, love everybody ALWAYS!
+ - I want to go barefoot because it’s holy ground; I want to be running because time is short and none of us has as much runway as we think we do; and I want it to be a fight because that’s where we can make a difference. That’s what love does.
+ - We spend a lot of energy remembering failures God spent a lot of love saying we could forget.
+ - Love one another. We don’t need more instructions; we need more examples.
+ - I used to think I could shape the circumstances around me, but now I know Jesus uses circumstances to shape me.
+ - Grace works that way. It’s a kind word from a gentle person with an impossible prayer. It’s a force sometimes transmitted best hand to hand in a dark place.
+ - No book is a chapter, no chapter tells the whole story, no mistake defines who we are. Hope makes our lives page turners.
+ - Too often we are posers. Don’t be afraid. Be you. Live a life worthy of the calling YOU’VE received.
+ - We’ll fill our lives with what we cultivate the most. Plant grace by the acre.
+ - Love has the kind of power criticism only wishes it had.
+ - Jesus never told His friends to play it safe.
+ - It will be the people with the greatest love, not the most information, who will influence us to change.
+ - God doesn’t break things so He can fix them; He fixes broken things so He can use them.
+ - Living a life fully engaged in full of whimsy and the kind of things that love does is something most people plan to do, but along the way they just kind of forget.
+ - Start from scratch with Jesus every day and then be picky about what you add to your life.
+ - But the kind of love that God created and demonstrated is a costly one because it involves sacrifice and presence. It’s a love that operates more like a sign language than being spoken outright.
+ - We all want to have a place where we can dream and escape anything that wraps steel bands around our imagination and creativity.
+ - We won’t be like Jesus if it’s more important to us to be like each other. God doesn’t compare what he creates.
+ - Do what lasts, get around to everything else.
+ - God isn’t trying to make our lives easier; He wants to make them more meaningful.
+ - We don’t really make friends, they make us.
+ - Love like there’s no tomorrow; live like there’s no yesterday. We’re forgiven; now go love people like we believe it.
+ - Stop telling people how far they have left to go. Instead tell them how far they’ve come.
+ - God makes confetti out of our titles and accomplishments to celebrate the poor and the humble.
+ - We can’t always see people’s pain; they can always feel our love.
+ - I used to think you had to be special for God to use you, but now I know you simply need to say yes.
+ - I used to want to fix people, but now I just want to be with them.
+ - The thing I love about God is He intentionally guides people into failure.
+ - Sometimes we ask God for help and God gives us hope, not because it’s different, but because it’s the same.
+ - If you’re following God and haven’t lost much of what you’ve been holding on to – follow a little closer.
+ - When it feels like we need to choose between being right and being humble- pick both.
+ - We determine how much influence we’ll have, when we decide how available we’ll be.
+ - Live your life like you’re exactly who Jesus thinks you are.
+ - Instead of closing our eyes and bowing our heads, sometimes God wants us to keep our eyes open for people in need, do something about it, and bow our whole lives to Him instead.
+ - God made beauty so we’d know how He felt about us.
+ - I used to hope the things I did would work; now I hope they last.
+ - When we love people but don’t make it about us, we’re exchanging currency we can use for a while for currency we can use forever.
+ - We plant sod where God wants 2 plant seed. He’s more interested in growing our character than having us look finished.
+ - That’s what love does – it pursues blindly, unflinchingly, and without end. When you go after something you love, you’ll do anything it takes to get it, even if it costs everything.
+ - Fear will give us a reason not to try; hope will give us a reason not to listen.
+ - We keep asking for answers; God keeps sending us people.
+ - I think God’s hope and plan for us is pretty simple to figure out. For those who resonate with formulas, here it is: add your whole life, your loves, your passions, and your interests together with what God said He wants us to be about, and that’s your answer.
+ - Whatever you’re aiming for, God’s better.
+ - Words people say not only have a shelf life but have the ability to shape life.
+ - Love does whatever it takes to multiply itself and somehow along the way everyone becomes a part of it.
+ - I used to think I could learn about Jesus by studying Him, but now I know Jesus doesn’t want stalkers.
+ - People who want to manipulate you will fear your joy, because it’s not easily controlled.
+ - God never said He’d eliminate all of the chaos from our lives; He just said He’d bring meaning to it.
+ - Stop doing what you’re able to do and figure out what you were made to do – then do lots of that.
+ - I used to think being loved was the greatest thing to think about, but now I know love is never satisfied just thinking about it.
+ - I used to think JESUS motivated us with ultimatums, but now I know He pursues us in LOVE.
+ - Courageous people feel the same fear everyone else does, they just decide to not be afraid anymore.
+ - We can be the light of the world without leaving our high beams on and annoying everybody.
+ - Great love leaves little doubt.
+ - God’s grace comes in all shapes, sizes, and circumstances as God continues to unfold something magnificent in me.
+ - When love is a theory, it’s safe, it’s free of risk. But love in the brain changes nothing.
+ - We’re all amateurs when it comes to love. Don’t be too hard on each other.
+ - Grace means we can put the chalk away and stop keeping score!
+ - You don’t need a plan; you just need to be present.
+ - Don’t let not knowing how it’ll end keep you from beginning. Uncertainty chases us out into the open where God is waiting.
+ - The teachers I’ve learned the most from, didn’t think they were teaching me; they just thought we were friends.
+ - No one leads people to Jesus; He leads people to Himself. All the pressure’s off; just go love everybody without agenda.
+ - What Jesus said we could do is leave typical behind.
+ - Whimsy doesn’t care if you are the driver or the passenger; all that matters is that you are on your way.
+ - We need to make our faith our very own love story.
+ - Jesus won’t try to speak over the noise in our lives; love whispers so we won’t be confused about who’s doing the talking.
+ - Sometimes the things we think are the impediments are actually the path.
+ - God often waits until we’re out of ideas before He lets us know His plans. He competes for our hearts, not our attention.
+ - Surround yourself with prompts that remind you who Jesus is.
+ - Living a life of following Christ means constant interruptions.
+ - We’ll become whoever we trust the most says we are.
+ - Do one heroic thing today; big or small doesn’t matter because it defines who you are and what you really believe.
+ - God isn’t afraid of our doubts; He’s way more concerned when we fake it.
+ - We need to wash the feet of our enemies.
+ - Faith isn’t figuring out what we’re able to do, it’s deciding what we’re going to do – even when we think we can’t.
+ - Do one thing that’s heroic for you today – big or small – and fear won’t define you anymore.
+ - Jesus always pointed people towards a better version of themselves – particularly when they’d failed.
+ - God keeps telling us to be not afraid, to go big.
+ - Most of us have all the information we need. What we need is more passion.
+ - There are lots of things we’re able to do, but I’d like to land on the one thing I was MADE to do.
+ - Love doesn’t try to be efficient; when it is most extravagant, it is least wasted.
+ - The shallow end of hope is usually the deep end of grace.
+ - I learned that faith isn’t about knowing all of the right stuff or obeying a list of rules. It’s something more, something more costly because it involves being present and making a sacrifice.
+ - When you trust someone, you don’t need to know everything.
+ - God’s never as nervous about our future, or as concerned about our past, as we are.
+ - God finds us in the holes we dig for ourselves. We see failures; He sees foundations.
+ - Live a life of conspicuous grace and courageous resolve.
+ - Our opinions are what we’ll be known for; our love is what we’ll be remembered for.
+ - What I’ve learned the more time I’ve spent following Jesus is that God delights in answering our impossible prayers.
+ - The words we speak to each other should leave stretch marks, not bruises. Love is always picky about what it says.
+ - Grace means we don’t need to airbrush our lives to make them look like they’re working.
+ - Nobody turns down an invitation to the White House, but I’ve seen plenty of people turn down an invitation to fully live.
+ - We’ll never honor Christ if we forget how to honor each other.
+ - What distracts us will begin to define us. We don’t need to swing at every pitch.
+ - I used to think God wouldn’t talk to me, but now I know I’m just selective with what I choose to hear.
+ - Jesus lets us be real with our life and our faith.
+ - We keep telling God our opinions; He keeps asking us about our hearts. We’ll grow the most when we have the right conversations.
+ - Go be the next humblest version of yourself.
+ - We won’t figure out what’s sacred in life if we settle for what’s safe.
+ - It has always seemed to me that broken things, just like broken people, get used more; it’s probably because God has more pieces to work with.
+ - Love finds us where we are, not where we were.
+ - There’s a lot to be concerned about; there’s more to be hopeful for.
+ - I used to think God guided us by opening and closing doors, but now I know sometimes God wants us to kick some doors down.
+ - The way we love people we disagree with is the best evidence of what we really believe.
+ - Be ambitious about things that last.
+ - That’s one of those things about love. It always assumes it can find a way to express itself.
+ - Cynicism is fear posing as confidence; joy is hope let off the leash.
+ - Small streams don’t plan to be mighty rivers. We just move in a direction; God decides what He’ll have us become.
+ - If we pick recognition over influence we’ll be known for all the wrong stuff.
+ - When you are in high school, you don’t give much thought to what you can’t do. For most people, that gets learned later, and for still fewer, gets unlearned for the rest of life.
+ - See people for who they’re becoming. Not who they were.
+ - I don’t think success is what we’ve made of ourselves; I think it’s what we’ve made of others.
+ - Love God, love your neighbors, and do stuff!
+ - God delights in answering our impossible prayers.
+ - We get to be God’s plan for the whole world by pointing people toward Him.
+ - People who take huge risks aren’t afraid to fail. In fact, they love to fail. It’s because failing means they found the edge.
+ - Fear calls out our doubts; God calls out our names.
+ - Our failures can leave behind pavement or potholes. Our ability to receive grace determines which it will be.
+ - The world will figure out what we really believe, by watching what we actually do.
+ - I used to think that real love involved falling for someone; but now I think it usually involves standing for someone.
+
+155 quotes

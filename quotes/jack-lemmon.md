@@ -1,0 +1,28 @@
+ - No matter how successful you get, always send the elevator back down.
+ - Failure seldom stops you. What stops you is the fear of failure.
+ - If you’ve been fortunate enough to live out your dream in the profession of your choice, then you have an obligation to send the elevator back down.
+ - I have never lost a total passion for my work.
+ - Anything truly worthwhile does not come easy. If it did, it would not be all that worthwhile.
+ - I have lost someone I loved as a brother, as a closest friend, and a remarkable human being. We have also lost one of the best damn actors we’ll ever see.
+ - I feel sorry for people who don’t drink. When they wake up in the morning, that’s as good as they’re going to feel all day.
+ - Stay humble. Always answer your phone – no matter who else is in the car.
+ - Everything that is truly worthwhile – I think passion is involved in your approach to it. No matter what it is.
+ - If you think it’s hard to meet new people, try picking up the wrong golf ball.
+ - Success is always somebody else’s opinion of you; but it doesn’t amount to a damn compared to your own opinion of yourself.
+ - It’s hard enough to write a good drama, it’s much harder to write a good comedy, and it’s hardest of all to write a drama with comedy. Which is what life is.
+ - It can be a simple sentence that makes one single point and you build for that. You zero in on one moment that gets that character, you go for it, that’s it, man, and if you fail the whole thing is down the drain, but if you make it you hit the moon.
+ - Nobody deserves this much money – certainly not an actor.
+ - I think whatever you do, if you are going to do well or even if you don’t do it well, you have to have a passion for it, and I am passionate about it. I love it. I respect it and it gets me. I get off on acting.
+ - I had no desire to be in the movies. All my training had been in the theater, thank God.
+ - Dying is not a sin. Not living is.
+ - I won’t quit until I get run over by a truck, a producer or a critic.
+ - When I’m reading material, if I’m a little bit afraid of a part and I’m willing to admit that to myself, then I’ll do it, definitely. If I’m worried about being able to do it, to get it -I absolutely just love it.
+ - People are probably correct when they see me as the so-called Everyman. I’m attracted primarily to contemporary characters. I understand them and their frustrations.
+ - I was lying ten and had a thirty-five foot putt. I whispered over my shoulder: “How does this one break?” And my caddie said, “Who cares?”
+ - I’d rather make the cut in the Crosby than win another Oscar.
+ - I would rather play Hamlet with no rehearsal than TV golf.
+ - How do you know that God didn’t speak to Charles Darwin?
+ - If you really do want to be an actor who can satisfy himself and his audience, you need to be vulnerable.
+ - My career has been full of remarkable coincidences that have nothing to do with me.
+
+26 quotes

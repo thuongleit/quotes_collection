@@ -1,0 +1,30 @@
+ - On sensitive issues, talk isn’t cheap – it takes real courage to pry open topics nailed shut.
+ - But to understand what it means to be strong and courageous, Christians should look to the person of Christ.
+ - It starts this way: The worth of a job is not defined by what it allows you to do when you’re not working.
+ - Since governmental quotas expand bureaucratic power, provoke a backlash and are unfair to individuals, we need to find a better way to increase minority opportunities.
+ - Those who believe in the importance of serving others should lead the way by fighting against the temptation we all have, and maybe especially as we age, to close in upon ourselves.
+ - The data, however, do indicate that Christians who see Jews through a 17th-century lens, believing that most are thoroughly religious, are thoroughly wrong.
+ - Passover and Easter are the only Jewish and Christian holidays that move in sync, like the ice skating pairs we saw during the winter Olympics.
+ - Many American Muslims are peaceful and define jihad primarily as an internal struggle to improve.
+ - Most organizations should be pro-active, but philanthropists concerned with poverty should deliberately be reactive, learning from the efforts of ordinary folks who tired of looking the other way as their communities fell apart.
+ - The holy land was supposed to be spotless, a serious equivalent of Disneyland in which not a single candy wrapper is to stay on the ground for more than a few minutes.
+ - Lack of understanding, along with outright anti-Christian prejudice, leads to journalistic amazement or horror at the supposed self-deception of those who do see a spiritual realm.
+ - Do we want to know whether Christ was resurrected on Easter? God provides the grace to believe in that, but note: Such belief requires less faith in things unseen than believing that the world as we know it evolved out of nothing.
+ - Today, unless women gain jobs and athletic scholarships commensurate with their percentage of the population, feminists scream discrimination.
+ - Powerful groups with anti-Christian worldviews dominate major media and major educational institutions.
+ - Those who give of themselves rarely regret it.
+ - Many journalists seem to desire ‘liberation’ from Christian roots.
+ - Epidemics historically have tended to kill the very young and the very old, but AIDS is different: Those ages 20 to 40 are most affected, which means that so far over 12 million African children have been orphaned because of AIDS.
+ - Philanthropic humility is necessary if a giver is to do more good than harm, but it is not sufficient – philanthropic prudence is also needed.
+ - I don’t know the right number of immigrants to let in.
+ - Baseball needs to put the steroids era behind it by having and enforcing tough rules against all kinds of artificial advantages, so that spring can return.
+ - More people need to understand the games secular liberals play. Here’s one rule-of-thumb: No matter how bad a story sounds – particularly if it sounds bad – recognize the pattern of defamation.
+ - We do not increase compassion by expanding it to cover anything. Instead, we kill a good word by making it mean too much, and nothing.
+ - Fifteen years ago, while I was temporarily chairing meetings of pro-life leaders, I pleaded with the angry males to say no to interviews, and instead let beautiful pro-life women become the face for the movement.
+ - I still favor alternatives to governmental race-based preferences.
+ - A job should employ God-given talents in a way that glorifies Him.
+ - I grew up Jewish, became an atheist and a Marxist, and 28 years ago, at age 26, became a Christian.
+ - Materialist philosophies that treat human beings as machines or animals possess the high ground in our culture – academia, the most powerful media and many of our courts.
+ - And yet, those who speak loudly and call anyone who disagrees with them a wimp often do a disservice to the cause they are promoting.
+
+28 quotes

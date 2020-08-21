@@ -1,0 +1,77 @@
+ - The greatest pleasure in life is doing what people say you cannot do.
+ - Go ahead and do the impossible. It’s worth the look on the faces of those who said you couldn’t.
+ - No great work has ever been produced except after a long interval of still and musing meditation.
+ - Life is a compromise of what your ego wants to do, what experience tells you to do, and what your nerves let you do.
+ - The real essence of work is concentrated energy.
+ - Money is economic power.
+ - We must not let daylight in upon the magic.
+ - One of the greatest pains to human nature is the pain of a new idea.
+ - A cabinet is a combining committee, a hyphen which joins, a buckle which fastens, the legislative part of the state to the executive part of the state. In its origin it belongs to the one, in its functions it belongs to the other.
+ - Adventure is the life of commerce, but caution is the life of banking.
+ - A princely marriage is the brilliant edition of a universal fact, and, as such, it rivets mankind.
+ - In the faculty of writing nonsense, stupidity is no match for genius.
+ - All people are most credulous when they are most happy.
+ - The mystic reverence, the religious allegiance, which are essential to a true monarchy, are imaginative sentiments that no legislature can manufacture in any people.
+ - The best reason why Monarchy is a strong government is, that it is an intelligible government. The mass of mankind understand it, and they hardly anywhere in the world understand any other.
+ - Public opinion is a permeating influence, and it exacts obedience to itself; it requires us to drink other men’s thoughts, to speak other men’s words, to follow other men’s habits.
+ - It is often said that men are ruled by their imaginations; but it would be truer to say they are governed by the weakness of their imaginations.
+ - The habit of common and continuous speech is a symptom of mental deficiency. It proceeds from not knowing what is going on in other people’s minds.
+ - The peculiar essence of our banking system is an unprecedented trust between man and man. And when that trust is much weakened by hidden causes, a small accident may greatly hurt it, and a great accident for a moment may almost destroy it.
+ - The best security for people’s doing their duty is that they should not know anything else to do.
+ - The less money lying idle the greater is the dividend.
+ - So long as war is the main business of nations, temporary despotism – despotism during the campaign – is indispensable.
+ - A democratic despotism is like a theocracy: it assumes its own correctness.
+ - Conquest is the missionary of valor, and the hard impact of military virtues beats meanness out of the world.
+ - No man has come so near our definition of a constitutional statesman – the powers of a first-rate man and the creed of a second-rate man.
+ - What we opprobriously call stupidity, though not an enlivening quality in common society, is nature’s favorite resource for preserving steadiness of conduct and consistency of opinion.
+ - The real essence of work is concentrated energy – people who really have that in a superior degree by nature are independent of the forms and habits and artifices by which less able and less active people are kept up to their labors.
+ - Every banker knows that if he has to prove he is worthy of credit, in fact his credit is gone.
+ - The purse strings tie us to our kind.
+ - The greatest mistake is trying to be more agreeable than you can be.
+ - Royalty is a government in which the attention of the nation is concentrated on one person doing interesting actions.
+ - Life is not a set campaign, but an irregular work, and the main forces in it are not overt resolutions, but latent and half-involuntary promptings.
+ - Capital must be propelled by self-interest; it cannot be enticed by benevolence.
+ - History is strewn with the wrecks of nations which have gained a little progressiveness at the cost of a great deal of hard manliness, and have thus prepared themselves for destruction as soon as the movements of the world have a chance for it.
+ - The characteristic merit of the English constitutions is, that its dignified parts are very complicated and somewhat imposing, very old and rather venerable, while its efficient part, at least when in great and critical action, is decidedly simple and modern.
+ - The Sovereign has, under a constitutional monarchy such as ours, three rights – the right to be consulted, the right to encourage, the right to warn. And a king of great sense and sagacity would want no others.
+ - The Ethiop gods have Ethiop lips, Bronze cheeks, and woolly hair; The Grecian gods are like the Greeks, As keen-eyed, cold and fair.
+ - We see but one aspect of our neighbor, as we see but one side of the moon; in either case there is also a dark half, which is unknown to us. We all come down to dinner, but each has a room to himself.
+ - To a great experience one thing is essential, an experiencing nature.
+ - A man’s mother is his misfortune, but his wife is his fault.
+ - The characteristic danger of great nations, like the Romans or the English which have a long history of continuous creation, is that they may at last fail from not comprehending the great institutions which they have created.
+ - The cardinal maxim is, that any aid to a present bad Bank is the surest mode of preventing the establishment of a future good Bank.
+ - Nations touch at their summits.
+ - Not only does a bureaucracy tend to under-government in point of quality; it tends to over-government in point of quantity.
+ - Progress would not have been the rarity it is if the early food had not been the late poison.
+ - What impresses men is not mind, but the result of mind.
+ - Stupidity is nature’s favorite resource for preserving consistency of opinion.
+ - Persecution in intellectual countries produces a superficial conformity, but also underneath an intense, incessant, implacable doubt.
+ - When great questions end, little parties begin.
+ - We think of Euclid as of fine ice; we admire Newton as we admire the peak of Teneriffe. Even the intensest labors, the most remote triumphs of the abstract intellect, seem to carry us into a region different from our own-to be in a terra incognita of pure reasoning, to cast a chill on human glory.
+ - Women – one half the human race at least – care fifty times more for a marriage than a ministry.
+ - The most essential mental quality for a free people, whose liberty is to be progressive, permanent and on a large scale, is much stupidity.
+ - A political country is like an American forest; you have only to cut down the old trees, and immediately new trees come up to replace them.
+ - The business of banking ought to be simple. If it is hard it is wrong. The only securities which a banker, using money that he may be asked at short notice to repay, ought to touch, are those which are easily saleable and easily intelligible.
+ - The most melancholy of human reflections, perhaps, is that, on the whole, it is a question whether the benevolence of mankind does most good or harm.
+ - Great and terrible systems of divinity and philosophy lie round about us, which, if true, might drive a wise man mad.
+ - Civilized ages inherit the human nature which was victorious in barbarous ages, and that nature is, in many respects, not at all suited to civilized circumstances.
+ - But of all nations in the world the English are perhaps the least a nation of pure philosophers.
+ - The most intellectual of men are moved quite as much by the circumstances which they are used to as by their own will. The active voluntary part of a man is very small, and if it were not economized by a sleepy kind of habit, its results would be null.
+ - The reason why so few good books are written is that so few people who can write know anything.
+ - Business is really more agreeable than pleasure; it interests the whole mind, the aggregate nature of man more continuously, and more deeply. But it does not look as if it did.
+ - The cure for admiring the House of Lords is to go and look at it.
+ - Credit means that a certain confidence is given, and a certain trust reposed. Is that trust justified? And is that confidence wise? These are the cardinal questions. To put it more simply credit is a set of promises to pay; will those promises be kept?
+ - One cannot make men good by Act of Parliament.
+ - Under a Presidential government, a nation has, except at the electing moment, no influence; it has not the ballot-box before it; its virtue is gone, and it must wait till its instant of despotism again returns.
+ - The whole history of civilization is strewn with creeds and institutions which were invaluable at first, and deadly afterwards.
+ - The caucus is a sort of representative meeting which sits voting and voting till they have cut out all the known men against whom much is to be said, and agreed on some unknown man against whom there is nothing known, and therefore nothing to be alleged.
+ - An element of exaggeration clings to the popular judgment: great vices are made greater, great virtues greater also; interesting incidents are made more interesting, softer legends more soft.
+ - In early times every sort of advantage tends to become a military advantage; such is the best way, then, to keep it alive. But the Jewish advantage never did so; beginning in religion, contrary to a thousand analogies, it remained religious.
+ - In every particular state of the world, those nations which are strongest tend to prevail over the others; and in certain marked peculiarities the strongest tend to be the best.
+ - You may talk of the tyranny of Nero and Tiberius; but the real tyranny is the tyranny of your next-door neighbor.
+ - A constitutional statesman is in general a man of common opinions and uncommon abilities.
+ - I’m not the kind of writer who’s able to block out the world around me. I’m mindful of our own haves and have-nots, how our culture often blames and punishes the have-nots. I worry about our precarious economic and political climate.
+ - In my youth I hoped to do great things; now I shall be satisfied to get through without scandal.
+ - A slight daily unconscious luxury is hardly ever wanting to the dwellers in civilization; like the gentle air of a genial climate, it is a perpetual minute enjoyment.
+
+75 quotes

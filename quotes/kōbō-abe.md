@@ -1,0 +1,24 @@
+ - Loneliness was an unsatisfied thirst for illusion.
+ - Without the threat of punishment, there is no joy in flight.
+ - Nature with her wealth of birds and flowers, Has in her heart a place for every weed; For her quick eyes require no microscope To note the varied wonders and delights That the Creator’s humblest works possess.
+ - The most frightening thing in the world is to discover the abnormal in that which is closest to us.
+ - Do you shovel to survive, or survive to shovel?
+ - It’s a dangerous dog that doesn’t bark.
+ - Now that you are dead, you are splendid. Photographs of people who have just died are worth twenty percent more, and for suicides there is an additional five percent. Now that you are dead you are much in demand.
+ - Green makes me think of silence, or maybe it’s loneliness. I get the feeling of a terribly distant star.
+ - The minute you begin to have doubts, the floor under your feet starts to shake.
+ - The thorn of death falls from heaven, and its myriad forms leave us no room to move.
+ - When I was young, I could bounce back from things like a brand-new rubber ball.
+ - Mankind, which has always been a part of nature, has reached a point where it is too much for nature to accommodate.
+ - Time cannot be spurred on like a horse.
+ - Work seemed something fundamental for man, something which enabled him to endure the aimless flight of time.
+ - Far happier he, who, young and full of pride And radiant with the glory of the sun, Leaves earth before his singing time is done. All wounds of Time the graveyard flowers hide, His beauty lives, as fresh as when he died.
+ - Something whose connection with human experience we cannot grasp is bound to be frightening.
+ - Year after year students tumble along like the waters of a river. They flow away, and only the teacher is left behind, like some deeply buried rock at the bottom of the current.
+ - Yet there seemed to be some truth in the law of probability, according to which the chance of success is directly proportionate to the number of repetitions.
+ - Some people, when they’re called before the police, like nothing better than to spill everything, fact and fiction alike, hoping to create a good impression.
+ - Defeat begins with the fear that one has lost.
+ - Things have value Because somebody buys them, Because somebody pays money; If you can find a buyer, Even a lie is worth a thousand yen.
+ - Perhaps the act of writing is necessary when nothing happens.
+
+22 quotes

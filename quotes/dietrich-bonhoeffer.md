@@ -1,0 +1,264 @@
+ - Salvation is free, but discipleship will cost you your life.
+ - Your life as a Christian should make non believers question their disbelief in God.
+ - The deep meaning of the cross of Christ is that there is no suffering on earth that is not borne by God.
+ - Christianity without discipleship is always Christianity without Christ.
+ - Silence in the face of evil is itself evil: God will not hold us guiltless. Not to speak is to speak. Not to act is to act.
+ - It is only with gratitude that life becomes rich!
+ - When Christ calls a man, he bids him come and die.
+ - Silence in the face of evil is evil itself.
+ - Faith without works is not faith at all, but a simple lack of obedience to God.
+ - Jesus calls men, not to a new religion, but to life.
+ - The church is not a religious community of worshippers of Christ but is Christ himself who has taken form among people.
+ - We are silent at the beginning of the day because God should have the first word, and we are silent before going to sleep because the last word also belongs to God.
+ - We are not to simply bandage the wounds of victims beneath the wheels of injustice, we are to drive a spoke into the wheel itself.
+ - One act of obedience is better than one hundred sermons.
+ - Faith is only real when there is obedience, never without it, and faith only becomes faith in the act of obedience.
+ - The cross is not the terrible end to an otherwise God-fearing and happy life, but it meets us at the beginning of our communion with Christ. When Christ calls a man, he bids him come and die.
+ - The devil doesn’t fill us with hatred for God, but with forgetfulness of God.
+ - It is from God that parents receive their children, and it is to God that they should lead them.
+ - Cheap grace is grace without discipleship.
+ - Christian brotherhood is not an ideal which we must realize; it is rather a reality created by God in Christ in which we may participate.
+ - Gratitude changes the pangs of memory into a tranquil joy.
+ - Why do Christians sing when they are together? The reason is, quite simply, because in singing together it is possible for them to speak and pray the same Word at the same time; in other words, because here they can unite in the Word.
+ - We must be ready to allow ourselves to be interrupted by God.
+ - Christianity means community through Jesus Christ and in Jesus Christ. No Christian community is more or less than this.
+ - Those who love their dream of a Christian community more than the Christian community itself become destroyers of that Christian community even though their personal intentions may be ever so honest, earnest, and sacrificial.
+ - Do not try to make the Bible relevant. Its relevance is axiomatic.
+ - Only the suffering God can help.
+ - The more isolated a person is, the more destructive the power of sin over him.
+ - A Christian is someone who shares the sufferings of God in the world.
+ - You can only learn what obedience is by obeying.
+ - Comfort the troubled, and trouble the comfortable.
+ - Judging others makes us blind, whereas love is illuminating. By judging others we blind ourselves to our own evil and to the grace which others are just as entitled to as we are.
+ - In ordinary life we hardly realize that we receive a great deal more than we give, and that it is only with gratitude that life becomes rich.
+ - The test of the morality of a society is what it does for its children.
+ - Self-justification and judging others go together, as justification by grace and serving others go together.
+ - Only he who believes is obedient and only he who is obedient believes.
+ - Costly grace is the gospel which must be sought again and again, the gift which must be asked for, the door at which a man must knock.
+ - Cheap grace is grace without discipleship, grace without the cross, grace without Jesus Christ, living and incarnate.
+ - God is not a God of the emotions but the God of truth.
+ - Discipleship is not an offer that man makes to Christ.
+ - It is grace, nothing but grace, that we are allowed to live in community with Christian brethren.
+ - The first service that one owes to others in the fellowship consists of listening to them. Just as love of God begins with listening to his word, so the beginning of love for our brothers and sisters is learning to listen to them.
+ - The celebration of Advent is possible only to those who are troubled in soul, who know themselves to be poor and imperfect, and who look forward to something greater to come.
+ - The person who’s in love with their vision of community will destroy community. But the person who loves the people around them will create community everywhere they go.
+ - Good Friday and Easter free us to think about other things far beyond our own personal fate, about the ultimate meaning of all life, suffering, and events; and we lay hold of a great hope.
+ - We must learn to regard people less in light of what they do or omit to do, and more in the light of what they suffer.
+ - To deny oneself is to be aware only of Christ and no more of self, to see only Him who goes before and no more the road which is too hard for us. Once more, all that self-denial can say is, ‘He leads the way, keep close to Him.’
+ - The time is short. Eternity is long. It is the time of decision.
+ - Being a Christan is less about cautiously avoiding sin than about courageously and actively doing God’s will.
+ - We must be ready to allow ourselves to be interrupted by God. God will be constantly crossing our paths and canceling our plans by sending us people with claims and petitions.
+ - Action springs not from thought, but from a readiness for responsibility.
+ - God does not love some ideal person, but rather human beings just as we are, not some ideal world, but rather the real world.
+ - It is the voice of the Church that is heard in singing together. It is not you that sings, it is the Church that is singing, and you, as a member of the Church, may share in its song.
+ - The only man who has the right to say that he is justified by grace alone is the man who has left all to follow Christ.
+ - The pursuit of purity is not about the suppression of lust, but about the reorientation of one’s life to a larger goal.
+ - The biggest mistake you can make in your life is to be always afraid of making a mistake.
+ - In Jesus Christ we have been chosen from eternity, accepted in time, and united for eternity.
+ - God does not give us everything we want, but He does fulfill His promises...
+ - Cheap grace is the deadly enemy of our church. We are fighting today for costly grace.
+ - May God in His mercy lead us through these times; but above all, may He lead us to Himself.
+ - The right way to pray is to stretch out our hands and ask of One who we know has the heart of a Father.
+ - There is no way to peace along the way to safety. For peace must be dared. It is the great venture.
+ - Many people are looking for an ear that will listen. They do not find it among Christians because we are talking when we should be listening.
+ - Battles are won, not with weapons, but with God. They are won where the way leads to the cross.
+ - If you reject God’s commanding word, you will not receive God’s gracious word.
+ - Nothing can be more cruel than the leniency which abandons others to their sin. Nothing can be more compassionate than the severe reprimand which calls another Christian in one’s community back from the path of sin.
+ - Once again, Jesus calls those who follow him to share his passion.
+ - A righteous person is one who lives for the next generation.
+ - If Jesus Christ is not true God, how could he help us? If he is not true man, how could he help us?
+ - Prayer does not mean simply to pour out one’s heart. It means rather to find the way to God and to speak with him, whether the heart is full or empty.
+ - The first service that one owes to others consists in listening to them.
+ - We are so afraid of silence that we chase ourselves from one event to the next in order not to have to spend a moment alone with ourselves, in order not to have to look at ourselves in the mirror.
+ - The physical presence of other Christians is a source of incomparable joy and strength to the believer.
+ - The church has an unconditional obligation to the victims of any ordering society, even if they do not belong to the Christian community.
+ - Let him who cannot be alone beware of community. Let him who is not in community beware of being alone.
+ - Only those who obey can believe, and only those who believe can obey.
+ - The word of cheap grace has been the ruin of more Christians than any commandment of works.
+ - Who can really be faithful in great things if he has not learned to be faithful in the things of daily life?
+ - Sometimes we just need a firm kick in the pants. An unsmiling expectation that if we mean all these wonderful things we talk about and sing about, then let’s see something to prove it.
+ - There is meaning in every journey that is unknown to the traveler.
+ - God is in the manger, wealth in poverty, light in darkness, succor in abandonment. No evil can befall us; whatever men may do to us, they cannot but serve the God who is secretly revealed as love and rules the world and our lives.
+ - The Church is the Church only when it exists for others.
+ - Earthly possessions dazzle our eyes and delude us into thinking that they can provide security and freedom from anxiety. Yet all the time they are the very source of anxiety.
+ - Advent creates people, new people.
+ - What is the “extraordinary”? It is the love of Jesus Christ himself, love that goes to the cross in suffering obedience.
+ - If you board the wrong train, it is no use running along the corridor in the other direction.
+ - Death is hell and night and cold, if it is not transformed by our faith. But that is just what is so marvelous, that we can transform death.
+ - The more deeply we grow into the psalms and the more often we pray them as our own, the more simple and rich will our prayer become.
+ - The life of discipleship is not the hero-worship we would pay to a good master, but obedience to the Son of God.
+ - Whenever Christ calls us, His call leads us to death.
+ - God honors some with great suffering and grants them the grace of martyrdom, while other are not tempted beyond their strength. But in every case it is one cross.
+ - In normal life we hardly realize how much more we receive than we give, and life cannot be rich without such gratitude. It is so easy to overestimate the importance of our own achievements compared with what we owe to the help of others.
+ - So many people come to church with a genuine desire to hear what we have to say, yet they are always going back home with the uncomfortable feeling that we are making it too difficult for them to come to Jesus.
+ - After death something new begins, over which all powers of the world of death have no more might.
+ - The Church knows nothing of a sacredness of war. The Church which prays’Our Father’asks God only for peace.
+ - Joy draws its nourishment from quietness and from the unfathomable.
+ - When we come to a clearer and more sober estimate of our own limitations and responsibilities, that makes it possible more genuinely to love our neighbor.
+ - Political action means taking on responsibility. This cannot happen without power. Power is to serve responsibility.
+ - Each morning is a new beginning of our life. Each day is a finished whole. The present day marks the boundary of our cares and concerns. It is long enough to find God or lose Him, to keep faith or fall into disgrace.
+ - What is happiness and unhappiness? It depends so little on the circumstances; it depends really only on what happens inside a person. I am grateful for every day and that makes me happy.
+ - Death is the supreme festival on the road to freedom.
+ - The Lord stands above the new day, for God has made it. All restlessness, all worry, and anxiety flee before him.
+ - It is not your love that sustains the marriage, but from now on, the marriage that sustains your love.
+ - Every Christian community must realize that not only do the weak need the strong, but also that the strong cannot exist without the weak. The elimination of the weak is the death of fellowship.
+ - Every word of Holy Scripture was a love letter from God directed very personally to us and he asked us whether we loved Jesus.
+ - The more genuine and the deeper our community becomes, the more will everything else between us recede, the more clearly and purely will Jesus Christ and His work become the one and only thing that is vital between us.
+ - Love asks nothing in return, but seeks those who need it. And who needs our love more than those who are consumed with hatred and are utterly devoid of love.
+ - It is the fellowship of the Cross to experience the burden of the other. If one does not experience it, the fellowship he belongs to is not Christian. If any member refuses to bear that burden, he denies the law of Christ.
+ - Jesus himself did not try to convert the two thieves on the cross; he waited until one of them turned to him.
+ - Judging others makes us blind, whereas love is illuminating.
+ - A god who let us prove his existence would be an idol.
+ - The exclusion of the weak and insignificant, the seemingly useless people, from a Christian community may actually mean the exclusion of Christ; in the poor brother Christ is knocking at the door.
+ - The early morning belongs to the Church of the risen Christ. At the break of light it remembers the morning on which death and sin lay prostrate in defeat and new life and salvation were given to mankind.
+ - Christian love draws no distinction between one enemy and another, except that the more bitter our enemy’s hatred, the greater his need of love.
+ - Wherever it pleases God to put man in this world, the Christian must be ready for martyrdom and death. It is only in this way that man learns faith.
+ - Discipleship never consists in this or that specific action: it is always a decision, either for or against Jesus Christ.
+ - Where a people prays, there is the church; and where the church is; there is never loneliness.
+ - When all is said and done, the life of faith is nothing if not an unending struggle of the spirit with every available weapon against the flesh.
+ - Destruction of the embryo in the mother’s womb is a violation of the right to live which God has bestowed upon this nascent life.
+ - Only in Jesus are we able to pray, and with Him we also know that we shall be heard.
+ - The beginning of love for the brethren is learning to listen to them.
+ - Sanctification means that the Christians have been judged already, and that they are being preserved until the coming of Christ and are ever advancing towards it.
+ - The preaching of grace can only be protected by the preaching of repentance.
+ - The Christian needs another Christian who speaks God’s word to him. He needs him again and again when he becomes uncertain and discouraged, for by himself he cannot help himself without belying the truth.
+ - Christianity preaches the infinite worth of that which is seemingly worthless and the infinite worthlessness of that which is seemingly so valued.
+ - Right speech comes out of silence and right silence comes out of speech.
+ - Fulfilled life is possible in spite of unfulfilled wishes.
+ - He who loves community destroys community; he who loves the brethren builds community.
+ - Time is lost when we have not lived a full human life, time unenriched by experience, creative endeavor, enjoyment, and suffering.
+ - So the fool, as distinct from the scoundrel, is completely self- satisfied; in fact, he can easily become dangerous, as it does not take much to make him aggressive. A fool must therefore be treated more cautiously than a scoundrel.
+ - It is only because he became like us that we can become like him.
+ - A king who dies on the cross must be the king of a rather strange kingdom.
+ - Not to speak is to speak. Not to act is to act.
+ - My past life is abundantly full of God’s mercy, and, above all sin, stands the forgiving love of the Crucified.
+ - Love, in the sense of spontaneous, unreflective action, spells the death of the old man.
+ - The heart clings to collected treasure. Stored-up possessions get between me and God. Where my treasure is, there is my trust, my security, my comfort, my God. Treasure means idolatry.
+ - The entire day receives order and discipline when it acquires unity. This unity must be sought and found in morning prayer. The morning prayer determines the day.
+ - A home is a kingdom of it’s own in the midst of the world, a stronghold amid life’s storms and stresses, a refuge, even a sanctuary.
+ - Then fear will grow pale and fade away, and you will be free, through your faith in our strong and living Savior, Jesus Christ.
+ - By his willingly renouncing self-defence, the Christian affirms his absolute adherence to Jesus, and his freedom from the tyranny of his own ego. The exclusiveness of this adherence is the only power which can overcome evil.
+ - A day without morning and evening prayers and personal intercessions is actually a day without meaning or importance.
+ - Thus the call to follow Christ always means a call to share the work of forgiving men their sins. Forgiveness is the Christlike suffering which it is the Christian’s duty to bear.
+ - To endure the cross is not tragedy; it is the suffering which is the fruit of an exclusive allegiance to Jesus Christ.
+ - It is a blessed thing to know that no power on earth, no temptation, no human frailty can dissolve what God holds together.
+ - The will of God, to which the law gives expression, is that men should defeat their enemies by loving them.
+ - There is no worse sin than unbelief toward the gospel.
+ - The right way to requite evil, according to Jesus, is not to resist it. This saying of Christ removes the Church from the sphere of politics and law.
+ - I can no longer condemn or hate a brother for whom I pray, no matter how much trouble he causes me.
+ - A Christian fellowship lives and exists by the intercession of its members for one another, or it collapses.
+ - When people are deeply affected by the Word, they tell it to other people.
+ - Prayer is the supreme instance of the hidden character of the Christian life.
+ - Absolute seriousness is never without a dash of humor.
+ - The cross is suffering with Christ.
+ - The limitation of the ethical phenomenon to its place and time does not imply its rejection but, on the contrary, its validation. One does not use canons to shoot sparrows.
+ - How can God entrust great things to one who will not thankfully receive from Him the little things?
+ - The Christian life is participation in the encounter of Christ with the world.
+ - The essence of chastity is not the suppression of lust, but the total orientation of one’s life towards a goal. Without such a goal, chastity is bound to become ridiculous. Chastity is the sine qua non of lucidity and concentration.
+ - The fact that we do not speak it but sing it only expresses the fact that our spoken words are inadequate to express what we want to say, that the burden of our song goes far beyond all human words.
+ - Often we combat our evil thoughts most effectively if we absolutely refuse to allow them to be expressed in words...
+ - Time lost is time not filled, time left empty.
+ - A pastor should never complain about his congregation, certainly never to other people, but also not to God. A congregation has not been entrusted to him in order that he should become its accuser before God and men.
+ - There is not a place to which the Christian can withdraw from the world, whether it be outwardly or in the sphere of the inner life. Any attempt to escape from the world must sooner or later be paid for with a sinful surrender to the world.
+ - God has willed that we should seek and find God’s living Word in the testimony of other Christians, in the mouths of human beings.
+ - It is the characteristic excellence of the strong man that he can bring momentous issues to the fore and make a decision about them. The weak are always forced to decide between alternatives they have not chosen themselves.
+ - Not until one person desires to keep his own bread for himself does hunger ensue.
+ - Death reveals that the world is not as it should be but that it stands in need of redemption. Christ alone is the conquering of death.
+ - It is a dangerous error, surely very widespread among Christians, to think that the heart can pray by itself.
+ - Costly grace is the treasure hidden in the field; for the sake of it a man will gladly go and sell all he has. It is the pearl of great price to by which the merchant will sell all his goods.
+ - He who fears the face of God does not fear the face of man. He who fears the face of man does not fear the face of God.
+ - Things do exist that are worth standing up for without compromise. To me it seems that peace and social justice are such things, as is Christ himself.
+ - Every Christian must be fully Christian by bringing God into his whole life, not merely into some spiritual realm.
+ - Intercessory prayer is the purifying bath into which the individual and the community must enter every day.
+ - It is the task of youth not to reshape the church, but rather to listen to the word of God.
+ - If you do a good job for others, you heal yourself at the same time, because a dose of joy is a spiritual cure.
+ - A love that left people alone in their guilt would not have real people as its object. So, in vicarious responsibility for people, and in His love for real human beings, Jesus becomes the one burdened by guilt.
+ - It is infinitely easier to suffer in obedience to a human command than to accept suffering as free, responsible men.
+ - God’s truth judges created things out of love, and Satan’s truth judges them out of envy and hatred.
+ - God cannot endure that unfestive, mirthless attitude of ours in which we eat our bread in sorrow, with pretentious, busy haste, or even with shame. Through our daily meals He is calling us to rejoice, to keep holiday in the midst of our working day.
+ - Where God tears great gaps we should not try to fill them with human words.
+ - Being free means “being free for the other,” because the other has bound me to him. Only in relationship with the other am I free.
+ - There is no kindness more cruel than the kindness which consigns another person to their sin.
+ - The world upon whom grace is thrust as a bargain will grow tired of it.
+ - Not everyone can wait: neither the sated nor the satisfied nor those without respect can wait. The only ones who can wait are people who carry restlessness around with them.
+ - Christians have forgotten that the ministry of listening has been committed to them by Him who is Himself the great listener and whose work they should share. We should listen with the ears of God that we may speak the Word of God.
+ - There remains an experience of incomparable value.
+ - The church must share in the secular problems of ordinary human life, not dominating, but helping and serving.
+ - To recognize the significant in the factual is wisdom.
+ - A community of Jesus which seeks to hide itself has ceased to follow him.
+ - Human love has little regard for the truth. It makes the truth relative, since nothing, not even the truth, must come between it and the beloved person.
+ - Before Jesus leads His disciples into suffering, humiliation, disgrace, and disdain, He summons them and shows Himself to them as the Lord in God’s glory.
+ - Whenever the Psalter is abandoned, an incomparable treasure is lost to the Christian church. With its recovery will come unexpected power.
+ - Neighbourliness is not a quality in other people, it is simply their claim on ourselves.
+ - Every sermon must contain a certain shot of heresy.
+ - It is very easy to overestimate the importance of our own achievements in comparison with what we owe others.
+ - Principles are only tools in the hands of God; they will soon be thrown away when they are no longer useful.
+ - The consciousness of being borne up by a spiritual tradition that goes back for centuries gives one a feeling of confidence and security in the face of all passing strains and stresses.
+ - Jesus is the only significance. Beside Jesus nothing has any significance. He alone matters.
+ - It is much easier for me to imagine a praying murderer, a praying prostitute, than a vain person praying. Nothing is so at odds with prayer as vanity.
+ - The future and the hope for the middle class church lies in the renewal of its lifeblood, which is only possible if the church succeeds in winning the working class.
+ - When you read the Bible, you must think that here and now, God is speaking with me.
+ - In recent years we have seen a great deal of bravery and self-sacrifice, but civil courage hardly anywhere, even among ourselves.
+ - Possessions are not God’s blessing and goodness, but the opportunities of service which he entrusts to us.
+ - When our will wholeheartedly enters into the prayer of Christ, then we pray correctly.
+ - That fact that Jesus Christ died is more important than that fact that I will die.
+ - Monastic life thus became a living protest against the secularization of Christianity, against the cheapening of grace.
+ - Not hero worship, but intimacy with Christ.
+ - I need the Christ that is in you, and you need the Christ that is in me.
+ - Once a man has truly experienced the mercy of God in his life he will henceforth aspire only to serve.
+ - The richness of God’s Word ought to determine our prayer, not the poverty of our heart.
+ - One’s task is not to turn the world upside down, but to do what is necessary at the given place and with a due consideration of reality.
+ - Politics are not the task of a Christian.
+ - Only he who gives thanks for the little things receives the big things.
+ - We are torn out of our own existence and set down in the midst of the holy history of God on earth. There God dealt with us, and there he still deals with us, our needs and our sins, in judgment and grace.
+ - What we shall need is not geniuses, or cynics, or misanthropes, or clever tacticians, but plain, honest, straghtforward men.
+ - Only those who put tomorrow completely into God’s hand and receive fully today what they need for their lives are really secure.
+ - If you want my goodness to stay with you then serve your neighbor, for that is where God comes to you.
+ - Man has learned to cope with all questions of importance without recourse to God as a working hypothesis.
+ - The gift of Christ is not the Christian religion, but the grace and love of God which culminate in the cross.
+ - Anyone who thinks that his time is too valuable to spend keeping quiet will eventually have no time for God and his brother, but only for himself and for his own follies.
+ - It seems to me more important actually to share someones distress than to use smooth words about it.
+ - In Jesus, the service of God and the service of the least of the brethren were one.
+ - All are called to be what in the reality of God they already are.
+ - Man seeks, in his manhood, not orders, not laws and peremptory dogmas, but counsel from one who is earnest in goodness and faithful in friendship, making man free.
+ - But the Christian also knows that he not only cannot and dare not be anxious, but that there is no need for him to be so. Neither anxiety now work can secure his daily bread, for bread is the gift of the Father.
+ - So the Christian, too, belongs not in the seclusion of a cloistered life but in the thick of foes. There is his commission, his work.
+ - Every call of Christ leads into death.
+ - Our community with one another consists solely in what Christ has done to each of us.
+ - Unless he obeys, a man cannot believe.
+ - In the gospels the very first step a man must take is an act which radically affects his whole existence.
+ - The best-informed man is not necessarily the wisest. Indeed there is a danger that precisely in the multiplicity of his knowledge he will lose sight of what is essential.
+ - It is only by living completely in this world that one learns to have faith.
+ - What we are in ourselves, and what we owe to others makes us a complete whole.
+ - Help must come from the outside, and it has come and comes daily and answers in the Word of Jesus Christ...
+ - Desires repeatedly mastered for the sake of present duty make us richer. Lack of desire is poverty.
+ - God cleanses and sanctifies us, comes to us with grace and love. God makes us happy, as only children can be happy.
+ - There is a wrong way of staying in the world and a wrong way of fleeing from it. In both cases we are fashioning ourselves according to the world.
+ - Only what is essential must be said.
+ - The Kingdom is to be in the midst of your enemies.
+ - God has reserved to Himself the right to determine the end of life, because He alone knows the goal to which it is His will to lead it. It is for Him alone to justify a life or to cast it away.
+ - A pastor who does not pray daily for his congregation is not a pastor.
+ - No sacrifice which a lover would make for his beloved is too great for us to make for our enemy.
+ - God is not free from human beings but for them.
+ - As Christ bore and received us as sinners so we in his fellowship may bear and receive sinners into the fellowship of Christ through the forgiving of sins.
+ - Certainly one must try everything, but only to become more certain what God’s way is.
+ - Nothing is so at odds with prayer as vanity.
+ - The Psalter is the great school of prayer.
+ - The essence of grace, we suppose, is that the account has been paid in advance; and, because it has been paid, everything can be had for nothing.
+ - It is the nature of strong people that they can bring out crucial questions and form a clear opinion about them.
+ - Through our daily meals He is calling us to rejoice, to keep holiday in the midst of our working day.
+ - The first call which every Christian experiences is the call to abandon the attachments of this world.
+ - The way to misuse our possessions is to use them as an insurance against the morrow. Anxiety is always directed to the morrow, whereas goods are in the strictest sense meant to be used only for to-day.
+ - We should find God in what we do know, not in what we don’t; not in outstanding problems, but in those we have already solved.
+ - How would you expect to find community while you intentionally withdraw from it at some point? The disobedient cannot believe; only the obedient believe.
+ - If religion is onlya garment of Christianityand even this garment has looked very different at different timesthen what is religionless Christianity?
+ - Any honours that come our way are only stolen from him to whom alone they really belong, the Lord who sent us.
+ - Where is love more glorified than where she dwells in the midst of her enemies?
+ - If you believe, take the first step, it leads to Jesus Christ. If you don’t believe, take the first step all the same, for you are bidden to take it.
+ - Wherever there are sinners, the weak, the sorrowful, the poor in the world, that is where God goes.
+ - While it is good that we seek to know the Holy One, it is probably not so good to presume that we ever complete the task.
+ - I believe that nothing that happens to me is meaningless and that it is good for us all that it should be so, even if it runs counter to our own wishes. As I see it, I’m here for some purpose, and I only hope I may fulfill it.
+ - In the New Testament our enemies are those who harbor hostility against us, not those against whom we cherish hostility, for Jesus refuses to reckon with such a possibility.
+ - As long as we let the Word of God be our only armor, we can look confidently into the future.
+
+262 quotes

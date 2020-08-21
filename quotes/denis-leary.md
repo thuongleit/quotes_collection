@@ -1,0 +1,195 @@
+ - Crisis doesn’t create character; it reveals it.
+ - Once you have a firefighter in your family, your family and the families from his crew become one big extended family.
+ - I love French stuff. Mmmm, french fries.
+ - I eat meat because meat tastes like murder, and murder tastes pretty dam good!
+ - Racism isn’t born, folks, it’s taught. I have a two-year-old son. You know what he hates? Naps! End of list.
+ - I’m sick and tired of our generation being called the TV generation. What do you expect? We watched Lee Harvey Oswald get his brains blown out all over. How could we change the channel after that?
+ - Don’t buy the toys that make the noise!
+ - You try to – you want to fly on both sides of the political fence because that’s where the – where the comedy is.
+ - The best pitch I ever heard about cocaine was back in the early eighties when a street dealer followed me down the sidewalk going: I got some great blow man. I got the stuff that killed Belushi.
+ - My brother and I tortured my mother growing up.
+ - If you had no enemies, you had no fun.
+ - I love to smoke. I smoke seven thousand packs a day!
+ - Vacuuming is great. I do the laundry. I love washing machines. I’m the maid in my house.
+ - This is the most exciting place in the world to live. Oh yeah! There are so many ways to die in New York City! Race riots, drive by shootings, subway crashes, construction cranes collapsing on the sidewalks, manhole covers blowing up and asbestos shooting into the sky.
+ - Personally, I think Jim Henson said it best when he said “Anybody got an aspirin? I think I’ve got a cold.”
+ - Sometimes I park in handicap spaces while handicapped people make handicapped faces.
+ - People saying, ‘Life didn’t turn out the way I wanted it to.’ Welcome to the club. I wanted to be the starting center-fielder for the Boston Red Sox, for chrissakes!
+ - I have a lot of conservative views on a lot of things.
+ - My biggest regret in life is that I didn’t hit John Denver in the mouth while I has the chance.
+ - I always hated the Grateful Dead. Never even bought a Led Zeppelin album.
+ - Yeah, I love living in New York, man, and people who live in New York, we wear that fact like a badge right on our sleeve because we know that fact impresses everybody! I was in Vietnam. So what? I live in New York!
+ - The filter’s the best part. That’s where they put the heroin.
+ - Why hate someone for the color of their skin when there are much better reasons to hate them.
+ - When I first got famous, Greg Dulli was also just starting to cook with the Afghan Whigs, and because of the MTV awards I met Dave Grohl and Nirvana and all these rock and roll bands. So I had experience with what it was like when people were taking off at that time.
+ - It says on the back of the Nyquil box, ‘May cause drowsiness.’ It should say, ‘Don’t make any plans, OK? Kiss your family and friends good-bye.’
+ - I love Santa Monica and Venice because I like the beach. I have a lot of friends in that area.
+ - You really want to have a back-up plan, so when you don’t feel like acting, or you’re getting older and settling down, you can produce your own stuff. So that’s when I set about forming my own company and getting creative control.
+ - Marriage is like a dull meal with the dessert at the beginning.
+ - Not eating meat is a decision, eating meat is an instinct.
+ - I have good kids, I love my kids. I try to bring them up the right way, not spanking them. I find that I don’t have to spank them. I find that waving the gun around pretty much gets the same job done!
+ - I’m born and raised in the Northeast. My parents are Irish immigrants. So our tendency is to shy away from the big yellow ball that comes up in the sky every once in a while.
+ - I’m a pretty boring guy. Compared to Ashton Kutcher, I live a really boring existence.
+ - Firefighters are some of the most selfless public servants you will ever encounter.
+ - Kids are incredibly expensive. But it pays off later when they are better educated, bigger, and better-looking than you. And find you incessantly boring and uncool.
+ - Stand-up comedy and comedy in general is the ultimate form of free speech, because you get to poke holes in all the pretentious bubbles politicians and pundits and popes and pretenders try to float over our heads.
+ - My father left Ireland because he did not want to muck horse manure for the rest of his life, and he wanted to come to New York.
+ - Everyone’s got skeletons in their closet, and I’ve got a million in mine, believe me. I tested the envelope; I pushed it. Whenever somebody in authority told me not to do something, I did it just to find out why they said not to do it.
+ - Everyone should have an evil secret plan...
+ - No matter what anybody says, relationships are based on physical attraction. The first time I saw my wife, it was pure animal whatever.
+ - Firefighters don’t go on strike.
+ - I think daycare is great for people who have to work two jobs. My problem is with people who are dropping kids off at daycare because they want to go out and spend the day golfing or getting their nails done. You know what I mean? That’s not why they invented daycare.
+ - I’ve always had a thing for Catwoman. Michelle Pfeiffer or Halle Berry in tight leather pants, with the boots – I’m pretty good with either one.
+ - It’s important to have your own space. I’ve never trusted people who do everything together. I call them “Kool-Aid Couples,” because it’s like they drank the same Kool-Aid and it’s drugged them into constantly gazing into each other’s eyes.
+ - If you want a long-term relationship that doesn’t require a lot of work, I say, get a dog. They love you no matter what. But when it comes to humans, there’s no secret; you really have to appreciate the person every single day.
+ - I tried eating vegetarian. I felt like a wimp going into a restaurant. “What do you want to eat sir? Broccoli?” Broccoli’s a side dish, folks. Always was, always will be, OK! When they ask me what I want, I say: What do you think I want? This is America. I want a bowl of raw red meat right now.
+ - My nieces and my nephews think the only thing that I do is ‘Ice Age.’ That’s fine with me because pretty soon they’ll grow up enough to realize that I suck or that my time has passed, whichever it might be.
+ - I take music pretty seriously. You see that scar on my wrist? You see that? You know where that’s from? I heard the Bee Gees were getting back together again. I couldn’t take it, OK!
+ - There we were in the middle of a sexual revolution wearing clothes that guaranteed we wouldn’t get laid.
+ - I’m a lapsed Catholic in the best sense of the word.
+ - We live in a country where John Lennon takes eight bullets, Yoko Ono is walking right beside him and not one hits her. Explain that to me!
+ - Heavy Metal fans are buying Heavy Metal records, taking the records home, listening to the records and then blowing their heads off with shotguns? Where’s the problem? That’s an unemployment solution right there, folks! It’s called natural selection.
+ - Happy Easter everyone! Jesus dies, comes back from the dead – and we get chocolate eggs. It’s like turn-down service from God.
+ - What I’ve learned is that life is too short and movies are too long.
+ - The only difference between kids and jungle animals is pants. Kids wear them. Jungle animals don’t.
+ - Most of the women placed in the fire department here in New York never passed the physical test. And a fat guy or a short guy, or anybody not passing the test in a life-or-death job, leads to friction.
+ - If the world somehow actually ends tomorrow, let all forget about the Mayans and just agree it’s the NHL’s fault.
+ - Sin is in, and so we begin...
+ - The things that make me angry still make me angry. George Carlin is 67, and he’s still as funny as he’s ever been, and he’s still angry. And that makes me feel good, because I feel like if I stick around long enough, I’ll still be able to work.
+ - You know why the French hate us so much? Thay gave us the croissant. And you know what we did with it? We turned it into our croissandwich, thank you very much.
+ - I believe in prescription drugs. I believe in feeling better.
+ - I’m the Lord of the Dance! F-k Michael Flatley, it’s me!
+ - Jerry Lewis has been married twenty times. He gets married on a Tuesday, they find his wife dead in a swimming pool on Thursday. Maybe if you married someone who’s old enough to swim next time, Ok Jerry?
+ - Worrying about tomorrow is the best way to screw up today.
+ - Did you ever notice they never take any fat hostages? You never see a guy coming out of Lebanon going: I was held hostage for seven months and I lost 175 pounds, I feel good and I look good and I learned self-discipline. That’s the important thing.
+ - First of all, I have to have trucks because I live most of my time on a horse farm, so I’ve gotta have trucks. It’s in the northeast; I’ve got to have pickup trucks to move snow, number one. Number two, just if I’m driving, I don’t have to have an SUV, but I want a big car.
+ - I learned a long time ago, if you want to keep your friends in show business, don’t get famous. Because as soon as you get famous, a lot of the people you used to know, who didn’t, become incredibly bitter and jealous. It’s part of the territory.
+ - Let me tell you something: I love the Yankees. And let me tell you why: because without the Yankees, there is nobody to hate.
+ - My kids watch everything downloaded; they have no idea what the numbers or the names of the channels mean, except, ‘FX makes the show that I see on my computer.’ So it’s harder to get a show on the air, but at the same time, there are a lot of terrific shows.
+ - Peter Falk and Denis Leary today walked into a Starbucks and shot 27 people, without any announcement whatsoever.
+ - I’m praying for ‘Ice Age’ 4, 5, 6, 7, 8, 9 and 10. Because I really think we can run those characters into the ’60s, and I’m talking the 1960s, you know? The Civil Rights Movement. That’s what I’m praying for, because then I wouldn’t have to do anything else.
+ - There’s a method aspect to Campbell Scott character and he really wants to get into his character and he wants to cast to go on a fast so that by the time the play opens nobody’s eaten in three days because he wants the audience to feel the pain from the stage.
+ - I can’t text. My fingers are too big.
+ - I’m no prophet and I’m no genius, but I can only tell you what I seem to know. As a fan of television and the movies, I think it’s all for the better.
+ - There’s not going to be a ‘Rescue Me’ movie. Not a chance.
+ - I’m not really a Spider-Man fan. I’m more of a Batman guy.
+ - Sometimes ‘great acting’ is just showing off – chewing up scenery and dialogue and other actors – the equivalent of a theatrical sugar rush.
+ - You just can’t win. Men have very recent land mines in their heads. Women have recorded conversations and photographs in their heads from 15 years ago.
+ - My career plan at this point is ‘Ice Age 5’ through ‘10,’ and even ‘12,’ and ‘Spider Man’ – you know, basically I’d be Emma Stone’s dad for the rest of my career. I really don’t have any problem doing that.
+ - I’m really good at laundry, and I have no problem cleaning the kitchen.
+ - Here’s the problem with Easter. The Catholic Church needs to pick a date because it keeps moving. And I think the reason they always have Easter moving to different dates is to catch us.
+ - I’d love to play in a Red Sox game. It would be so awesome to actually walk out on the field and play, just for one inning. I’d also steal everything I could get my hands on in the clubhouse, which is why they won’t let me do it.
+ - I want you to take away the hope because that’s the thing that’s killing me.
+ - My dad was very much a John Wayne kind of guy, but he was also a great guy, great sense of humor, a real dedicated dad. I don’t think he ever missed a hockey game I was in.
+ - I bought my daughter a Chihuahua and I fell in love with it. So now I carry Coco around with me all the time.
+ - I basically – I don’t like tattoos, unless you’re a firefighter who has a tattoo that has to do with that or a military guy. That’s – those are people who should have tattoos.
+ - Most movies suck, even the independent ones. Hollywood is like baseball: Hit three good ones out of 10 and you’re a Hall of Famer.
+ - The Social Wishlist on Facebook is a great example of everything right about social media.
+ - I’m in my truck talking to Jesus. And you can see a World Series ring on my right pinkie finger. But when I take my sunglasses off a second later, it’s gone. It’s the whole divine intervention thing. You know Jesus had something to do with them winning.
+ - Where I grew up, the basketball courts were rarely used.
+ - There’s no way around it – drama is very difficult to shoot. It’s very heavy and something that you carry with you for the course of the day.
+ - What firefighters and people in our military and cops do is separate from what the rest of us do; basically these people say, ‘I’m going to protect all these strangers.’
+ - Hockey’s my favorite sport.
+ - I did 12 years with nuns, you know. So I came out of it going, like, ‘I think Jesus is all right.’ The rest of it I think stinks to the high heavens.
+ - We drink and we die and continue to drink.
+ - I like Jesus, I mean, I think he was a good guy.
+ - Anthony Mackie in ‘The Hurt Locker’ is everything an actor can hope to be. So rock steady in his portrayal that you immediately forget every performance he may have previously given, and focus only on the character in front of you.
+ - The best comedy audiences in the country and this is tried and true, I’m not just saying it, in my opinion are Boston, Atlanta, and Chicago.
+ - Science fiction was never my thing. I have no interest in it. So I don’t think I could successfully pull off being on a project like that without really losing my mind.
+ - I’m really happy I went to a Catholic school because a lot of the repressive tactics they use make for great senses of humor.
+ - I really like ‘Batman.’ Not the TV show, but the dark ‘Batman.’
+ - At some level, you’ve got to have the ability to – especially in film and in front of the camera, you got to have the ability to drop into character and close off the entire crew and the camera and everything else.
+ - Having dealt with a lot of real firefighters, I know there are a lot of guys who, for lack of a better term, become addicted to the grief because it has kept them connected to these guys that they felt responsible for having lost.
+ - If you’re over 52 years old and you’re on Facebook, do us all a favor and log off now.
+ - Rosemary Rodriguez directed on Rescue Me for us, and I love her. She’s fantastic with actresses and she’s got a great sense of humor. That was a huge thing for me.
+ - Loud, stupid and overeating will suffice as long as we also have the funny, the fierce and the intellectual.
+ - I don’t want a president like me! I suck, okay. I want an elitist, smart guy.
+ - Once people start to think they’ve wasted parts of their life, or they’re wasting their life as they speak, that means there’s going to be great dramatic and comedic tension.
+ - Everything you look at now, the scripts that come in that you look at, the television scripts are way better than the movie script. The talent is going to television.
+ - I would have to commit a crime and have cops chase me. That would be the only way to get me to jog five miles.
+ - My wife and I were poor when I started but we struggled along until things happened for me in my thirties. I knew I was doing what I loved even if I wasn’t getting paid for it, so I think I’d still be doing it.
+ - I didn’t raise my kids with the fear of God.
+ - You get to a certain point, especially if you’re a comedian, where people think certain things. It’s like, I don’t take the time to explain it to people, it’s just part of what I do.
+ - The best thing about series TV is that everyone you work with is hand-picked, as compared to working on a film.
+ - It would be great if firefighters across the country had the guarantee that they would be making enough money to support their family right from the get-go, but that’s not the case.
+ - Ann Romney talking about middle class moms is like Chris Christie talking about a salad.
+ - When I was doing standup, I always wanted to get out of the standup world and take it back into the theatrical world, like with ‘No Cure For Cancer.’
+ - I’m pretty much a chocolate guy. I’m up for any type of chocolate. Any chocolate.
+ - Every actor thinks he can do comedy, and it’s not true.
+ - When I go to Batman movies, I always think, ‘Man, I would like to be a bad guy in a Batman movie.’ especially as they got darker when they go to the Christian Bale era.
+ - You can have good writing, but a great actor will make it feel and sound like great writing. You can have great writing, and mediocre actors will make it feel mediocre. Without the actors, you have nothing.
+ - I needed someone really intense, but also somebody with a lot of theatrical credibility.
+ - What’s politically correct a lot of times is not funny.
+ - We didn’t have rehab back in the Seventies. Back in the Seventies, rehab meant you stopped doing coke, but you kept smoking pot and drinking for a couple more weeks.
+ - I just think it’s difficult for them to see the forest for the trees right now, which I can’t blame them for, given the circumstances they found themselves in.
+ - Wolfhounds helped kill off the wolves in Ireland.
+ - I fell asleep during ‘Year One’ twice. And my son, who never falls asleep during a Jack Black movie, also nodded off. That’s how bad it was. I was incredibly disappointed.
+ - I’m not saying being a comedian is brain surgery, but it is definitely – it’s like being a carpenter. You learn how to make tables and chairs. You have to have the right tools, and you have to know how to put the thing together, right?
+ - Charlotte Rampling, when she was younger, looked exactly like my wife. That’s one of the reasons that when I first saw my wife, my knees buckled. Based on her looks alone, she was already in my kitchen making eggs.
+ - I don’t want to see a ‘Sopranos’ movie. This is just me. I like to think the end is where it was on TV as opposed to becoming a movie.
+ - I actually like talking.
+ - I think all priests should be married.
+ - It’s human nature for people to expect people to be what they see on the screen.
+ - There’s nothing wrong with an actor that can’t improvise, but if you’re going to improvise, you gotta make sure you got people that can play the game.
+ - My goal is to leave this planet with the biggest carbon footprint I can possibly leave.
+ - There’s no male Oprah.
+ - I guess you get pigeon-holed in Hollywood, but I’m ok with that because I’ve been able to do a lot. I started in the theater, then I went to stand-up comedy, and then when I went into the movies to do comedy and drama and big movies and small movies.
+ - Everybody’s vying for people’s attention in terms of eyeballs, earholes, and dollars .
+ - Most people don’t know how underpaid and often ill-equipped urban fire departments are across North America.
+ - Doing the same character over and over, it gets boring.
+ - When you write about real life, there’s always a chance that somebody involved is going to see it and get upset.
+ - You can’t teach somebody how to be funny. You’re either funny, or you ain’t.
+ - People are disappointed that you aren’t exactly who they thought you were, as opposed to somebody who’s just walking around trying to get some laundry done.
+ - If a character dies, you get to do a big, juicy death scene. But the flip side is you’re out of the sequel, which is where the real money is.
+ - We’ve always talked about doing something else and Campbell Scott is always busy and I’m always busy. But when we came up with the idea of doing the potato famine as a hip hop musical, I wanted somebody who was going to bring gravity.
+ - I’ve eaten things that didn’t complain this much.
+ - I’m one of the people that when I wake up I have to do what I do. It’s not like I want to do it. I kind of have to do it.
+ - George Carlin was great right up to the end of his life. But Richard Pryor was probably the best, most gifted stand-up comedian who will ever live.
+ - In addition to my cousin, there were 30 or 40 guys I grew up with who became firefighters as well. So, I’ve been around firefighters all my life.
+ - The first movie I saw where it convinced me I could be an actor was ‘Mean Streets,’ so whenever I see Robert De Niro and he says, ‘Hi, Denis,’ it’s still a really big deal.
+ - I wasn’t the best student. I wasn’t stupid, but I wasn’t paying a lot of attention.
+ - I love to smoke. I love to eat red meat. I’ll only eat red meat that comes from cows who smoke, ok!? Special cows they grow in Virginia with voice boxes in their necks. “Moo”
+ - It’s hard to have a film and television career and do music work at the same time.
+ - Bill Murray doesn’t do anything. He barely shows up at the movies he says he’s going to do.
+ - I’m a huge Kevin Youkilis fan.
+ - No woman can be completely happy at any one moment in time. They’re always anticipating the next thing to argue or complain about.
+ - Coffee doesn’t need a menu, it needs a cup. That’s all it needs! Maybe a saucer underneath the cup – that’s it.
+ - On a movie, you have a great time, and you’re really enjoying the work, and then everybody is done and goes their separate ways, and you maybe never get to work with those people again.
+ - Science fiction was never my thing. I have no interest in it.
+ - One of those things that I like about TV is that if you get a group of people you like, you can work with these people for months at a time, and you can discover their strengths and weaknesses, and you can use those in the direction where you take the characters.
+ - I’ve been nominated for Emmys and Golden Globes, but I’ve never won one and I probably never will.
+ - When I was a teenager, you couldn’t get straight pants. Then in ’76, when punk started to hit, it was a revelation that you could find straight pants again.
+ - Jon Stewart is exactly the same guy he’s always been, only with money. He knows that the moment he really believes he’s important, the funny goes away and he becomes Bill O’Reilly, except shorter and Jewish.
+ - I’m no day at the beach. And if it is a beach, it’s Hampton Beach. Ever been there? It’s not nice.
+ - When I’m on stage, that’s me. It’s blown up, but that’s me.
+ - The biggest battle for a lot of people who come out of the theater, which is where I was trained, is that they can never forget that a camera is pointed at them.
+ - I don’t watch ‘American Idol.’ I don’t watch any of that stuff.
+ - With any actor, if you know your character well enough, you’ll know pretty much what he would say under any circumstance, or whatever situation might rear its head.
+ - Kathy Bates is sexy. It’s partly because of her talent, but she’s got a great face, and a great laugh.
+ - I wanted to be a hockey player. Where I grew up, the basketball courts were rarely used. I was terrible in school and actually said, ‘I’m going to be a hockey player.’
+ - I like to give the actors freedom to take what we have on the page and improve on it. And they do that quite a bit.
+ - Usually when you watch a film, you’re just sort of biting your nails about things you could have done differently.
+ - I spent a long time working in the movies to figure out that kind of acting and also how to write and produce for the screen.
+ - One thing that’s great about firefighters: If they don’t have the equipment they desperately need, they don’t have the help, they don’t care. They’ll do it on their own.
+ - I’d love to do another television series. I really love the writing process, and as an actor I really like how much you get to examine in television.
+ - I do have to say that I think that President Obama is the greatest President in the history of all of our Presidents, and that he can do no wrong in my book. So how’s that for prejudice on the Democratic side?
+ - When I clicked into this idea of doing a band and examining a band as a dysfunctional family, I wanted to reverse that Rescue Me formula.
+ - I will not bond. I will not share. I refuse to nurture.
+ - Dustin Hoffman said this one time, that if he hadn’t made it as a film star, he would still be happy as a character actor because he was a character actor because of his face from day one, so he would always work in the theater.
+ - Nobody can make more fun of me than I already make of myself.
+ - If you see me doing a new stand-up special, it probably means I’ve been out of work for a while.
+ - The second season is genrtrally easier do because you know the actors better and they know the characters better and if everybody likes each other you can really go all types of places.
+ - I went to see the ‘Spider-Man’ movies because my wife is a fan, and so are my kids.
+ - Good actors, especially when they know their character, will come in and either tell you in advance that they have an idea, or in the middle of the rehearsal or the scene they’ll let it loose and you go, ‘Ah that’s great.’
+ - I don’t really have a lot of fun playing just straight good guys. It’s not my thing. It’s like Tom Hanks territory.
+ - How many whales do we really need? I figure five. One for each ocean.
+ - I studied acting in school and then, of course, couldn’t get an acting job.
+ - I obviously identify with the anti-authority figure. I’ve pretty much always had problems with authority, ever since I was a kid.
+ - The key thing is to get that one splash – that one song or that one video for a song – that catches people’s eyes. Because it’s all digital content now.
+ - I wanted a more female point of view.
+ - I’m still pretty self-centered, greedy and angry.
+ - I really want to do a western film. It’s one of my favorite movie genres of all time.
+ - My father could swear in Gaelic and English, by the way, ladies and gentlemen.
+ - My only worry about tweeting and modern technology is how it has crept into even the darkest corners of the absolute global village we live in.
+
+193 quotes

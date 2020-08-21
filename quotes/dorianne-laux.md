@@ -1,0 +1,33 @@
+ - You’ve traveled this far on the back of every mistake.
+ - If trees could speak they wouldn’t.
+ - That’s how it is sometimes – God comes to your window, all bright light and black wings, and you’re just too tired to open it.
+ - I write to invite the voices in, to watch the angel wrestle, to feel the devil gather on its haunches and rise. I write to hear myself breathing. I write to be doing something while I wait to be called to my appointment with death. I write to be done writing. I write because writing is fun.
+ - I try to avoid calling myself a poet because I think that’s something someone else has to call you. It’s like bragging.
+ - Every poem I write falls short in some important way. But I go on trying to write the one that won’t.
+ - I love people and psychology. As a writer, I’m not so interested in Fred getting from the living room to the car. I want to go inside Fred’s soul and play there.
+ - I’m not the only person in the world who is suffering. I’m trying to talk to the world, responding to those voices.
+ - Good writing works from a simple premise: your experience is not yours alone, but in some sense a metaphor for everyone’s.
+ - I share my life experiences as a poet with my students. My poetic difficulties, joys, struggles and discoveries. If I read a new poem or essay or book I’m excited about, I bring it in.
+ - I feel deep gratitude for the life poetry has allowed me to live. I know the life I could have lived without it. Both on the physical plain, and the soul plain. Poetry helps us endure.
+ - I think what life experience has brought to my poems is compassion. When you work hard to make a living, raise a child up into the world, fail at marriage and try again, teach and fail, travel and fall, become ill, well again, weak but grateful, you learn patience, forbearance.
+ - Writing and reading are the only ways to find your voice. It won’t magically burst forth in your poems the next time you sit down to write, or the next; but little by little, as you become aware of more choices and begin to make them – consciously and unconsciously – your style will develop.
+ - I don’t know if we ever have enough distance to “see” our own trajectory. We’re in the muddled middle of it. Who knows what will last, what poems will take hold of the imaginations of the future.
+ - The more that accrues, the more depth, weight, and breadth we can bring to the poems, which we then need to throw overboard so we don’t sink.
+ - You are not your poetry. Your self-esteem shouldn’t depend on whether you publish, or whether some editor or writer you admire thinks you’re any good.
+ - I am the flesh boat of my experiences, we all are, my feelings, thoughts, desires and dreams are captured in my body’s pliant cells, fastened onto my DNA.
+ - If you want to be a writer in the world you really have to sit down and say, Why do I want to do this and why was I drawn to it to begin with? And keep reminding yourself to return to that original impulse.
+ - The students always, always surprise me.
+ - We aren’t suggesting that mental instability or unhappiness makes one a better poet, or a poet at all; and contrary to the romantic notion of the artist suffering for his or her work, we think these writers achieved brilliance in spite of their suffering, not because of it.
+ - The reason I started writing was because I was a little kid in San Diego who was getting beaten up by her dad and sexually abused and because I felt different than everybody else and I had this big huge secret that was tearing me apart.
+ - There is so much about the process of writing that is mysterious to me, but this one thing I’ve found to be true: writing begets writing.
+ - A poem is like a child; at some point we have to let it go and trust that it will make its own way in the world.
+ - Tinted Distances is a tender meditation that reveals a careful eye and steady devotion to elegy and ode.
+ - We’re all writing out of a wound, and that’s where our song comes from. The wound is singing. We’re singing back to those who’ve been wounded.
+ - There’s no word for what Young does, only for what he accomplishes-the capturing of small, daily miracles.
+ - I would say my life experiences are my poetry, whether I’m writing about those actual, factual experiences or not.
+ - The changes that have occurred in poetry have been minor when you look at it over the scale of human time. It’s like a rose, maybe a hybrid with color and size differentials, but the same genus, plucked from the same original blowsy family.
+ - Every good poem asks a question, and every good poet asks every question.
+ - When you have worked with people all day who have so little and struggle to make it stretch, who live outside the rarefied, you are humbled.
+ - Who you are contributes to your poetry in a number of important ways, but you shouldn’t identify with your poems so closely that when they are cut, you’re the one that bleeds.
+
+31 quotes

@@ -1,0 +1,39 @@
+ - To forgive is to set a prisoner free and discover that the prisoner was you.
+ - You will know that forgiveness has begun when you recall those who hurt you and feel the power to wish them well.
+ - Waiting is the hardest work of hope.
+ - When we forgive evil we do not excuse it, we do not tolerate it, we do not smother it. We look the evil full in the face, call it what it is, let its horror shock and stun and enrage us, and only then do we forgive it.
+ - Forgiving does not erase the bitter past. A healed memory is not a deleted memory. Instead, forgiving what we cannot forget creates a new way to remember. We change the memory of our past into a hope for our future.
+ - The God who has the whole world in his hands has grace for the whole world in his heart.
+ - Forgiveness is God’s invention for coming to terms with a world in which people are unfair to each other and hurt each other deeply. He began by forgiving us. And He invites us all to forgive each other.
+ - Because arrogance is born in personal vanity, arrogant people are driven without mercy. They can never get enough power to fill the soul’s needs or enough respect to overcome the fear that they deserve less than they are getting.
+ - Forgiving does not erase the bitter past. A healed memory is not a deleted memory.
+ - Kindness is the power that moves us to support and heal someone who offers nothing in return.
+ - When I feel the joy of receiving a gift my heart nudges me to join creation’s ballet, the airy dance of giving and receiving, and getting and giving again.
+ - Self control is about being in charge of the direction our lives are taking. Now for the paradox: We get control of our lives, ultimately, not by will power but by surrender.
+ - You and I were created for joy, and if we miss it we miss the reason for our existence. If our joy is honest joy, it must somehow be congruous with human tragedy. This is the test of joy’s integrity. It is compatible with pain. Only the heart that hurts has a right to joy.
+ - When you release the wrongdoer from the wrong, you cut a malignant tumor out of your inner life. You set a prisoner free, but you discover that the real prisoner was yourself.
+ - Forgiveness is the key that can unshackle us from a past that will not rest in the grave of things over and done with. As long as our minds are captive to the memory of having been wronged, they are not free to wish for reconciliation with the one who wronged us.
+ - It takes one person to forgive, it takes two people to be reunited.
+ - We feel guilty for what we do. We feel shame for what we are.
+ - I have discovered that most people who tell me that they cannot forgive a person who wronged them are handicapped by a mistaken understanding of what forgiving is.
+ - Forgiving is, first of all, a way of helping yourself to get free of the unfair pain somebody caused you.
+ - The rule is: we cannot really forgive ourselves unless we look at the failure in our past and call it by its right name.
+ - When forgiveness is necessary, don’t wait too long. We must begin to forgive, because without forgiving, we choke off our own joy; we kill our own soul. People carrying hate and resentment can invest themselves so deeply in that resentment that they gradually define themselves in terms of it.
+ - Not even God can make something fair out of what is intrinsically unfair. Only one thing can be done. Something must break through the crust of unfairness and create a chance for a new fairness. Only forgiveness can make the breakthrough.
+ - My wife has lived with at least five different men since we were wed – and each of the five has been me.
+ - The secret of grace is that it can be all right at the center even when it is all wrong on the edges.
+ - I am certain that people never forgive because they believe they have an obligation to do it or because someone told them to do it. Forgiveness has to come from inside as a desire of the heart. Wanting to is the steam that pushes the forgiving engine.
+ - God invented forgiving as a remedy for a past that not even he could change and not even he could forget. His way of forgiving is the model for our forgiving.
+ - Gandhi was right: if we all live by ‘an eye for an eye’ the whole world will be blind. The only way out is forgiveness.
+ - A wise judge may let mercy temper justice but may not let mercy undo it.
+ - The problem with revenge is that it never evens the score. It ties both the injured and the injurer to an escalator of pain. Both are stuck on the escalator as long as parity is demanded, and the escalator never stops.
+ - To miss out on joy is to miss out on the reason for your existence.
+ - Gratitude is the best feeling I would ever have, the ultimate joy of living.
+ - If you cannot free people from their wrongs and see them as the needy people they are, you enslave yourself to your own painful past and by fastening yourself to the past, you let your hate become your future.
+ - Happy people are not their own enemies, do not carry on an endless war with their souls. We may be fiercely at odds with the wrongs of the world around us. But inside ourselves, near the core, if we are happy, we are at peace.
+ - We forgive freely or we do not really forgive at all.
+ - Any moment that opens us up to the reality that life is good is a parable of the supreme end for which we were made.
+ - Our history is an inevitable component of our being. One thing only can release us from the grip of our history. That one thing is forgiveness.
+ - The longer we hate, the harder it is to heal us.
+
+37 quotes

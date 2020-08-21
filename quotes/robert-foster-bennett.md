@@ -1,0 +1,48 @@
+ - Visualization is daydreaming with a purpose.
+ - A dream becomes a goal when action is taken toward its achievement.
+ - Without initiative, leaders are simply workers in leadership positions.
+ - Affiliate marketing has made businesses millions and ordinary people millionaires.
+ - Having a positive mental attitude is asking how something can be done rather than saying it can’t be done.
+ - A dead end can never be a one way street; you can always turn around and take another road.
+ - For every good reason there is to lie, there is a better reason to tell the truth.
+ - Every human being has the potential for greatness.
+ - Martial arts is not about fighting; it’s about building character.
+ - The discipline you learn and character you build from setting and achieving a goal can be more valuable than the achievement of the goal itself.
+ - A dream collage is pictures of your goals. It is like your future photo album.
+ - In sales, a referral is the key to the door of resistance.
+ - Your life is the sum result of all the choices you make, both consciously and unconsciously. If you can control the process of choosing, you can take control of all aspects of your life. You can find the freedom that comes from being in charge of yourself.
+ - When it comes to success, there are no shortcuts.
+ - The secret to having everything you want out of life is the realization that you really don’t want most of the things you think you want.
+ - Those who improve with age embrace the power of personal growth and personal achievement and begin to replace youth with wisdom, innocence with understanding, and lack of purpose with self-actualization.
+ - A rejection is nothing more than a necessary step in the pursuit of success.
+ - Spend some time this weekend on home improvement; improve your attitude toward your family.
+ - Success is not in what you have, but who you are.
+ - If you are going to ask yourself life-changing questions, be sure to do something with the answers.
+ - True popularity comes from acts of kindness rather than acts of stupidity.
+ - Enthusiasm is excitement with inspiration, motivation, and a pinch of creativity.
+ - The world has fundamentally changed. It fundamentally changed when the Berlin Wall came down and the ‘evil empire’ ceased to exist. We are engaged around the world whether we like it or not.
+ - An excuse becomes an obstacle in your journey to success when it is made in place of your best effort or when it is used as the object of the blame.
+ - If you want plenty of experience in dealing with difficult people, then have kids.
+ - Every minute you spend in your life is either spent bringing you closer to your goals or moving you away from your goals.
+ - To me, living in the present means being aware of your conscious choice to focus on the past, present or future – it is not necessarily having to focus on the present.
+ - As sure as the spring will follow the winter, prosperity and economic growth will follow recession.
+ - Traditional investment vehicles such as IRAs, CDs, stocks and bonds do have their place, but for the rich, they are used more as temporary storage facilities rather than life-long homes.
+ - While we are focusing on fear, worry or hate, it is not possible for us to be experiencing happiness, enthusiasm or love.
+ - Peeves do not make very good pets.
+ - Not being in tune with your customers is like living in an alternate reality; the way you think your customers feel about your product is not always the same as what your customers really think about your product.
+ - Negotiating techniques do not work all that well with kids, because in the middle of a negotiation, they will say something completely unrelated such as, ‘You know what? I have a belly button!’ and completely throw you off guard.
+ - I am one who believes that we are, in fact, engaged in a worldwide war against terrorism. We must have the serenity to accept the fact that war is not going to go away if we ignore it.
+ - Anyone who wants to sell you overnight success or wealth is not interested in your success; they are interested in your money.
+ - A single question can be more influential than a thousand statements.
+ - The only place opportunity cannot be found is in a closed-minded person.
+ - There is no question that al-Qaida operatives are currently active in Iraq. A premature exit before the threat they represent has been dealt with would endanger America and the prospects of eventual peace in the Middle East.
+ - The situation in Iraq will be long, it will be expensive and it will be difficult. But in the end, Iraq will very much be worth it.
+ - I like to think of sales as the ability to gracefully persuade, not manipulate, a person or persons into a win – win situation.
+ - Think of success as a game of chance in which you have control over the odds. As you begin to master concepts in personal achievement, you are increasing your odds of achieving success.
+ - There is a misleading, unwritten rule that states if a quote giving advice comes from someone famous, very old, or Greek, then it must be good advice.
+ - Stupidity trumps Machiavelli almost every time when you are looking for an explanation.
+ - But very often in politics we have the experience called up from my father when someone was trying to help him in the campaign: I can take care of my enemies, may the Good Lord save me from my friends.
+ - If you think Abraham Lincoln became famous for inventing the town car, it is time to spend a few hours on history.
+ - Marriage and the creation of families has been an integral part of our society since its creation; it should not be defined without the kind of involvement by the people which a constitutional process would require.
+
+46 quotes

@@ -1,0 +1,24 @@
+ - People are not in good shape to where they have to question their own belief system because of a book or a story somebody wrote, or a SLAYER song.
+ - I believe in a supreme being, yeah. But He’s an all-loving God.
+ - I write, I write, I always write.
+ - I was born and raised Catholic.
+ - Yeah, yeah I think that’s one of the biggest misconceptions towards the band. The biggest one is that we’re Satan worshippers, but next to that just the fact that we’re normal.
+ - Venom was a band that strongly influenced the image and the idea behind Slayer.
+ - Sometimes when I’ve gone out and murdered somebody I go and confess and stuff. And then God loves me again.
+ - Our album ‘Show No Mercy’ came out in late ’83, and we did three or four shows in San Francisco after the release. That was our first experience with stage-divers, crowd-surfing, people walking on people across an entire crowd.
+ - We just bought a new house, so my wife’s been doing all the moving and other stuff, so I would like to go home and just sit and enjoy all that for a couple months before I gotta start playing again.
+ - A good wine has many qualities I think. If drunk moderately, it is healthy and good for your heart.
+ - I read true crime books, and I read when people do case studies of stuff. I’m into books like that. Case studies or forensics or murder – all that good stuff.
+ - I read a book recently by a psychiatrist who was able to interview a few serial killers and she had a thesis on how you could figure these people out. And she thinks that there are things that could tell you whether someone has the potential to do that.
+ - I went to school for about 2 years on a technical course, and I learned a lot. I learned about air mixture ratios and all the stuff; I learned how to draw blood.
+ - I just don’t write musically, but lyrically, yeah I write.
+ - No, I have to really focus, especially when I’m writing because I wanna be good at it.
+ - Whatever had been on the radio in the ’60s; I mean we were always listening to the radio.
+ - When I do interviews, I enter them with an open mind and try to answer the questions the best I can.
+ - I had to be at least 8 or 9; I was listening to everything on the radio. You name it, I heard every song.
+ - That was the reasoning behind learning to play bass, and then after that it was more like it was neat to play songs together – for me to play bass and for him to play guitar.
+ - Fortune is either with you or it’s not.
+ - We did like 12 shows, then we did the entire Ozzfest with the first half completely booked; then we did the second half with a couple days off here and there.
+ - I follow politics, but I don’t like to discuss it.
+
+22 quotes

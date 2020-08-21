@@ -1,0 +1,177 @@
+ - Time is free, but it’s priceless. You can’t own it, but you can use it. You can’t keep it, but you can spend it. Once you’ve lost it you can never get it back.
+ - A dream is just a dream. A goal is a dream with a plan and a deadline.
+ - Goals give you more than a reason to get up in the morning; they are an incentive to keep you going all day.
+ - Find something you love to do, and you’ll never work a day in your life.
+ - Mackay’s Moral: If you are persistent, you will get it. If you are consistent, you will keep it.
+ - Be active, be energetic, be enthusiastic and you will accomplish your object.
+ - Nobody said life would be easy, they just promised it would most likely be worth it.
+ - Failure is not falling down but staying down.
+ - Ideas without action are worthless.
+ - If you get a chance, take it. If it changes your life, let it.
+ - Believe in yourself, even when no one else does.
+ - The quality of your life is determined by the quality of your relationships. The quality of your business is no different.
+ - Good habits are as addictive as bad habits, and a lot more rewarding.
+ - You only get one chance to make a good first impression, and yours may be in the hands of the receptionist.
+ - We all start out in life with one thing in common; We all have the same amount of time. It’s just a matter of what we do with it.
+ - Positive thinking is more than just a tagline. It changes the way we behave. And I firmly believe that when I am positive, it not only makes me better, but it also makes those around me better.
+ - To me, job titles don’t matter. Everyone is in sales. It’s the only way we stay in business.
+ - Failures don’t plan to fail; they fail to plan.
+ - A great accomplishment shouldn’t be the end of the road, just the starting point for the next leap forward.
+ - If you have no destination, you’ll never get there.
+ - One mistake will never kill you. The same mistake over and over again will.
+ - Employee loyalty begins with employer loyalty. Your employees should know that if they do the job they were hired to do with a reasonable amount of competence and efficiency, you will support them.
+ - Learn from the past, but don’t live there. Build on what you know so that you don’t repeat mistakes.
+ - Positive thinking is more than just a tagline. It changes the way we behave.
+ - When you wake up every day, you have two choices. You can either be positive or negative; an optimist or a pessimist. I choose to be an optimist. It’s all a matter of perspective.
+ - You can’t buy a good reputation; you must earn it.
+ - Staying in touch with contacts is as important as getting them in the first place.
+ - Anyone too busy to say thank you will get fewer and fewer chances to say it.
+ - Look in the mirror every day and say, I am in charge. You might not have control over every phase of your life, but you have more control than you realize, and you are responsible for your own happiness and success.
+ - It doesn’t matter if they say you can’t do it. It only matters if you say you can’t.
+ - You can’t hurry creativity, so take time to ponder your ideas. Sit back and take time to think things over. That’s usually how the best ideas bloom.
+ - Knowledge is not power unless it is used.
+ - No business can stay in business without customers. How you treat – or mistreat – them determines how long your doors stay open.
+ - People begin to become successful the minute they decide to be.
+ - Failure is an attitude, not an outcome.
+ - Your past is not your potential.
+ - None of us got to where we are alone. Whether the assistance we received was obvious or subtle, acknowledging someone’s help is a big part of understanding the importance of saying thank you.
+ - A mediocre person tells. A good person explains. A superior person demonstrates. A great person inspires others to see for themselves.
+ - Optimists are right. So are pessimists. It’s up to you to choose which you will be.
+ - When you’re thirsty, it’s too late to think about digging a well.
+ - The ten most powerful two-letter words in the English language are: If it is to be, it is up to me.
+ - Life isn’t fair. It’s true, and you still have to deal with it. Whining about it rarely levels the playing field, but learning to rise above it is the ultimate reward.
+ - If you can’t say yes, it’s no. Don’t sugarcoat it. Don’t talk yourself into yes just to seem like a nice guy. No one ever went broke because he or she said “NO” too often.
+ - You can beat 80% of the competition just by showing up.
+ - The sale begins when the customer says yes.
+ - Ego stops you from getting things done and getting people to work with you. That’s why I firmly believe that ego and success are not compatible.
+ - Don’t confuse visibility with credibility.
+ - To be a champion, you have to learn to handle stress and pressure. But if you’ve prepared mentally and physically, you don’t have to worry.
+ - It doesn’t matter whether you are pursuing success in business, sports, the arts, or life in general: The bridge between wishing and accomplishing is discipline.
+ - One sure-fire way to stay creative: force yourself to learn something new.
+ - Don’t water your weeds.
+ - My Golden Rule of Networking is simple: Don’t keep score.
+ - It’s nice to be important, but more important to be nice. You don’t know who your top customers will be five years from now or where you will be in 10 years. You may have a fancy title, but you will always need help from the people around you.
+ - Most fears of rejection rest on the desire for approval from other people. Don’t base your self-esteem on their opinions.
+ - Surrounding yourself with creative, imaginative people is a good strategy for success whether you’re an entrepreneur seeking innovation or an artist looking for inspiration.
+ - Your workforce is your most valuable asset. The knowledge and skills they have represent the fuel that drives the engine of business – and you can leverage that knowledge.
+ - Delegating doesn’t mean passing off work you don’t enjoy, but letting your employees stretch their skills and judgment.
+ - Hard work often leads to success. No work seldom does.
+ - Decide what your priorities are and how much time you’ll spend on them. If you don’t, someone else will.
+ - You’ll never please everyone, but you only have to please a few people to get an offer.
+ - You don’t have to know everything as long as you know people who know the things you don’t.
+ - I believe that visualization is one of the most powerful means of achieving personal goals.
+ - You do not get what you want. You get what you negotiate.
+ - When you have a dream that you can’t let go of, trust your instincts and pursue it. But remember: Real dreams take work, They take patience, and sometimes they require you to dig down very deep. Be sure you’re willing to do that.
+ - Every morning brings new potential, but if you dwell on the misfortunes of the day before, you tend to overlook tremendous opportunities.
+ - The life of a startup is full of ups and downs, an emotional roller coaster ride that you can’t quite imagine if you’ve spent your whole career in a corporation.
+ - Life doesn’t come with an instruction manual for success, so Darren Hardy has written one for you. The Compound Effect shows you how small, smart choices add up to transform your life.
+ - It’s way easier to stay in the comfort zone, especially when things are going good than to go out on a limb and take some risks. My philosophy is exactly the opposite: Sometimes it’s risky not to take a risk.
+ - If you want to stay youthful, stay useful.
+ - Worrying about the past or the future isn’t productive. When you start chastising yourself for past mistakes, or seeing disaster around every corner, stop and take a breath and ask yourself what you can do right now to succeed.
+ - Deadlines aren’t bad. They help you organize your time. They help you set priorities. They make you get going when you might not feel like it.
+ - There’s a place in the world for any business that takes care of its customers-after the sale.
+ - All success is, really, is having a predetermined plan and carrying it out successfully over a long period of time.
+ - Pale ink is better than the most retentive memory. If it’s written down, you can look it up. Just be damn sure you write it down.
+ - Many successful people are no more talented than unsuccessful people. The difference between them lies in the old axiom that successful people do those things that unsuccessful people don’t like to do.
+ - There is a time to provide advice and offer an opinion, and there is a time not to. Don’t be too quick to offer unsolicited advice. It certainly will not endear you to people.
+ - Customers are the reason we open our doors every day, and keep the machines humming all night long. Customers determine what we eat, where we live, whether we stay in business.
+ - If you don’t look ahead, you’ll always be behind.
+ - You can win more friends with your ears than with your mouth. People who feel like they’re being listened to feel accepted and appreciated. They feel like they’re being taken seriously and what they say really matters.
+ - Failure is no more fatal than success is permanent.
+ - Worrying makes you cross the bridge before you come to it.
+ - Pessimism doesn’t grow your business or even maintain the status quo. The pessimists on your staff make the job harder for everyone around them. They make difficulties out of opportunities.
+ - No one ever went broke by saying no too often.
+ - Pale ink is better than the most retentive memory.
+ - Unless you work in demolition, don’t burn bridges.
+ - By getting your customers to agree with you in small steps along the way, you have a better chance of reaching agreement when it’s time to do business.
+ - In a litigation-happy society, clear agreements often prevent small disagreements from becoming big ones.
+ - If you believe, as I do, that your employees truly are your most valuable asset, you will do whatever you can to help them do their jobs as well as possible.
+ - If you walk backwards, you will never stub your toe.
+ - America is ripe for a service revolution.
+ - It doesn’t matter how much milk you spill as long as you don’t lose the cow.
+ - Never buy anything in a room with a chandelier.
+ - Ethical decisions ensure that everyone’s best interests are protected. When in doubt, don’t.
+ - If you find yourself plagued by a recurrent worry, train yourself to think of something else. Your conscious mind can concentrate on only one thought at a time, and driving the negativity away will free you up to move forward again.
+ - I’ve learned that people will seldom let you down if they understand that your destiny is in their hands, and vice versa.
+ - You’re a lot better off being scared than being bored.
+ - Don’t fall in love with your wit. Your cleverly turned phrase may not, as you hope, show off how much gray matter you have, especially if the phrase is at someone else’s expense.
+ - A smart manager will establish a culture of gratitude. Expand the appreciative attitude to suppliers, vendors, delivery people, and of course, customers.
+ - A student of life considers the world a classroom.
+ - Make the second effort your second nature.
+ - Once you attach your personality to a proposition, people start reacting to the personality and stop reacting to the proposition.
+ - You have to look life straight in the eye. De-mystify your world. Can you really afford to believe magic is for real? Not when time is concerned.
+ - The bridge between wishing and accomplishing is discipline.
+ - As you schedule individual tasks, give yourself a cushion. Mark the due date a few days ahead of the actual deadline so you have time to deal with changes or last-minute emergencies.
+ - There will always be someone with a cuter girl, a bigger car, a bigger home, but that does not matter. You measure your own performance by your own potential. That’s what makes a successful person.
+ - Exploring how you could make a bad situation worse can sometimes tell you what not to do.
+ - For the real winners, there are no finish lines.
+ - Southwest Airlines is successful because the company understands it’s a customer service company. It also happens to be an airline.
+ - There is no shame in taking pride in achievements or position. But nobody gets to the top alone.
+ - Many people may listen, but few people actually hear.
+ - If we could measure the damage to corporations from gossip, it might be more than the GNP of the Third World!
+ - Good intentions aren’t enough. People have good intentions when they set a goal to do something, but then they miss a deadline or other milestone.
+ - Expect to make some mistakes when you try new and different approaches. Sometimes colossal failures lead to spectacular successes.
+ - Day in and day out, your tax accountant can make or lose you more money than any single person in your life, with the possible exception of your kids.
+ - Rough spots sharpen our performance. And more often than not, obstacles can be turned into advantages. You just can’t let your disappointment get in the way.
+ - All the technology in the world will never replace a positive attitude.
+ - Pay attention to those employees who respectfully ask why. They are demonstrating an interest in their jobs and exhibiting a curiosity that could eventually translate into leadership ability.
+ - When you’re fired, you’re rejected. It’s as simple as that.
+ - Make your decisions with your heart, and you’ll end up with heart disease.
+ - Jim Rohn is one of the most articulate, powerful, thought-provoking speakers I’ve seen. His unique delivery and style puts him head and shoulders above the rest.
+ - It’s only lonely at the top if you forget all the people you met along the way and fail to acknowledge their contributions to your success.
+ - If you wish others to believe in you, you must first convince them that you believe in them.
+ - I’m a little shot that just kept on shooting.
+ - You’ll never learn a thing from a competitor weaker than you.
+ - Don’t wait for a funeral to pay a compliment. You may not make it in time.
+ - Fatigue makes fools of us all. It robs you of your skills and your judgment, and it blinds you to creative solutions. It’s the best-conditioned athlete, not the most talented, who generally wins when the going gets tough.
+ - When a person with money meets a person with experience, the person with the experience winds up with the money and the person with the money winds up with the experience.
+ - It isn’t the quality of the ideas you have that will determine whether you make a success of them, it’s the qualities you bring to those ideas.
+ - You’re as old as you behave.
+ - Say and do what you mean, but never say and do it meanly.
+ - As a salesperson, you will be judged by your ability to keep a stalled conversation moving along briskly.
+ - Life is series of opportunities. The often neglected fact of life is that opportunities multiply as you take advantage of them.
+ - It’s the oldest, corniest piece of advice in the world but it still works. The strongest networks are built on friendship. Be a friend not only to the people in your network, but to the people who matter the most to the people in your network.
+ - The cost of praising someone is nil – but every psychological study shows the payoff is huge.
+ - Leadership does not mean getting people to do their job. It means getting people to do their best.
+ - Anyone who has been in business can tell war stories about the bumps in the road. But if they’ve outlasted the competition, ask for their stories about survival. They’ve figured out how to turn disappointments into opportunities.
+ - Just because an employee does things differently doesn’t mean he or she won’t do the job right or as well. If you establish expectations of the goal and the standards to follow, then methodology shouldn’t be an issue.
+ - Minds are like parachutes-not much good unless they are open.
+ - You can’t be passionate when you feel like it. You have to be passionate about your job, product or cause all the time. There’s no off switch on a tiger.
+ - I know that you don’t know, but you don’t know that you don’t know! By that I mean there are three reasons why individuals and businesses fail: 1. Arrogance 2. Arrogance 3. Arrogance.
+ - You’ll always get the good news; it’s how fast you get the bad news that counts.
+ - The employees who share innovative ideas may also be the folks who have some hidden talents that would help incorporate their suggestions.
+ - There has been a seismic shift in the business world. The great classical business principles still hold true but they need to be fused with cutting edge internet technology.
+ - By my count, more business leaders have failed and derailed because of arrogance than any other character flaw.
+ - When an employee asks why the company does things a certain way, and you can explain the logical reason, then the employee knows what she’s doing is valid.
+ - Humility is becoming a lost art, but it’s not difficult to practice. It means that you realize that others have been involved in your success.
+ - One of the most difficult things in life for any individual or business is to accept and adopt change.
+ - Give your subconscious a chance to work by turning your brain off from time to time. Don’t focus on work or solving problems constantly.
+ - When you kill a little time, you may be murdering opportunity.
+ - A dream is always a bargain no matter what you pay for it.
+ - What could you accomplish if no one told you it was impossible?
+ - Too often, sales reps simply regurgitate their presentations and expect to land the sale. It doesn’t work.
+ - Direct your energy toward achieving a goal, and tackle the problems with an emphasis on edging closer to a successful result.
+ - The sooner you accept the fact that you will have both successes and failures, the easier it will be to get your business and personal life headed in the right direction.
+ - Be like the turtle. If he didn’t stick his neck out, he wouldn’t get anywhere at all.
+ - If I had to name the single characteristic shared by all truly successful individuals, I’d say it’s the ability to create and nurture a network of contacts.
+ - Good commanders look after their troops, and good troops look after their commanders.
+ - The longer they keep you waiting, the more they want to deal.
+ - Don’t let ups and downs leave you down and out.
+ - If you want to double your success ratio, you have to double your failure ratio.
+ - I have ten marathons under my belt, including four New York races and one Boston.
+ - I’ve known entrepreneurs who were not great salespeople, or didn’t know how to code, or were not particularly charismatic leaders. But I don’t know of any entrepreneurs who have achieved any level of success without persistence and determination.
+ - Are you worried about pressure? I look at it this way: Pressure is having to do something you are not totally prepared to do.
+ - I know that you don’t know, but you don’t know that you don’t know.
+ - The first successful salesperson was not a man, it was Eve.
+ - Attitudes are every bit as important as aptitudes.
+ - You don’t need a big close, as many sales reps believe. You risk losing your customer when you save all the good stuff for the end. Keep the customer actively involved throughout your presentation, and watch your results improve.
+ - No one ever wants to see his or her name linked to anything bad. Conscience is like a baby. It has to go to sleep before you can.
+ - Most business problems can be solved if you can teach yourself to look beyond the dollar sign.
+ - In a climate of tight budgets, reduced workforces and stiff competition, internal training can be a great substitute for costly offsite workshops and conferences.
+ - Your day usually goes the way the corners of your mouth turn. The most powerful single thing you can do to influence others is to smile at them.
+ - Like it or not, life is a series of competitions...
+ - Keep the customer actively involved throughout your presentation, and watch your results improve.
+ - Deep down inside of all of us is the power to accomplish what we want to, if we’ll just stop looking elsewhere.
+ - It isn’t the people you fire who make your life miserable, it’s the people you don’t.
+
+175 quotes

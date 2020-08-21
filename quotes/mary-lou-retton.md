@@ -1,0 +1,38 @@
+ - Optimism is a happiness magnet. If you stay positive, good things and good people will be drawn to you.
+ - Working hard becomes a habit, a serious kind of fun. You get self-satisfaction from pushing your self to the limit, knowing that all the effort is going to pay off.
+ - A trophy carries dust. Memories last forever.
+ - Working hard becomes a habit, a serious kind of fun.
+ - What is the fire that burns in your heart? If you are lucky enough to discover it, than by all means fan the flames and let the fire be the guiding light for a life worth living.
+ - Each of us has a fire in our hearts for something. It’s our goal in life to find it and keep it.
+ - I’m very determined and stubborn. There’s a desire in me that makes me want to do more and more, and to do it right. Each one of us has a fire in our heart for something. It’s our goal in life to find it and to keep it lit.
+ - Even though it may seem counterintuitive, a comfort zone is a dangerous place to be.
+ - You’ve got to believe in yourself first. Take risks and don’t be afraid to fall.
+ - Rather then focusing on the obstacle in your path, focus on the bridge over the obstacle.
+ - There are so many negatives in our society. To be on the cover of a magazine these days, you have to have been through drug rehab three times. What message is this giving to young people? But there are positives in our society. And I try to surround myself with good-natured, positive people.
+ - Friendship is a living thing that lasts only as it is nourished with kindness, sympathy, and understanding.
+ - I love her attitude, but as much as I’d like to bring my medals to a speech or appearance, I never do.
+ - Be cocky. Walk into the Georgia Dome like you own it.
+ - For six years, I kept my five Olympic medals wrapped in a plastic bread bag beneath my bed.
+ - Erase the word “failure” from your vocabulary. No case is ever truly closed, and no challenge is ever over.
+ - As simple as it sounds, we all must try to be the best person we can: by making the best choices, by making the most of the talents we’ve been given.
+ - Faith is a gateway to happiness that remains permanently accessible to each of us, wherever we are, no matter our circumstances.
+ - As much time as you put into it, that’s what your achievements are going to be when you come out of it.
+ - For athletes, the Olympics are the ultimate test of their worth.
+ - Many medal winners dream of competing in a sport other than the one they’re famous for.
+ - More than 10,000 athletes came to Atlanta seeking Olympic medals. Only a few of them will be lucky and skilled enough to claim one.
+ - If I had a bad performance in a particular leotard, I threw it in the trash.
+ - I usually don’t mind giving autographs, but when hundreds of folks with paper and pen start coming at you, it’s time to seek shelter.
+ - Children possess a remarkable amount of passion. They throw themselves completely, heart and soul, into everything.
+ - In the dressing room, I always put on my right shoe first. Same thing for my right wristband.
+ - There can be distractions, but if you’re isolated from the heart of the Games, the Olympics become just another competition.
+ - Companies that support sports developmental programs in our communities should also be applauded.
+ - I like added pressure. It makes me work harder.
+ - Fragile egos are put on the line every day.
+ - I cant justify taking money away from hungry kids and needy schools to pay for the Games when corporations are willing to write the checks.
+ - Getting to know athletes from all over the planet is a big part of the Olympic experience.
+ - Former Olympians also get paid to make appearances. Many of them won their medals in an era when Olympic success didn’t go hand-in-hand with financial success.
+ - Pay-per-view would deprive many kids of the delight of seeing the Olympics.
+ - Having a home away from the media glare is important to world-class athletes.
+ - As a kid, I was a pretty good little sprinter.
+
+36 quotes

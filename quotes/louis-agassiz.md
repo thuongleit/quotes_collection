@@ -1,0 +1,31 @@
+ - Study nature not books.
+ - It is the job of prophets and scientists alike to proclaim the glories of God.
+ - I cannot afford to waste my time making money.
+ - But unless some great revolution in nature modifies the present relative level between land and sea, it may safely be maintained that the present outer reef is the final southern boundary of the North American continent.
+ - The world is the geologist’s great puzzle-box; he stands before it like the child to whom the separate pieces of his puzzle remain a mystery till he detects their relation and sees where they fit, and then his fragments grow at once into a connected picture beneath his hand.
+ - Nature brings us back to absolute truth whenever we wander.
+ - I sometimes hear preachers speak of the sad condition of men who live without God in the world, but a scientist who lives without God in the world seems to me worse off than ordinary men.
+ - Philosophers and theologians have yet to learn that a physical fact is as sacred as a moral principle. Our own nature demands from us this double allegiance.
+ - Embryology furnishes, also, the best measure of true affinities existing between animals.
+ - The facts will eventually test all our theories, and they form, after all, the only impartial jury to which we can appeal.
+ - A smattering of everything is worth little. It is a fallacy to suppose that an encyclopaedic knowledge is desirable. The mind is made strong, not through much learning, but by the thorough possession of something.
+ - The study of Nature is intercourse with the Highest Mind.
+ - The resources of the Deity cannot be so meagre, that, in order to create a human being endowed with reason, he must change a monkey into a man.
+ - There is no part of the country where in the summer you cannot get a sufficient supply of the best specimens. Teach your children to bring them in for themselves. Take your text from the brooks, not from the booksellers.
+ - Lay aside all conceit Learn to read the book of Nature for yourself. Those who have succeeded best have followed for years some slim thread which once in a while has broadened out and disclosed some treasure worth a life-long search.
+ - The world has arisen in some way or another. How it originated is the great question, and Darwin’s theory, like all other attempts, to explain the origin of life, is thus far merely conjectural. I believe he has not even made the best conjecture possible in the present state of our knowledge.
+ - In Europe I have been accused of taking my scientific ideas from the Church. In America I have been called a heretic, because I will not let my church-going friends pat me on the head.
+ - One naturally asks, what was the use of this great engine set at work ages ago to grind, furrow, and knead over, as it were, the surface of the earth? We have our answer in the fertile soil which spreads over the temperate regions of the globe. The glacier was God’s great plough.
+ - I will frankly tell you that my experience in prolonged scientific investigations convinces me that a belief in God-a God who is behind and within the chaos of vanishing points of human knowledge-adds a wonderful stimulus to the man who attempts to penetrate into the regions of the unknown.
+ - The time has come when scientific truth must cease to be the property of the few, when it must be woven into the common life of the world.
+ - I now never make the preparations for penetrating into some small province of nature hitherto undiscovered without breathing a prayer to the Being who hides His secrets from me only to allure me graciously on to the unfolding of them.
+ - I hail with joy- for I am a temperance man and a friend of temperance-I hail with joy the efforts that are being made to raise wine in the country. I believe that when you have everywhere cheap, pure, unadulterated wine, you will no longer have need for either prohibitory or license laws.
+ - The eye of the trilobite tells us that the sun shone on the old beach where he lived; for there is nothing in nature without a purpose, and when so complicated an organ was made to receive the light, there must have been light to enter it.
+ - Every great scientific truth goes through three states: first, people say it conflicts with the Bible; next, they say it has been discovered before; lastly, they say they always believed it.
+ - The possibilities of existence run so deeply into the extravagant that there is scarcely any conception too extraordinary for Nature to realise.
+ - As long as men inquire, they will find opportunities to know more upon these topics than those who have gone before them, so inexhaustibly rich is nature in the innermost diversity of her treasures of beauty, order and intelligence.
+ - Select such subjects that your pupils cannot walk out without seeing them. Train your pupils to be observers, and have them provided with the specimens about which you speak. If you can find nothing better, take a house-fly or a cricket, and let each one hold a specimen and examine it as you talk.
+ - A laboratory of natural history is a sanctuary where nothing profane should be tolerated. I feel less agony at improprieties in churches than in a scientific laboratory.
+ - Facts are stupid until brought into connection with some general law.
+
+29 quotes

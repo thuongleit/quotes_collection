@@ -1,0 +1,146 @@
+ - At the end of the day, it’s all about money.
+ - It is better to have a bad plan than no plan.
+ - If you wish to succeed, you must brave the risk of failure.
+ - Winning is not a secret that belongs to a very few, winning is something that we can learn by studying ourselves, studying the environment and making ourselves ready for any challenge that is in front of us.
+ - All women are inferior to men.
+ - Chess is one of the few arts where composition takes place simultaneously with performance.
+ - If you don’t take risks, you don’t drink champagne.
+ - Few things are as psychologically brutal as chess.
+ - Chess helps you to concentrate, improve your logic. It teaches you to play by the rules and take responsibility for your actions, how to problem solve in an uncertain environment.
+ - Chess is mental torture.
+ - I’ve seen – both in myself and my competitors – how satisfaction can lead to a lack of vigilance, then to mistakes and missed opportunities.
+ - A grandmaster needs to retain thousands of games in his head, for games are to him what the words of their mother tongue are to ordinary people, or notes or scores to musicians...
+ - When your house is on fire, you cant be bothered with the neighbors. Or, as we say in Chess, if your King is under attack you don’t worry about losing a Pawn on the Queen’s side.
+ - Next to the intellectual stimulation of chess, the educational value is of great importance. Chess teaches logic, imagination, self-discipline, and determination.
+ - A master looks at every move he would like to make, especially the impossible ones.
+ - There are fixed rules in chess, and no one knows how the game will end.
+ - One does not succeed by sticking to convention. When your opponent can easily anticipate every move you make, your strategy deteriorates and becomes commoditized.
+ - Chess strength in general and chess strength in a specific match are by no means one and the same thing.
+ - The public must come to see that chess is a violent sport. Chess is mental torture.
+ - With each success the ability to change is reduced. My longtime friend and coach Grandmaster Yuri Dokhoian, aptly compared it to being dipped in bronze. Each victory added another coat.
+ - It’s not enough to be talented. It’s not enough to work hard and to study late into the night. You must also become intimately aware of the methods you use to reach your decisions.
+ - Throughout my chess career I sought out new challenges, looking for things no one had done before.
+ - Russia is a mafia state today, and Putin is its top godfather.
+ - A game of chess holds many secrets. Fortunately! That is why we cannot clearly state whether chess is science, art, or a sport.
+ - The highest Art of the Chess player lies in not allowing your Opponent to show you what he can do.
+ - Ultimately, what separates a Winner from a Loser at the Grandmaster level is the Willingness to do the Unthinkable.
+ - In chess, bigamy is acceptable but monarchy is absolute.
+ - My nature is that I have to excite myself with a big challenge.
+ - This obligation to move can be a burden to a player without strategic vision.
+ - Caissa, the goddess of chess, had punished me for my conservative play, for betraying my nature.
+ - My opponent is Short and the match will be short.
+ - Attackers may sometimes regret bad moves, but it is much worse to forever regret an opportunity you allowed to pass you by.
+ - The ability to work hard for days on end without losing focus is a talent. The ability to keep absorbing new information after many hours of study is a talent.
+ - Question the status quo at all times, especially when things are going well.
+ - I’m not paranoid, but I am cautious. I don’t drink tea with strangers, I don’t fly Aeroflot and I avoid certain countries with close ties to Russia.
+ - With this mistake I deprived myself of the possibility to make a contribution to the treasury of chess art.
+ - When you say politics, you conjure a whole bunch of associations: elections, campaigning, debates, fundraising. None of this exists in Russia! We are still fighting not for election victories but for having elections at all.
+ - Chess is an art and not a spectator sport.
+ - Ukraine had quite serious impact on the many Russians. They could see that ordinary people in Ukraine which is a bordering state, very close to Russia, the people of this state are, they didn’t want to tolerate anymore the power abuse by Ukrainian officials.
+ - The best chess masters of every epoch have been closely linked with the values of the society in which they lived and worked. All the changes of a cultural, political, and psychological background are reflected in the style and ideas of their play.
+ - The stock market and the gridiron and the battlefield aren’t as tidy as the chessboard, but in all of them, a single, simple rule holds true: make good decisions and you’ll succeed; make bad ones and you’ll fail.
+ - Vladimir Putin has this animalistic instinct of all dictators: He smells weakness. To quote Winston Churchill’s definition of appeasement: “An appeaser is one who feeds a crocodile, hoping it will eat him last.”
+ - It was not about losing my mental power; it’s about not feeling good about my contribution to the game.
+ - Chess is a unique cognitive nexus, a place where art and science come together in the human mind and are then refined and improved by experience.
+ - We think about time as something not to waste, not as something to invest.
+ - The legend of the best player of chess has been destroyed.
+ - Losing can persuade you to change what doesn’t need to be changed, and winning can convince you everything is fine even if you are on the brink of disaster.
+ - Tactics involve calculations that can tax the human brain, but when you boil them down, they are actually the simplest part of chess and are almost trivial compared to strategy.
+ - A brilliant strategy is, certainly, a matter of intelligence, but intelligence without audaciousness is not enough.
+ - You can’t overestimate the importance of psychology in chess, and as much as some players try to downplay it, I believe that winning requires a constant and strong psychology not just at the board but in every aspect of your life.
+ - One does not succeed by sticking to convention.
+ - I have great energy and I have great tasks ahead of me.
+ - For me, chess is a language, and if it’s not my native tongue, it is one I learned via the immersion method at a young age.
+ - Weaknesses of character are normally shown in a game of chess.
+ - Chess is far too complex to be definitively solved with any technology we can conceive of today. However, our looked-down-upon cousin, checkers, or draughts, suffered this fate quite recently thanks to the work of Jonathan Schaeffer at the University of Alberta and his unbeatable program Chinook.
+ - There can be no finer example of the inspiring powers of competition to shatter the status quo than Hungary’s Judit Polgar.
+ - In conclusion, if you want to unravel the multitude of secrets of chess then don’t begrudge the time.
+ - Millions like me in Russia want a free press, the rule of law, social justice, and free and fair elections. My new job is to fight for those people and to fight for these fundamental rights.
+ - Nervous energy is the ammunition we take into any mental battle. If you don’t have enough of it, your concentration will fade. If you have a surplus, the results will explode.
+ - In chess the rules are fixed and the outcome is unpredictable, whereas in Putin’s Russia the rules are unpredictable and the outcome is fixed.
+ - Values-oriented foreign policy of the free world would be much better, supported by the self-awareness of being on the right side of history.
+ - Vladimir Putin uses fascist propaganda to do so. From Ukraine to Syria, he is behaving like the world’s new general and celebrating victories, while the American president sits on the sidelines and Europe sleeps. The West’s behavior toward Putin is political and moral capitulation.
+ - Nowadays, a 13-year-old would probably know more than Bobby Fischer knew when he retired. They analyse all the moves and prepare themselves on their computers. But that doesn’t mean they are special.
+ - My love of dynamic complications often led me to avoid simplicity when perhaps it was the wisest choice.
+ - The loss of my childhood was the price for becoming the youngest world champion in history. When you have to fight every day from a young age, your soul can be contaminated. I lost my childhood. I never really had it. I have to be careful not to become cruel, because I became a soldier too early.
+ - We have to stop the propaganda, the shameful propaganda used by Kremlin to rehabilitate these old types.
+ - Putin is like Al Capone.
+ - The Russian Dept of Tourism has declared Ukraine its most dangerous destination. Many Russian tourists have disappeared there.
+ - Women, by their nature, are not exceptional chess players: they are not great fighters.
+ - We are living in a new ice age, and we need to apply the recipes of the Cold War to the Kremlin. That means isolation instead of offers of negotiation. And Ukraine should have been supplied with weapons long ago.
+ - If you make a decision to fight for future of your own country you have to consider all the consequences.
+ - Vladimir Putin mainly has friends in Europe among the extreme right, such as Marine Le Pen’s Front National in France.
+ - The real political life in Russia unfortunately is not in the parliament but on the streets and in the media.
+ - By strictly observing Botvinnik’s rule regarding the thorough analysis of one’s own games, with the years I have come to realize that this provides the foundation for the continuous development of chess mastery.
+ - Chess continues to advance over time, so the players of the future will inevitably surpass me in the quality of their play, assuming the rules and regulations allow them to play serious chess. But it will likely be a long time before anyone spends 20 consecutive years as number, one as I did.
+ - This is the essential element that cannot be measured by any analysis or device, and I believe it’s at the heart of success in all things: the power of intuition and the ability to harness and use it like a master.
+ - Excelling at chess has long been considered a symbol of more general intelligence. That is an incorrect assumption in my view, as pleasant as it might be.
+ - You cannot say, ‘Go! Go! Rah! Rah! Good move!’ People want some emotion. Chess is an art and not a spectator sport.
+ - Russian Parliament today is a bunch of puppets that just fall in with the instructions from Kremlin.
+ - Enormous self-belief, intuition, the ability to take a risk at a critical moment and go in for a very dangerous play with counter-chances for the opponent – it is precisely these qualities that distinguish great players.
+ - The only successor to President Putin is President Putin himself and we could of course dream about President Putin stepping down voluntarily and picking out successor which would be probably as bad as him.
+ - All that now seems to stand between Nigel and the prospect of the world crown is the unfortunate fact that fate brought him into this world only two years after Kasparov.
+ - Thanks to the Polgars the adjective ‘men’s’ before events and the ‘affirmative action’ women’s titles such as Woman Grandmaster have become anachronisms.
+ - We’ve been saying Putin is a dictator for years who doesn’t care about the law.
+ - The technical phase can be boring because there is little opportunity for creavivity, for art. Boredom leads to complacency and mistakes.
+ - Sometimes the hardest thing to do in a pressure situation is to allow the tension to persist. The temptation is to make a decision, any decision, even if it is an inferior choice.
+ - I see my own style as being a symbiosis of the styles of Alekhine, Tal and Fischer.
+ - It could truly be the case that Vladimir Putin has miscalculated in the long term with his adventure in Syria.
+ - I’ve met enough KGB colonels in my life.
+ - I would like to travel to my country again, to a country without a dictatorship, to a post-Putin Russia.
+ - We have to always look ahead enough moves to be well prepared, even for victory!
+ - Putin can’t afford to leave the office because he will be in real danger of being prosecuted for things he and his people did during their stay in power.
+ - Capablanca possessed an amazing ability to quickly see into a position and intuitively grasp its main features. His style, one of the purest, most crystal-clear in the entire history of chess, astonishes one with his logic.
+ - I started playing chess when I was five years old. I learned the moves from my mother, then worked with my father – and later trainers. My style became very technical. I sacrificed a lot of things. I was always hunting for the king, for the mate. I’d forget about my other pieces.
+ - It didn’t take long to recognise the shortcomings of the Soviet regime and to see the values of the free world.
+ - The most hopeful approach to peace in Ukraine is the Minsk Agreement, which includes Moscow.
+ - When I was preparing for one term’s work in the Botvinnik school I had to spend a lot of time on king and pawn endings. So when I came to a tricky position in my own games I knew the winning method.
+ - There are many facts showing that Putin’s people enriched themselves by using power mechanisms so that’s why for them losing power means losing their fortunes.
+ - His teaching became a turning point in chess history: it was from Steinitz that the era of modern chess began. The contribution of the first world champion to its development is comparable with the great scientific discoveries of the 19th century.
+ - I’m looking forward to the day when my country is saved – and the current winner becomes a loser.
+ - I wouldn’t overestimate the importance of my popularity in the country and abroad but at the end of the day it’s not as important because I believe that my presence here could make some difference and it could encourage people.
+ - Botvinnik tried to take the mystery out of Chess, always relating it to situations in ordinary life. He used to call chess a typical inexact problem similar to those which people are always having to solve in everyday life.
+ - The biggest problem I see among people who want to excel in chess – and in business and in life in general – is not trusting their instincts enough.
+ - It’s quite difficult for me to imagine my life without chess.
+ - By the time a player becomes a Grandmaster, almost all of his training time is dedicated to work on this first phase. The opening is the only phase that holds out the potential for true creativity and doing something entirely new.
+ - I have some strategical vision, I could calculate some few moves ahead and I have an intellect that is badly missed in the country which is run by generals and colonels.
+ - I think we have very steady records of President Putin, who inherited the country with democratic values.
+ - A championship contender in the early twentieth century needed charisma and a knack for cultivating sponsorship, and Rubinstein was the epitome of the shy and unsocial chess player. Now matter how great his chess skills, he lacked the people skills to be a self-promoter and fund-raiser.
+ - I certainly want to be involved in politics and help shape the transition. I am in contact with regime critics who had to leave for the West. One of them is Mikhail Khodorkovsky, the former businessman, who had to endure 10 years in a prison camp.
+ - Ironically, the main task of chess software companies today is to find ways to make the program weaker, not stronger, and to provide enough options that any user can pick from different levels and the machine will try to make enough mistakes to give him a chance.
+ - Moscow is simply unwilling to recognize the right of self-determination of nations.
+ - I have some security that could protect me against provocations but of course there are more terrible actions that could not be stopped by any security.
+ - The West can’t come up with anything to deal with Moscow, except appeasement.
+ - Perfectly correct chess exists only in theory.
+ - I think Russian people are learning that democracy is not an alien thing; it’s not a western invention.
+ - There are many ways of showing your protest and discontent without the actions of Kremlin.
+ - Kortchnoi’s heritage is many-faceted – over the decades he has several times corrected and changed his style. But the main thing has invariably remained his search for chess truth.
+ - The Kremlin is constantly changing the rules of the game to suit its purposes. We are not playing chess, we’re playing roulette.
+ - I’m still number one and I just recently won a major tournament ahead of my toughest rivals so I think I had a few years ahead of me if I decided to stay.
+ - Everyone, at any age, has talents that aren’t fully developed-even those who reach the top of their profession.
+ - I want to serve chess through games, books that are works of art. I would like to bring the game closer to many people all over the world.
+ - I don’t make any secret of the fact that I’m closer to the Republicans than to the Democrats. But even under a President Hillary Clinton, US foreign policy toward Moscow would probably be more critical and confrontational. I hope it isn’t too late for that.
+ - I don’t really like discussions about a supposed Russian national character.
+ - I dropped the King’s Indian in 1997 after one too many bad experiences against Kramnik.
+ - Putin recognized that if he could get enough money, everything would be under control.
+ - I may play some exhibition games so I don’t want to quit the game of chess completely. I just decided and it’s a firm decision not to play competitive chess anymore.
+ - Inevitably the machines must win, but there is still a long way to go before a human on his or her best day is unable to defeat the best computer.
+ - Setbacks and losses are both inevitable and essential if you’re going to improve and become a good, even great, competitor. The art is in avoiding catastrophic losses in the key battles.
+ - I think Russians today have a distorted picture of capitalism, liberal democracy and market economy.
+ - Though I would have liked my chances in a rematch in 1998 if I were better prepared, it was clear then that computer superiority over humans in chess had always been just a matter of time.
+ - Do as little as necessary to appear to be doing something without actually committing to a cause or course of action.
+ - In general there is something puzzling about the fact that the most renowned figures in chess – Morphy, Pillsbury, Capablanca and Fischer – were born in America.
+ - I now have Croatian citizenship, but I only accepted it because Croatia allowed me to keep my Russian passport.
+ - Any experienced player knows how a change in the character of the play influences your psychological mood.
+ - The only way to fail for me is just not to try.
+ - If you’re already in a fight, you want the first blow to be the last and you had better be the one to throw it.
+ - More and more people in my country recognise the dangers of having their governors appointed by Putin and having no influence in parliament because Parliament today is also following instructions from Kremlin and no longer represents its people.
+ - It’s true that in chess as in politics, fund-raising and glad-handing matter.
+ - Solving new problems is what keeps us moving forward as individuals and as a society, so don’t back down.
+ - I like to say that the attacker always has the advantage.
+ - Chess is life in miniature. Chess is struggle, chess is battles.
+ - I learned that fighting on the chess board could also have an impact on the political climate in the country.
+ - Of course, if people do not want to do any work then it is better to start the game from a random position.
+ - It was an impressive achievement, of course, and a human achievement by the members of the IBM team, but Deep Blue was only intelligent the way your programmable alarm clock is intelligent. Not that losing to a $10 million alarm clock made me feel any better.
+
+144 quotes

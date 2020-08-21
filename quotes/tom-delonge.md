@@ -1,0 +1,74 @@
+ - Do what you like and do it honestly.
+ - In leaving negativity behind, you find something beautiful.
+ - When we realize how little we mean to the universe, we realize how important we are to each other.
+ - You can do anything you want. And you can be anything you want. And you can feel anything you want. But there’s only one thing you need to do, and that is: have the slightest vision to see it. Because if you can’t see it happening, then it will never happen.
+ - If you try to fix violence with violence, you do NOTHING but create violence.
+ - Angels and Airwaves is a complete, pure reflection of who I am. The philosophy, the spiritualism, the esotericism, the idea of hope and space and the themes about life and grandeur that’s all me.
+ - Music is good when it makes you dance. Music is great when it makes you who you are.
+ - Life is a search for yourself.
+ - If I had my own world I’d build you an empire from here to the far lands to spread love like violence!
+ - There are far too many people out there who take themselves too seriously.
+ - It’s actually cool to be positive and optimistic and idealistic. It’s cool to see yourself doing beautiful, great things.
+ - I think dreams hold a lot of meaning. I believe that if the universe is truthfully infinite then there are infinite possibilities for dreams to be happening somewhere out there.
+ - I think that people feel they know what love means, it’s probably one of the most used words in the world but has the most completely different definitions from one person to another.
+ - I don’t believe that I’m better than anybody, but I do believe that I’ll try harder than most and I hope that people just join me for a little bit of a ride.
+ - I just wanna see a UFO, really.
+ - We don’t want to act like adults. Anybody who can stay in a state of adolescence will be much better off later on. Look at people who are working nine-to-five jobs out of college, and look at professional skateboarders or guys in punk bands. See who’s having more fun.
+ - I’m sick of being known as the sexy guy that writes great songs.
+ - Dreams are things that could potentially be treating you as a pupil to teach you things so when you wake up, you’ll be able to handle certain elements from those dreams in a better way.
+ - You should follow your passions, you know? And you should make sure you do something you love. That’s all I’ve learned, is that if you’re doing something you love you’ll work harder at it and make it happen, I can promise you that.
+ - Whether it’s at their job, or their family, whatever – everyone feels that they’re stuck in some kind of struggle. The idea is how to find your way out of it.
+ - You’ve got to not only love yourself for who you are with all your mistakes, but you’ve got to love the world for what it can bring you if you have the right attitude.
+ - I’ll eat a nugget of my own poop for 20 bucks. I’ll pay you 20 bucks and I’ll eat it.
+ - We just write down a bunch of words, and pray to god they make sense. And if we don’t, it doesn’t matter, we’re artists.
+ - In ten years I will become president of the United States Of America.
+ - I think that the needs in human life will change and grow and evolve. I do think that that the importance will always be grander than you would ever believe them to be.
+ - Humor has become so cliche and boring that nothing’s funny anymore unless it involves something totally disgusting that offends somebody or makes them feel really uncomfortable.
+ - I used to drink a lot of beer, but I was just getting fat as can be. Now that we’ve had a little success, I can afford to drink wine.
+ - I applaud anyone who thinks I’m good-looking and invite them into my world.
+ - When we started Angels Airwaves, we wanted to produce our art on different mediums, but the film was an ambitious one because we actually didn’t go into it thinking we could make a big feature film.
+ - Playing music in the wake of the Blink thing was like finding love in the middle of a war zone.
+ - Spending so much time on the road, I get to fart all the time. Then when it’s, like, Thanksgiving dinner and I’m sitting with my grandmother, I can’t fart for, like, two hours.
+ - Everyone I talk to says stuff like, ‘Music sucks today,’ and I’m going to try and change all that.
+ - I think that one of the reasons that we chose the word love as the subject is because your human connection and how you affect everybody around you, you’ll only understand the gravity of that as you pass later on in life. I think as artists it’s our ability to communicate that in certain ways.
+ - It’s all success if it’s what you need.
+ - I might be a dork, but I don’t want to be a jerk.
+ - I’ve realized that I love all forms of music and get excited when any artist goes crazy and creates something that is an experience.
+ - My company created a platform called Modlife, this prepackaged website that runs an artist’s website.
+ - I believe that working independently will give artists the ability to communicate the full extent of their art and not just a piece of it that might sell.
+ - You don’t even wish for the success that I had, because you don’t think it’s attainable.
+ - I love to deliver orgasms to the masses!
+ - All I can say is hold on, and prepare...
+ - If artists slowly learn how their business works, they’ll have the ability to grow at any rate they can dream up, but they’ll also have the ability to control the message whatever that might be.
+ - I’m hoping that people should hopefully give me another chance to dream big and to deliver on those dreams.
+ - When I write in the studio, I tend to gravitate toward the ability to play really loud, aggressive, post-punk stuff, with big, heavy guitars and a big rock drum sound.
+ - When there are no lyrics there are many parts of the imagination that can fill in the meanings of the music, so I strongly believe that it can be more powerful at times.
+ - The Angels shows are really intense. We play for a couple hours at a time. They’re very theatrical and full of audience interaction and emotion. I’ve seen a lot of people crying and stuff. It’s a little bit like church, but it’s very secular.
+ - Angels and Airwaves shows are like an ascension to Heaven.
+ - I used to get so jealous if my wife liked another band more than my own. Come to think of it, I still do.
+ - I have to make music. If I don’t do it, I go crazy.
+ - Geometric shapes hold an energy pattern, and scientists did some experiments which say certain geometric shapes can affect matter around them. It’s simply because when a human looks at a shape, they instantly receive energy from their brain.
+ - I don’t listen to punk any more, unless it’s right before I play. Not that I don’t like it, it’s nostalgic. But, it’s for kids and it should be it’s not art, it’s expression.
+ - The first song I sent over was Up All Night. People say that sounds like Angels on a Blink record. Well, no – that’s just me!
+ - They say Einstein died while he was still trying to figure out gravity. I think I’m going to die still trying to figure out some of the things about Blink.
+ - I would love to come to Auckland. That’s a place I’ve been quite a lot with my band so I’m very much looking forward to it.
+ - Every day, I read books on philosophy and science fiction and human consciousness.
+ - I think there are a lot of different things that dreams do for the individual and they’re fascinating because it’s not totally known what they do, but we have some science that is opening the door to a new world as we speak.
+ - I always want to do different things. I’m always obsessed with trying to do different things.
+ - There are possibilities that dreams are our little windows upon a parallel timeline.
+ - The labels can’t do anything for a band anymore – they’re stuck and they have no money and they’re just holding onto contracts that have existed from a time where there were resources.
+ - People are different when they’re 30 than they are when they’re 16.
+ - I’m a huge stadium rock fan, but I’m also a fan of everything from Massive Attack to Peter Gabriel, U2, the Police, Radiohead, and Coldplay.
+ - There are lots of things that I’m always pulling inspiration from.
+ - I grew up skateboarding, but I don’t even do that anymore.
+ - My dad has had a rare form of leukemia since I was in about 7th grade. But they’ve come up with some amazing drugs since then and he’s doing really well today.
+ - Most bands, if something goes wrong, they cower and walk off stage and fire people.
+ - Like millions of others, I have been plagued by the devastating effects of cancer hitting not one, but multiple members of my family.
+ - Records aren’t selling anymore; people are burning music.
+ - All the selling out talk is really overrated, the funny thing is it hardly ever comes from bands, it comes from some kid who thinks they’re so punk because they have a purple mohawk.
+ - Maybe I do wanna become a woman, so what is the crime in that?
+ - I’ve never been a jam-band sort of musician.
+ - I think my records will always tend to be approachable.
+ - The only reason in the world that I bought a computer was to look up UFO sites.
+
+72 quotes

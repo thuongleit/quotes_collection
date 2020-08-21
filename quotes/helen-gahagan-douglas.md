@@ -1,0 +1,22 @@
+ - In trying to make something new, half the undertaking lies in discovering whether it can be done. Once it has been established that it can, duplication is inevitable.
+ - Freedom is not won on the battlefields. The chance for freedom is won there. The final battle is won or lost in our hearts and minds.
+ - The discrepancy between American ideals and American practice – between our aims and what we actually do – creates a moral dry rot which eats away at the foundations of our democratic faith.
+ - You cannot barter security for freedom, or freedom for security.
+ - Character isn’t inherited. One builds it daily by the way one thinks and acts, thought by thought, action by action. If one lets fear or hate or anger take possession of the mind, they become self-forged chains.
+ - Character isn’t inherited. One builds it daily by how one thinks and acts...
+ - I realized that public affairs were also my affairs. I became active in politics because I saw the possibility, if we all sat back and did nothing, of a world in which there would no longer be any stages for actors to act on.
+ - You can’t prove you’re an American by waving Old Glory.
+ - Such pip-squeaks as Nixon and McCarthy are trying to get us so frightened of Communism that we’ll be afraid to turn out the lights at night.
+ - Character isn’t inherited.
+ - A vigorous democracy a democracy in which there are freedom from want, freedom from fear, freedom of religion, and freedom of speech would never succumb to communism or any other ism.
+ - I realized that public affairs were also my affairs.
+ - Democracy cannot long survive when the people permit their lives to be dominated – economically or politically – by a powerful few.
+ - Nothing can be controlled by one country today; nothing.
+ - I never felt I left the stage.
+ - When a marriage works, nothing on earth can take its place.
+ - To be free you must afford freedom to your neighbor, regardless of race, color, creed, or national origin, and that sometimes, for some, is very difficult.
+ - I know the force women can exert in directing the course of events.
+ - If the national security is involved, anything goes. There are no rules. There are people so lacking in roots about what is properand what is improper that they don’t know there’s anything wrong in breaking into the headquarters of the opposition party.
+ - Politicians aren’t any more wicked than other citizens but the situation in which they are placed warps their judgment.
+
+20 quotes

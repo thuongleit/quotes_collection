@@ -1,0 +1,26 @@
+ - Reading aloud and talking about what we’re reading sharpens children’s brains. It helps develop their ability to concentrate at length, to solve problems logically, and to express themselves more easily and clearly.
+ - Experts in literacy and child development have discovered that if children know eight nursery rhymes by heart by the time they’re four years old, they’re usually among the best readers by the time they’re eight.
+ - The fire of literacy is created by the emotional sparks between a child, a book, and the person reading.
+ - Books don’t harm kids; they arm them.
+ - The fire of literacy is created by the emotional sparks between a child, a book, and the person reading. It isn’t achieved by the book alone, nor by the child alone, nor by the adult who’s reading aloud – it’s the relationship winding between all three, bringing them together in easy harmony.
+ - Writing a picture book is like writing ‘War and Peace’ in Haiku.
+ - When I say to a parent, “read to a child”, I don’t want it to sound like medicine. I want it to sound like chocolate.
+ - The fastest way to teach a child to read is to teach them to write.
+ - If you are not a writer, you will not understand the difficulties of writing. If you are not a writer, you will not know the fears and hopes of the writers you teach.
+ - I made a lot of friends at school, and they were all Africans. I could have felt very different. I didn’t feel different, I didn’t notice the color of their skin, I didn’t notice the color of my skin and I have remembered that all my life.
+ - I realized with grief that purposeless activities in language arts are probably the burial grounds of language development and that coffins can be found in most classrooms, including mine.
+ - As everyone knows, nothing is sweeter than tiny baby fingers and chubby baby toes.
+ - I don’t go to church much anymore, but Methodist values still wind me up and send me ticking into my daily life.
+ - I don’t know why some people have children at all if they know that they can only take a few weeks off work.
+ - You experience other cultures to give you a kind of shock that makes you look at your own culture. You appreciate it more as a result of being out of it, but you also realise there are some things lacking in your culture.
+ - My Mother was a very wild Australian woman. When we were in Africa she could kill a snake with one blow from a crow bar, which she kept at the back door.
+ - You’re not lonely when you’re teaching, you’re not quiet, you’re laughing most of the time, you’re having a wonderful time interacting with young people. It’s the best fun in the world.
+ - My mother was a very difficult woman to please. She was the sort of woman who thought that if I were praised I would get above myself.
+ - I have very little patience with children.
+ - I think that my favourite animal is a baby possum, or a joey. The face of a really little joey is so divine – so, so gorgeous.
+ - I was the most Australian child ever in the world, even though my home was in Africa.
+ - DO NOT attempt to bring up other people’s children through your text.
+ - I think sometimes we rush through countries, ticking off the attractions, but that’s missing the point.
+ - Babies have much higher levels of stress in childcare.
+
+24 quotes

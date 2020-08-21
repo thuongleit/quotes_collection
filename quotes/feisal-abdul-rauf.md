@@ -1,0 +1,44 @@
+ - God says in the Quran that there is only one true religion, God’s religion. It’s the same theme that God revealed to all of the prophets, even before Muhammad.
+ - Islamic law is clearly against terrorism, against any kind of deliberate killing of civilians or similar ‘collateral damage.’
+ - Fanaticism and terrorism have no place in Islam.
+ - If Muslims curse the Christians, then the Christians will curse the Muslims. And people will curse Allah, and Allah will hold us responsible for that.
+ - The truth is that killing innocent people is always wrong – and no argument or excuse, no matter how deeply believed, can ever make it right. No religion on earth condones the killing of innocent people; no faith tradition tolerates the random killing of our brothers and sisters on this earth.
+ - The world wants to like America.
+ - Religion is defined by the relationship between God and man. And Islam is the submission and the acknowledgment of the human being to the creator.
+ - I as a Muslim want you, as a Christian, to really be a perfect Christian. I want my Jewish friends to be perfect Jews, to live according to the highest principles of what it means to be a Jew, to be a Christian, to be a Muslim.
+ - In the 20th century, the Muslim world created a vision of religious nationalism. Turkey, for example, had to be ethnically Turkish. Kurds, Armenians, other minorities didn’t have a place in such a vision of a nation-state.
+ - A kind of racism still exists in the United States, and Islamophobia is a more convenient way to express that sentiment. There has also been an attempt to paint Muslims as enemies of the United States.
+ - The Islamic method of waging war is not to kill innocent civilians, but it was Christians in World War II who bombed innocent civilians in Dresden and dropped the nuclear bomb on Hiroshima, neither of which were military targets.
+ - Koran says whoever believes in God in the last day shall be saved. It is a religion whose very name, Islam, comes from the word Shalom, which means peace. It’s about establishing peace. We greet each other with peace be upon you, which the Jews do in greeting each other.
+ - Staying chaste until marriage, a commandment of my faith, was one of the most difficult challenges of my young life. I had a powerful sense that if I did not get a grip on my identity, my ethics, and my religion, I would go off the rails.
+ - It is part of my responsibility as a bridge builder to speak the truth about what’s great about America, what we’ve done right, and what our less glorious moments. And many people feel that the Iraq adventure, for example, has been one of our less glorious moments.
+ - There are always people who will – who will do peculiar things and think that they are doing things in the name of their religion.
+ - I am a supporter of the state of Israel.
+ - Yusuf Qaradawi is probably the most well-known legal authority in the whole Muslim world today.
+ - Our enemy is not Islam. Islam is not the enemy of America; Americans are not the enemy of Islam. Our real enemy is extremism and radicalism.
+ - I read, read enormously on all different fields of Islamic thought, from philosophy to Islamic literature, poetry, exegeses, knowledge of the Hadith, the teachings of the prophet. That’s how I trained myself. And then I was appointed imam by a Sufi master from Istanbul, Turkey.
+ - The ultimate vision is to instate in the Muslim world the notion of multiculturalism, which is part of our heritage and history, part of the fundamental, mainstream ideals of Islam.
+ - Americans must outgrow the unbecoming arrogance that leads us to assert that America somehow owns a monopoly on goodness and truth – a belief that leads some to view the world as but a stage on which to play out the great historical drama: the United States of America versus the Powers of Evil.
+ - The battleground has been moderates of all faith traditions in all the countries of the world against the radicals of all faith traditions in all parts of the world.
+ - I’ve spoken with friends who are rabbis and priests and we’ve agreed that most people have an emotional attachment to their faith, a desire to fulfill their spiritual longings, but they are not experts in understanding the history of their religion.
+ - I condemn everyone and anyone who commits acts of terrorism. And Hamas has committed acts of terrorism.
+ - Sufis teach that we first must battle and destroy the evil within ourselves by shining upon it the good within, and then we learn to battle the evil in others by helping their higher selves gain control of their lower selves.
+ - The thing about the Islamic situation is we don’t have a church. We don’t have an ordained priesthood, which makes it a little complicated. But we do have a tradition of scholarship, and rules of scholarship. It’s very much like any field of knowledge.
+ - I was completely surrounded by religion from a young time. I was taught by my father. I engaged in discussions with him and many of these scholars who visited and came around the dining table, the lunch table, and attended many lectures with my dad. And so I learned the apprentice way.
+ - There are individuals who are working very hard to promote fear and antagonism towards Islam and Muslims in this country. It’s fueled, in part, by the first African-American president that we have. Obama’s father was a Muslim and people have used this to arouse hostility against him.
+ - I worked as a teacher in the public school system in New York City for several years, and I was a victim of the layoffs, you know, in the mid-’70s. And then I worked as a sales engineer for a company in New Jersey that was selling industrial filtration equipment.
+ - The sources of human problems have to do with egotism, ‘I.’
+ - What’s brilliant about the United States system of government is separation of power. Not only the executive, legislative, judicial branches, but also the independence of the military from civilians, an independent media and press, an independent central bank.
+ - We are Americans. We – we – we are – we are doctors. We are investment bankers. We are taxi drivers. We are store keepers. We are lawyers. We are – we are part of the fabric of America. And the way that America today treats its Muslims is being watched by over a billion Muslims worldwide.
+ - What’s right with America and what’s right with Islam have a lot in common. At their highest levels, both worldviews reflect an enlightened recognition that all of humankind shares a common Creator – that we are, indeed, brothers and sisters.
+ - I have never made a threat. I’ve never made a threat, never expressed a threat, never – I’ve never – I would never threaten violence ever, because I am a man of peace, dedicated to peace.
+ - Bigotry toward any faith community cannot have any place in civilized society anywhere in the world.
+ - I am an American citizen born in Kuwait of Egyptian parents. I grew up in Great Britain, Malaysia, and Egypt and have lived in the United States since 1965, when I was seventeen.
+ - In spite of the polls, the fact is that American Muslims are very happy and they thrive in this country.
+ - We are not going to toy with our religion or any other. Nor are we going to barter. We are here to extend our hands to build peace and harmony.
+ - Any organization or any individual that targets civilians and kills them for political agenda is a terrorist organization.
+ - My life has been devoted to peacemaking.
+ - I’m not an agent from any government, even if some of you may not believe it. I’m not. I’m a peacemaker.
+ - We tend to forget in the West that the United States has more Muslim blood on its hands than Al Qaeda has on its hands of innocent non-Muslims.
+
+42 quotes

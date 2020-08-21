@@ -1,0 +1,35 @@
+ - My husband, when I was filming the Millennium movies, he asked me, ‘How far are you going and when are you coming back?’
+ - If I don’t see myself as a victim, then I’m not a victim.
+ - When I don’t understand things, I become passionate to understand.
+ - I hate when you see a film and after one scene you know what’s going to happen and you can predict the whole story.
+ - In Sweden everybody has this perfect surface. Everyones very polite and controls their feelings.
+ - I grew up watching American movies. My favorite movies have always been American, since as long as I can remember. I always had this huge respect for American filmmakers and American actors.
+ - I’m never satisfied. I can always find things that I can do better and go further on, so I force myself to accept when someone says, “We have it, it’s good and we can move on.”
+ - Sometimes you just want to go out and tell everybody everything because you’re just so full of happiness. It’s almost like you’re high on it and you just want to tell everybody about your experience, but you’re not allowed to say anything.
+ - I want actors. I want to be with other people. I don’t wanna be alone, because of the connection when you’re in a room, in a scene with someone, and it comes to life. You feel like the moment is something magic.
+ - I think most gypsies all over the world are used to being not really welcome and always on the run, expecting people to not like them and to be critical.
+ - I like doing fight scenes. I always have, and I insist on doing as much of that action as they’ll let me do. I think that’s easy for me.
+ - Sometimes I have good ideas. I love that part of our job. It’s a constant process of searching, of exploring stuff, and realizing things. You can be in the middle of the film and it’s like, “Oh my God! I think we need to do this! Maybe in this scene she should shave her head!”
+ - I don’t have this crazy dream about going to Hollywood, because I really love to watch movies and do movies that are complicated, and I want more strange things and complicated things.
+ - Weirdly enough, I don’t like to pretend. I try to use things in me, and translate them into the situation and the characters, so it always needs to run through my own veins.
+ - I think it’s always the emotional situations that are more tricky to nail and get into because I don’t want to pretend.
+ - I was a punk rocker when I was a teenager. I wanted to look like Nancy Spungen. I had dyed blonde hair and lots of piercings.
+ - Some directors can tell stories and it becomes very intimate and small, and it’s almost like a secret. Some directors have the gift of finding a way to show it and tell the story, in a way that brings in the audience.
+ - It’s better to not be afraid of things and not avoid things.
+ - For me, artists and people that are passionate are fighting for what they believe in and what they want, and that’s always appealing. I find that really interesting.
+ - I’m obsessed with the human psyche. I want to understand. I want to ask myself if I have it inside me.
+ - I can’t see any value in being a celebrity, famous for being famous.
+ - I think that I’m very passionate, and I know that if I decide to do a film, my character is going to take over my life.
+ - I’ve always been very stubborn, had a very clear will of what I want to do.
+ - I always push myself, even when I did a film where it was pretty much me the whole film.
+ - I want to explore more sides of humanity and myself. That’s what acting is about.
+ - I always had this huge respect for American filmmakers and American actors. I always had this very strong love and respect for the American cinema. I always knew that I was going to leave Sweden.
+ - I can come up sometimes with ideas for scenes that I’m not in, to make it better or add something. It’s not about me, or my ego, that I wanna show this or that.
+ - I’m interested in people’s darker side, the ones that aren’t easy and well balanced. The cracks.
+ - I’d much rather work with people that are tricky and difficult than people that just say yes to everything.
+ - I think Stieg Larsson was pretty brave. He wanted to bring up things that we don’t like to talk about, or like to ignore.
+ - I want to explore humanity and human kind. I think that what’s common for all of the things that I’ve done and all the things that I want to do is that they are all connected to some deeper things in our souls.
+ - I’m terrified of being too famous. What I’m really afraid of is that the audiences will go into the theater and not be able to forget that it’s me, that fame will stand in the way of my acting. I want to keep being able to change into different shapes and different personalities.
+ - I always felt like I was on the move, that I was going towards something.
+
+33 quotes

@@ -1,0 +1,165 @@
+ - Everything is possible. The impossible just takes longer.
+ - Sometimes a change of perspective is all it takes to see the light.
+ - Time is a river, and books are boats.
+ - No love is greater than that of a father for His son.
+ - Pain is a part of growing-up. It is how we learn...
+ - To live in the world without becoming aware of the meaning of the world is like wandering about in a great library without touching the books.
+ - Quis custodiet ipsos custodes? Who will guard the guards?
+ - We are the masters of our own universe.
+ - The darkest places in hell are reserved for those who maintain their neutrality in times of moral crisis. – Bertrand Zobrist.
+ - Angels and demons were identical – interchangeable archetypes – all a matter of polarity. The guardian angel who conquered your enemy in battle was perceived by your enemy as a demon destroyer.
+ - Science tells me God must exist. My mind tells me I will never understand God. And my heart tells me I am not meant to.
+ - Life is filled with secrets. You can’t learn them all at once.
+ - The truth can be glimpsed only through the eyes of death.
+ - Wide acceptance of an idea is not proof of its validity.
+ - The human mind has a primitive ego defense mechanism that negates all realities that produce too much stress for the brain to handle. It’s called Denial.
+ - Life is filled with difficult decisions, and winners are those who make them.
+ - Sometimes all it takes is a tiny shift of perspective to see something familiar in a totally new light.
+ - Small minds have always lashed out at what they don’t understand.
+ - Knowledge is a tool, and like all tools, its impact is in the hands of the user.
+ - Transhumanism is the ethics and science of using things like biological and genetic engineering to transform our bodies and make us a more powerful species.
+ - Today is today. But there are many tomorrows.
+ - The decisions of our past are the architects of our present.
+ - Open your minds, my friends. We all fear what we do not understand.
+ - Science and religion are not at odds. Science is simply too young to understand.
+ - Google’ is not a synonym for ‘research’.
+ - It has always been this way. Death is followed by birth. To reach paradise, man must pass through inferno. – Bertrand Zobrist.
+ - Forgiveness is God’s greatest gift.
+ - When a question has no correct answer, there is only one honest response. The gray area between yes and no. Silence.
+ - It is always darkest before the dawn.
+ - If it wasn’t painfully difficult, you did it wrong!
+ - Nobody tells you what you can and can’t do.
+ - Sooner or later we’ve all got to let go of our past.
+ - Books make great gifts because they can unveil hidden secrets.
+ - Act first, explain later.
+ - One could argue that there exist certain questions that are best left unanswered.
+ - Powerful truth has its own gravity and eventually pulls people back to it.
+ - By its very nature, history is always a one-sided account.
+ - You can’t jump for the stars if your feet hurt.
+ - I love the gray area between right and wrong.
+ - The laws of physics is the canvas God laid down on which to paint his masterpiece.
+ - Religion is flawed, but only because man is flawed.
+ - God, grant me strength to accept those things I cannot change.
+ - Men go to far greater lengths to avoid what they fear than to obtain what they desire.
+ - Knowledge grows exponentially. The more we know, the greater our ability to learn, and the faster we expand our knowledge base.
+ - The blind see what they want to see.
+ - There’s just no substitute for the truth.
+ - Nothing is hidden that will not be made known; nothing is secret that will not come to light.
+ - Our minds sometimes see what our hearts wish were true.
+ - Perception is transformed, and a new reality is born.
+ - So long as they speak your name, you shall never die.
+ - Futurists don’t consider overpopulation one of the issues of the future. They consider it the issue of the future.
+ - Nothing captures human interest more than human tragedy.
+ - Force a hand, and it will fight you. But convince and mind to think as you want it to think, an you have an ally.
+ - But who is more ignorant? The man who cannot define lightning, or the man who does not respect its awesome power?
+ - What really matters is what you believe.
+ - My sincere hope is that ‘The Da Vinci Code,’ in addition to entertaining people, will serve as an open door to begin their own explorations.
+ - The more man learned, the more he realized he did not know.
+ - Learning the truth has become my life’s love.
+ - I’ve learned never to close my mind to an idea simply because it seems miraculous.
+ - I write seven days a week, starting at 4 o’clock in the morning, including Christmas.
+ - I spend my life essentially alone at a computer. That doesn’t change. I have the same challenges every day.
+ - Never underestimate the ego of a politician.
+ - Fear cripples faster than any implement of war.
+ - Wealth is commonplace but wisdom is rare. I beg you to remember that wealth without wisdom can often end in disaster.
+ - It is said that in death, all things become clear.
+ - Pure energy is the father of creation.
+ - The act of tattooing one’s skin was a tranformative declaration of power, an announcment to the world: I am in control of my own flesh.
+ - Every generation’s breakthroughs are proven false by the next generation’s Technology.
+ - Telling someone about what a symbol means is like telling someone how music should make them feel.
+ - Imagine how different a world might be if more leaders took time to ponder the finality of death before racing off to war.
+ - Is it not possible that we are still living in the Dark Ages, still mocking the suggestion of ‘mystical’ forces that we cannot see or comprehend.
+ - It’s the age-old battle between mind and heart, which seldom want the same thing.
+ - Please accept this humble fax. My love for you is without wax.
+ - For me, the spiritual quest will be a life-long work in progress.
+ - Great minds are always feared by lesser minds.
+ - Terrorism is not an expression of rage. Terrorism is a political weapon. Remove a government’s facade of infallibility, and you remove it’s people’s faith.
+ - Can you keep secrets? Can you know a thing and never say it again?
+ - Everyone loves a conspiracy.
+ - When in doubt, just spit it out. That all challenges can be overcome by speaking the truth, no matter how itcomes out.
+ - The greatest story ever told is, in fact, the greatest story ever sold.
+ - Death is usually an all-or-nothing thing!
+ - The only difference between you and God is that you have forgotten you are divine.
+ - I’m somebody who likes codes and ciphers and chases and artwork and architecture, and all the things you find in a Robert Langdon thriller.
+ - Darkness feeds on apathy.
+ - The power of human thought grows exponentially with the number of minds that share that thought.
+ - Death is only a byproduct of terrorism.
+ - Madness is the WHO staring into the abyss and denying it is there. Madness is an ostrich who sticks her head in the sand while a pack of hyenas closes around her. – Lanky Man with green eyes.
+ - PHI is one H of a lot cooler than PI!
+ - I’m fascinated by power, especially veiled power. Shadow power. The National Security Agency. The National Reconnaissance Office. Opus Dei. The idea that everything happens for reasons we’re not quite seeing.
+ - It seemed there was always a close correlation between true believers and high body counts.
+ - Book publishing would be so much easier without the authors.
+ - Her eyes were olive green – incisive and clear.
+ - The media is the right arm of anarchy.
+ - That is the definition of faith – acceptance of that which we imagine to be true, that which we cannot prove.
+ - I don’t know where I would place myself in the literary landscape. I really just write the book that I would want to read. And I put on the blinders, and I really – it is, for me, that simple.
+ - Chaos was the natural law of the universe. Indifference was the engine of entropy. Man’s apathy was the fertile ground in which the dark spirits tended their seeds.
+ - Misunderstanding a culture’s symbols is a common root of predujice.
+ - I don’t read horror, ever. When I was 15, I made the mistake of reading part of ‘The Exorcist.’ It was the first and last horror book I’ve ever opened.
+ - The Bible, as we know it today, was collated by the pagan Roman Emperor Constantine the Great.
+ - Anyone who said power was not addictive had never really experienced it.
+ - Religion is like language or dress. We gravitate toward the practices with which we were raised. In the end, though, we are all proclaiming the same thing. That life has meaning. That we are grateful for the power that created us.
+ - In my mind, the men and women of NASA are history’s modern pioneers. They attempt the impossible, accept failure, and then back to the drawing board while the rest of us stand back and criticize.
+ - Knowledge is power, and the right knowledge lets man perform miraculous, almost godlike tasks.
+ - I read nonfiction almost exclusively – both for research and also for pleasure. When I read fiction, it’s almost always in the thriller genre, and it needs to rivet me in the opening few chapters.
+ - Faith is universal. Our specific methods for understanding it are arbitrary. Some of us pray to Jesus, some of us go to Mecca, some of us study subatomic particles. In the end we are all just searching for truth, that which is greater than ourselves.
+ - God’s will is your deepest desires.
+ - When multiple explanations exist, the simplest is usually correct.
+ - I’ve been through a lot. I’ve thought a lot about life, and I’ve spent a lot of time studying history and science.
+ - Faith is a continuum, and we each fall on that line where we may.
+ - As strange as this may sound, I very seldom read fiction. Because my novels require so much research, almost everything I read is non – fiction – histories, biographies, translations of ancient texts...
+ - Those who truly understand their faiths understand the stories are metaphorical.
+ - Everyone thinks that religion is the ball and chain. But the reality is that sin is the ball and chain. A relationship with Christ is the freedom that people are looking for in alcohol and drugs.
+ - Substantiate or suffocate, Ms. Vetra. Mickey’s ticking.
+ - A little faith can do wonders...
+ - As he flushed, an unexpected realization hit him. This is the Pope’s toilet, he thought. I just took a leak in the Pope’s toilet. He had to chuckle. The Holy Throne.
+ - Outside, in the newly fallen darkness, the world had been transformed. The sky had become a glistening tapestry of stars.
+ - Denial is a critical part of the human coping mechanism. Without it, we would all wake up terrified every morning about all the ways we could die. Instead, our minds block out our existential fears by focusing on stresses we can handle – like getting to work on time or paying our taxes.
+ - Throughout history, every period of enlightenment has been accompanied by darkness, pushing in opposition. Such are laws of nature and balance.
+ - Since the beginning of time, spirituality and religion have been called to fill in the gaps that science did not understand.
+ - Soon you will lose everything you hold most dear.
+ - Madness breeds madness.
+ - Until man is nothing, God can make nothing of him. – Martin Luther.
+ - There is a fine line between insanity and genius.
+ - Only one form of contagion travels faster than a virus. And that’s fear.
+ - Nothing activates adrenaline production like pain. – Dr. Sienna Brooks.
+ - Language can be very adept at hiding the truth.
+ - Look, you runny-nosed little runt. You’re going to back off right now, or I’m going to rip that safety pin out of your nose and pin your mouth shut.
+ - Nothing in Christianity is original.
+ - When his brain died, all of the memories held in his gray matter, along with all of the knowledge he had acquired, would simply evaporate in a flood of chemical reactions.
+ - Skepticism has become a virtue. Cynicism and demand for proof has become enlightened thought. Is it any wonder that humans now feel more depressed and defeated than they have at any point in human history?
+ - Suggesting a married Jesus is one thing, but questioning the Resurrection undermines the very heart of Christian belief.
+ - Two thousand years ago, we lived in a world of Gods and Goddesses. Today, we live in a world solely of Gods. Women in most cultures have been stripped of their spiritual power.
+ - For me, a good thriller must teach me something about the real world.
+ - It’s not about what you tell the reader, it’s about what you conceal.
+ - I will not write a lame follow-up. It could take me 20 years. But I will never turn in a book that I’m not happy with.
+ - Of course you can’t stop. It is physically impossible for the human mind to think of nothing. The soul craves emotion, and it will continue to seek fuel for that emotion-good or bad. Your problem is that you’re giving it the wrong fuel.
+ - If a hippo ever wants to fight, just walk away.
+ - Peace on this planet will not be forged by military strength. It will be forged by those who come together despite their government’s differences.
+ - My interest in secret societies is the product of many experiences, some I can discuss, others I cannot.
+ - I learned early on not to listen to either critique – the people who love you or the people who don’t like you.
+ - I’ve got to stop being such a snob about leather-bound books, he reminded himself. E-books do have their moments.
+ - Each of us is now electronically connected to the globe, and yet we feel utterly alone.
+ - I didn’t understand how funny this play Much Ado About Nothing truly was until I became an English teacher and had to teach it. There is no wittier dialogue anywhere.
+ - Religion has always persecuted science.
+ - She was deeply passionate about the sacred feminine.
+ - You can point to the alleged miracles of the Bible, or any other religious text, but they are nothing but old stories fabricated by man and then exaggerated over time.
+ - To fly or not to fly, that’s the question.
+ - Authors, he thought. Even the sane ones are nuts.
+ - The truth, however, was stranger still.
+ - My lawyers will fricassee your testicles for breakfast. And if you dare board my plane without a warrant, your spleen will follow.
+ - Even brilliant scientists Google themselves.
+ - I remember devouring the entire Hardy Boys series over one summer, enthralled by their bravery and cleverness.
+ - Oftentimes, those special brains, the ones that are capable of focusing more intently than others, do so at the expense of emotional maturity.
+ - Robert wondered if any of Harvard’s revered Egyptologists had ever knocked on the door of a pyramid and expected an answer.
+ - I consider myself a student of many religions. The more I learn, the more questions I have. For me, the spiritual quest will be a life-long work in progress.
+ - Men in power are always interested in greater power.
+ - One does not need to have cancer to analyze its symptoms.
+ - Because most Christians want it both ways. They want to be able to proudly declare they are believers in the Bible and yet simply ignore those parts they find too difficult or too inconvenient to believe.
+ - This life is what I always wanted. I had a vision of our happiness.
+ - I write slowly. I actually write quickly, but I throw out so much material.
+ - This is systems security for the Central Intelligence Agency. We would like to know why you are attempting to hack one of our classified databases.
+ - I think one reason my books have found mainstream success is that they’re written from a skeptical point of view.
+ - Secrets interest us all, I think.
+
+163 quotes

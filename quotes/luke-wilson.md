@@ -1,0 +1,35 @@
+ - True love is hard to find, sometimes you think you have true love and then you catch the early flight home from San Diego and a couple of nude people jump out of your bathroom blindfolded like a goddamn magic show ready to double team your girlfriend.
+ - I just always wanted to stay busy.
+ - I’m really just doing whatever comes my way and trying to stay busy and get better at what I’m doing.
+ - As a movie-goer, I really like to watch all different kinds of movies and, as an actor, I always feel like I could do pretty much anything but a musical.
+ - To be honest, I’m not that good at staying friends. I like to move on after a relationship ends. If I break up with somebody, I don’t want to see her or hear from her.
+ - I always laugh the hardest at the stuff you see in day-to-day life. Its great when somebody can tell a joke that really makes you laugh hard, but to see some kind of personal interaction that no one could write is so good. Those are always the things that make me laugh.
+ - When you’re in Los Angeles, nobody bats an eye, they’re so used to seeing actors, they just act really cool.
+ - Im probably one of the worst people with numbers youve ever met. My brothers always kid that they think Im counting cards in Vegas, but Im just trying to add things up.
+ - I have never, for better or worse, thought about a ‘career path’ or anything like that.
+ - It’s nice, though, getting older and being able to do different roles.
+ - It’s always been my personal feeling that unless you are married, there is something that is not very dignified about talking about who you are dating.
+ - I like to think I can keep a pretty level head.
+ - Do men have a biological clock? I feel like I do. Something is definitely ticking!
+ - You’re just playing a role, whether it’s a drama or a comedy. I find it really fun to sort of play opposite Uma.
+ - I feel like I’m a fan of film who’s actually in the business, too. So it’d be like saying like, ‘Yeah, I love the NFL,’ and then, ‘Yeah, I’m also a wide receiver.’
+ - I don’t really have a type of woman.
+ - I’ve been trying to bust into the comedy business my whole life. It’s hard in Hollywood to do different things. I know this. It’s a struggle.
+ - Sometimes when you get on a new movie you kind of how to figure out the way other people work and it can be like being the new kid in high school where you’re just trying to find out where your place is on the movie or on the set.
+ - To me it comes naturally, the peaks and valleys, sadness with happiness. I’ve definitely had periods, maybe, where I haven’t been happy. Whether it’s from a breakup or the good, old-fashioned blues – but I wouldn’t say clinically depressed.
+ - I never had to say to myself, ‘OK now, I’ve got to grow up and work for a bank, or go and sell real estate.’ I never had to make that kind of break.
+ - Whatever kind of movie it is, youre going to be more into it when you care more about the drama, or youll have a better laugh if you feel like you know the people better.
+ - Especially with a comedy, you’ve got the clear cut goal of trying to make a scene funny. It’s not like drama where you’re trying to achieve some kind of emotion or trying to further the story along. You’re trying to figure out what’s the funniest way to do something.
+ - That’s one of those things that will really hurt me personally, if I label a character or think about what it might do if it were to do well. I just try to do a good job with it.
+ - I’d always envied actors who got to play real people or got to do research. I’ve always just had these scripts where, I mean not in a bad way, but it was right on the page.
+ - I’ve worked on movies that are being rewritten as you go, but you take so long and so much time doing it, that it’s not really an issue knowing what’s going to happen or how the movie is going to end.
+ - When you do a comedy, the goals are much clearer to me.
+ - I would think that would be really liberating to play like a real cad or a villain or something like that, and that’s something I haven’t gotten the chance to do a lot.
+ - We don’t want women to really know men, because then they’ll find out how much we need them.
+ - You can get pigeonholed in Hollywood and people think of you in a certain way.
+ - I like to think I’ve done a lot of different kinds of roles, but obviously I have done quite a lot of comedies.
+ - The physical stuff of a movie is difficult. It’s one of those things where it’s just harder than it looks.
+ - The thing about being an actor is that you’re in the business of not growing up.
+ - As long as you’re getting along, it’s nice to work with someone you know well.
+
+33 quotes

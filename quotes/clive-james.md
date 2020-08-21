@@ -1,0 +1,111 @@
+ - Snooker is just chess with balls.
+ - Whoever called snooker “chess with balls” was rude, but right.
+ - Stop worrying – nobody gets out of this world alive.
+ - Common sense and a sense of humor are the same thing, moving at different speeds. A sense of humor is just common sense, dancing.
+ - It is only when they go wrong that machines remind you how powerful they are.
+ - An education without a Bible education is no education.
+ - A sense of humour is common sense dancing.
+ - If the humanism that makes civilization civilized is to be preserved into the new century, it will need advocates. These advocates will need a memory, and part of that memory will need to be of an age in which they were not yet alive.
+ - On the correctly formed pubescent girl, a Speedo looked wonderful. When it was wet, it was an incitement to riot.
+ - It is a good rule in life to be wary of the company of people who think of themselves in the third person, no matter how well justified they might seem to be in doing so.
+ - It’s a big thing to call yourself a poet. All I can say is that I have always written poems. I don’t think I’m interested in any discussion about whether I’m a good poet, a bad poet or a great poet. But I am sure, I want to write great poems. I think every poet should want that.
+ - Arnold Schwarzenegger looks like a condom full of walnuts...
+ - Even in moments of tranquility, Murray Walker sounds like a man whose trousers are on fire.
+ - I saw the film Pearl Harbour and it made me wish that the Japanese had bombed Hollywood instead!
+ - You should never trust anyone who listens to Mahler before they’re forty.
+ - Generally it is our failures that civilize us. Triumph confirms us in our habits.
+ - The Canadian version of Julius Caesar’s memoirs? I came, I saw, I coped.
+ - Twin miracles of mascara, her eyes looked like the corpses of two small crows that had crashed into a chalk cliff.
+ - Prejudices are useless. Call Los Angeles any dirty name you like – Six Suburbs in Search of a City, Paradise with a Lobotomy, anything – but the fact remains that you are already living in it before you get there.
+ - My wife spoke perfect Italian and she was very beautiful and very suave Italian men were crowding around her, talking all the time and if I was to even understand what was going on, I had to learn the language fast.
+ - It’s my mission to tell the Australians from abroad in my work that Australia is a wonderful place.
+ - As a work of art, it reminds me of a long conversation between two drunks.
+ - My niece is – her name is Sasha, is currently learning Russian at Melbourne University and I look forward to the day when I can talk to her about Pushkin.
+ - I won’t have to miss smoking any more. Nobody smokes where I’m going: It’s like a row of restaurants in California.
+ - Bjorn Borg looks like a hunchbacked, jut-bottomed version of Lizabeth Scott, impersonating a bearded Apache princess.
+ - Like a Volvo, Bjorn Borg is rugged, has good after-sales service, and is very dull.
+ - Sometimes I feel if I was young again, I would wrap a bandana around my head like Douglas Fairbanks Sr. and I would become a pirate of the Web. And I would go around stealing poems and assembling into one spot like a treasure cave.
+ - The key to effective teaching is to remember how you learned.
+ - All intellectual tendencies are corrupted when they consort with power.
+ - John McEnroe looks as if he is serving round the edge of an imaginary building.
+ - Sick of being a prisoner of my childhood, I want to put it behind me.
+ - A loose horse is any horse sensible enough to get rid of its rider at an early stage and carry on unencumbered.
+ - I taught myself Russian, which was very, very useful, especially for poetry and in fact if you can’t read Pushkin in Russian, you’re really missing something.
+ - I was a big pothead for a short period. That was what ticked me off that I shouldn’t go near hard drugs, actually, because I would consume the stuff as if it was going out of style and it rapidly occurred to me that if I ever tried a hard drug, the same thing would happen, so I never did.
+ - Television is simultaneously blamed, often by the same people, for worsening the world and for being powerless to change it.
+ - Every sentence he manages to utter scatters its component parts like pond water from a verb chasing its own tail.
+ - It is almost better to be an impulse shirt-buyer than an impulse shoe-buyer. I have worn shirts that made people think I was a retired Mafia hit-man or a Yugoslavian sports convener from Split, but I have worn shoes that made people think I was insane.
+ - All I can do is turn a phrase until it catches the light.
+ - John McEnroe has hair like badly turned broccoli.
+ - A life without fame can be a good life, but fame without a life is no life at all.
+ - Jack Aubrey is a tremendous tower of strength and you always want to read about him.
+ - Everyone has a right to a university degree in America, even if it’s in Hamburger Technology.
+ - The first language that I learned was Italian in Italy in the early and middle-’60s and I had to do that to keep up with the young men who were courting my wife.
+ - The Language Laboratory at Cambridge is a very good way of finding out about grammar and the vocabulary and that’s why I learned to read German and later on I added Spanish, the standard European languages.
+ - As far as talent goes, Marilyn Monroe was so minimally gifted as to be almost unemployable, and anyone who holds to the opinion that she was a great natural comic identifies himself immediately as a dunce.
+ - There is no reasoning someone out of a position he has not reasoned himself into.
+ - People should be stopped from writing poetry. There’s far too much of it. And if they’re any good, they’ll go ahead anyways.
+ - When I was young I never believed that Australia was anything else except blessed. I thought it was a little dull when I was young, but that was ’cause I was a snob.
+ - Roscoe Tanner seems to have found a way of making his service go even faster, so that the ball is now quite invisible, like Stealth, the American supersonic bomber which nobody has ever seen.
+ - My wife and I just started listening to the late Beethoven Quartets together, an activity I recommend for all married couples, but that doesn’t really mean that I’m finished reading.
+ - Being young is wonderful. But one of the secrets of being a human individual – a mature human individual shall we put it rather grandly – is that you can see this desire in perspective.
+ - She was good at playing abstract confusion in the same way that a midget is good at being short.
+ - In Italy, for the same price as a typical British hamburger meal including sweet, a builder’s labourer could eat like a king – rather better in fact, because pasta dishes gain from being kept simple.
+ - Ban poetry. And make sure that anyone caught reading it is expelled from school. Then it will acquire the glamour.
+ - All honest labor becomes easy; it only becomes hard when done with unwillingness.
+ - I love reading about the sea. I love reading about it a lot more than actually being on the sea, when you think about it.
+ - Men never sound more stupid than when they’re telling you they’re a very complex personality.
+ - In between the Queen and the First Lady, Nancy Reagan, sat Tony Richardson, looking very calm. Later on it emerged that this was because, having not been apprised of the placement until he was about to sit down, he had died of fright. To have expired was to be fortunate.
+ - You can never get a woman to sit down and listen to a drum solo.
+ - The literary critic, or the critic of any other specific form of artistic expression, may detach himself from the world for as long as the work of art he is contemplating appears to do the same.
+ - In the Bob Hope Golf Classic, the participation of President Gerald Ford was more than enough to remind you that the nuclear button was at one stage at the disposal of a man who might have either pressed it by mistake or else pressed it deliberately in order to obtain room service.
+ - A luxury liner is really just a bad play surrounded by water.
+ - I’ve got life for a subject because as life starts to drain away, you start seeing very clearly what life is, for the first time.
+ - Disco dancing is just the steady thump of a giant moron knocking in an endless nail.
+ - The secret for an artist is to make that a subject and not bang your head against the wall and give up. But to turn it into and treat the new subject matter, which is one’s own vanishing.
+ - The thing about making a documentary in Las Vegas is there isn’t much to film apart from other people making documentaries about Las Vegas.
+ - I was brought up on the proletarian left, and I remain there. The fair go for workers is fundamental, and I don’t believe the free market has a mind.
+ - Jimmy Connors likes the ball to come at him in a straight line, so that he can hit it back in another straight line. When it comes to him in a curve, he uses up half of his energy straightening it up again.
+ - A traditional fixture at Wimbledon is the way the BBC TV commentary box fills up with British players eliminated in the early rounds.
+ - The British hamburger thus symbolised, with savage neatness, the country’s failure to provide its ordinary people with food which did anything more for them than sustain life.
+ - Murray sounds like a blindfolded man riding a unicycle on the rim of the pit of doom, the men actually facing the danger are all so taciturn that you might as well try interviewing the cars themselves.
+ - She wasn’t just beautiful. She was like the sun coming up: coming up giggling. She was giggling as if she had just remembered something funny.
+ - Fiction is life with the dull bits left out.
+ - I actually didn’t like that feeling of being out of touch because what I do depends on being in touch. But it’s fun to talk about. That’s one of the real dangers of drugs: they’re too much fun to talk about.
+ - The essence of a class system is not that the privileged are conscious of their privileges, but that the deprived are conscious of their deprivations.
+ - One way or another, all the poets of the thirties and forties reacted to Auden, either by rejecting him or trying to absorb him.
+ - Writing is a performance art for me. They’re very closely aligned, writing and performing. But I’m a writer, not a performer.
+ - Humphrey Searle writes music that sounds like the theme from ‘Star Wars’ played backwards through a washing machine.
+ - I’ve only got a fraction of the energy I once had, but I think I probably use it better.
+ - The rattle of plastic keys reminds me of a squadron of butterflies failing to fight their way out of a paper bag.
+ - Pound had argued – and Eliot had helped him prove – that a poem could be sustained by memorable moments. Olson proved that it could be sustained by unmemorable ones, provided that the texture of the accumulated jottings avoided the sound of failed poetry.
+ - Like most people who smoked umpteen cigarettes a day, I tasted only the first one. The succeeding umpteen minus one were a compulsive ritual which had no greater savour than the fumes of burning money.
+ - First-rate science fiction was, and remains, more interesting than second-rate art.
+ - The inevitable effect of a biographer’s hindsight is to belittle the subject’s foresight.
+ - I’m certainly not a linguist. I learned what languages I could learn in order to read books and I can’t really speak them. I couldn’t have stayed out of jail in most of them.
+ - Visitors who come from the Soviet Union and tell you how marvelous it is to be able to look at public buildings without advertisements stuck all over them are just telling you that they can’t decipher the cyrillic alphabet.
+ - Delivering the State of the Union? That bloke couldn’t deliver pizza.
+ - You can’t be young always. The day will come when everything will fall apart.
+ - In recent years, perhaps encouraged by competition from McDonald’s, the British hamburger has become a credit to the nation. At the time of which I speak, it looked like a scorched beer-coaster or a tenderized disc brake.
+ - Among artists without talent Marxism will always be popular, since it enables them to blame society for the fact that nobody wants to hear what they have to say.
+ - This quality becomes important at a time when almost everyone is a poet. And as I said, we live in an age where almost everybody is a poet, but scarcely anyone can write a poem.
+ - If an artist is any good at all, then he or she will have a later phase that’s more interesting than the early one.
+ - All television ever did was shrink the demand for ordinary movies. The demand for extraordinary movies increased. If any one thing is wrong with the movie industry today, it is the unrelenting effort to astonish.
+ - In London there was no home cooking worthy of the name. When you were in funds you ate out. But only the people whose faces appeared in such publications as Town and Queen could afford to eat in restaurants serving food which would leave them looking and feeling better instead of worse.
+ - A sceptic finds Dallas absurd. A cynic thinks the public doesn’t.
+ - I think the great trick of doing my sort of thing is to learn to use your downtime, and of course in the media and especially in television, there’s a heck of a lot of time of waiting around. And I think the trick is to use that.
+ - The smartest move I ever made in showbusiness was to start off looking like the kind of wreck I would end up as. I was already aged in the wood.
+ - Not everyone who wants to make a film is crazy, but almost everyone who is crazy wants to make a film.
+ - Dinner was meat – not hunks of meat, as in Australia, but pathetic scraps of meat, as in Britain – which the girls upstairs transformed into edible dishes by heating it in secret ways and adding bits of stuff to it.
+ - If we want a book to do more than what it does, that’s a condemnation. If we want it to do more of what it does, that’s an endorsement.
+ - Young men especially – I don’t know if young women feel much the same – but young men think they are immortal, automatically. They have no idea of time because they have so much energy and I was like that.
+ - Anyone afraid of what he thinks television does to the world is probably just afraid of the world.
+ - I try to be specific. One thought at a time. Clear. Articulate. And above all, memorable, if you can be. You’d like to write phrases that people can’t forget as soon as they read them.
+ - Little books are the things to write at my age, I’ve decided. Avoid the big ones, go for the little ones.
+ - Mocking Hugh Hefner is easy to do, and in my mind should be made easier.
+ - Writers quite often starve. And I’m mainly just writing critical prose and poetry, that’s a formula for starvation.
+ - I work on the assumption, or let it be the fear, that the reader will stop reading if I stop being interesting.
+ - The streets, at least in this part of town, seemed impossibly clean in comparison to London. The public telephones were unvandalised. For a London telephone booth to look like that it would have to be guarded around the clock by the SAS.
+ - His pear-shaped head, I could now see, was situated on top of a pear-shaped body, which his black gown caused to resemble a piece of fruit going to a funeral.
+
+109 quotes

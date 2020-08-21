@@ -1,0 +1,293 @@
+ - Your intellect may be confused, but your emotions will never lie to you.
+ - It’s not what a movie is about, it’s how it is about it.
+ - We live in a box of space and time. Movies are windows in its walls. They allow us to enter other minds, not simply in the sense of identifying with the characters, although that is an important part of it, but by seeing the world as another person sees it.
+ - To make others less happy is a crime. To make ourselves unhappy is where all crime starts. We must try to contribute joy to the world. That is true no matter what our problems, our health, our circumstances. We must try. I didn’t always know this, and am happy I lived long enough to find it out.
+ - We live in a box of space and time. Movies are windows in its walls.
+ - In the world of bad movies, ‘Death to Smoochy’ is a towering achievement.
+ - Life’s missed opportunities, at the end, may seem more poignant to us than those we embraced – because in our imagination they have a perfection that reality can never rival.
+ - Of all the arts, movies are the most powerful aid to empathy, and good ones make us into better people.
+ - Teaching prejudice to a child is itself a form of bullying. You’ve got to be taught to hate.
+ - And yet, even so, there is a way to find happiness. That is to be curious about all of the interlocking events that add up to our lives. To notice connections. To be amused or perhaps frightened by the ways things work out. If the universe is indifferent, what a consolation that we are not.
+ - Open-heart surgery is now part of a typical life experience for many people. Folks talk casually about ‘having a stent put in,’ as if they had their tires rotated.
+ - The problem with being sure that God is on your side is that you can’t change your mind, because God sure isn’t going to change His.
+ - No movie featuring either Harry Dean Stanton or M. Emmet Walsh in a supporting role can be altogether bad.
+ - We are born into a box of time and space. We use words and communication to break out of it and to reach out to others.
+ - Some of these people make my skin crawl.
+ - A film like Hoop Dreams is what the movies are for. It takes us, shakes us, and makes us think in new ways about the world around us. It gives us the impression of having touched life itself.
+ - Never marry anyone you could not sit next to during a three-day bus trip.
+ - It is reckless to make broad generalizations about any group of people.
+ - Every great film should seem new every time you see it.
+ - Doing research on the Web is like using a library assembled piecemeal by pack rats and vandalized nightly.
+ - There are no guarantees. But there is also nothing to fear. We come from oblivion when we are born. We return to oblivion when we die. The astonishing thing is this period of in-between.
+ - I wear a pedometer, a little device that counts every step. It works as a goad, because you walk additional distances to pile up the numbers. The average person walks 2,000 to 3,000 steps a day. I walk 10,000 steps a day. I have lost a lot of weight as a result.
+ - It’s hard to explain the fun to be found in seeing the right kind of bad movie.
+ - I am not a believer, not an atheist, not an agnostic. I am still awake at night, asking how? I am more content with the question than I would be with an answer.
+ - I lost faith in the Oscars the first year I was a movie critic – the year that Bonnie and Clyde didn’t win.
+ - Improvisation is a weird word because we often think it means that you make things up out of whole cloth right there on the spot, and that’s rarely the case in acting. You have to know who the character is, what the situation is and what is needed.
+ - It is quite possible for the vulgar to be funny, but to succeed, it must rise to a certain genius.
+ - The Muse visits during the process of creation, not before.
+ - The movies that are made more thoughtfully or made or with more ambition often get just get drowned out by the noise.
+ - The very fact of snow is such an amazement.
+ - There are two things you can’t argue in film: comedy and eroticism. If something doesn’t make you laugh, no one can tell you why it’s funny, and it’s difficult to reason someone out of an erection.
+ - Socrates told us, “the unexamined life is not worth living.” I think he’s calling for curiosity, more than knowledge. In every human society at all times and at all levels, the curious are at the leading edge.
+ - There’s nothing like impending death to rouse you from existential boredom.
+ - I value the kind of prayer when you stand at the edge of the sea, or beneath a tree, or smell a flower, or love someone, or do a good thing. Those prayers validate existence and snatch it away from meaningless routine.
+ - One of the gifts one movie lover can give another is the title of a wonderful film they have not yet discovered.
+ - Fight Club is a thrill ride masquerading as philosophy – the kind of ride where some people puke and others can’t wait to get on again.
+ - Many people believe the names of In ’n Out and Steak ’n Shake perfectly describe the contrast in bedroom techniques between the coast and the heartland.
+ - Art is the closest we can come to understanding how a stranger really feels.
+ - An actress should never, ever, be asked to run beside a van in red disco boots for more than about half a block, and then only if her child is being kidnapped.
+ - I begin to feel like most Americans don’t understand the First Amendment, don’t understand the idea of freedom of speech, and don’t understand that it’s the responsibility of the citizen to speak out.
+ - I have no fear of death. We all die. I consider my remaining days to be like money in the bank. When it is all gone, I will be repossessed.
+ - Nothing ever seems straightforward in Venice, least of all its romances.
+ - It is all very well and good for Linda Lovelace, the star of the movie, to advocate sexual freedom; but the energy she brings to her role is less awesome than discouraging. If you have to work this hard at sexual freedom, maybe it isn’t worth the effort.
+ - My favorite love scenes in movies don’t involve passion, they involve nobility or sacrifice.
+ - Praise without merit is more harmful than unearned criticism.
+ - Catholic theology believes that God gave man free will, and you can’t give somebody free will and then send in a play from the sidelines.
+ - If you have to ask what it symbolizes, it didn’t.
+ - Life always has an unhappy ending, but you can have a lot of fun along the way, and everything doesn’t have to be dripping in deep significance.
+ - Sometimes two people will regard each other over a gulf too wide to ever be bridged, and know immediately what could have happened, and that it never will.
+ - I will one day be thin, but Vincent Gallo will always be the director of The Brown Bunny.
+ - I like smart movies about smart people, and enjoy it when most of the facts are on the table and we can contemplate them together.
+ - I do not fear death. I know it is coming, and I do not fear it, because I believe there is nothing on the other side of death to fear.
+ - Going to a movie so you won’t be offended is like eating potato chips made with Olestra; you avoid the dangers of the real thing, but your insides fill up with synthetic runny stuff.
+ - In Hollywood, ‘under development’ means ‘all I have is the title.’
+ - Exhilarating. Radical Grace moved me to tears with its portrayal of good people putting their beliefs into action in ways that transcend all ideological boundaries.
+ - I was perfectly content before I was born, and I think of death as the same state. What I am grateful for is the gift of intelligence, and for life, love, wonder, and laughter. You can’t say it wasn’t interesting. My lifetime’s memories are what I have brought home from the trip.
+ - Well, we’re all dying in increments. I don’t mind people knowing what I look like, but I don’t want them thinking I’m dying.
+ - Life is made up of challenges that cannot be solved but only accepted.
+ - I was born inside the movie of my life. The visuals were before me, the audio surrounded me, the plot unfolded inevitably but not necessarily. I don’t remember how I got into the movie, but it continues to entertain me.
+ - Someone once said the fundamental reason we get married is because have a universal human need for a witness.
+ - Going to see Godzilla at the Palais of the Cannes Film Festival is like attending a satanic ritual in St. Peter’s Basilica.
+ - If there’s one thing I’ve learned in this life, it’s that you never say no to an old gypsy woman with a blind eye and leprous fingernails.
+ - The movie Ed Wood, about the worst director of all time, was made to prepare us for Stargate.
+ - Most of us do not consciously look at movies.
+ - Because we are human, because we are bound by gravity and the limitations of our bodies, because we live in a world where the news is often bad and the prospects disturbing, there is a need for another world somewhere, a world where Fred Astaire and Ginger Rogers live.
+ - The Last Airbender is an agonizing experience in every category I can think of and others still waiting to be invented. The laws of chance suggest that something should have gone right. Not here. It puts a nail in the coffin of low-rent 3D, but it will need a lot more coffins than that.
+ - Ridley Scott’s ‘Prometheus’ is a magnificent science-fiction film, all the more intriguing because it raises questions about the origin of human life and doesn’t have the answers.
+ - When I had been a film critic for ten minutes, I treated Doris Day as a target for cheap shots. I have learned enough to say today that the woman was remarkably gifted.
+ - There’s something depressing about a young couple helplessly in love. Their state is so perfect, it must be doomed. They project such qualities on their lover that only disappointment can follow.
+ - Aren’t you getting tired of people hating one another? What do they think they get out of it?
+ - If you want to save yourself the ticket price, go into the kitchen, cue up a male choir singing the music of hell, and get a kid to start banging pots and pans together. Then close your eyes and use your imagination.
+ - Just write, get better, keep writing, keep getting better. It’s the only thing you can control.
+ - The time in between my clapping is ma. If you just have non-stop action with no breathing space at all, it’s just busyness, But if you take a moment, then the tension building in the film can grow into a wider dimension. If you just have constant tension at 80 degrees all the time you just get numb.
+ - A depressing number of people seem to process everything literally. They are to wit as a blind man is to a forest, able to find every tree, but each one coming as a surprise.
+ - Of all the purposes of education, I think the most useful is this: It prepares you to keep yourself entertained. It gives you a better chance of an interesting job.
+ - Rollerball is an incoherent mess, a jumble of footage in search of plot, meaning, rhythm and sense. There are bright colors and quick movement on the screen, which we can watch as a visual pattern that, in entertainment value, falls somewhere between a kaleidoscope and a lava lamp.
+ - Troy is based on the epic poem The Iliad by Homer, according to the credits. Homer’s estate should sue.
+ - What every human being should do is eat a vegetarian diet based on whole foods. Period. That’s it. Animal protein is bad for you. Dairy is bad for you. Forget the ads: Milk and eggs are bad for you.
+ - Sarah Palin lacked the preparation or temperament to be one heartbeat away from the presidency, but what she possessed in abundance was the ability to inflame political passions and energize the John McCain campaign with star quality.
+ - It is human nature to look away from illness. We don’t enjoy a reminder of our own fragile mortality. That’s why writing on the Internet has become a life-saver for me. My ability to think and write have not been affected. And on the Web, my real voice finds expression.
+ - Movies that encourage empathy are more effective than those that objectify problems.
+ - And I think both the left and the right should celebrate people who have different opinions, and disagree with them, and argue with them, and differ with them, but don’t just try to shut them up.
+ - On this ancient and miraculous world, where such beautiful natural and living things have evolved, something has gone wrong when life itself is used as a manufacturing process.
+ - The Last Airbender is an agonizing experience in every category I can think of and others still waiting to be invented.
+ - If there’s anything I hate more than a stupid action comedy, it’s an incompetent stupid action comedy. It’s not so bad it’s good. It’s so bad it’s nothing else but bad.
+ - Jane Austen wrote six of the most beloved novels in the English language, we are informed at the end of Becoming Jane, and so she did. The key word is beloved. Her admirers do not analyze her books so much as they just plain love them to pieces.
+ - Wes Anderson’s mind must be an exciting place for a story idea to be born. It immediately becomes more than a series of events and is transformed into a world with its own rules, in which everything is driven by emotions and desires as convincing as they are magical.
+ - I am informed that 5,000 cockroaches were used in the filming of Joe’s Apartment. That depresses me, but not as much as the news that none of them were harmed during the production.
+ - By going to the movies, and because of other things, too, going to college, making a wide variety of friends, moving around traveling, I became a lot more open-minded than the heritage I was born into might have suggested.
+ - One of the weapons Marvel used in its climb to comic-book dominance was a willingness to invent new characters at a dizzying speed. There are so many Marvel universes, indeed, that some superheroes do not even exist in one another’s worlds, preventing gridlock.
+ - Nobody looks perfect. We have to find peace with the way we look and get on with life.
+ - Jacques Tati is the great philosophical tinkerer of comedy, taking meticulous care to arrange his films so that they unfold in a series of revelations and effortless delights.
+ - Nothing could be more boring than an absolutely accurate movie about the law.
+ - A truly strong woman will choose a stong man who disagrees with her over a weak one who goes along.
+ - Low self esteem involves imagining the worst that other people can think about you.
+ - Because of the rush of human knowledge, because of the digital revolution, I have a voice, and I do not need to scream.
+ - Now I see that all relationships are virtual, even those that take place in person. Whether we use our bodies or a keyboard, it all comes down to two minds crying out from their solitude.
+ - My motto: ‘No good movie is depressing. All bad movies are depressing.’
+ - Show me a sexual practice that involves ice cubes and hot sauce, and I will show you a sexual practice that would be improved without them.
+ - The buried code of many American films has become: If I kill you, I have won and you have lost. The instinctive ethical code of traditional Hollywood, the code by which characters like James Stewart, John Wayne and Henry Fonda lived, has been lost.
+ - What you see is so much less than what you get.
+ - If a movie is really working, you forget for two hours your Social Security number and where your car is parked. You are having a vicarious experience. You are identifying, in one way or another, with the people on the screen.
+ - Last year, I reviewed a nine-hour documentary about the lives of Mongolian yak herdsmen, and I would rather see it again than sit through The Frighteners.
+ - I’m told we movie critics praise movies that are long and boring.
+ - Under no circumstances will I ever purchase anything offered to me as the result of an unsolicited e-mail message. Nor will I forward chain letters, petitions, mass mailings, or virus warnings to large numbers of others. This is my contribution to the survival of the online community.
+ - You slide down in your seat and make yourself comfortable. On the screen in front of you, the movie image appears – enormous and overwhelming. If the movie is a good one, you allow yourself to be absorbed in its fantasy, and its dreams become part of your memories.
+ - What’s sad about not eating is the experience, whether at a family reunion or at midnight by yourself in a greasy spoon under the L tracks. The loss of dining, not the loss of food.
+ - Beguiled by George S. Bush’s easy smile and casual indifference to the details, we are on the brink of electing him to office. This isn’t choosing a president, it’s casting the lead in a sitcom about the presidency.
+ - To say that George Lucas cannot write a love scene is an understatement; greeting cards have expressed more passion.
+ - If a movie isn’t a hit right out of the gate, they drop it. Which means that the whole mainstream Hollywood product has been skewed toward violence and vulgar teen comedy.
+ - My lifetime’s memories are what I have brought home from the trip. I will require them for eternity no more than that little souvenir of the Eiffel Tower I brought home from Paris.
+ - We must try to contribute joy to the world.
+ - Dirty Love wasn’t written and directed, it was committed. Here is a film so pitiful, it doesn’t rise to the level of badness. It is hopelessly incompetent I am not certain that anyone involved has ever seen a movie, or knows what one is.
+ - It does seem true that a lot of people will do anything, however humiliating, for fame.
+ - When I write, I fall into the zone many writers, painters, musicians, athletes, and craftsmen of all sorts seem to share: In doing something I enjoy and am expert at, deliberate thought falls aside and it is all just THERE. I think of the next word no more than the composer thinks of the next note.
+ - When we’re discussing who to invite to a dinner party, my wife Chaz and I sometimes use the shorthand, ‘good value for money,’ which indicates guests expected to be entertaining.
+ - There are often lists of the great living male movie stars. How often do you see the name of Nicolas Cage? He should always be up there. He’s daring and fearless in his choice of roles, and unafraid to crawl out on a limb, saw it off and remain suspended in air.
+ - Only enormously talented people could have made Death to Smoochy. Those with lesser gifts would have lacked the nerve to make a film so bad, so miscalculated, so lacking any connection with any possible audience.
+ - If you can act as if something is true, in a sense that makes it true.
+ - What a terrible thing it would be to be the Pope! What unthinkable responsibilities to fall on your shoulders at an advanced age! No privacy. No seclusion. No sin.
+ - It’s funny that there was so much disturbance about having a Catholic in the White House with Kennedy, and when we finally get a religion in the White House that’s causing a lot of conflicts, and concerns, and disturbances for a lot of people, it’s in the Bush Administration.
+ - It is comforting to think that we can love so powerfully that fate itself wheels and turns at the command of our souls.
+ - If you pay attention to the movies they will tell you what people desire and fear. Movies are hardly ever about what they seem to be about. Look at a movie that a lot of people love, and you will find something profound, no matter how silly the film may be.
+ - Movies absorb our attention more completely, I think.
+ - Because we can engineer genetics, because we can telecast real lives-of course we must, right? But are these good things to do? The irony is, the people who will finally answer that question will be the very ones produced by the process.
+ - Well, you know what, I’m 60 years old, and I’ve been interested in politics since I was on my daddy’s knee. During the 1948 election, we were praying for Truman. I know a lot about politics.
+ - Anyone who reads advice books about romance has one problem to begin with: bad taste in literature.
+ - Growing up, I missed the whole ‘Three Stooges’ thing. Either they weren’t on the station in my hometown, or we hadn’t bought a TV set yet, or they came to town too late for me. I’m pretty sure that at the right age, I would have loved them.
+ - Are vampires kinky? I didn’t know.
+ - I know it is coming, and I do not fear it, because I believe there is nothing on the other side of death to fear. I hope to be spared as much pain as possible on the approach path. I was perfectly content before I was born, and I think of death as the same state.
+ - I know as a critic I’m required to have a well-armored heart. I must be a cynical wise guy to show my great sophistication. No pushover, me.
+ - Marlon Brando is the most influential movie actor of the century.
+ - Why is it that English, drama and music teachers are most often recalled as our mentors and inspirations? Maybe because artists are rarely members of the popular crowd.
+ - Films to the degree that they glorify mindlessness and short attention span they are bad, to the degree that they encourage empathy with people not like ourselves and encourage us to think about life, they are good.
+ - To make others less happy is a crime. To make ourselves unhappy is where all crime starts.
+ - Since any reasonable person would choose a Mac over a PC, Apple’s market share provides us with an accurate reading of the percentage of reasonable people in our society.
+ - A lot of people just go to movies that feed into their preexisting and not so noble needs and desires: They just go to action pictures, and things like that.
+ - In thinking about ‘depressing movies,’ many people don’t realize that all bad movies are depressing, and no good movies are.
+ - It’s a good question, because a movie isn’t good or bad based on its politics. It’s usually good or bad for other reasons, though you might agree or disagree with its politics.
+ - I don’t require movies to be about good people, and I don’t reject screen violence.
+ - A film is a terrible thing to waste.
+ - The film argues to the young that the old were young once, too, and contain within them all that the young know, and more.
+ - Why do alcoholics begin down the same hazardous road day after day? They are in search of that elusive window of well-being that opens when you drink your way out of a hangover and aren’t yet drunk all over again. The alcoholic’s day consists of trying to keep that window open.
+ - There is a movie called Fargo playing right now. It is a masterpiece. Go see it. If you, under any circumstances, see Little Indian, Big City, I will never let you read one of my reviews again.
+ - All good art is about something deeper than it admits.
+ - That’s what fantasies are for, to help us imagine that things are better than they are.
+ - I stopped taking notes on my Palm Pilot and started playing the little chess game.
+ - Horror fans are a particular breed. They analyze films with such detail and expertise that I am reminded of the Canadian literary critic Northrup Frye, who approached literature with similar archetypal analysis.
+ - A corner is important. It provides privacy and an anchor and lets you exist independently of the room.
+ - But considering that I walked in expecting no complexity at all, let alone the visual wonderments, ‘Snow White and the Huntsman’ is a considerable experience.
+ - Dogs remember every favor you ever do for them and store those events in a memory bank titled Why My Human Is A God.
+ - The layout was griping, the glide is awesome. Two ten-inch fins up, way up.
+ - We can’t help identifying with the protagonist. It’s coded in our movie-going DNA.
+ - It is universally agreed that Jean Renoir was one of the greatest of all directors, and he was also one of the warmest and most entertaining.
+ - Samurai films, like westerns, need not be familiar genre stories. They can expand to contain stories of ethical challenges and human tragedy.
+ - To die is one thing. How much worse to know that all the life that ever existed on this planet, and all it ever achieved, was to be obliterated?
+ - I begin to feel like I was in the last generation of Americans who took a civics class.
+ - Some movies run off the rails. This one is like the train crash in The Fugitive. I watched it in mounting gloom, realizing I was witnessing something historic, a film that for decades to come will be the punch line of jokes about bad movies.
+ - I’m kind of glad the web is sort of totally anarchic. That’s fine with me.
+ - Families and their problems go on and on, and they aren’t solved, they’re dealt with.
+ - What makes people interesting is the spirit that shines through.
+ - Films like Fargo are why I love the movies.
+ - All over the web there are some very good critics and it’s become for people who are interested. It’s become a very good way to get to reviews and involve yourself in discussions.
+ - I don’t think Bush was legitimately elected President.
+ - 3-D is a waste of a perfectly good dimension. Hollywood’s current crazy stampede toward it is suicidal. It adds nothing essential to the moviegoing experience. For some, it is an annoying distraction. For others, it creates nausea and headaches.
+ - Occasionally an unsuspecting innocent will stumble into a movie like this and send me an anguished postcard, asking how I could possibly give a favorable review to such trash. My stock response is Ebert’s Law, which reads: A movie is not about what it is about. It is about how it is about it.
+ - It’s the worst kind of bad film: the kind that gets you all worked up and then lets you down, instead of just being lousy from the first shot.
+ - When I go to a great movie, I can live somebody else’s life a little bit for a while. I can walk in somebody else’s shoes. I can see what it feels like to be a member of a different gender, a different race, a different economic class, to live in a different time, to have a different belief.
+ - Most people choose movies that provide exactly what they expect, and tell them things they already know. Others are more curious. We are put on this planet only once, and to limit ourselves to the familiar is a crime against our minds.
+ - The Golden Thumb is not as good as the Oscar, but it is a lot of fun.
+ - We can now have action movies with two stars where one might be African American and one might be Asian American. One of them doesn’t have to be white, and the other one doesn’t have to be the ethnic sidekick. We’re way over that. And I think it’s happening in society, too.
+ - Blockbusters run the mainstream industry. We may never again have a decade like the 1970s, when directors were able to find such freedom.
+ - Steve Coogan picks up enough to lecture an interviewer: This is a postmodern novel before there was any modernism to be post about. Later it’s claimed that Tristram Shandy was No. 8 on the Observer’s list of the greatest novels, which cheers everyone until they discover the list was chronological.
+ - Time is what the depressed and panicked lack.
+ - I think we have to get beyond the idea that we have to categorize people.
+ - I am grateful for the gifts of intelligence, love, wonder and laughter. You can’t say it wasn’t interesting.
+ - Valentines Day is being marketed as a Date Movie. I think its more of a First-Date Movie. If your date likes it, do not date that person again. And if you like it, there may not be a second date.
+ - Oh, here comes Mel Blanc, the voice of Bugs Bunny and Jimmy Smits!
+ - There must be a better reason to have a baby than to provide a plot point in a rom-com. Don’t you think?
+ - Not everyone needs to be slammed into a category and locked there.
+ - It’s easier to identify with loss than love, because we have had so much more experience of it.
+ - Sometimes miraculous films come into being, made by people you’ve never heard of, starring unknown faces, blindsiding you with creative genius.
+ - Film theory has nothing to do with film.
+ - It’s strange: We leave the movie having enjoyed its conclusion so much that we almost forgot our earlier reservations. But they were there, and they were real.
+ - Battlefield Earth is like taking a bus trip with someone who has needed a bath for a long time. It’s not merely bad; it’s unpleasant in a hostile way.
+ - If you plan to miss this movie, better miss it quickly; I doubt if it’ll be around to miss for long.
+ - All but a very few of us are in debt. We exist as entities who borrow money and spend the rest of our lives making interest payments on a debt tally that never seems to budge. Whatever wealth we have, in labor, property or cash, is suctioned to the top.
+ - Yes, I was fat, but I dealt with it by simply never thinking about it. It is useful, when you are fat, to have a lot of other things to think about.
+ - Who was the real Hitchcock? I interviewed him once and haven’t a clue.
+ - I think most people are more susceptible to prejudice than to reason.
+ - It’s like the high school production of something you saw at Steppenwolf, with the most gifted students in drama class playing the John Malkovich and Joan Allen roles.
+ - Many really good films allow us to empathize with other lives.
+ - Start. Don’t look back. If at the end it doesn’t meet your hopes, start again. Now you know more about your hopes.
+ - A lot of first novels are written long before they’re actually put down on paper.
+ - Here’s how much I know about hockey. Mike Royko and I were in a tiny bar one winter night, and the radio kept reporting goals by the Blackhawks. I mentioned how frequently the team was scoring. ‘You’re listening to the highlights,’ Royko observed.
+ - I’ll tell you, I think that the Internet has provided an enormous boost to film criticism by giving people an opportunity to self publish or to find sites that are friendly.
+ - It is human nature to look away from illness. We don’t enjoy a reminder of our own fragile mortality.
+ - And the sexes eyeing each other uneasily, for nothing is easier for a teenager to imagine than rejection.
+ - The Academy is paranoid about its image.
+ - In the world of acting, many are thin but few are talented.
+ - It often strikes me that the actors in high school movies look too old.
+ - Nicholas Sparks recently went on record as saying he is a greater novelist than Cormac McCarthy. This is true in the same sense that I am a better novelist than William Shakespeare.
+ - One hopeful sign that the filmmakers can learn and grow is that the sequel does not contain a single pie, if you know what I mean.
+ - Clouds do not really look like camels or sailing ships or castles in the sky. They are simply a natural process at work. So too, perhaps, are our lives.
+ - One sign of a great actor is when he can be alone by himself on the screen, doing almost nothing, and producing one of a film’s defining moments.
+ - Why are some people bullied? Because they are different. How? It doesn’t matter.
+ - A remarkable documentary that’s also one of the most beautiful nature films I’ve seen.
+ - We think of first love as sweet and valuable, a blessed if hazardous condition.
+ - I believe that if, at the end, according to our abilities we have done something to make others a little happier, and something to make ourselves a little happier that is about the best we can do.
+ - Skateboarding is forever, and things like college and girls only ruin an endlessly savored adolescence.
+ - Much has been written about Generation X and the films about it. Clerks is so utterly authentic that its heroes have never heard of their generation. When they think of “X,” it’s on the way to the video store.
+ - From a dramatic viewpoint, there are few professions that grant their members entry into other lives, high among them cops, doctors, clergymen, journalists and prostitutes. Perhaps that explains why they figure in so much television and cinema. Their lives are lived in the midst of human drama.
+ - One difference between film noir and more straightforward crime pictures is that noir is more open to human flaws and likes to embed them in twisty plot lines.
+ - All I know is, it is better to be the whale than the squid.
+ - I think that probably the – I don’t give quotes to studios. They have to get those out of the paper or from television. So they wouldn’t have had my quote opening day.
+ - No good movie is too long and no bad movie is short enough.
+ - I am, beneath everything else, a fan. I was fixed in this mode as a young boy and am awed by people who take the risks of performance.
+ - Artists are rarely members of the popular crowd.
+ - To call A Lot like Love dead in the water is an insult to water.
+ - All I require of a religion is that it be tolerant of those who do not agree with it.
+ - No matter what they’re charging to get in, it’s worth more to get out.
+ - We are poor mortals, but it dreams to us that we can fly.
+ - I’ve never found kicks to the groin particularly funny, although recent work in the genre of the buddy movie suggests audience research must prove me wrong.
+ - It has been said that the reason we establish relationships is to assure ourselves of a witness to our lives.
+ - As I swim through the summer tide of vulgarity, I find that’s what I’m looking for: Movies that at least feel affection for their characters. Raunchy is OK. Cruel is not.
+ - One, don’t wait for inspiration, just start the damned thing. Two, once you begin, keep on until the end. How do you know how the story should begin until you find out where it’s going?
+ - Who wants to live in the present? It’s such a limiting period compared to the past.
+ - The screenplay is so well-written in a scruffy, fanzine way that you want to rub noses in it – the noses of those zombie writers who take ‘screenwriting’ classes that teach them the formulas for ‘hit films.’
+ - Class is often invisible in America in the movies, and usually not the subject of the film.
+ - A few actresses have all but set up shop as women of a certain age who attract younger lovers. I think of Susan Sarandon, Cameron Diaz and Isabelle Huppert.
+ - James Cameron’s films have always been distinguished by ground-breaking technical excellence.
+ - In my reviews, I feel it’s good to make it clear that I’m not proposing objective truth, but subjective reactions; a review should reflect the immediate experience.
+ - You can’t just tell actors, especially young ones, to ‘act happy’ and expect them to do it. They must in some essential way be happy.
+ - If your religion doesn’t respect the rights of other religions, it is lacking something.
+ - We must try to contribute joy to the world. I didn’t always know this and am happy I lived long enough to find it out.
+ - I do suspect my star ratings average too high. But, of course, star ratings are ridiculous. I’m stuck with them.
+ - There are few lonelier sights than a good comedian being funny in a movie that doesn’t know what funny is.
+ - Dogs notice, they share, they draw conclusions, they like it when they’re able to be of service and are touchingly grateful when they’re praised.
+ - I know aliens from other worlds are required to arrive in New Mexico, but why stay there?
+ - In Blue Crush, we meet three Hawaiian surfers who work as hotel maids, live in a grotty rental, and are raising the kid sister of one of them. Despite this near-poverty, they look great; there is nothing like a tan and a bikini to overcome class distinctions.
+ - Friends don’t let Jackasses drink and drive.
+ - It is hard enough to be good at all, but to be good in comedy speaks for your character.
+ - It is not enough for a movie to be righteous. It must also be watchable.
+ - I began to realize that I had tended to avoid some people because of my instant conclusions about who they were and what they would have to say. I discovered that everyone, speaking honestly and openly, had important things to tell me.
+ - What happens in a fantasy can be more involving than what happens in life, and thank goodness for that.
+ - Sometimes you only need to have a few words with a person to know you would like to have many more.
+ - Cinema, for me, has always been something like music composed with photographic images.
+ - Pixar is the first studio that is a movie star.
+ - I just assume I’m right. Partially out of conviction and partially as a pose.
+ - Steven Spielberg makes Minority Report with the newest digital technology; other directors seem to be trying to make their movies from it.
+ - Movies are not about moving, but about whether to move.
+ - Sometimes it’s all about the casting.
+ - If Hollywood stars speak out, so do all sorts of other people. Now Hollywood stars can get a better hearing.
+ - The right really dominates radio, and it’s amazing how much energy the right spends telling us that the press is slanted to the left when it really isn’t. They want to shut other people up. They really don’t understand the First Amendment.
+ - Why has Scandinavia been producing such good thrillers? Maybe because their filmmakers can’t afford millions for CGI and must rely on cheaper elements like, you know, stories and characters.
+ - We are the playthings of the gods.
+ - Resentment is just a way of letting someone else use your mind rent-free.
+ - I believe empathy is the most essential quality of civilization.
+ - Of what use is freedom of speech to those who fear to offend?
+ - The moment a man stops dreaming is the moment he petrifies inside.
+ - What I believe is that all clear-minded people should remain two things throughout their lifetimes: Curious and teachable.
+ - Clint, my hero, is coming across as sad and pathetic. He didn’t need to do this to himself. It’s unworthy of him.
+ - It is more erotic to wonder if you’re about to be kissed than it is to be kissed.
+ - If you find an occupation you love and spend your entire life working at it, is that enough?
+ - People never think of themselves as choosing to be politically correct. They simply think in the way that they do.
+ - It’s the same the world over. A Hollywood production comes to town, and the locals all turn movie crazy.
+ - I remember when a Coke came in a six-ounce bottle, and delicious it was. Now it comes in sizes so big that I question how the human bladder can deal with the intake.
+ - But the fact is, most people are not going to be rich someday.
+ - CROUCHING TIGER is nevertheless a gloriously big epic, starring the Hong Kong action stars Chow Yun-Fat and Michelle Yeoh in a visionary adventure where the characters seem set free from the force of gravity.
+ - In the best of all possible worlds, directors would obsess about the quality of their storytelling, and not the details of their technical methods.
+ - Here’s a notion: Peace in the Middle East would come about more easily if the region were governed by women.
+ - Film has become a marketed commodity, and the opportunities and audiences for art cinema have grown smaller. There is a general downturn in cultural literacy, perhaps because of television.
+ - We don’t have a lot of class-conscious filmmaking.
+ - I have always had my doubts about any form of divine intervention in sports contests. The power of prayer may be remarkable in many other arenas, but why should God want my team to win instead of the other side? Isn’t it insulting to request God to even take an interest in baseball?
+ - Because I don’t give the studios advanced quotes or an advanced look at my reviews. I think the readers deserve to read my reviews before the studios do.
+ - It’s not often a thriller keeps me wound up as well as ‘Headhunters’ did. I knew I was being manipulated and didn’t care. It was a pleasure to see how well it was being done.
+ - A young girl is possessed by a devil, and Constantine shouts, ‘I need a mirror! Now! At least three feet high!’ He can capture the demon in the mirror and throw it out the window, see, although you wonder why supernatural beings would have such low-tech security holes.
+ - I find that when I am actually writing, I enter a zone of concentration too small to admit my troubles.
+ - I believe that young people wearing hoods, unless they are very young, can be frightening. What are they hiding? Why don’t they want to come out into the light with the rest of us? They may be perfectly nice, but the hoods send an uncertain statement.
+ - We exist to have our wealth moved up the economic chain out of our reach.
+ - It amazes me that filmmakers will still film, and audiences will still watch, relationships so bankrupt of human feeling that the characters could be reading dialogue written by a computer.
+ - We feel the same emotions for our ideas as we do for the real world, which is why we can cry while reading a book, or fall in love with movie stars.
+ - I am utterly bored by celebrity interviews. Most celebrities are devoid of interest.
+ - I am proudly a liberal. I am also patriotic, reasonable, pro-American, and stand for family values.
+ - We spend too much time hiding illness.
+ - I felt it would to add a great deal to my legend for eccentricity.
+ - I was perfectly content before I was born, and I think of death as the same state.
+ - When I am writing my problems become invisible and I am the same person I always was. All is well. I am as I should be.
+ - Many thrillers follow such reliable formulas that you can look at what’s happening and guess how much longer a film has to run.
+ - It’s rare to find a film that goes for broke and says, ‘To hell with the consequences.’
+ - I urgently advise hospitals: Do not make the DVD available to your patients; there may be an outbreak of bedpans thrown at TV screens.
+
+291 quotes

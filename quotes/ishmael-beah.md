@@ -1,0 +1,23 @@
+ - We must strive to be like the moon.
+ - My squad is my family, my gun is my provider, and protector, and my rule is to kill or be killed.
+ - Some nights the sky wept stars that quickly floated and disappeared into the darkness before our wishes could meet them.
+ - My teeth became sour as I listened to his story. It was then that I understood why he was quiet all the time.
+ - We must live in the radiance of tomorrow, as our ancestors have suggested in their tales. For what is yet to come tomorrow has possibilities, and we must think of it, the simplest glimpse of that possibility of goodness. That will be our strength. That has always been our strength.
+ - We all find joy and radiance and a reason to move on even in the most dire of circumstances. Even in chaos and madness, theres still a beauty that comes from just the vibrancy of another human spirit.
+ - I am always quiet so that I know what to say when I must speak.
+ - In the sky there are always answers and explanations for everything: every pain, every suffering, joy and confusion.
+ - My childhood had gone by without my knowing, and it seemed as if my heart had frozen.
+ - This is one of the consequences of the civil war. People stop trusting each other, and every stranger becomes an enemy.
+ - I lay in my bed night after night staring at the ceiling and thinking, Why have I survived the war? Why was I the last person in my immediate family to be alive? I didn’t know.
+ - In early 1993, when I was 12, I was separated from my family as the Sierra Leone civil war, which began two years earlier, came into my life.
+ - I was still hesitant to let myself let go, because I still believed in the fragility of happiness.
+ - I joined the army to avenge the deaths of my family and to survive, but I’ve come to learn that if I am going to take revenge, in that process I will kill another person whose family will want revenge; then revenge and revenge and revenge will never come to an end...
+ - I get a chance to observe the moon now, I still see those same images I saw when I was six, and it pleases me to know that that part of my childhood is still embedded in me.
+ - Whenever I speak at the United Nations, UNICEF or elsewhere to raise awareness of the continual and rampant recruitment of children in wars around the world, I come to realize that I still do not fully understand how I could have possibly survived the civil war in my country, Sierra Leone.
+ - I believe that there is a God, and coming from an African tradition, I believe also that there are gods.
+ - The places I come from have such rich languages, such a variety of expression. In Sierra Leone we have about fifteen languages and three dialects. I grew up speaking about seven of them.
+ - This days one must be careful to avoid awakening the pain of another.
+ - How many more times do we have to come to terms with death before we find safety?
+ - As a kid in Africa, you were so connected to nature itself because you went farming, watched the moon out at night, observed how the sky was different, and how the birds chanted different songs in the evening and the morning.
+
+21 quotes

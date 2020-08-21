@@ -1,0 +1,98 @@
+ - I am a winner each and every time I go into the ring.
+ - Being angry and resentful of someone is like letting them live rent-free in your head.
+ - Read the Bible; it is your roadmap through life.
+ - Without appreciation and respect for other people, true leadership becomes ineffective, if not impossible.
+ - Don’t try to reinvent the wheel. Just learn from the guys who have already done it well. You need a mentor, a seasoned coach who is willing to share his wisdom and experience with you. Ask someone who has already been successful to guide you.
+ - If you want it, leave your excuses behind and come and get it.
+ - You live and learn. Then you die and forget it all.
+ - If something is worth doing, it is worth doing right. I take that one step further. You shouldn’t do anything unless you do it right.
+ - Learn to sell and you’ll never starve.
+ - That’s my gift. I let that negativity roll off me like water off a duck’s back. If it’s not positive, I didn’t hear it. If you can overcome that, fights are easy.
+ - It’s great to reminisce about good memories of my past. It was enjoyable when it was today. So learning to enjoy today has two benefits: it gives me happiness right now, and it becomes a good memory later.
+ - Boxing is like jazz. The better it is, the less people appreciate it.
+ - Don’t let any opportunity lead you away from serving God. That’s a price that’s too high to pay.
+ - I always carried a small American flag red white and blue with me so people would know I was from America.
+ - If you don’t dream, you might as well be dead.
+ - Boxing is the sport to which all other sports aspire.
+ - Plant a seed of greatness in your children. Speak a word of encourgement to someone who needs to hear it. Inspire someone to be a better person. One day you’ll reap a harvest, and your world will become a better place to live.
+ - People trust me. I sell sincerity.
+ - Filling a need is not merely good business; it’s a basic attitude towards life. If you see a need, do whatever you can to meet that need.
+ - I hit Ali with everything and he said ‘is that all you got’ and I said ‘yeah, that’s pretty much it.’
+ - I want to keep fighting because it’s the only thing that keeps me out of the hamburger joints. If I don’t fight, I’ll eat this planet.
+ - All the dogs I have are German shepherds from Germany, and I fly them back to Germany to show them.
+ - The question isn’t at what age I want to retire, it’s at what income.
+ - I’m working for the Lord, and even though the Lord’s pay isn’t very high, his retirement program is.
+ - I know from experience that you should never give up on yourself or others, no matter what.
+ - Just look at the great Nelson Mandela. He came out of prison and saved his entire country. Some of the best people in the world have spent time in prison.
+ - Choose wise and Godly people to advise you.
+ - Sure the fight was fixed. I fixed it with a right hand.
+ - Everybody wants to be somebody. The thing you have to do is give them confidence they can. You have to give a kid a dream.
+ - We, too, need to be patient, especially when it comes to reaching new goals.
+ - The age of 40 is not a death sentence.
+ - After you work out, you have your dog with you. There’s no better companion. You’ve got to have a friend. I didn’t like opponents who had dogs with them. Because you know they had a little edge. They have a friend.
+ - George Foreman. A miracle. A mystery to myself. Who am I? The mirror says back. The George you was always meant to be. Wasn’t always like that. Used to look in the mirror and cried a river.
+ - Changing your nature is the hardest thing to do. But I discovered that you can be who you choose to be.
+ - The Rope a Dope would not have existed without the Big Dope.
+ - As bad as your situation may be, someone else always has it worse than you.
+ - I think sleeping was my problem in school. If school had started at 4:00 in the afternoon, I’d be a college graduate today.
+ - A Jack Russell terrier? My god. He’ll burn you up. They never stop. A German shepherd, you can only go so many miles.
+ - I look at my children and one thing I’m most proud of, in my heart, are my children.
+ - No doubt about it, in my career Ron Lyle hit me the hardest. One time he hit me so hard I didn’t see it until I saw it on film when I woke up!
+ - If you can look in your mother’s eyes and she’s proud of you, then you’re a champion.
+ - Heroes have a rough time because they stand up when they ought not to, they speak when they ought not to; they always have to go that extra mile.
+ - Anybody going into boxing already has brain damage.
+ - Sonny Liston stood up to me and actually made me give ground. No one has ever done that to me before or since.
+ - You may have even an ex-wife or an ex-husband, but you can never have ex-children.
+ - Many people fail not so much because of their mistakes; they fail because they are afraid to try.
+ - I respect that you want to protect your niece. You know, I didn’t want my daughter to become a boxer. Neither did Mohammad. But Joe Frazier, on the other hand, he had his baby girl boxing in the crib.
+ - Evil lurks where disappointment lodges...
+ - My kids idea of a hard life is to live in a house with only one phone.
+ - As an entrepreneur, don’t follow the crowd; let them follow you.
+ - Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
+ - In boxing, I had a lot of fear. Fear was good. But, for the first time, in the bout with Muhammad Ali, I didnt have any fear. I thought, This is easy. This is what Ive been waiting for. No fear at all. No nervousness. And I lost.
+ - People are hurt in love affairs and never recover, more than a boxing match.
+ - I’m the world heavyweight champion. I consider myself a citizen of the whole world.
+ - That gal’s all skull and no brains. She’s like Joe Frazier with lipstick.
+ - One of my goals is to inspire everyone I meet to become a better person.
+ - Today the biggest decisions I make aren’t related to the heavyweight title. They are whether I visit McDonalds, Burger King, Wendy’s, or Jack-in-the-Box.
+ - A hero is someone right who doesn’t change.
+ - Growing up poor, I didn’t even have a lunch to take to school.
+ - There ain’t nothing like being in the corner, and the trainer is whispering in your ear and another guy is putting in your mouthpiece. Five seconds to go, the boom! The bell. It’s more exciting than looking down a cliff.
+ - When I was a kid in Houston, we were so poor we couldn’t afford the last 2 letters, so we called ourselves po’.
+ - If you want to be obsessed to be your best, you must get ride of the negative things that are weighing you down.
+ - I didn’t come back for the money. I just got sick of beating people up for free.
+ - If I could take a punch like that, I might have been able to think up a name besides George for all my sons.
+ - They say I don’t fight guys unless they’re on a respirator. That’s incorrect. They have to be at least 3 days off a respirator.
+ - There’s never been a boxer better than Joe Louis. You’d take one shot from him and you were sure he’d have seven or eight more coming for you. Certainly Muhammad Ali was the greatest man ever to fight, but not the greatest boxer.
+ - I’ve seen George Foreman shadow boxing and the shadow won.
+ - As a matter of fact, there was a period of time, especially in my first career, when that’s the only one who would work out with me: my dogs. As you get better and better working out, there’s no one who can keep up with you running.
+ - Excellence isn’t achieved without inspiration and perspiration. You’ve got to have both.
+ - The Internal Revenue Service is the real undefeated heavyweight champion.
+ - I was a tiger, a good fighter, in good shape, but I was always nervous before boxing matches.
+ - A boxer never sees the big one that hits him.
+ - There’s more to boxing than hitting. There’s not getting hit, for instance.
+ - Let the other guy have whatever he wants before the fight. Once the bell rings he’s gonna be disappointed anyway.
+ - My whole family likes to play basketball. George II plays for his high school team and George III and George IV and George V are going to be good players. One day we’re going to have a team and call it Georgetown.
+ - I think its so good for boxing when a new guy or new blood as we call it, makes a big statement.
+ - I get up in the morning looking for an adventure.
+ - As a child I was sometimes so hungry that I used to dream that one day I’d get locked in a grocery store.
+ - All my sons are named George Foreman. They all know where they came from.
+ - If you can maintain that integrity in whatever you do, you can’t go wrong.
+ - It embarrasses me to think of all those years I was buying silk suits and alligator shoes that were hurting my feet; cars that I just parked, and the dust would just build up on them.
+ - You never help others by allowing them to getaway with giving less than their best efforts.
+ - My mother was watching on television and she doesn’t want me to hurt anyone.
+ - All I’ve ever tried to tell anyone is that I’m not a black man or a white man or anything else. All I’ve ever been was an American.
+ - I wanted the world to know where I was from. I wanted to say to the world, “We gotcha.” America gotcha.
+ - Anytime I can sneak in a moment to fish and ride horses, I’m a happy camper!
+ - I hope to have one more boxing match at the age of 55. Given that demographic at the age of 55 to 65, you’ve got to make a statement with your life. Otherwise, you are just existing.
+ - Nobody can do everything well, so learn how to delegate responsibility to other winners and then hold them accountable for their decisions.
+ - The referee is going to be the most important person in the ring tonight besides the fighters.
+ - I didn’t love school because I wanted to disguise that I was poorer than everybody else. So when I was a teen I reached out in a wrong way. I started to be a mugger, to rob people in the streets, just to supply for my needs.
+ - Everything America should be, Muhammad Ali is.
+ - As long as I’m reading, I’m at home.
+ - When I was a boxer, I wanted to be champion of the world, not the richest man in the world.
+ - I cannot remember a time when I was not getting into fights.
+ - I do believe he’s the greatest, but forget about boxing – give that to Joe Louis, or somebody – I believe he’s one of the greatest men I’ve ever met.
+ - To be successful in life, you must get in the habit of turning negatives into positives.
+
+96 quotes

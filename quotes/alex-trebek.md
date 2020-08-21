@@ -1,0 +1,23 @@
+ - We are all experts in our own little niches.
+ - Please phrase your answer in the form of a question.
+ - If you can’t be in awe of Mother Nature, there’s something wrong with you.
+ - I tried to do my best impression of The Jonas Brothers, but no matter how hard I tried I ended up looking cool!
+ - I don’t gamble, because winning a hundred dollars doesn’t give me great pleasure. But losing a hundred dollars pisses me off.
+ - My life is what it is, and I can’t change it. I can change the future, but I can’t do anything about the past.
+ - It’s very important in life to know when to shut up. You should not be afraid of silence.
+ - What goes 0-300 in less than 2 seconds? Your mother on a scale.
+ - Don’t minimize the importance of luck in determining life’s course.
+ - Don’t tell me what you believe in. I’ll observe how you behave and I will make my own determination.
+ - My musical development stopped when Frank Sinatra died.
+ - I’m curious about everything – even things that don’t interest me.
+ - My dad drank pretty heavily, and he never missed a day of work in his life. So I never looked at drinking as a serious problem, but drugs to me are a serious problem. I think it’s a generational thing. I think older people don’t feel as uncomfortable around drinkers as they do around dopers.
+ - When I finish as the host of ‘Jeopardy!’ I’m going to go up to Taft in central California. They have a small college there that teaches you about oil drilling.
+ - I had only been a citizen for two weeks when I received a summons to appear for jury duty!
+ - The only reason I got into broadcasting was, I needed money to pay for my junior and senior years at college, and they hired me, those fools!
+ - I have an Apple computer, which I use to play Spider Solitaire and do research on the Internet.
+ - You should never wear a baseball cap when working in close quarters in the attic: You never see that beam above you!
+ - Saying that I’ve THOUGHT about it doesn’t mean that I’m DOING it.
+ - My job is to provide the atmosphere and assistance to the contestants to get them to perform at their very best. And if I’m successful doing that, I will be perceived as a nice guy, and the audience will think of me as being a bit of a star.
+ - I did everything – I did newscasts, I did sports, I did dramas.
+
+21 quotes

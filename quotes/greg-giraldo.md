@@ -1,0 +1,49 @@
+ - I like when people give up chocolate for Lent. Ooh, just like being nailed to a cross.
+ - A good joke provides tension, and then, release of that tension. You build the tension by saying things that are controversial. The release is the laugh. The bigger the surprise or insight in your joke, the bigger the laugh.
+ - Sometimes you have to suffer a little bit in your youth to motivate yourself to succeed in later life. If Bill Gates had got laid in high school, do you think there’d be a Microsoft?
+ - People always want to compare their dogs to having kids. That’s insulting. First of all, nobody has a dog because they were too drunk to pull out.
+ - When I heard you could get a disease from playing with your prairie dog, I thought, ‘Wow, what a euphemism.’ I thought playing with my prairie dog was the best way to avoid diseases.
+ - If you spend five minutes with me or watch me try to balance my checkbook, you can only imagine the disaster I would make of anyone’s legal issues.
+ - People come to this country from all over the world to pursue their dreams of driving a taxi or selling hot dogs or working in a sweatshop.
+ - On a day-to-day basis, you get tired of waiting to be accepted. In show business, someone else has to say that you’re good or that you’re worth going to see or worth taping a show. There’s a lot of pain here. There’s a lot of pain inside. I’m a sad, crying-on-the-inside kind of clown.
+ - My advice to graduates is to stay positive. Life is short, and you’ll be dead soon.
+ - We need more money for schools. We need more money for the kids. Ever think maybe the damn kids aren’t worth it?
+ - Gilbert Gottfried is famously cheap. I’m impressed you’re here Gilbert. You gotta buy new clothes and take a week off work just to do this. But you showed up. You tightened your belt and you came. You’re like David Carradine.
+ - Norm MacDonald is here – one of the funniest people ever. Norm’s got a giant gambling problem. He’s dropped more coin in a casino than Michael J. Fox at a parking meter.
+ - There hasn’t been a more effeminate Jew in the closet since Anne Frank.
+ - A dangerous fire retardant chemical is being found in women’s breast milk. My wife’s breastfeeding, but you know, you gotta be an optimist. I’m like, well, maybe it’s making my child fireproof.
+ - The reality is I’m not a ‘get knocked down and come back harder’ kind of guy.
+ - The things that make me laugh are considered smart or whatever, I guess. But stuff that’s self-consciously intelligent or self-consciously hip or cool, that doesn’t do it for me either. You just try to be funny.
+ - Look at the insane things the Jews believe. The Jews believe that Barbra Streisand is worth $1,000 bucks a ticket.
+ - There are more whipped guys on television than there were on the Amistad.
+ - The reality is I’m not this person with this driving ‘get it done’ attitude.
+ - Look at Thomas Jefferson. The guy had illegitimate kids in the 1700s, and they caught him last year. If you cheat on your wife and cover it up for 200 years, you’re pretty much thinking you’re home free.
+ - In catholisism we have an entire religion based on a woman who really stuck to her story.
+ - Jesse has opened for me extensively on the road so I’ve seen him do hundreds of sets. He is always super funny, has tons of material and the crowds love him. Bottom line, Jesse Joyce is a great comedian.
+ - Little did I know that earning a living at stand-up is the hardest thing you can do. But once I started doing it, I just loved it, and I realized that I was actually kinda good at it, and then that was it.
+ - The hardest part, for real, is probably when you just don’t feel like going on stage and being funny.
+ - You got a cop under five feet tall, what if he’s gotta plant evidence on a high shelf? What then? What if he’s gotta chase a suspect onto a ride at Disneyland?
+ - Americans are not gonna conserve. We’re not gonna shift to smaller cars. We can’t – we have big, fat kids.
+ - Seventy-two virgins – does that make sense to anyone? And it’s an ancient religion, maybe it was misinterpreted? Maybe it’s not 72 virgins, maybe it’s a 7-foot-2 Persian.
+ - Some people are just really goofy kind of guitar acts, and they go out and do these colleges and start making a fortune pretty early on. And other people – I know guys who are great comics, who’ve done the Letterman show many times, who still barely pay their bills.
+ - Terrorism is obviously on everybody’s mind. The other day my son says to me, ‘Daddy, how come the bad men hate us?’ How sad is that? I actually got tears in my eyes – because he’s 18. What kind of a moron am I raising?
+ - You think they could stop putting these experts on the news with their doomsday scenarios of how the terrorists might attack us? Because you get the sense they’re coming up with ideas that these people haven’t thought of themselves.
+ - We’re a spoiled, lazy culture, full of ethnic pride that has to have a parade for every nationality.
+ - All the evidence we need that God is angry with us is Justin Timberlake’s career.
+ - Christine Todd Whitman had to resign as the head of the EPA. You know, when the governor of New Jersey decides the environment is hopeless, you gotta really think that one through.
+ - Why do we need another station where everyone has a gun? We already have BET.
+ - It’s something like 70% of American adults are obese, and the rest of them are women on Ally McBeal.
+ - Joke stealing is a big deal to me, but I mean, I’m not going to investigate it if it doesn’t effect me directly.
+ - Even before the kids are born, you’ve go to make these decisions. If it’s a boy, do we get him circumcised? If it’s a girl, do we keep her?
+ - How many of you text message? It’s a great way of not communicating.
+ - Ice-T is so old that the first thing he bought with the money from his album sales was his freedom.
+ - If you’re going to dedicate your career to ranting about the excesses of American capitalism, you probably shouldn’t weigh 450 pounds.
+ - It’s hard to distinguish when I was actually struggling from when I only felt like I was struggling – which was pretty much always.
+ - If being a gangster were a prerequisite to being a musician, there’d be a lot less cello music, for example.
+ - Do you know how short you have to be to have a Napoleon complex in North Korea?
+ - You try not to have a favorite when you have sons or kids. Can’t have a favorite. Can’t let them know know if you do. I don’t. I treat my main son and the other two exactly the same way.
+ - The only reason we’re not in Iran now is because we’re going alphabetically and George Bush can’t spell.
+ - I’ve always had real trouble knowing what my actual desires and goals are. I’ve just been dragged along by fate.
+ - If I drive my SUV I’m supporting terrorism. Okay, I’ll take a taxi, Is that better?
+
+47 quotes

@@ -1,0 +1,39 @@
+ - Take care of yourselves, and each other.
+ - We are all born as empty vessels which can be shaped by moral values.
+ - Vegetarianism is a good idea.
+ - I should get a weekend show where all I do is play country music.
+ - You fight to defend a lover, not to win one. If you do, it isn’t love.
+ - It’s just a show. It’s not the end of Western Civilization. It’s chewing gum.
+ - You’re a transsexual fighting with a hermaphrodite over a mistress.
+ - If you can’t be committed to another person, at least be committed to the concept of character and don’t cheat.
+ - I’m a happy guy, but if I’m in a rare dark mood, I won’t go out because I don’t want to be horrible to people.
+ - I play a crazy talk-show host, but that’s not me. It’s like an actor playing a role.
+ - In one generation, my family went from extermination simply because of how they pray to God to this ridiculously privileged life I live today. So how can I not love America?
+ - TV is a huge draw. It’s a magnet. Even when I was a policeman, if I was on a police scene and the news showed up, I’d race home to see if I would be on TV for 2 seconds!
+ - Love is great for us, but we don’t always love who is great for us.
+ - Somewhere in the land, a monster lurked.
+ - I’m not conflicted. Because I know. There’s me, and there’s the show.
+ - I like the idea that there’s no censorship, because it’s consistent with my views that we live in a free society and people ought to be able to express their views.
+ - It’s hard thinking about Iraq at night when I’m dancing with transvestites in the afternoon.
+ - With a face like mine, I do better in print.
+ - My campaign is based upon the proposition that the answers to the problems which currently plague our cities, our towns, and our homes, are not to be found in the decisions in Washington. They are instead to be found in the hearts, minds and resources of our own people here at home.
+ - Somebody once said I had a face for radio and a voice for newspapers.
+ - All of us, whether or not we’re celebrities, every one ought to spend part of their life making someone else’s life better.
+ - Country comes before politics.
+ - My guess is more reporters probably vote Democrat than Republican – just because I think reporters are smart.
+ - I treat politics kind of like my religion. It’s something I believe in, but I don’t want to have to make a living at it, because if you make a living at it, you somehow become dishonest.
+ - The overarching issue, as I see it, is the elitism of America’s political system; the fact that regular, ordinary Americans aren’t considered in policy debates or legislation, and regularly get shafted by the powers-that-be in Washington.
+ - The bias against the show is purely elitist. We’re all like the people on the show – the difference is that some of us speak better, or were born richer. There’s nothing that happens on my show that rich people don’t experience.
+ - I can’t imagine anybody who has spoken to more, or presented more non-famous people on television in the history of the world.
+ - We can’t just have mainstream behavior on television in a free society, we have to make sure we see the whole panorama of human behavior.
+ - No one would have picked me out in high school and said, ‘This guy is going to be in show business.’ I don’t have any of the talents you would normally associate with show business.
+ - I’m liberal, but I watch the three majors. Obviously I watch MSNBC, also CNN and Fox, which is what I would call ridiculously to the right.
+ - To go from politics to news, at least the subject matter is the same, even if the view is different.
+ - Obviously I wanted to be a bus driver – and I still do. If only I could get a part time job.
+ - I watch sports and cable news. I’m a political junkie, so that’s my interest.
+ - I’m in shape, but only if you consider a circle a shape.
+ - I don’t live in Hollywood. I don’t have celebrities as friends. I like them, but I don’t pal around with them. I just live in the Midwest, a real normal world.
+ - I knew early on that I would do politics, but I would never make a living at it. I would do something else.
+ - I create this persona for the show. And that’s what it is. I’m an act.
+
+37 quotes

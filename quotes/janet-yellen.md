@@ -1,0 +1,24 @@
+ - Listening to others, especially those with whom we disagree, tests our own ideas and beliefs. It forces us to recognize, with humility, that we don’t have a monopoly on the truth.
+ - One common way of judging whether housing’s price is in line with its fundamental value is to consider the ratio of housing prices to rents. This is analogous to the ratio of prices to dividends for stocks.
+ - It slightly worries me that when people find a problem, they rush to judgment of what to do.
+ - In government institutions and in teaching, you need to inspire confidence. To achieve credibility, you have to very clearly explain what you are doing and why. The same principles apply to businesses.
+ - Individuals out of work for an extended period can become less employable as they lose the specific skills acquired in their previous jobs and also lose the habits needed to hold down any job.
+ - I am anxious to fix welfare. There has to be more training and child care.
+ - Productivity growth, however it occurs, has a disruptive side to it. In the short term, most things that contribute to productivity growth are very painful.
+ - If it were possible to take interest rates into negative territory I would be voting for that.
+ - Strapped by tight credit and plummeting sales, businesses have overhauled the way they manage supply chains, inventory, production practices and staffing.
+ - The past few decades of widening inequality can be summed up as significant income and wealth gains for those at the very top and stagnant living standards for the majority.
+ - I’m just opposed to a pure inflation-only mandate in which the only thing a central bank cares about is inflation and not employment.
+ - We need to increase the transparency of shadow banking markets so that authorities can monitor for signs of excessive leverage and unstable maturity transformation outside regulated banks.
+ - Are deviations from full employment a social problem? Obviously.
+ - Although most Americans apparently loathe inflation, Yale economists have argued that a little inflation may be necessary to grease the wheels of the labor market and enable efficiency-enhancing changes in relative pay to occur without requiring nominal wage cuts by workers.
+ - By some estimates, income and wealth inequality are near their highest levels in the past hundred years, much higher than the average during that time span and probably higher than for much of American history before then.
+ - We do not interpret bitcoin’s popularity as having a relationship with the public’s view of the Federal Reserve’s conduct of monetary policy.
+ - To me, a wise and humane policy is occasionally to let inflation rise even when inflation is running above target.
+ - Stores don’t order merchandise unless they think they can sell it right away. Manufacturers and builders don’t produce unless they have buyers lined up. My business contacts describe this as a paradigm shift and they believe it’s permanent.
+ - The lower half of households by wealth held just 3% of wealth in 1989 and only 1% in 2013.
+ - Long-term unemployment can make any worker progressively less employable, even after the economy strengthens.
+ - My bottom line is that monetary policy should react to rising prices for houses or other assets only insofar as they affect the central bank’s goal variables – output, employment, and inflation.
+ - I think it is appropriate to ask whether this trend is compatible with values rooted in our nation’s history, among them the high value Americans have traditionally placed on equality of opportunity.
+
+22 quotes

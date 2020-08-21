@@ -1,0 +1,37 @@
+ - Every passing minute is another chance to turn it all around.
+ - I’m impossible to forget, but I’m hard to remember.
+ - Optimism is a revolutionary act.
+ - Hey, I don’t have all the answers. In life, to be honest, I’ve failed as much as I’ve succeeded. But I love my wife. I love my life. And I wish you, my kind of successes.
+ - Time puts things in proper perspective.
+ - You will never know the exquisite pain of the guy who goes home alone. Cause without the bitter, baby, the sweet ain’t as sweet.
+ - The only true currency in this bankrupt world are the moments you share with someone when you’re uncool.
+ - Take it from your own life, write what you believe in.
+ - Many people don’t have an outlet for their feelings or how they can express life and not everybody in a relationship is the kind of person who wants to. But if you can write, you can find a good way to do it.
+ - What you believe one day isn’t what you believe the next day and I think every writer secretly believes that they may never be able to do write good song or script again, but they can.
+ - Be positive, be positive. It’s rough out there, but don’t succumb. Don’t succumb to the cynicism in the world.
+ - You just never know if people out there will relate to things when you write them; it matters to you, and to some people it doesn’t. Some people are ‘I’m not in the mood for that; thanks.’
+ - In the future, everybody is going to be a director. Somebody’s got to live a real life so we have something to make a movie about.
+ - Sometimes things you write are messages to yourself. Even though I think my stuff has a particular voice because you are who you are, it’s good to switch it up, professionally and personally. The dare to be great situation is always going to be the one that matters the most.
+ - I always tell the girls never take it seriously, if you never take it seriously you never get hurt, if you never get hurt you always have fun, and if you ever get lonely just go to the record store and visit your friends.
+ - The future isn’t just something that happens. It’s a brutal force, with a great sense of humor, that’ll steamroll you if you’re not watching.
+ - When you listen to the music, you can also see the film or read the article, and it’s all part of the same journey that you get to take with the artist you’re interested in. It’s a balancing act.
+ - Probably having fallen in love with music and movies at a young age and then first learning about writing by kind of following the path of writers like Dave Marsh and Lester Bangs and being a rock journalist.
+ - The power of music is still with me, every day. It’s one of the most inspiring things available in the world.
+ - I wanted to follow the path of music and feel that power, and I couldn’t turn back.
+ - So many of us are hungry for stories with more racial diversity, more truth in representation, and I am anxious to help tell those stories in the future.
+ - Great music is its own movie, already. And the challenge, as a music fan, is to keep the song as powerful as it wants to be, to not tamper with it and to somehow give it a home.
+ - We tried to present an emotional scrapbook of what it felt like to be a band member on this 20-year journey.
+ - I wanted to make a comment on the obsession with success and failure that we see a lot in America.
+ - RRC remains the best publication to hit my mailbox.
+ - I just love when a movie takes a break and gives you a poetic moment, but sometimes it’s good when they just happen randomly. If your actors are really comfortable and you let the camera roll, sometimes things happen and you just see something that’s visually iconic, or emotionally that way.
+ - Well it kind of is project to project because as a writer I think you always write to some degree about things that you know or things that happened – but my favourite filmmakers, my favourite movies of theirs tend to be the personal movies.
+ - That’s how I am as a director – if somebody does a really good take, I can’t help it, I’m not even aware of it. Actors really, really need positive reinforcement.
+ - And I liked that whole idea that energy comes from not disseminating your ideas and talking about them.
+ - The power of music is still with me, every day. It’s one of the most inspiring things available in the world. I write with music. I write scenes in movies that hopefully can earn the use of some songs that are powerful to me. But, I think it just came from being affected by strong, personal art.
+ - I always loved song writers who wrote songs in the first person, so it’s kind of like that.
+ - If you try to write something that’s memorable, you’ll never get it. Sometimes it’s the way the actor says the words that make it memorable.
+ - I have heard your words and your disappointment, and I offer you a heart-felt apology to all who felt this was an odd or misguided casting choice.
+ - I write with music. I write scenes in movies that hopefully can earn the use of some songs that are powerful to me.
+ - My dream is to do exactly what I’m doing. I love writing and directing, and being somebody that can write about an artist I love or make a film about it. That’s great. I would leave the other stuff to those who do it much better.
+
+35 quotes

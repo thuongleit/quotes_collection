@@ -1,0 +1,84 @@
+ - Even though you’re growing up, you should never stop having fun.
+ - I don’t like any kind of negativity. I try to be good to everyone, whether it’s a love, a friend, an ex. I’ll always try to treat people the way I want to be treated.
+ - I like to keep some things to myself, because its called a private life, not public.
+ - Savasana is the easiest and most important yoga move because it’s so simple. Lying there is meditative.
+ - Sometimes, the only way to discover who we are, is by figuring out who we are not.
+ - If you don’t feel comfortable playing a role, if you’re in a scenario that’s not conducive for that kind of environment, then that’s when you don’t do well.
+ - It’s challenging and interesting for me to work on projects that are unique and unconventional. I’m so bored with seeing the same recycled material.
+ - I try to eat healthy.
+ - You either have chemistry or you don’t, but a lot of what attracts me is a guy’s mind and humor and talent. I need to get to know all those things before I fall for someone. I’m not a one-night-stand kind of girl. I’m a relationship girl.
+ - I’ve realized skinny isn’t necessarily attractive. Guys like girls with curves.
+ - I love playing confused, broken characters.
+ - It’s good to be challenged, to keep moving forward, and keep being inspired and scared. I feel like, if you’re not afraid of something, you shouldn’t do it. If you’re just coasting through things, what’s the point? You’re not learning.
+ - Yoga changed my life. Hopefully, it will do that for others.
+ - I’m progressive in some ways, old-fashioned in others. I like it when guys hold the door open and are sweet and thoughtful.
+ - I have a giant baking book, so I close my eyes and pick a random page. Whatever it is, I try to bake it!
+ - People aren’t defined by their relationships. The whole point is being true to yourself and not losing yourself in relationships, whether romances or friendships.
+ - I was 16 when I quit gymnastics and decided to start acting. I started booking immediately after. I was very lucky and fortunate, but I also did the hard work. Half of it’s hard work and half of it’s luck. It’s been working out so far. Fingers crossed for the future.
+ - I film so much and I’m working so much that when I do get even a Saturday or a Sunday off, I just literally watch movies or sleep or hang out with my close friends and relax.
+ - Every woman wants and needs different things. It’s always best when you’re honest and you speak up. It’s hard to read minds.
+ - I’ve reached a point where I’m comfortable in my own skin, and I do what I need to do, to feel good, but I’m built the way I am. The dancer’s feet, the bruises on my legs, they’re not going to go away. I think real girls have bruises. Tough chicks get bruised. They get dirty. And they have fun.
+ - There’s nothing worse than sleeping in makeup. You wake up looking like a painting that’s been left out in a rainstorm.
+ - My whole mentality is that I eat what I want within moderation, and I have a little bit of everything. If you deprive yourself, you get moody and unhappy, and you have to enjoy life.
+ - I’m not just going to accept something because it’s a lot of money. I’m an artist; content is incredibly important to me.
+ - I’m constantly trying to make myself better, to learn more. I didn’t finish college, so I feel like I’m always having to prove myself. I don’t want to feel like the smallest person in the room.
+ - Exercising gives me endorphins and energy. I do it four days a week.
+ - Running is my solo time; working my muscles outside in fresh air is therapeutic.
+ - I know a lot of people dread going to work every morning, but my work is playing pretend and doing stunts and screaming. It’s a lot of fun and I get to play dress up. Every day is exciting and different and new and cool. I couldn’t be more grateful.
+ - I’m kind of a globetrotter. I’ve been traveling since I was born and living in different locations.
+ - I mean everybody’s got ex-boyfriends and girlfriends. Everybody’s got baggage.
+ - I’m bored with the same genre, the same remakes of things. I like original ideas and high-concept things where it’s off the page and kind of fantastical.
+ - I only want to keep moving up and up in terms of quality and be careful with perception. I don’t just want to do things that are the pretty girl with lots of makeup, I want to get into the gritty stuff and get down and dirty and dark and really feed my soul and not my vanity.
+ - Starving to be skinny isn’t my thing. When I don’t eat, it affects my mood! On-set, I fuel up with small meals and I’m always grabbing high-protein snacks, like almonds. Chai lattes with espresso also keep me going.
+ - I want to do things where the talent range is difficult and that scare me. I thrive on that; if it’s not scaring me then I’m not growing.
+ - When we do get a little time off, I tend to watch movies, go to dinners, and keep it low-key.
+ - My love can’t be purchased Best gifts have been well-thought-out surprises.
+ - I have a flat tummy, but I’m not rock hard. If I’m going to be in a bikini, I’ll train more and skip desserts for a couple of weeks. But usually, I work out to feel good.
+ - I think everyone’s dream is to be an actress, but I never really thought it was going to happen.
+ - If I feel confident wearing something, I think it translates in photographs. It changes my demeanor and posture.
+ - I really want to be associated with great projects and character driven projects and films. I have to feed my soul, and keep feeling like an artist and keep being challenged.
+ - I didn’t have a stage mom at all. I was the one who planned out my auditions and drove myself an hour and a half into the city.
+ - I do a lot of yoga. I practice yoga three or four times a week. It’s an escape for me.
+ - When I work out, I feel happy, confident, and accomplished.
+ - With every job you get more comfortable, you do better, you’re more confident.
+ - Over the holidays is when I have the most occasions to cook and bake.
+ - The things and the projects that I want to be a part of are not the ones that I get offered. I get offered a lot, but it’s not what I’m interested in. So I have to fight very hard for the things that I want to do and to work with the filmmakers that I want to work with.
+ - Even though my grandparents live overseas and are so far away and we talk as much as we can, we don’t see each other that often.
+ - I’m like the female version of George Clooney in ‘Up in the Air.’ I have to have an eye mask, and Amore Pacific has this cream face mask that’s moisturizing. Moisture is so important in the stuffy, dry air on a plane.
+ - In my day-to-day life, I’m kind of a tomboy. I like being comfortable.
+ - I want to go to Harry Potter Land! I actually should text Emma Watson to see if she can hook us up with a backstage pass or something. That’s the perk of doing a movie with Emma called ‘The Perks Of Being A Wallflower.’
+ - I love yoga because it’s very calming for your body and your spirit. It gives you that meditative state, and its 90 minutes where you can get away from the world and just be, and exist in the moment. I need yoga. It’s part of my life, and I can’t imagine not doing it.
+ - Part of life and part of the enjoyment of life is a croissant and a chocolate cake and eggs and milkshakes and oatmeal. There’s so many things, you have to learn to appreciate it all. When I don’t eat as much as I should, I’m not fun to be around; I’m fussy.
+ - A man in a suit looking put together and dapper is very attractive, but I also kind of like the I-just-rolled-out-of-bed, a-little-bit-of-scruff, effortless, not-trying-hard-but-still-sexy guy. If a guy spends more time looking in the mirror than I do, that’s problem!
+ - The ‘Degrassi’ producers were very supportive. They sent me flowers when I got ‘The Vampire Diaries,’ and then as soon as it premiered and got the great numbers that it did, I got another large bouquet of flowers from them. Every time I go back to Toronto, I see them and hang out with them.
+ - I love cheeseburgers and chocolate – milk, not dark, and hot chocolate with marshmallows in the winter!
+ - I was a rhythmic and athletic gymnast for a little while. Then, when I quit gymnastics, I fell in love with yoga. So sometimes I think I’d like to open up a yoga studio.
+ - I literally pass out when I see blood.
+ - My goal on the show was to be professional. But sometimes you cant help who you have a connection with, and you can only fight it for so long – which I did for a really, really long time.
+ - I love fashion, and I love clothes, and so collaborating and putting pieces together is a passion that I have.
+ - Yoga changed my body 100 percent. It tones everything and leans you out. Dancer’s pose is amazing. It works every muscle!
+ - After going to Australia, it’s hard to go anywhere after that. I want to move there. I’m obsessed with it.
+ - I want to open my own yoga studio. Planning construction and looking at properties is fun.
+ - To be honest with you, I literally don’t even know how to style my hair unless I’m doing an event because I rely on hair stylists.
+ - I’d like to try different genres: comedy, period drama, rom-com, action.
+ - When I fly, I never check my bags. I bring a carry-on, an eye pillow, noise-canceling headphones, a big pillow and a blanket.
+ - If you looked at my feet, you would know for sure that I used to do ballet. They’re completely destroyed and ripped up.
+ - I could be a yoga instructor. I’m not certified, but I could do it. Once I did a class where the instructor didn’t show up, and I just went to the front and did it, and everyone followed. So I’ve done it before, and I love it.
+ - I was kind of a jock in school. Beauty wasn’t something I spent a lot of time on.
+ - My way of discovering of what I like was to create a restaurant list and eat my way through it, and I call it my ‘inner fat girl bucket list.’
+ - I try not to read best-dressed lists or anything like that. For every good thing, there will often be a not-so-nice thing people would say.
+ - I’d love to hear what confident, intelligent women in the industry have to say: Rachel McAdams, Carey Mulligan, Angelina Jolie, Kristen Wiig and Tina Fey. I would stand in line all day for that panel.
+ - I think that when people start hanging around each other, they start to pick on on each other’s quirks and taste in music, apparently.
+ - I don’t need to work right away. I’d rather wait for something really good; to be excited about a role, or a director, or a project.
+ - I try not to read best-dressed lists or anything like that.
+ - To be honest, I don’t watch a lot of TV. It’s kind of ironic because I’m on TV.
+ - I have one mascara that I use religiously, and I refuse to try anything else, and if they discontinued it I would probably cry. Cover Girl lash blast, in the orange tube.
+ - People feel like they know you when you’re in their living room, weekly, for five years. But I always get uncomfortable when people know more about me than I know about them.
+ - I think you have to draw from any character and bring it to yourself as much as possible.
+ - I am a fan of the vampire shows, especially ‘True Blood.’ I’m obsessed with it. I got to meet the entire cast at Comic-Con and hang out with them. And that was awesome. I basically died and went to heaven.
+ - Whether it’s a bright shoe or a clutch or a lipstick, I’ve had a lot of fun using color contacts as an accessory.
+ - I mean, I love to try and cook. I’m pretty good, but I’m not saying I’m great.
+ - Even though I’m big on recipes, I love to make up my own dishes and when you take a risk in the kitchen, you learn a lot about food!
+ - I haven’t personally in my real life had many people close to me die, but my characters have, and I’ve had to live that as though it’s real. And it can take a really big emotional toll on someone.
+
+82 quotes

@@ -1,0 +1,136 @@
+ - There’s only one way to work – like hell.
+ - Attempt the impossible in order to improve your work.
+ - Pleasure of love lasts but a moment, Pain of love lasts a lifetime.
+ - It’s better to be hated for who you are, than to be loved for someone you’re not. It’s a sign of your worth sometimes, if you’re hated by the right people.
+ - The key to life is accepting challenges. Once someone stops doing this, he’s dead.
+ - There may be a heaven, but if Joan Crawford is there, I’m not going.
+ - If everyone likes you, you’re not doing it right.
+ - There comes a time in every woman’s life when the only thing that helps is a glass of champagne.
+ - She did it the hard way.
+ - Success is built on disappointment, and disappointment is inherent in all success.
+ - Getting old is not for sissies.
+ - Without wonder and insight, acting is just a trade. With it, it becomes creation.
+ - Joan Crawford is a movie star. I am an actress.
+ - You should know me well enough by now to know I don’t ask for things I don’t think I can get.
+ - It’s true we don’t know what we’ve got until its gone, but we don’t know what we’ve been missing until it arrives. Pleasure of love lasts but a moment, Pain of love lasts a lifetime.
+ - Sex is God’s joke on human beings.
+ - I guess I’m larger than life. That’s my problem.
+ - I firmly believe, however, that if your children have never hated you, you have failed as a parent.
+ - Success only breeds a new goal.
+ - Being called very, very difficult is the beginning of success. Until you’re called very, very difficult you’re really nobody at all.
+ - Acting should be bigger than life. Scripts should be bigger than life. It should all be bigger than life.
+ - I’m the nicest goddamn dame that ever lived.
+ - From the moment I was six I felt sexy. And let me tell you it was hell, sheer hell, waiting to do something about it.
+ - I was thought to be ‘stuck up.’ I wasn’t. I was just sure of myself. This is and always has been an unforgivable quality to the unsure.
+ - One begins to realize that one is getting old when the birthday candles weigh more than the cake.
+ - You know what I’m going to have on my gravestone? ‘She did it the hard way.’
+ - She’s the original good time who was had by all.
+ - I am doomed to an eternity of compulsive work. No set goal achieved satisfies. Success only breeds a new goal. The golden apple devoured has seeds. It is endless.
+ - The act of sex, gratifying as it may be, is God’s joke on humanity. It is man’s last desperate stand at superintendency.
+ - Fasten your seat belts, it’s going to be a bumpy night! – As Margo Channing in All About Eve.
+ - I want to die with my high heels on, still in action.
+ - To fulfill a dream, to be allowed to sweat over lonely labor, to be given a chance to create, is the meat and potatoes of life. The money is the gravy.
+ - Pray to God and say the lines.
+ - I would take a bad script and a good director any day against a good script and a bad director.
+ - Some young Hollywood starlets remind me of my grandmother’s old farmhouse – all painted up nice on the front side, a big swing on the backside, and nothing whatsoever in the attic.
+ - It has been my experience that one cannot, in any shape or form, depend on human relations for lasting reward. It is only work that truly satisfies.
+ - The out-of-work actor wears out more than shoe leather. The very sensibilities that make him an artist are shattered by the disregard he is shown as a human being.
+ - In this business, until you’re known as a monster you’re not a star.
+ - I work to stay alive.
+ - There is a certain ecstasy in wanting things you can’t get.
+ - You’ve got to know someone pretty well to hate them.
+ - My passions were all gathered together like fingers that made a fist. Drive is considered aggression today; I knew it then as purpose.
+ - Everybody has a heart. Except some people.
+ - Strong women only marry weak men.
+ - Never, never trust anyone who asks for white wine. It means they’re phonies.
+ - I didn’t forget your breakfast. I didn’t bring your breakfast. Because you didn’t eat your din-din.
+ - I have eyes like a bullfrog, a neck like an ostrich and long, limp hair. You just have to be good to survive with that equipment.
+ - I am just too much.
+ - If men found out how to give birth to children they’ll never propose again.
+ - Among the reasons marriages fail, sex ranks no higher than fourth, behind money, having only one bathroom, and an inability to communicate, reasons one, two and three.
+ - If you want a thing done well, get a couple of old broads to do it.
+ - I’ve been lucky. I’ll be lucky again.
+ - The best time I ever had with Joan Crawford was when I pushed her down the stairs in Whatever Happened to Baby Jane?
+ - The secret of marriage is: separate bedrooms and separate bathrooms.
+ - The male ego with few exceptions is elephantine to start with.
+ - Love is not enough. It must be the foundation, the cornerstone- but not the complete structure. It is much too pliable, to yielding.
+ - It’s a rare man who can stand being around an intelligent woman, let alone married to her.
+ - Life is the past, the present and the perhaps.
+ - If you’ve never been hated by your child, you’ve never been a parent.
+ - Once the love bug wears off, as it inevitably does, you are shocked to discover that you really didn’t know the object of your affections at all. We know this to be so, even as we repeat the same mistake over and over and over.
+ - Temperament is something that is an integral part of the artist. Not temper, temperament. There is a vast difference.
+ - I’d luv to kiss ya, but I just washed my hair.
+ - I may not have been wearing a mink coat, but I was traveling with a dog. That should have made you think I was an actress!
+ - What a fool I was to come to Hollywood where they only understand platinum blondes and where legs are more important than talent.
+ - I was the Marlon Brando of my generation.
+ - Basically, I believe the world is a jungle, and if it’s not a bit of a jungle in the home, a child cannot possibly be fit to enter the outside world.
+ - At 50, I thought proudly: Here we are, half century! Being 60 was fairly frightening. You want to know how I spent my 70th birthday? I put on a completely black face, a fuzzy black Afro wig, wore black clothes and hung a black wreath on my door.
+ - Yes, burn your bridges.
+ - Oh, don’t let’s ask for the moon. We’ve already got the stars.
+ - The only way you can become a legend is in your coffin.
+ - Your luck is how you treat people.
+ - Gay Liberation? I ain’t against it, it’s just that there’s nothing in it for me.
+ - I think I’ll have a large order of prognosis negative.
+ - May each of my grandsons know, at an early age, what his life’s ambition is – and may he be successful in his pursuit of that goal.
+ - Technicolor makes me look like death warmed over.
+ - Hollywood always wanted me to be pretty, but I fought for realism.
+ - The real actor – like any real artistj- has a direct line to the collective heart.
+ - I’ve always liked men better than women.
+ - I never said anything that was unprintable. Never said anything just for the sake of being startling.
+ - I sent my flowers across the hall to Mrs Nixon but her husband remembered what a Democrat I am and sent them back.
+ - It is my last wish to be burried sitting up.
+ - You know what nostalgia is, don’t you? It’s basically a matter of recalling the fun without reliving the pain.
+ - I do not regret one professional enemy I have made. Any actor who doesn’t dare to make an enemy should get out of the business.
+ - Wave after wave of love flooded the stage and washed over me, the beginning of the one great durable romance of my life.
+ - A sure way to lose happiness, I found, is to want it at the expense of everything else.
+ - In this rat-race everybody’s guilty till proved innocent!
+ - I will not retire while I’ve still got my legs and my make-up box.
+ - I believe one should be a woman at home.
+ - Good actors I’ve worked with all started out making faces in a mirror, and you keep making faces all your life.
+ - The real female should be partly male and the real male should be partly female anyway.
+ - As a female I think it’s a terrible hindrance in business. I think it’s a terrible hindrance for any female to have a lot of intelligence in private life, but I think in business sometimes it’s even worse because there’s deep resentment.
+ - I have often seen an actor laugh off the stage, but I don’t remember ever having seen one weep.
+ - They say that in Hollywood one can’t be honest, but I think honesty counts in Hollywood just as much as it does anywhere else. I think it’s just too much trouble to be dishonest and keep up with yourself.
+ - Home is where you go to when you’ve nowhere to go.
+ - Playing our parts. Yes, we all have to do that and from childhood on, I have found that my own character has been much harder to play worthily and far harder at times to comprehend than any of the roles I have portrayed.
+ - Actually, I think business women are better women at home, if you want to know the truth because you do understand what goes into a day’s work out in the world, a very nerve-racking affair.
+ - With the newspaper strike on, I wouldn’t consider dying.
+ - There are new words now that excuse everybody. Give me the good old days of heroes and villains, the people you can bravo or hiss. There was a truth to them that all the slick credulity of today cannot touch.
+ - Evil people you never forget them. And that’s the aim of any actress-never to be forgotten.
+ - It’s a very independent male creature that lives alone, and a lot of independent females who live alone. It’s all very sad but it’s much easier for both sexes to do it this way nowadays.
+ - You will never be happier than you expect. To change your happiness, change your expectation.
+ - Almost as many inhumanities are committed in the name of love as in the name of religion.
+ - One can be respected with the truth in Hollywood just as much as anywhere else you know or else I wouldn’t have had a career.
+ - Brought up to respect the conventions, love had to end in marriage. I’m afraid it did.
+ - If Hollywood didn’t work out, I was prepared to be the best secretary in the world.
+ - I’ve lost my faith in science.
+ - Men become much more attractive when they start looking older. But it doesn’t do much for women, though we do have an advantage: make-up.
+ - Locations are all tough, all miserable. I never left the sound stage for 18 years at Warners. We never went outside the studio, not even for big scenes.
+ - The only reason anyone goes to Broadway is because they can’t get work in the movies.
+ - You can lose everything but you can’t lose your talent!
+ - Psychoanalysis. Almost went three times – almost. Then I decided what was peculiar about me was probably what made me successful. I’ve seen some very talented actors go into analysis and really lose it.
+ - I don’t think of myself as a character actress – that’s become a phrase which means you’ve had it.
+ - I often think that a slightly exposed shoulder emerging from a long satin nightgown packs more sex than two naked bodies in bed.
+ - To look back is to relax one’s vigil.
+ - I don’t think in business it matters whether you’re a man or a woman if you can do your job and have a brain.
+ - The world’s all full of thoughts about wars and space, and tragedies to the world. That’s what writers are thinking about because that’s what the world is thinking about.
+ - You mustn’t miss the moment. There’s only one first sailing into Rio harbor.
+ - I have been at war from the beginning. I’ve never looked back before. I’ve never had the time and it has always seemed so dangerous. To look back is to relax one’s vigil.
+ - We movie stars all end up by ourselves. Who knows? Maybe we want to.
+ - I am a woman meant for a man, but I never found a man who could compete.
+ - I don’t take the movies seriously, and anyone who does is in for a headache.
+ - One can make more enemies as a female with a brain I think.
+ - I survived because I was tougher than anybody else.
+ - I was never very interested in boys – and there were plenty of them – vying with one another to see how many famous women they would get into the hay.
+ - I went back to work because someone had to pay for the groceries.
+ - There was more good acting at Hollywood parties than ever appeared on the screen.
+ - Women are the essential part of the theater but the writers are not writing about women. I think they’re too perplexed about the whole female situation probably.
+ - I think it’s just too much trouble to be dishonest and keep up with yourself.
+ - I never did pal around with actresses. Their talk usually bored me to tears.
+ - I will never be below the title.
+ - I’d marry again if I found a man who had fifteen million dollars, would sign over half to me, and guarantee that he’d be dead within a year.
+ - People often become actresses because of something they dislike about themselves: They pretend they are someone else.
+ - I think men have got to change an awful lot. They still prefer the little woman.
+ - Dramatic art in her opinion is knowing how to fill a sweater.
+
+134 quotes

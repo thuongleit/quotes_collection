@@ -1,0 +1,26 @@
+ - I only eat one meal a day. Lunch, not dinner.
+ - I can tell jokes. I can talk to the audience. I can relax. I can change my songs whenever I want. I can change the tempos. I can change the mood, because I’m in charge.
+ - I wanted to be a plumber.
+ - I was born in Massachusetts and lived there until I was thirteen years old.
+ - When you sing a song the way I sing it, you have to use your whole body. It’s almost like working out.
+ - Rocky Marciano had such guts and heart. He was something special.
+ - I think that people who have Vegas throat are people who sing from their throats only.
+ - If people like what I do, fine. If they don’t, fine.
+ - Joe Louis was one of my first heroes.
+ - The only good thing about going to the fights is you can go into the green room and you can see some of your old friends that you haven’t seen in a long time.
+ - I wouldn’t be without my regular schedule of chiropractic adjustments because of my very strenuous schedule.
+ - When I sing full-on I use my whole body. I open my throat and let it fly out.
+ - I don’t watch a lot of featherweight fights yet some of those fights are the best fights ever.
+ - There’s nobody in show business that I dislike so I wouldn’t want to get in there to hurt anybody.
+ - I’m a performer. We don’t retire.
+ - Ali’s daughter is fighting and Joe Frazier’s daughter is fighting as well.
+ - I’ve been a boxing fan ever since I was a kid.
+ - It’s obvious that they’re going to want Ali’s daughter and Frazier’s daughter to fight it out.
+ - I used to be afraid of looking at the audience.
+ - And of course coming from Massachusetts, Rocky Marciano was my favorite.
+ - I used to have trouble in front of an audience. I felt uncomfortable.
+ - You play your character and it isn’t right to step out of it. You have to stay in that character.
+ - Ali and I have become friends over the years. I was on a plane with him one time when he was the champion.
+ - But I don’t work out. I pay people to do that for me.
+
+24 quotes

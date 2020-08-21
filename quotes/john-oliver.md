@@ -1,0 +1,104 @@
+ - Pumpkin spice lattes are egg nog for morning people.
+ - Democracy is like a tambourine, not everyone can be trusted with it.
+ - I think puns are not just the lowest form of wit, but the lowest form of human behavior.
+ - Economics is like the Dutch language – I’m told it makes sense, but I have my doubts.
+ - There are so many low points with stand-up. You are perpetually humiliated, so it doesn’t really matter anymore. I don’t have any dignity left to lose. An audience can’t hurt you anymore when you’ve been completely dismantled.
+ - You don’t need people’s opinion on a fact. You might as well have a poll asking: ‘Which number is bigger, 15 or 5?’ or ‘Do owls exist?’ or ‘Are there hats?’
+ - I watch one news channel until my soul can’t take it anymore. It’s the background of my life.
+ - Do you know how hard it is to kill 30 million people? It’s a logistical nightmare.
+ - I’m British; pessimism is my wheelhouse.
+ - I’m British, so obviously I repress any powerful emotions of any kind in relation to anything.
+ - Iran is the middle child of the Axis of Evil. Iraq is the oldest child and gets the lion’s share of the attention, and North Korea is the crazy baby.
+ - I think I’m just a summer fling that people will soon forget.
+ - Being a Mets fan is like lending someone a lot of money and you just know that you’ll never get paid back.
+ - It’s pretty physically unsettling, living life on a visa.
+ - When you’ve married someone who’s been at war, there is nothing you can do that compares to that level of selflessness and bravery.
+ - We invented words; we’ll tell you how they’re supposed to sound.
+ - I find it hard in my general life to think further than the week ahead.
+ - If you want to do something evil, put it inside something boring.
+ - Every empire has to get sucked down the drain. As a British person, I know how it feels.
+ - Campaign ads are the backbone of American democracy if American democracy suffered a gigantic spinal injury.
+ - I get nostalgic for British negativity. There is an inherent hope and positive drive to New Yorkers. When you go back to Britain, everybody is just running everything down. It’s like whatever the opposite of a hug is.
+ - It’s exciting to have a role in anything that’s Claymation, just because you’re always intrigued by what a clay wizard version of yourself would be.
+ - News is not a game show. You don’t win a car if you happen to be right.
+ - I think it might honestly be time for the Sunshine State to officially change its motto to the Worst State.
+ - Congratulations, Congress! 77% disapproval rating! You may be about to become the English language’s most offensive C-word.
+ - You don’t need people’s opinion on a fact.
+ - I really love stand-up. I’m more than happy to do it for nothing. I’ve come to America to do it for nothing. It’s the American Dream: Work for free.
+ - Sometimes it’s good to remember how bad food can be, so you can enjoy the concept of flavour to the fullest.
+ - Welcome to The Daily Show, I’m John Oliver. Jon Stewart is still not here. He is currently living out a live-action Lord of the Rings role-playing experience deep in the New Zealand wilderness.
+ - When you’re dealing with serious subjects, there is a pressure to be absolutely sure that you know what you’re doing.
+ - I think being an outsider in general always helps you in comedy. I think it helps to have an outsider’s eye. And so I have an outsider’s voice. You know, as soon as I start talking, I don’t belong here. And I think that helps in a way.
+ - Net neutrality: The only two words that promise more boredom in the English language are ‘featuring Sting,’
+ - I’m British. I don’t really have access to my emotions on a daily basis.
+ - I have a green card now, but they can take that away, yeah, they can take that away at any moment. So please don’t; please let me keep it.
+ - I’ve made so many people angry that they kind of blur into one unpleasant memory of people staring at you with somewhere between passive aggression and active aggression.
+ - There is no greater anesthetic than sport.
+ - One thing that America is objectively exceptional at is overreacting whenever anyone accuses them of not being exceptional.
+ - I do one accent – my own. I can make it louder or quieter. That is the sum total of my vocal range. I thought I could do an American accent until I tried it in front of an American – the expression of horror is still burnt onto my retinas.
+ - It’s a great time to be doing political satire when the world is on a knife edge.
+ - Americans just don’t understand dry wit.
+ - There are some people who watch NASCAR for the highly skilled driving – but most people watch it for the crashes.
+ - I did sketch comedy, but I never did improv. So I’ve just tried to learn as I go.
+ - A Southern accent is not a club in my bag.
+ - I would hate to meet myself at 15.
+ - The poverty line is like the age of consent: if you find yourself parsing exactly where it is, you’ve probably already done something very, very wrong.
+ - I wanted to be a soccer player. I knew that couldn’t happen.
+ - I feel non-stop Brit shame!
+ - Politics has become infused with narcissism in America.
+ - Stand-up, for me, is really more of an addiction, so you have to feed the beast whenever you can.
+ - Having a human conversation is not something I’ve had any training in either as a comedian or as, you know, a human being.
+ - My family are from Liverpool, so I have some twang there – I have a Midlands accent, and I was raised about an hour north of London, so my voice is a mess. Although, to American ears, it sounds like the crisp language of a queen’s butler.
+ - Sarah Palin has been hired back by Fox News, and she only left five months ago. She has now effectively quit quitting. She can’t even commit to being uncommitted.
+ - The British press are a group of unremitting scumbags. And sometimes they use that scumbaggery to good ends, and often not.
+ - Attending a Sarah Palin rally was simultaneously one of the strangest and most chilling events of my life.
+ - There’s never any time I think I’m a real journalist, because I don’t have any of the qualifications or the intentions for that.
+ - People in Britain see Richard Quest as a kind of an offensive cartoon character.
+ - Mr. President, no one is saying you broke any laws, we’re just saying it’s a little bit weird you didn’t have to.
+ - I guess the tone of jokes is often, at best, irreverent, but it always comes from a place of deep love.
+ - I know I’d be an absolutely horrendous politician.
+ - People are friendlier in New York than London.
+ - Once you learn how to make people laugh, then you get to choose exactly how you want to make them laugh.
+ - You don’t really know when stand-up material is TV ready; it’s just at what point you’re willing to let it go and not work on it anymore. I’m not sure there is a point at which you think: ‘And that is finished.’
+ - People are always going to say stupid things, and you’re always going to be able to make jokes about that, but it should be the last thing you add in, because it’s the easiest thing.
+ - Here in America, people come out to see what they’ve known you to do. In England, it’s like everyone comes out to tell you exactly how well they think you’re doing.
+ - It really helps a comedian to be an outsider.
+ - We in Britain stopped evolving gastronomically with the advent of the pie. Everything beyond that seemed like a brave, frightening new world. We knew the French were up to something across the Channel, but we didn’t want anything to do with it.
+ - You’re sonically racist, Americans. You think we all sound the same, whereas I have definitely a mongrel accent.
+ - If you vote for Democrats, you might as well give Al Quaeda a death ray and a manual.
+ - Southern people are bigger-hearted and kinder than I had any right to expect.
+ - When you do stand-up, you’re just concerned with trying to leave with some semblance of human dignity at the end of your performance.
+ - Congress never loses its capacity to disappoint you.
+ - There is an inherent hope and positive drive to New Yorkers.
+ - I’m always interested in audience interaction. Not so much aggressive audience interaction – I’m genuinely interested in how people see things.
+ - The disconnect between America and its military is shocking.
+ - My family is from Liverpool, so I have some of those vowel sounds, I’ve got the slack tone of someone from Birmingham, and then I was raised in Bedford, which is just north of London. So my accent, if it’s possible, makes even less sense to a Brit than to an American.
+ - Wow. Losing 95 percent of your audience in just five years. That basically makes Obama the NBC of presidents.
+ - The Confederate flag is one of those things that should only be seen on t-shirts, belt buckles and bumper stickers to help the rest of us identify the worst people in the world.
+ - I can’t relax. I find vacations problematic.
+ - I don’t know if there is some psychological thing of wanting to know where your doctor got his degree from before he comes into the medical room.
+ - If you’re asking me, would I have voted for Mitt Romney, the answer is absolutely not. Emphatically not. I cannot envision a world in which I would have voted for Mitt Romney unless I sustained a massive concussion.
+ - I have exactly as much rhythm as you think I have.
+ - I would much rather America was a more stable, wonderful place. You know, I love it.
+ - I realize how desperate it sounds for me, as a comedian, to ask you to laugh at my jokes.
+ - If your name is Sepp, at the bare minimum you’ve strangled someone in a bar fight.
+ - Stand-up comedy seems like a terrifying thing. Objectively. Before anyone has done it, it seems like one of the most frightening things you could conceive, and there’s just no shortcut – you just have to do it.
+ - Politicians don’t really bring up religion in England.
+ - The only thing I’m nervous about is talking to guests like human beings, because all of my interviews so far have been attacking people. I have a genuine concern about sitting across from an actor whose movies I obviously haven’t seen.
+ - I’ve always been interested in socially political, or overtly political, comedy.
+ - Armando Iannucci is one of my heroes. As I was growing up, he was probably the most influential comic voice that I had.
+ - I was definitely prepared for it to be slower, and it has not worked out that way in any shape or form. I’m grateful as a comedian, and slightly demoralized, occasionally, as a human being – those two things are always very different.
+ - Australia turns out to be a sensational place, albeit one of the most comfortably racist places I’ve ever been in. They’ve really settled into their intolerance like an old resentful slipper.
+ - British people would die for their right to drink themselves to death.
+ - The British media is sinking down, as the American news media has lowered the bar for all of humanity. British news media is definitely trying to stoop down to that level. Everyone is stooping to the lowest common denominator.
+ - You can write jokes at any point of the day. Jokes are not that hard to write, or they shouldn’t be when it is literally your job.
+ - You just try to be true to your idea of what is funny and what is also interesting.
+ - There are two kinds of hecklers: the destructive and constructive hecklers.
+ - I feel more at home knowing I’m not really at home. It takes all the pressure off you trying to fit in!
+ - In improv, the whole thing is that it is a relationship between the two people, as a back and forth. In standup, you don’t really want to be listening to what somebody is saying; you want to project your jokes into their face.
+ - The moment I accept that there’s an artistic, redeeming quality in puns, I have a horrible feeling I’ll get hooked.
+ - I knew I was going to go into the field and make fun of people to their faces. I knew what I was getting into.
+ - I think Americans still can’t help but respond to the natural authority of this voice. Deep down they long to be told what to do by a British accent. That’s why so many infomercials have British people.
+ - When you’re doing stand-up, you want to stand onstage and, to the extent that you can, uncomplicatedly entertain.
+
+102 quotes

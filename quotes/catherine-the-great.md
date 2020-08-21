@@ -1,0 +1,36 @@
+ - Power without a nation’s confidence is nothing.
+ - A great wind is blowing, and that gives you either imagination or a headache.
+ - In my position you have to read when you want to write and to talk when you would like to read.
+ - I beg you take courage; the brave soul can mend even disaster.
+ - I may be kindly, I am ordinarily gentle, but in my line of business I am obliged to will terribly what I will at all.
+ - I do not love strife, because I have always found that in the end each remains of the same opinion.
+ - Men make love more intensely at 20, but make love better, however, at 30.
+ - I cannot live one day without love.
+ - Happiness and unhappiness are in the heart and spirit of each one of us: If you feel unhappy, then place yourself above that and act so that your happiness does not get to be dependent on anything.
+ - The more a man knows, the more he forgives.
+ - You should know our mania for building is stronger than ever. It is a diabolical thing. It consumes money and the more you build, the more you want to build. It’s a sickness like being addicted to alcohol.
+ - One does not always do the best there is. One does the best one can.
+ - The most sure, but at the same time the most difficult expedient to mend the morals of the people, is a perfect system of education.
+ - What right can give anyone authority to inflict torture upon a citizen when it is still unknown whether he is innocent or guilty?
+ - Praise is the only gift for which people are really grateful. Marguerite, Countess of Blessington I praise loudly; I blame softly.
+ - In politics a capable ruler must be guided by circumstances, conjectures and conjunctions.
+ - For to tempt and to be tempted are things very nearly allied – whenever feeling has anything to do in the matter, no sooner is it excited than we have already gone vastly farther than we are aware of.
+ - If I may venture to be frank I would say about myself that I was every inch a gentleman...
+ - Nothing is more difficult, in my opinion, than to avoid something that fundamentally attracts you.
+ - The use of torture is contrary to sound judgment and common sense. Humanity itself cries out against it, and demands it to be utterly abolished.
+ - All punishments by which the human body might be maimed are barbarbarism.
+ - Tell a thousand people to draft a letter, let them debate every phrase, and see how long it takes and what you get.
+ - I like to praise and reward loudly, to blame quietly.
+ - You philosophers are lucky men. You write on paper and paper is patient. Unfortunate Empress that I am, I write on the susceptible skins of living beings.
+ - I shall be an autocrat: that’s my trade. And the good Lord will forgive me: that’s his.
+ - I sincerely want peace, not because I lack resources for war, but because I hate bloodshed.
+ - God, grant us our desires, and grant them quickly.
+ - I am one of the people who love the why of things.
+ - If Russians knew how to read, they would write me off.
+ - Assuredly men of merit are never lacking at any time, for those are the men who manage affairs, and it is affairs that produce the men. I have never searched, and I have always found under my hand the men who have served me, and for the most part I have been well served.
+ - I will live to make myself not feared.
+ - You were in a mood to quarrel. Please inform me once the inclination passes.
+ - Your wits make others witty.
+ - Don’t worry about things you cannot alter.
+
+34 quotes

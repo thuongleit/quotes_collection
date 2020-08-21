@@ -1,0 +1,44 @@
+ - I went to Mongolia many years ago and it was so incredible.
+ - People say that I’m always late, but that’s a myth.
+ - You know, women are so much cooler than guys because we can do more martial arts. Martial arts are pretty much made for women because we’re quicker and we’re smaller than men, and so we’re faster. You girls really should take martial arts.
+ - Everybody needs to go to Mongolia just to see what it is to be a human being again.
+ - Scratch a Russian, and you’ll find a peasant.
+ - I love to draw, so I really want to go and study art. I’ve never done things for me. I’ve always done things for my career or for my family.
+ - I am a strong Ukrainian girl, that is why I work a lot.
+ - When I learn martial arts, my master will have me try a punch for a week and he will keep saying, ‘No, you don’t have it. No, that’s not right.’ When he finally says, ‘Yes, you did it,’ it’s a wonderful moment. You worked on it. You got it.
+ - Bringing all 45 members of my crazy family together, and watching them argue is super awesome. It’s good to do it just once a year.
+ - Music for me is something I prefer to keep away form the whole business part of my life. I feel like everything I do, in a way, has some sort of business around it. So with my music I can have my privacy. If people don’t have to pay for it then I think they can be a little more open to new ideas.
+ - When I think about myself at 15, I can’t relate to myself at all. I thought I knew everything.
+ - I just want to make one really good movie a year. And when I die, to know I was honest as an artist.
+ - I was also an only child and my father really wanted a son – he’s from that generation – it was always about kung-fu theater on Sundays and boxing games on the weekend.
+ - There is all this controversy that women and girls are too skinny or too overweight. I say to just do martial arts and everything will be okay. You will tone up your body and find a confidence you can’t find just sitting around watching TV and hanging out with friends.
+ - I’m not really easy to live with! There needs to be unlimited patience and unconditional love. Men I’ve known before loved my independent spirit and were proud of my success, to the point that they’d become jealous of the time I devote to my career.
+ - I feel like confidence is something that ebbs and flows. I was given a lot of love and attention from my family growing up, so for sure I had a natural confidence.
+ - For me, having kids put so much into perspective. I wasn’t so worried about my career and what I did or didn’t achieve. Because, suddenly, I was like, “As long as this baby is healthy and safe, everything else is fine.”
+ - I feel like movie stars don’t have many friends at all. They have acquaintances.
+ - I love all the cableknits and the oversize coats.
+ - At the age of 16 I was already dreaming of having a baby because I felt myself to be an adult, but my mum forbid it. Right now, I feel like a teenager and I want to have fun for one or two more years before starting a family.
+ - I’m very into the japanese sensibility. Oversize coats and baggy trousers.
+ - I started super young, but when I think about myself at that age – what I thought I knew, and how priggish I was, how certain of things – now I realize that nothing is certain.
+ - I was in acting classes from the age of 9, dance classes, music classes – my mom put a lot of energy and attention into me, so no matter what happened in my life, I always had this basis of discipline. So I really worked hard for everything I had from a very early age.
+ - You have the energy when you’re a kid to really fight for rights – that’s why kids make great soldiers, right?
+ - Rather than go to the gym, I would prefer to do martial arts because the time goes by quicker.
+ - I thought that being popular in school was just so pathetic. I knew I had a future over and beyond the horizon of that school.
+ - I’ve always found that it’s such an emotional experience, trying to find the good parts of a bad character or the bad parts of a good character, and in the end, most of these qualities are already there inside me.
+ - During the day I force myself to at least eat some salads rather than rubbish, and a steak in the evening. In fact, I eat to basically satisfy my hunger. I hardly have the time to appreciate a meal, and I’m everything, but a gourmet.
+ - I don’t at all want to resemble some of these young designers who ask hallucinating prices for rags that are so in fashion now, that six months later, they are old-fashioned! I love vintage boutiques, I love to customize my clothes. And then, with my friends, we regularly exchange togs.
+ - I really connected with martial arts. I’d always had a fantasy as a kid of being a ninja warrior, so it definitely answered that sort of need in my psyche, too – a need to be superpowerful.
+ - My regular life today is reading books, making dolls houses, sewing dolls with my daughter and barbequing.
+ - Before, being a model, it was just a job, and I was making fun of it. But today, I take my career more seriously. The fact that a reader may buy an Armani item because she’d seen it on me in a magazine is very important to me. So much so that I intend to launch my own label.
+ - Unfortunately, I don’t train enough on an everyday basis to be a black belt, but if I put my mind to it I think I could definitely move very quickly in that world.
+ - There are many times where even I, at certain points in the evening, after a few drinks, can’t pronounce my own surname.
+ - I love making independent movies, and that’s pretty much what I’m going to be doing for the rest of my years.
+ - I’ve never actually seen a 3-D movie. I’ve seen some dailies in 3-D and it kind of gives me a headache. But it looks really cool.
+ - Its going to seem idiotic to say this, but I think that at a given moment we all need a place to ourselves where we can refuge ourselves and cut ourselves off from the world.
+ - Video games are perfect to make into films because they are so visual.
+ - I’ve been really into boyfriend blazers, I like mixing tweeds with floral fabrics. The masculine and feminine look.
+ - I guess the most difficult thing for me was living up to my mom’s expectations. I was always scared that if I didn’t do things in this certain way, then my mom just wouldn’t think I was great. That’s something that was difficult for me growing up.
+ - Before, being a model, it was just a job, and I was making fun of it. But today, I take my career more seriously.
+ - When you’re doing martial arts, you feel like you can master certain skills and be so much more in control of who you are, so that really appealed to me.
+
+42 quotes

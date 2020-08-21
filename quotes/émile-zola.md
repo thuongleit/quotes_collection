@@ -1,0 +1,74 @@
+ - If you ask me what I came into this life to do, I will tell you: I came to live out loud.
+ - Everything is only a dream.
+ - The artist is nothing without the gift, but the gift is nothing without work.
+ - I have but one passion: to enlighten those who have been kept in the dark, in the name of humanity which has suffered so much and is entitled to happiness. My fiery protest is simply the cry of my very soul.
+ - The only basis for living is believing in life, loving it, and applying the whole force of one’s intellect to know it better.
+ - Nothing develops intelligence like travel.
+ - If you shut up truth and bury it under the ground, it will but grow, and gather to itself such explosive power that the day it bursts through it will blow up everything in its way.
+ - She was cold by nature, self-love predominating over passion; rather than being virtuous, she preferred to have her pleasures all to herself.
+ - Civilization will not attain to its perfection until the last stone from the last church falls on the last priest.
+ - If I cannot overwhelm with my quality, I will overwhelm with my quantity.
+ - The word realist means nothing to me, because I would subordinate reality to temperament. Give me what is true and I applaud; but give me what is individual and alive and I applaud even more.
+ - Man’s highest duty is to protect animals from cruelty.
+ - If people can just love each other a little bit, they can be so happy.
+ - One forges one’s style on the terrible anvil of daily deadlines.
+ - There are two men inside the artist, the poet and the craftsman. One is born a poet. One becomes a craftsman.
+ - These young people naturally grow up with ideas different from ours, for they are born for times when we shall no longer be here.
+ - From the moment I start a new novel, life’s just one endless torture. The first few chapters may go fairly well and I may feel there’s still a chance to prove my worth, but that feeling soon disappears and every day I feel less and less satisfied.
+ - Let us eat, drink and satisfy our coarse appetites, but let us keep our souls sacred and apart.
+ - Since the same human mire remains beneath, does not all civilization reduce itself to the superiority of smelling nice and living well?
+ - My fiery protest is simply the cry of my very soul.
+ - It is not I who am strong, it is reason, it is truth.
+ - Don’t go looking at me like that because you’ll wear your eyes out.
+ - The road to Lourdes is littered with crutches, but not one wooden leg.
+ - Did not one spend the first half of one’s days in dreams of happiness and the second half in regrets and terrors?
+ - Sin ought to be something exquisite, my dear boy.
+ - If you shut up truth, and bury it underground, it will but grow.
+ - A ruined man fell from her hands like a ripe fruit, to lie rotting on the ground.
+ - I do not despair in the least of ultimate triumph. I repeat it with intense conviction.
+ - They dared not peer down into their own natures, down into the feverish confusion that filled their minds with a kind of dense, acrid mist.
+ - I am little concerned with beauty or perfection. I don’t care for the great centuries. All I care about is life, struggle, intensity.
+ - Art is a corner of creation seen through a temperament.
+ - Over all crowds there seems to float a vague distress, an atmosphere of pervasive melancholy, as if any large gathering of people creates an aura of terror and pity.
+ - It is not necessary that one should humble oneself to deserve assistance, it is sufficient that one should suffer.
+ - Yes! live life with every fibre of one’s being, surrender oneself to it, with no thoughts of rebellion, without deluding oneself that one can improve it and render it painless.
+ - In my view you cannot claim to have seen something until you have photographed it.
+ - Why is it that my heart is so touched whenever I meet a dog lost in our noisy streets? Why do I feel such anguished pity when I see one of these creatures coming and going, sniffing everyone, frightened, despairing of even finding its master?
+ - The past was but the cemetery of our illusions: one simply stubbed one’s toes on the gravestones.
+ - Why then should money be blamed for all the dirt and crimes it causes? For is love less filthy – love which creates life?
+ - A new dynasty is never founded without a struggle. Blood makes good manure.
+ - The day is not far off when one ordinary carrot may be pregnant with revolution.
+ - Did science promise happiness? I do not believe it. It promised truth, and the question is to know if we will ever make happiness with truth.
+ - The camembert with its venison scent defeats the Marolles and Limbourg dull smells; It spreads its exhalation, smothering the other scents under its surprising breath abundance.
+ - When lovers kiss on the cheeks, it is because they are searching, feeling for one another’s lips. Lovers are made by a kiss.
+ - Blow the candle out, I don’t need to see what my thoughts look like.
+ - In love as in speculation there is much filth; in love also, people think only of their own gratification; yet without love there would be no life, and the world would come to an end.
+ - I am spending delightful afternoons in my garden, watching everything living around me. As I grow older, I feel everything departing, and I love everything with more passion.
+ - In Paris, everything’s for sale: wise virgins, foolish virgins, truth and lies, tears and smiles.
+ - The truth is on the march and nothing will stop it.
+ - It all seemed a hollow sham now – that strict code, that conscientious virtue that condemned her to the sterile joys of pious women! No, no, she’d had enough of that; she wanted to live!
+ - The fate of animals is of greater importance to me than the fear of appearing ridiculous; it is indissolubly connected with the fate of men.
+ - Violence has never prospered, you can’t remake the world in a day. Anyone who promises to change everything for you all at once is either a fool or a rogue!
+ - The conclusion does not belong to the artist.
+ - What will be the death of me are buillabaisses, food spiced with pimiento, shellfish, and a load of exquisite rubbish which I eat in disproportionate quantities.
+ - A god of kindness would be charitable to all. Your god of wrath and punishment is but a monstrous phantasy.
+ - Has science ever retreated? No! It is Catholicism which has always retreated before her, and will always be forced to retreat.
+ - How evil life must be if it were indeed necessary that such imploring cries, such cries of physical and moral wretchedness, should ever and ever ascend to heaven!
+ - When a peasant begins to feel the need for instruction, he usually becomes fiercely calculating.
+ - When you have a sorrow that is too great it leaves no room for any other.
+ - Lovers are made by a kiss.
+ - An entire lifetime would not be long enough for you to exhaust the glance of the young harvest-girl.
+ - She might have liked to try to strangle him with those slender fingers of hers, but she wanted to make a job of it and this great patience with which she waited for her claws to grow was in itself a form of enjoyment.
+ - The thought is a deed. Of all deeds she fertilizes the world most.
+ - If something’s just, I’ll let myself be hacked to bits for it.
+ - Paris flared – Paris, which the divine sun had sown with light, and where in glory waved the great future harvest of Truth and of Justice.
+ - Governments are suspicious of literature because it is a force that eludes them.
+ - Oh, the fools, like a lot of good little schoolboys, scared to death of anything they’ve been taught is wrong!
+ - Every wave is a water sprite who swims in the current, each current is a path which snakes towards my palace, and my palace is fluidly built at the bottom of the lake, in the triangle of earth, fire and water.
+ - When sometimes, behind his back, they called him a tyrant, he merely smiled and uttered this profound observation: If some day I turn liberal, they will say I have let them down.
+ - Inability, human incapacity, is the only boundary to an art.
+ - Classical education has deformed everything, and has imposed upon us as geniuses men of correct, facile talent, who follow the beaten track.
+ - Perfection is such a nuisance that I often regret having cured myself of using tobacco.
+ - Through the centuries, the history of peoples is but a lesson in mutual tolerance.
+
+72 quotes

@@ -1,0 +1,42 @@
+ - We are all broken, that’s how the light gets in. ~~Ernest Hemingway
+ - I didn’t fail 1000 times. The light bulb was an invention with 1000 steps. ~~Thomas A. Edison
+ - Your light is more magnificent than sunrise or sunset. ~~Rumi
+ - May it be a light to you in dark places, when all other lights go out. ~~J. R. R. Tolkien
+ - Light up the darkness. ~~Bob Marley
+ - The dark does not destroy the light; it defines it. It’s our fear of the dark that casts our joy into the shadows. ~~Brené Brown
+ - To trust God in the light is nothing, but trust him in the dark - that is faith. ~~Charles H. Spurgeon
+ - Instead of fighting the darkness, you bring in the light. ~~Eckhart Tolle
+ - Do not go gently into that good night but rage, rage against the dying of the light. ~~Dylan Thomas
+ - What doesn’t transmit light creates its own darkness. ~~Marcus Aurelius
+ - Rage, rage against the dying light. ~~Dylan Thomas
+ - There’s a light somewhere. It may not be much light but it beats the darkness. ~~Charles Bukowski
+ - Light attracts light. But sometimes your light attracts moths and your warmth attracts parasites. Protect your space and energy. ~~Warsan Shire
+ - I believe there are angels among us, sent down to us from somewhere up above. They come to you and me in our darkest hours, to show us how to live, to teach us how to give, to guide us with a light of love. ~~Helen Keller
+ - Light is to darkness what love is to fear; in the presence of one the other disappears. ~~Marianne Williamson
+ - A smile is the light in your window that tells others that there is a caring, sharing person inside. ~~Denis Waitley
+ - There is no coming to consciousness without pain. People will do anything, no matter how absurd, in order to avoid facing their own Soul. One does not become enlightened by imagining figures of light, but by making the darkness conscious. ~~C.G. Jung
+ - Light up the fire of love inside and blaze the thoughts away. ~~Rumi
+ - Long is the way and hard, that out of hell leads up to light. ~~John Milton
+ - I run on the road long before I dance under the lights. ~~Muhammad Ali
+ - Where there is darkness, let there be light. ~~Francis of Assisi
+ - Give me love, give me peace on earth, give me light, give me life. ~~George Harrison
+ - It doesn’t matter if a cave has been in darkness for 10,000 years or half an hour, once you light a match it is illuminated. ~~Paramahansa Yogananda
+ - No matter what you’re going through, there’s a light at the end of the tunnel and it may seem hard to get to it but you can do it and just keep working towards it and you’ll find the positive side of things. ~~Demi Lovato
+ - It is our light, not our darkness that most frightens us. ~~Marianne Williamson
+ - Do you hear the people sing Lost in the valley of the night? It is the music of a people Who are climbing to the light. For the wretched of the earth There is a flame that never dies. Even the darkest night will end And the sun will rise. ~~Victor Hugo
+ - Sometimes you get the best light from a burning bridge. ~~Don Henley
+ - The light of Greece opened my eyes, penetrated my pores, expanded my whole being. ~~Henry Miller
+ - You can’t beat death but you can beat death in life, sometimes. And the more often you learn to do it, the more light there will be. Your life is your life. Know it while you have it. ~~Charles Bukowski
+ - In your light I learn how to love. ~~Rumi
+ - The light which puts out our eyes is darkness to us. Only that day dawns to which we are awake. There is more day to dawn. The sun is but a morning star. ~~Henry David Thoreau
+ - The truth is revealed by removing things that stand in its light, an art not unlike sculpture, in which the artist creates, not by building, but by hacking away. ~~Alan Watts
+ - The difficulties you meet will resolve themselves as you advance. Proceed, and light will dawn, and shine with increasing clearness on your path. ~~Jim Rohn
+ - Even in darkness it is possible to create light. ~~Elie Wiesel
+ - Give light and people will find the way. ~~Ella Baker
+ - It is better to light one small candle of gratitude than to curse the darkness. ~~Confucius
+ - To love beauty is to see light. ~~Victor Hugo
+ - Christmas is most truly Christmas when we celebrate it by giving the light of love to those who need it most. ~~Ruth Carter Stapleton
+ - Nothing is worth more than laughter. It is strength to laugh and to abandon oneself, to be light. Tragedy is the most ridiculous thing. ~~Frida Kahlo
+ - Hope is being able to see that there is light despite all of the darkness. ~~Desmond Tutu
+
+40 quotes

@@ -1,0 +1,202 @@
+ - How odd I can have all this inside me and to you it’s just words.
+ - The really important kind of freedom involves attention, and awareness, and discipline, and effort, and being able truly to care about other people and to sacrifice for them, over and over, in myriad petty little unsexy ways, every day.
+ - You will become way less concerned with what other people think of you when you realize how seldom they do.
+ - Everything I’ve ever let go of has claw marks on it.
+ - The truth will set you free. But not until it is finished with you.
+ - Everybody is identical in their secret unspoken belief that way deep down they are different from everyone else.
+ - Every love story is a ghost story.
+ - Stay conscious and alive, day in and day out.
+ - I wish you way more than luck.
+ - Good writing isn’t a science. It’s an art, and the horizon is infinite. You can always get better.
+ - No single, individual moment is in and of itself unendurable.
+ - True heroism is minutes, hours, weeks, year upon year of the quiet, precise, judicious exercise of probity and care – with no one there to see or cheer. This is the world.
+ - Everything takes time. Bees have to move very fast to stay still.
+ - Everybody worships. The only choice we get is what to worship.
+ - If your fidelity to perfectionism is too high, you never do anything.
+ - You get to consciously decide what has meaning and what doesn’t. You get to decide what to worship.
+ - Fiction is one of the few experiences where loneliness can be both confronted and relieved.
+ - Good fiction’s job is to comfort the disturbed and disturb the comfortable.
+ - I’ll say God seems to have a kind of laid-back management style I’m not crazy about. I’m pretty much anti-death. God looks by all accounts to be pro-death. I’m not seeing how we can get together on this issue, he and I...
+ - Entertainment provides relief. Art provokes engagement.
+ - In the day-to-day trenches of adult life, there is actually no such thing as atheism. There is no such thing as not worshipping. Everybody worships. The only choice we get is what to worship.
+ - Acceptance is usually more a matter of fatigue than anything else.
+ - There is no hatred in my love for you. Only a sadness I feel all the more strongly for my inability to explain or describe it.
+ - What the really great artists do is they’re entirely themselves. They’re entirely themselves, they’ve got their own vision, they have their own way of fracturing reality, and if it’s authentic and true, you will feel it in your nerve endings.
+ - Try to learn to let what is unfair teach you.
+ - So yo then man what’s your story?
+ - Look, man, we’d probably most of us agree that these are dark times, and stupid ones, but do we need fiction that does nothing but dramatize how dark and stupid everything is?
+ - Mediocrity is contextual.
+ - Perhaps this is what it means to go mad: to be emptied and to be aware of the emptiness.
+ - We’re all lonely for something we don’t know we’re lonely for. How else to explain the curious feeling that goes around feeling like missing somebody we’ve never even met?
+ - I’d tell you all you want and more, if the sounds I made could be what you hear.
+ - Lucky people develop a relationship with a certain kind of art that becomes spiritual, almost religious, and doesn’t mean, you know, church stuff, but it means you’re just never the same.
+ - What goes on inside is just too fast and huge and all interconnected for words to do more than barely sketch the outlines of at most one tiny little part of it at any given instant.
+ - I don’t want to hurt myself. I want to stop hurting.
+ - The depressed person was in terrible and unceasing pain, and the impossibility of sharing or articulating this pain was itself a component of the pain and a contributing factor in its essential horror.
+ - It means being conscious and aware enough to choose what you pay attention to and to choose how you construct meaning from experience.
+ - The fun of reading as “an exchange between consciousnesses, a way for human beings to talk to each other about stuff we can’t normally talk about.”
+ - Worship power-you will feel weak and afraid, and you will need ever ore power over others to keep the fear at bay. Worship your intellect, being seen as smart-you will end up feeling stupid, a fraud, always on the verge of being found out.
+ - We are not dead but asleep, dreaming of ourselves.
+ - Please learn the pragmatics of expressing fear: sometimes words that seem to express really invoke. This can be tricky.
+ - Fiction is about what it is to be a human being.
+ - It’s weird to feel like you miss someone you’re not even sure you know.
+ - I am not what you see and hear. -Hal.
+ - Everything in my own immediate experience supports my deep belief that I am the absolute center of the universe, the realest, most vivid and important person in existence.
+ - Truly decent, innocent people can be taxing to be around.
+ - But of course there are all kinds of freedom, and the kind that is most precious you will not hear much talked about in the great outside world of winning and achieving and displaying.
+ - The great thing about irony is that it splits things apart, gets up above them so we can see the flaws and hypocrisies and duplicates.
+ - My personal belief is that because technology and economic logic has gotten so sophisticated, cruelties can be perpetrated now that would have been unimaginable two or three hundred years ago.
+ - I had kind of a midlife crisis at twenty which probably doesn’t augur well for my longevity.
+ - What TV is extremely good at – and realize that this is ‘all it does’ – is discerning what large numbers of people think they want, and supplying it.
+ - That everything is on fire, slow fire, and we’re all less than a million breaths away from an oblivion more total than we can even bring ourselves to even try to imagine...
+ - I have filled 3 Mead notebooks trying to figure out whether it was Them or Just Me.
+ - I often think I can see it in myself and in other young writers, this desperate desire to please coupled with a kind of hostility to the reader.
+ - In reality, there is no such thing as not voting: you either vote by voting, or you vote by staying home and tacitly doubling the value of some Diehard’s vote.
+ - The point of books is to combat loneliness.
+ - I’m not afraid of new things. I’m just afraid of feeling alone even when there’s somebody else there. I’m afraid of feeling bad. Maybe that’s selfish, but it’s the way I feel.
+ - I don’t think writers are any smarter than other people. I think they may be more compelling in their stupidity, or in their confusion.
+ - Beauty is not the goal of competitive sports, but high-level sports are a prime venue for the expression of human beauty.
+ - There is such a thing as raw, unalloyed, agendaless kindness.
+ - And when he came to, he was flat on his back on the beach in the freezing sand, and it was raining out of a low sky, and the tide was way out.
+ - Stated as an English sentence, of course, this is just a banal platitude-but the fact is that, in the day-to-day trenches of adult existence, banal platitudes can have life-or-death importance. That may sound like hyperbole, or abstract nonsense.
+ - Whatever you get paid attention for is never what you think is most important about yourself.
+ - Lonely people tend, rather, to be lonely because they decline to bear the psychic costs of being around other humans. They are allergic to people. People affect them too strongly.
+ - The interesting thing is why we’re so desperate for this anesthetic against loneliness.
+ - The severing of an established connection is exponentially more painful than the rejection of an attempted connection.
+ - We’re not keen on the idea of the story sharing its valence with the reader. But the reader’s own life “outside” the story changes the story.
+ - What if sometimes there is no choice about what to love? What if the temple comes to Mohammed? What if you just love? without deciding? You just do: you see her and in that instant are lost to sober account-keeping and cannot choose but to love?
+ - It did what all ads are supposed to do: create an anxiety relievable by purchase.
+ - Almost nothing important that ever happens to you happens because you engineer it.
+ - He suddenly felt nothing, or rather Nothing, a pre-tornadic stillness of zero sensation, as if he were the very space he occupied.
+ - The assumption that you everyone else is like you. That you are the world. The disease of consumer capitalism. The complacent solipsism.
+ - It’s a very American illness, the idea of giving yourself away entirely to the idea of working in order to achieve some sort of brass ring that usually involves people feeling some way about you – I mean, people wonder why we walk around feeling alienated and lonely and stressed out.
+ - There are no choices without personal freedom, Buckeroo. It’s not us who are dead inside. These things you find so weak and contemptible in us – these are just the hazards of being free.
+ - To experience commitment as the loss of options, a type of death, the death of childhood’s limitless possibility, of the flattery of choice without duress-this will happen, mark me. Childhood’s end.
+ - I perhaps could have been somewhat better. One of the interesting things about playing competitive sports as a child is that you confront your own limitations rather starkly at a certain point.
+ - If Realism called it like it saw it, Metafiction simply called it as it saw itself seeing itself see it.
+ - The job of the first eight pages is not to have the reader want to throw the book at the wall, during the first eight pages.
+ - Psychotics, say what you want about them, tend to make the first move.
+ - I never, even for a moment, doubted what they’d told me. This is why it is that adults and even parents can, unwittingly, be cruel: they cannot imagine doubt’s complete absence. They have forgotten.
+ - American experience seems to suggest that people are virtually unlimited in their need to give themselves away, on various levels. Some just prefer to do it in secret.
+ - Talent is its own expectation, Jim: you either live up to it or it waves a hankie, receding forever.
+ - I miss everyone. I can remember being young and feeling a thing and identifying it as homesickness, and then thinking well now that’s odd, isn’t it, because I was home, all the time. What on earth are we to make of that?
+ - Not that that mystical stuff’s necessarily true: The only thing that’s capital-T true is that you get to decide how you’re going to try to see it.
+ - Most of us will still take nihilism over neanderthalism.
+ - Do not underestimate objects.
+ - It’s in the democratic citizen’s nature to be like a leaf that doesn’t believe in the tree it’s part of.
+ - This diagnosis can be done in about two lines. It doesn’t engage anybody.
+ - She took a sort of abject pride in her mecilessness toward herself.
+ - The new rebels might be artists willing to risk the yawn, the rolled eyes, the cool smile, the nudged ribs, the parody of gifted ironists, the ‘Oh how banal.’
+ - In fact, the likeliest reason why so many of us care so little about politics is that modern politicians makes us sad, hurt us deep down in ways that are hard even to name, much less talk about.
+ - Fiction becomes a weird way to countenance yourself and to tell the truth instead of being a way to escape yourself or present yourself in a way you figure you will be maximally likable.
+ - Hal Incandenza has an almost obsessive dislike for deLint, whom he tells Mario he sometimes cannot quite believe is even real, and tries to get to the side of, to see whether deLint has a true z coordinate or is just a cutout or projection.
+ - I love the way you love, but I hate the way I’m supposed to love you back.
+ - Say the whole point of love is to try to get your fingers through the holes in the lover’s mask. To get some kind of hold on the mask, and who cares how you do it.
+ - If you’ve never wept and want to, have a child.
+ - Nothing brings you together like a common enemy.
+ - For me, boviscopophobia is an even stronger motive than semi-agoraphobia for staying on the ship when we’re in port.
+ - The greatest sin is appearing naive or old-fashioned so that somebody can give you a sort of a very cool arch smile and devastate you with one extraordinarily crafted line that puts kind of a hole in your pretentious balloon.
+ - I think it’s easy to stop smoking; it’s just hard not to commit a felony after you stop.
+ - The integrity of my sleep has been forever compromised, sir.
+ - No wonder we cannot appreciate the really central Kafka joke: that the horrific struggle to establish a human self results in a self whose humanity is inseparable from the horrific struggle. That our endless and impossible journey toward home is in fact our home.
+ - To be willing to sort of die in order to move the reader, somehow. Even now I’m scared about how sappy this’ll look in print, saying this.
+ - Some words have to be explicitly uttered, Lenore. Only by actually uttering certain words does one really DO what one SAYS. ‘Love’ is one of those words, performative words. Some words can literally make things real.
+ - It’s probably hard to feel any sort of Romantic spiritual connection to nature when you have to make your living from it.
+ - You are what you love. No? You are, completely and only, what you would die for without, as you say, the thinking twice.
+ - I believe I want adult sanity, which seems to me the only unalloyed form of heroism available today.
+ - TV’s “real” agenda is to be “liked,” because if you like what you’re seeing, you’ll stay tuned. TV is completely unabashed about this; it’s its sole raison.
+ - The entire ball game, in terms of both the exam and life, was what you gave attention to vs. what you willed yourself to not.
+ - Scenery is here. Wish you were beautiful.
+ - Most really pretty girls have pretty ugly feet, and so does Mindy Metalman, Lenore notices, all of a sudden.
+ - But if I decide to decide there’s a different, less selfish, less lonely point to my life, won’t the reason for this decision be my desire to be less lonely, meaning to suffer less overall pain? Can the decision to be less selfish ever be anything other than a selfish decision?
+ - My chest bumps like a dryer with shoes in it.
+ - The sound of wind had become, for me, silence. When it went away, I was left with the squeak of the blood in my head and the aural glitter of all those little eardrum hairs quivering like a drunk in withdrawal.
+ - America, as everybody knows, is a country of many contradictions, and a big contradiction for a long time has been between a very aggressive form of capitalism and consumerism against what might be called a kind of moral or civic impulse.
+ - Worship your body, beauty, and sexual allure and you will die a million deaths before they finally grieve you.
+ - She had a brainy girls discomfort about her own beauty and its effects on folks.
+ - I received 500,000 discrete bits of information today, of which maybe 25 are important. My job is to make some sense of it.
+ - Quentin Tarantino is interested in watching somebody’s ear getting cut off; David Lynch is interested in the ear.
+ - My worst character flaw that I’m conscious of is that I tend to think my way into circles instead of resolving anything. It’s paralyzing and boring for people around me.
+ - This is so American, man: either make something your God and cosmos and then worship it, or else kill it.
+ - If you’re automatically sure that you know what reality is and who and what is really important-if you want to operate on your default-setting-then you, like me, will not consider possibilities that aren’t pointless and annoying.
+ - For these cultures, getting rid of the pain without addressing the deeper cause would be like shutting off a fire alarm while the fire’s still going.
+ - Capital T-truth is about life before death.
+ - Mario, what do you get when you cross an insomniac, an unwilling agnostic and a dyslexic?
+ - I’m screaming for help and everybody’s acting as if I’m singing Ethel Merman covers...
+ - Hear this or not, as you will. Learn it now, or later – the world has time. Routine, repetition, tedium, monotony, ephemeracy, inconsequence, abstraction, disorder, boredom, angst, ennui – these are the true hero’s enemies, and make no mistake, they are fearsome indeed. For they are real.
+ - I cannot say what color Lenore Beadsman’s eyes are; I cannot look at them; they are the sun to me.
+ - The sun like a sneaky keyhole view of hell.
+ - There happen to be whole large parts of adult American life that nobody talks about in commencement speeches. One such part involves boredom, routine, and petty frustration.
+ - The man who knows his limitations, has none.
+ - It’s all very confusing. I think I’m very honest and candid, but I’m also proud of how honest and candid I am – so where does that put me?
+ - I just think that fiction that isn’t exploring what it means to be human today isn’t art.
+ - Of course, the fact that Dostoevsky can tell a juicy story isn’t enough to make him great. If it were, Judith Krantz and John Grisham would be great fiction writers, and by any but the most commercial standards they’re not even very good.
+ - He knew what the Beats know and what the great tennis player knows, son: learn to do nothing, with your whole head and body, and everything will be done by what’s around you.
+ - It’s like a fugue of evaded responsibility.
+ - So which is the lie? Hard or soft? Silence or time?
+ - God seems to have a kind of laid-back management style I’m not crazy about.
+ - I had, by thirteen, developed a sort of Taoist hubris about my ability to control via non-control.
+ - The other half is to dramatize the fact that we still “are” human beings, now. Or can be.
+ - I felt the sort of soaring, ceilingless tedium that transcends tedium and becomes worry.
+ - I think TV promulgates the idea that good art is just art which makes people like and depend on the vehicle that brings them the art.
+ - Kafka’s evocations are, rather, unconscious and almost sub-archetypal, the little-kid stuff from which myths derive; this is why we tend to call even his weirdest stories nightmarish rather than surreal.
+ - The individual’s right to pursue his own vision of the best ration of pleasure to pain: utterly sacrosanct.
+ - I had four hundred thousand pages of continental philosophy and lit theory in my head. And by God, I was going to use it to prove to him that I was smarter than he was.
+ - Many people in America throw the term “fascism” around, particularly for Middle-Eastern terrorists, but in fact what fascism really is is a close alliance between a unitary executive and a state and large corporations and a state.
+ - The problem is that once the rules of art are debunked, and once the unpleasant realities the irony diagnoses are revealed and diagnosed, ‘then’ what do we do?
+ - I will probably write an hour a day and spend eight hours a day biting my knuckle and worrying about not writing.
+ - For those who’ve never experienced a sunrise in the rural midwest, it’s roughly as soft and romantic as someone’s abruptly hitting the lights in a dark room.
+ - I think the only thing for me, the tricky thing with the footnotes, is that they are an irritant, and they require a little extra work, and so they either have to be really germane or they have to be kind of fun to read.
+ - Words and a book and a belief that the world is words...
+ - This is nourishing, redemptive we become less alone inside.
+ - At root, vulgar just means popular on a mass scale. It is the semantic opposite of pretentious or snobby. It is humility with a comb-over. It is Nielsen ratings and Barnum’s axiom and the real bottom line. It is big, big business.
+ - This appetite to choose death by pleasure if it is available to choose – this appetite of your people unable to choose appetites, this is the death.
+ - To make someone an icon is to make him an abstraction, and abstractions are incapable of vital communication with living people.
+ - Does somebody have an explanation why there’s human flesh on the hall window upstairs?
+ - There’s a weird kind of paradox that the more expensive the vacation is, the more potentially anxiety-producing it is.
+ - We will, of course, without hesitation use art to parody, ridicule, debunk, or criticize ideologies.
+ - There are secrets within secrets, though – always.
+ - It is tragic and sad and chaotic and lovely. All life is the same, as citizens of the human State: the animating limits are within, to be killed and mourned, over and over again.
+ - This might be one way to start talking about differences between the early postmodern writers of the fifties and sixties and their contemporary descendants.
+ - One of the things that makes Wittgenstein a real artist to me is that he realized that no conclusion could be more horrible than solipsism.
+ - The reader becomes God, for all textual purposes. I see your eyes glazing over, so I’ll hush.
+ - A novelist has to know enough about a subject to fool the passenger next to him on an airplane.
+ - That what appears to be egoism so often isn’t.
+ - The desire for perfect release and the real-world impossibility of perfect, whenever-you-want-it release had together produced a tension they could no longer stand.
+ - The parts of me that used to think I was different or smarter or whatever, almost made me die.
+ - All I’m saying is that it’s shortsighted to blame TV. It’s simply another symptom. TV didn’t invent our aesthetic childishness here any more than the Manhattan Project invented aggression.
+ - It was when I was the age where you can, as they say, “hear voices” without worrying that something is wrong with you. I “heard voices” all the time as a small child.
+ - She wanted only tall smooth bottles whose labels spoke of Proof.
+ - I’d like to be the sort of person who can enjoy things at the time, instead of having to go back in my head and enjoy them.
+ - Keep in mind that a language is both a map of the world and its own world, with its own shadowlands and crevasses – places where statements that seem to obey all the language’s rules are nevertheless impossible to deal with.
+ - Nuclear weapons and TV have simply intensified the consequences of our tendencies, upped the stakes.
+ - People, unless they’re paying attention, tend to confuse fanciness with intelligence or authority.
+ - No one can call themselves a writer until he or she has written at least fifty stories.
+ - Here is how to handle being a feral prodigy.
+ - If you worship power, you will feel weak and afraid, needing ever more power over others to keep the fear at bay.
+ - You have decided being scared is caused mostly by thinking.
+ - If some people read my fiction and see it as fundamentally about philosophical ideas, what it probably means is that these are pieces where the characters are not as alive and interesting as I meant them to be.
+ - My bones are ringing the way sometimes people say their ears are ringing, I’m so tired.
+ - I knew my limitations and the limitations of the courts I played on, and adjusted thusly. I was at my best in bad conditions.
+ - It can become an exercise in trying to get the reader to like and admire you instead of an exercise in creative art.
+ - Do this: hate him for me after I die. I beg you. Dying request.
+ - Certain sincerely devout and spiritually advanced people believe that the God of their understanding helps them find parking places and gives them advice on Mass. Lottery numbers.
+ - The way I think about things and experience things is not particularly linear, and it’s not orderly, and it’s not pyramidical, and there are a lot of loops.
+ - Dieting makes me want to murder everyone around me.
+ - I tend to think of fiction as being mainly about characters and human beings and inner experience, whereas essays can be much more expository and didactic and more about subjects or ideas.
+ - Almost anything that you pay close, direct attention to becomes interesting.
+ - Ideally, each piece of art’s its own unique object, and its evaluation’s always present-tense.
+ - Good literature makes your head throb heartlike.
+ - Dostoevski informs everybody; or he ought to.
+ - It seems important to find ways of reminding ourselves that most “familiarity” is meditated and delusive.
+ - You have a great deal of yourself on the line, writing- your vanity is at stake. You discover a tricky thing about fiction writing; a certain amount of vanity is necessary to be able to do it all, but any vanity above that certain amount is lethal.
+ - Like most North Americans of his generation, Hal tends to know way less about why he feels certain ways about the objects and pursuits he’s devoted to than he does about the objects and pursuits themselves. It’s hard to say for sure whether this is even exceptionally bad, this tendency.
+ - I felt, as I became a later and later bloomer, alienated not just from my own recalcitrant glabrous little body but in a way from the whole elemental exterior I’d come to see as my co-conspirator.
+ - God, what a ghastly enterprise to be in, though-and what an odd way to achieve success. I’m an exhibitionist who wants to hide, but is unsuccessful at hiding; therefore, somehow I succeed.
+ - Writing fiction takes me out of time. I sit down and the clock will not exist for me for a few hours. That’s probably as close to immortal as we’ll ever get.
+ - There are very few innocent sentences in writing.
+ - Tell them there are no holes for your fingers in the masks of men. Tell them how could you ever even hope to love what you can’t grab onto.
+ - And he wishes, in the cold quiet of his archer’s heart, that he himself could feel the intensity of their reconciliations as strongly as he feels that of their battles.
+ - I find in myself a need to get very away.
+
+200 quotes

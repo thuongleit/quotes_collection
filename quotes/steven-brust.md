@@ -1,0 +1,33 @@
+ - No matter how subtle the wizard, a knife between the shoulder blades will seriously cramp his style.
+ - Plan. Yes. Good idea. I should come up with a plan.
+ - Most people seem to take pleasure in feeling superior to someone. I’m not like that, which pleases me because it makes me feel superior.
+ - Always speak politely to an enraged dragon.
+ - There is no excuse for bad manners, except fast reflexes.
+ - One man’s mistake is another man’s opportunity.
+ - Staring into the dragon’s maw, one quickly learns wisdom.
+ - A stupid person can make only certain, limited types of errors; the mistakes open to a clever fellow are far broader. But to the one who knows how smart he is compared to everyone else, the possibilities for true idiocy are boundless.
+ - What’s the point of having weak enemies? They just waste your time.
+ - Appropriate action means to advance your own goals, without unintentional harm to anyone else.
+ - Everybody generalizes from one example. At least, I do.
+ - But once you allow yourself to recognize necessity, you find two things: One you find your options so restricted that the only course of action is obvious, and, two, that a great sense of freedom comes with the decision.
+ - The novel should be understood as a structure built to accommodate the greatest possible amount of cool stuff.
+ - That’s what does it – that moment where you think you’re lost, and then discover that you’re not, that you’ve never really left. There’s something that happens in that incredible tiny no-time, and that something is like the revelation of learning.
+ - One nice thing about putting the thing away for a couple of months before looking at it is that you start appreciate your own wit. Of course, this can be carried too far. But it’s kind of cool when you crack up a piece of writing, and then realize you wrote it. I recommend this feeling.
+ - I’m told I’m very charming when people do what I want.
+ - I’d rather be running the game than playing it.
+ - It’s just that no one wants to be the one being rescued, we all want to do the rescuing.
+ - It is always man’s ideas which drive his actions. This has, at times, resulted in great evil; but as we look around us, we cannot doubt that it has resulted in greater good.
+ - I tend to close my eyes when I look at people anymore.
+ - Minneapolis has two seasons: Road Removal and Snow Repair.
+ - He got up and walked out, so I missed seeing the powerful sorcerer doing his powerful sorcery, which would have involved him closing his eyes and then, I don’t know, maybe taking a deep breath or something.
+ - The others followed, and found themselves in a small, stuffy basement, which would have been damp, smelly, close, and dark, were it not, in fact, well-lit, which prevented it from being dark.
+ - I guess there’s just a time for doing dumb things.
+ - There are millions of ways for people to die, if you number each vital organ, each ways it can fail, all the poisons from the earth and the sea which can cause these failures.
+ - Why do you work so hard to make yourself disliked? I should think you’d find it happens enough on its own without putting yourself to any extra trouble.
+ - You can’t put something together again unless you’ve torn it apart first.
+ - Do you think it’s possible to discuss politics without preaching?
+ - Because here’s the thing: No matter how much one tells stories of magical beasts or impossible worlds, in the end, it is always the world of here and now one is writing about. The better one understands that world, the more powerful the stories will be.
+ - Don’t explain why it works; explain how you use it.
+ - True heroics must be carefully planned – and strenuously avoided.
+
+31 quotes

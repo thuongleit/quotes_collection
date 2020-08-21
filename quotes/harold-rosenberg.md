@@ -1,0 +1,43 @@
+ - The differences between revolution in art and revolution in politics are enormous. Revolution in art lies not in the will to destroy but in the revelation of what has already been destroyed. Art kills only the dead.
+ - The aim of every authentic artist is not to conform to the history of art, but to release himself from it in order to replace it with his own history.
+ - A painting that is an act is inseparable from the biography of the artist.
+ - It is not logical for art to be logical. Art goes against the grain of the times as readily as it goes with it and at the very same moment. Instead of seeking the nearest exit, art responds to a new situation by uncovering a labyrinth of problems.
+ - The artist is obliged to invent the self who will paint his pictures.
+ - Both art and the artist lack identity and define themselves only through their encounter with each other.
+ - Kitsch is art that follows established rules in a time when all rules in art are put into question by each artist.
+ - Loiter in the neighborhood of a problem. After a while a solution strolls by.
+ - Abandoned by philosophy, politics, and sociology, historical determinism continues to hold out in formalist art criticism.
+ - The new painting has broken down every distinction between art and life.
+ - At a certain moment the canvas began to appear to one American painter after another as an arena in which to act-rather than as a space in which to reproduce, re-design, analyze or express an object, actual or imagined. What was to go on the canvas was not a picture but an event.
+ - The current demoralization of the art world is attributable at least in part to museum interference, ideological and practical, with ongoing creation in art.
+ - The purpose of education is to keep a culture from being drowned in senseless repetitions, each of which claims to offer a new insight.
+ - Today, each artist must undertake to invent himself, a lifelong act of creation that constitutes the essential content of the artist’s work.
+ - Whoever undertakes to create soon finds himself engaged in creating himself. Self-transformation and the transformation of others have constituted the radical interest of our century, whether in painting, psychiatry, or political action.
+ - No degree of dullness can safeguard a work against the determination of critics to find it fascinating.
+ - The struggle to make an absolute statement in an individually conceived vocabulary accounts for the profound tensions inherent in the best modern work.
+ - Whoever undertakes to create soon finds himself engaged in creating himself.
+ - The artist does not exist except as a personification, a figure of speech that represents the sum total of art itself. It is painting that is the genius of the painter, poetry of the poet, and a person is a creative artist to the extent that he participates in that genius.
+ - The skills of the modern artist are the opposite of those of the craftsman: instead of acquiring techniques for producing classes of objects, the artist today perfects the means suited to his particular work.
+ - The story of Americans is the story of arrested metamorphoses. Those who achieve success come to a halt and accept themselves as they are. Those who fail become resigned and accept themselves as they are.
+ - Only conservatives believe that subversion is still being carried on in the arts and that society is being shaken by it. Advanced art today is no longer a cause -it contains no moral imperative. There is no virtue in clinging to principles and standards, no vice in selling or in selling out.
+ - Art has arrived at the paradox that tradition itself requires the occurrence of radical attacks on tradition.
+ - A painter with prestige among painters is bound to be discovered sooner or later.
+ - Imitation of the art of earlier centuries, as that done by Picasso and Modigliani, is carried on not to perpetuate ancient values but to demonstrate that new aesthetic orders now prevail.
+ - For the artist, fulfillment of self consists not in marching in the ranks of the liberators but in being entered in the roll of the Masters. The artist tends to find himself in the position of a deserter from his social group or, at best, one who collaborates, with secret reservations.
+ - No dealer, curator, buyer or critic, or any existing combination of these, can be depended on to produce a reputation that is more than a momentary flurry.
+ - What better way to prove that you understand a subject than to make money out of it?
+ - Only conservatives believe that subversion is still being carried on in the arts and that society is being shaken by it...
+ - American time has stretched around the world. It has become the dominant tempo of modern history, especially of the history of Europe.
+ - Avant-gardism is an addiction that can be appeased only by a revolution in permanence.
+ - In the United States, revolts tends to be directed against specific situations, rarely against the social structure as a whole.
+ - In reality, however, an artist is a product of art.
+ - Abstract art as it is conceived at present is a game bequeathed to painting and sculpture by art history. One who accepts its premises must consent to limit his imagination to a depressing casuistry regarding the formal requirements of modernism.
+ - Greatness in art is always a by-product.
+ - Only through apprehending, by means of present-day creations, how art is created, can the creations of other periods be genuinely appreciated.
+ - An artist is a person who has invented an artist.
+ - How much the work of an artist owes to an art movement to which he belongs can never be determined exactly, if only because the movement derives its character from the individual creations of its members.
+ - The values to which the conservative appeals are inevitably caricatured by the individuals designated to put them into practice.
+ - Not only were the minds of artists formed by the university; in the same mold were formed those of the art historians, the critics, the curators, and the collectors by whom their work was evaluated. With the rise of Conceptual art, the classroom announced its final triumph over the studio.
+ - America is the civilization of people engaged in transforming themselves. In the past, the stars of the performance were the pioneer and the immigrant. Today, it is youth and the Black.
+
+41 quotes

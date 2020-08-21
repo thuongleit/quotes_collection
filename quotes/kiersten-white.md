@@ -1,0 +1,69 @@
+ - And I’d choose you; in a hundred lifetimes, in a hundred worlds, in any version of reality, I’d find you and I’d choose you.
+ - I can’t seem to keep my heart from leaking out of the cracks, like sand clutched in a fist.
+ - Ah, stupid, you know I love you, too.
+ - Yo soy carne muerta. Translation: I am dead meat.
+ - The only life I want is one with you.
+ - I still had an irrational desire to do an interpretive dance about rainbows, but it was a small price to pay for being healed.
+ - You stink like a faerie, all flowers and sunshine and evil manipulation.
+ - Eyes like streams of melting snow, cold with the things she does not know. Heaven above and Hell beneath, liquid flames to hide her grief. Death, death, death with no release. Death, death, death with no release.
+ - He saved me. He freaking electrocuted himself to save me. I’m gonna be there when he wakes up so I can tell him thanks.
+ - I will fill myself with the desert and the sky. I will be stone and stars, unchanging and strong and safe. The desert is complete; it is spare and alone, but perfect in its soltitude. I will be the desert.
+ - I’ll see you in your dreams, okay, stupid?
+ - I had just lot my best friend, barely escaped having my life sucked out by a psychotic burning girl, committed treason and nearly gotten the guy I liked killed by a crazy faerie. What were hairy legs compared to that?
+ - I open my eyes to see Ry staring at me, and my desert soul erupts with turquoise water, floods and cascades and waterfalls rushing in around my rocky parts, pushing and reshaping and filling every hidden dark spot.
+ - You know, they say when someone keeps making excuses to say your name it means they like you.
+ - I should curl up in a ball and cry. Instead i think about everything in the whole entire world that makes me angry – There is a lot, oh, there is a lot – and I start singing Justin Bieber at the top of my lungs.
+ - I guess I can’t blame him for feeling bitter. Going from being the terror of Bulgarian nights to a janitor would kinda suck.
+ - If he wakes up, I swear I’ll do anything. I’ll open gates, I’ll help all the paranormals, I’ll never judge people wearing Crocs again. Just let him wake up. Please.
+ - He winked at her. She giggled. And I threw up a little in my mouth.
+ - I get that you’re scared and that you’ve been hurt. But doing what is easy and safe is no way to live, and a life without passion and love is so far beneath what you deserve.
+ - I’d tell him, though. Soon. Soonish. Eventually.
+ - We linked hands – my ex-boyfriend, my boyfriend, and my former friend-then-enemy-then friend and I – and walked through a door to see if maybe empty carbs were good for something after all.
+ - Jack might look my age, but he was like a little kid on a sugar high – in need of a good spanking. – Good heavens, that sounded creepy.
+ - There’s a reason cats were near deity in ancient Egypt. Dogs may be loyal, but cats are smart. This one must recognize our bond. You can take the cat ouf of Egypt, but you can’t take Egypt out of the cat. Wow, I should have that embroidered on a pillow or something.
+ - Then the other door opened. I wen’t rigid. If I had thought Reth’s was beautiful, it was nothing to this soul. It filled the night with light, dancing and rippling like the reflection on a pond. I hadn’t seen many souls, but I knew this one was special. I wanted it. I needed it.
+ - He sighed heavily. “Girls are mean. At least faeries simply kill you if they don’t want you around.” He put a hand on the wall, leaning against it and tapping his foot impatiently.
+ - You’ll be fine, just some minor burns and hypothermia, which was kind of hard to explain.
+ - Jack was balancing a spoon on his nose when I walked in. “You,” I said knocking it off his face. “Me!” He answered cheerfully.
+ - I thought I’d learn a few new words, but the men were too shocked to even swear this time.
+ - Soap operas got nothing on my family history.
+ - I hate the vamp jobs. They think they’re so suave. It’s not enough for them to slaughter and eat you like a zombie would. No, they want to be all sexy, too. And trust me: vampires? Not. Sexy.
+ - What a lovely balance. Lend shows whatever he wants the world to see and you see through whatever the world wants to show you.
+ - I’d been fighting for this relationship since the day I first saw his water eyes.
+ - Yeah I know you’re a creature of the night. Bringer of death, sucker of blood, needer of tans, so on and so forth. And oddly enough, I’m still unimpressed.
+ - Survival instincts are one of those things that never die.
+ - Plus as she put it, Prince Eric was far too hairy and peach colored for her taste. I always thought he was pretty hott, but then again, I am a mammal.
+ - Boys suck. Even when they have perfect blue eyes and ridiculously cool trucks. Maybe especially then.
+ - My heart is sand and Orion’s cruel tide has washed it away from me, scattered it, lost it.
+ - If you fail to report within the next 12 hours. you will be terminated. If you attack any humans, you will be terminated. If you attempt to remove the tracking device, you will be terminated. We look forward to working with you.
+ - I opened the door and Lend smiled. ‘They look better on you.’ ‘Wow, they must look just awful on you then.’ I smiled back.
+ - I am the ocean we lived on for two months. I am empty. I am nothing.
+ - Sometimes I wanted to take a memory – one perfect memory – curl up in it, and go to sleep.
+ - Lend’s dad, two werewolves, and a vampire. It was like the setup to a bad joke or something. A doctor, two werewolves, and a vampire walk into a bar. “What’ll you have?” the bartender asks. “We were thinking him,” the vampire answers, eyeing the doctor. Okay, jokes weren’t my strong point.
+ - I could have melted ice, my smile was so bright.
+ - Being dead wasn’t supposed to hurt. Where was the fairness in that? If I was dead, the least the universe could do was make it painless.
+ - Planning is not my friend. Impulse is.
+ - What do you think? Does this face make me look fat?
+ - He smiled at my reaction, the stupid smile of his that was like he knew something you didn’t. And he knew something I didn’t pretty much all the time, so it was pretty much every smile on his face.
+ - What’s the point in hating something if you aren’t proactive?
+ - She stared at him in that vapid, intoxicated way employed only by women under a vamp’s control. Or the way I sometimes got when faced with cupcakes. Mmm. Cupcakes.
+ - Reth laughed. I punched him. It hurt. Me, not him, unfortunately.
+ - Leave it to a boy to make the Faerie Realms look like a dump.
+ - This particular type of human carries weapons slightly more lethal than your beloved pink monstrosity.
+ - Can’t he be lonely and unbalanced around someone else’s girlfriend?
+ - Wait, so am I allowed to put my shirt back on? Or did you want me to remove my pants, too?
+ - Maybe I’m weird, but watching Lend drive was sexy.
+ - Faeries and vampires were glittery now? Honestly.
+ - I so owed Arianna, that undead little genius.
+ - That’s more like it. You’re much prettier when you aren’t talking. True of most people, I’ve found.
+ - Yo soy carne muerta.
+ - Streams of melting snow.
+ - Bleep if I was going to stage a rescue in a freaking pantsuit.
+ - I’ve got a nine iron that says otherwise.
+ - Maybe I shouldn’t mouth off to the elemental I kinda hoped was my future mother-in-law.
+ - In this room I have picked which gun was unloaded out of ten options. And then they pulled the trigger on me. I have picked stocks that went on to skyrocket. I have picked which pencil I would shove into Ms. Robertson’s ear until she kicked me out for thinking about it.
+ - I scooted over, patting the bed next to me. “No such luck. And now you get to watch forty straight hours of Easton Heights with me!” He turned on the first disk, shaking his head, then got onto the bed next to me. “Small price to pay for getting to hold your hand.” I wasn’t cold anymore.
+ - Their smiles are lies. Most smiles are.
+ - Knowing where I came from didn’t change who I was.
+
+67 quotes

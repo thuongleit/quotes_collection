@@ -1,0 +1,39 @@
+ - We make our own problems every time. Everything that we complain about is something we can solve.
+ - Sometimes you fail your chemistry test and other times it’s explosive.
+ - Good, bad, I’m the guy with the gun.
+ - When life gives you lemons, throw them at the zombies.
+ - The Way I See It: If you’re worried about getting a job-or keeping one-start a company of your own. By doing so, you’ll reap the rewards of your hard work and you’ll only get fired if you fail. This is the land of opportunity. Live in it.
+ - The prospects were depressing: Adulthood meant that I’d have to stop having fun and do something I didn’t really want to do for the rest of my life – which was apparently a considerable chunk of time.
+ - Once you look past the hype, actors are nothing more than fugitives from reality who specialize in contradiction: we are both children and hardened adults – wide-eyed pupils and jaded working stiffs.
+ - Such is an actor’s life. We must ride the waves of every film, barfing occasionally, yet maintain our dignity, even as the bulk of our Herculean efforts are keel-hauled before our very eyes.
+ - If you have script problems and you don’t fix them by the time you shoot, your script problems are now 40 feet tall.
+ - All men think they’re fascinating. In my case, it’s justified.
+ - I’m sick of over-trained heroes. I’m really bored with that. Guys that are just ripped to shreds and full of skills. That’s boring me. Give me the mechanic that picks up a weapon. Now I’m interested. That’s my hero.
+ - The happy medium is television. And if you find a good suitor, you can do it for years. With movies, you roll the dice. If people don’t show that weekend, you’re doomed. TV allows you to percolate a little bit, and it gives you a chance for people to find it.
+ - If you don’t have any money and you want to make a horror movie, take a six-inch wide brush for house painting and dip that in a bucket of blood, and then just flick your wrist. You’ll get this great speckled splash of blood, and it will cost you nothing.
+ - Actors who say they can dive inside a character are either schizophrenic or lying.
+ - I don’t care about the genre so much. I’m good with horror, but I like other genres, too.
+ - Any time a writer thinks he has all the answers to how someone should talk or react or end a scene, it’s a spontaneity-killer.
+ - It’s very gratifying that someone likes what you’re selling.
+ - As far as my favorite sites, I do a lot of mundane stuff on line because I travel so much.
+ - You’re not looking for the Rolls Royce and the big fancy trailer. Those are supposed to be the byproducts of having fun and then getting good at what you do.
+ - I see the Internet as the next big deal – I wanted to get in on it early on so I wouldn’t get behind it all.
+ - I’ll do more than the average actor, but I’m smart enough to know why stunt guys exist.
+ - Digital blood is not effective.
+ - If I had all the money in the world, I’d still make movies. But I’d want them to pay me in donuts.
+ - You’ll lose about two million brain cells every minute that goes by.
+ - Horror I appreciate is one of the few genres that can wind the audience up and make them pay attention. I kind of like that. It’s one of the few genres that can be very manipulative.
+ - My father was in the ad business, and he wanted to be a painter.
+ - There is a large element of me in every role I do.
+ - I’m not interested in making a $60-million studio film with a bunch of 24-year-olds telling me what to do.
+ - A cult classic is one that has been fully embraced by an alternative audience, not the popular audience.
+ - You have to take the horror seriously but there’s gags aplenty. Most people, when they do horror it’s just grim.
+ - I see parody as another form of comedy.
+ - You couldn’t make a cheap drama. That would be too low-budget. Drama has to have good photography and well-known actors.
+ - You have to have horror that is entertaining, where you can laugh. Most people don’t want you to laugh at horror. They just want you to just be disgusted and terrified.
+ - I’ve always enjoyed playing a little left of center characters. Otherwise I’d be on a soap opera.
+ - If you go to Hollywood, you’ve already sold out.
+ - It’s smart to have a set of younger actors. People don’t always want to look at me. They want to look at other people.
+ - You can’t get a movie made without a script; it’s the blueprint to your building.
+
+37 quotes

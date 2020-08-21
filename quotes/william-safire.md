@@ -1,0 +1,77 @@
+ - Don’t expect others to do your work for you.
+ - When duty calls, that is when character counts.
+ - Last, but not least, avoid cliches like the plague.
+ - Nobody stands taller than those willing to stand corrected.
+ - Avoid overuse of ‘quotation “marks.”’
+ - No one flower can ever symbolize this nation. America is a bouquet...
+ - To communicate, put your words in order; give them a purpose; use them to persuade, to instruct, to discover, to seduce.
+ - English is a stretch language; one size fits all.
+ - The Latin motto over Poindexter’s new Pentagon office reads Scientia Est Potentia – “knowledge is power.” Exactly: the government’s infinite knowledge about you is its power over you.
+ - By elevating your reading, you will improve your writing or at least tickle your thinking.
+ - Adapt your style, if you wish, to admit the color of slang or freshness of neologism, but hang tough on clarity, precision, structure, grace.
+ - Never assume the obvious is true.
+ - It behooves us to avoid archaisms. Never use a long word when a diminutive one will do.
+ - The first ladyship is the only federal office in which the holder can neither be fired nor impeached.
+ - Why use a modifier to set straight a not-quite-right noun when the right noun is available?
+ - If you re-read your work, you can find on re-reading a great deal of repetition can be avoided by re-reading and editing.
+ - When your government, employer, landlord, merchant, banker and local sports team gang up to picture, digitize and permanently record your every activity, you are placed under unprecedented control.
+ - The right to do something does not mean that doing it is right.
+ - Dangling punch lines to forgotten stories remain in the language like the smile of the Cheshire cat.
+ - Adjective salad is delicious, with each element contributing its individual and unique flavor; but a puree of adjective soup tastes yecchy.
+ - A dependent clause is like a dependent child: incapable of standing on its own but able to cause a lot of trouble.
+ - Is sloppiness in speech caused by ignorance or apathy? I don’t know and I don’t care.
+ - We are all environmentalists now, but we are not all planetists. An environmentalist realizes that nature has its pleasures and deserves respect. A planetist puts the earth ahead of the earthlings.
+ - Only in grammar can you be more than perfect.
+ - At a certain point, what people mean when they use a word becomes its meaning.
+ - When articulation is impossible, gesticulation comes to the rescue.
+ - Sometimes I know the meaning of a word but am tired of it and feel the need for an unfamiliar, especially precise or poetic term, perhaps one with a nuance that flatters my readership’s exquisite sensitivity.
+ - Gridlock is great. My motto is, ‘Don’t just do something. Stand there.’
+ - When I need to know the meaning of a word, I look it up in a dictionary.
+ - Remember to never split an infinitive. The passive voice should never be used. Do not put statements in the negative form. Proofread carefully to see if you words out. And don’t start a sentence with a conjugation.
+ - Color and bite permeate a language designed to rally many men, to destroy some, and to change the minds of others.
+ - I could get a better education interviewing John Steinbeck than talking to an English professor about novels.
+ - The trick is to start early in our careers the stress-relieving avocation that we will need later as a mind-exercising final vocation. We can quit a job, but we quit fresh involvement at our mental peril.
+ - Sir Alec Douglas-Home, when he was British Foreign Secretary, said he received the following telegram from an irate citizen: “To hell with you. Offensive letter follows.”
+ - Better to be a jerk that knees than a knee that jerks.
+ - What a joy it is to see really professional media manipulation.
+ - Never put the story in the lead. Let ’em have a hot shot of ambiguity right between the eyes.
+ - Previously known for its six syllables of sweetness and light, reconciliation has become the political fighting word of the year.
+ - Cast aside any column about two subjects. It means the pundit chickened out on the hard decision about what to write about that day.
+ - Knowing how things work is the basis for appreciation, and is thus a source of civilized delight.
+ - The tension between the governed and the governing is what makes the world go ’round. It’s not love, it’s that tension, because that tension exists in love affairs. The whole idea of control is at the heart of human relationships. Control and resistance to control.
+ - It is in the nature of tyranny to deride the will of the people as the voice of the mob, and to denounce the cry for freedom as the roar of anarchy.
+ - I think we have a need to know what we do not need to know.
+ - The wonderful thing about being a New York Times columnist is that it’s like a Supreme Court appointment – they’re stuck with you for a long time.
+ - I welcome new words, or old words used in new ways, provided the result is more precision, added color or greater expressiveness.
+ - Decide on some imperfect Somebody and you will win, because the truest truism in politics is: You can’t beat Somebody with Nobody.
+ - A man who lies, thinking it is the truth, is an honest man, and a man who tells the truth, believing it to be a lie, is a liar.
+ - Create your own constituency of the infuriated.
+ - Give your main clause a little space. Prose is not like boxing; the skilled writer deliberately telegraphs his punch, knowing that the reader wants to take the message directly on the chin.
+ - Took me a while to get to the point today, but that is because I did not know what the point was when I started.
+ - Have a definite opinion.
+ - President Reagan is a rhetorical roundheels, as befits a politician seeking empathy with his audience.
+ - Carter is the best President the Soviet Union ever had.
+ - A reader should be able to identify a column without its byline or funny little picture on top purely by look or feel, or its turgidity ratio.
+ - If America cannot win a war in a week, it begins negotiating with itself.
+ - The most fun in breaking a rule is in knowing what rule you’re breaking.
+ - A book should have an intellectual shape and a heft that comes with dealing with a primary subject.
+ - One difference between French appeasement and American appeasement is that France pays ransom in cash and gets its hostages back while the United States pays ransom in arms and gets additional hostages taken.
+ - This is what it’s all about. From what I could see, you could get a bunch of people together, whip up the press and have some impact.
+ - Never feel guilty about reading, it’s what you do to do your job.
+ - I’m willing to zap conservatives when they do things that are not libertarian.
+ - The remarkable legion of the unremarked, whose individual opinions are not colorful or different enough to make news, but whose collective opinion, when crystallized, can make history.
+ - Writers who used to show off their erudition no longer sing in the bare ruined choir of the media.
+ - I want my questions answered by an alert and experienced politician, prepared to be grilled and quoted – not my hand held by an old smoothie.
+ - Some handsome and ambitious men believe they are above all morality, and a woman’s virtue becomes a mere challenge to them.
+ - A reader ought to be able to hold it and become familiar with its organized contents and make it a mind’s manageable companion.
+ - Different regions may require different strategies, as President Bush has noted, but not different basic principles. It’s either collective security or selective security.
+ - Of higher value than any one leader is the cause.
+ - To be accused of ‘channeling’ is to be dismissed as a ventriloquist’s live dummy, derogated at not having a mind of one’s own.
+ - I’m a right-wing pundit and have been for many years.
+ - Do not be taken in by ‘insiderisms.’ Fledgling columnists, eager to impress readers with their grasp of journalistic jargon, are drawn to such arcane spellings as ‘lede.’ Where they lede, do not follow.
+ - The most successful column is one that causes the reader to throw down the paper in a peak of fit.
+ - Our rogue President, after selling face time...
+ - Never look for the story in the ‘lede.’ Reporters are required to put what’s happened up top, but the practiced pundit places a nugget of news, even a startling insight, halfway down the column, directed at the politiscenti. When pressed for time, the savvy reader starts there.
+ - One challenge to the arts in America is the need to make the arts, especially the classic masterpieces, accessible and relevant to today’s audience.
+
+75 quotes

@@ -1,0 +1,92 @@
+ - Ooh baby, baby, it’s a wild world, it’s hard just to get by upon a smile.
+ - I listen to the wind, to the wind of my soul Where I end up, well, I think only God really knows.
+ - Music is part of God’s universe.
+ - If you want to sing out, sing out, and if you want to be free, be free, cause there’s a million ways to be, you know that there are.
+ - Everything I do is for the pleasure of Allah.
+ - Positive thoughts and prayer have been the best means available, since the beginning of time, to transform darkness to light.
+ - I always knew looking back on my tears would bring me laughter, but I never knew looking back on my laughter would make me cry.
+ - Islam is not just a religion. Islam is everything.
+ - I am confident that, in the end, common sense and justice will prevail. I’m an optimist, brought up on the belief that if you wait to the end of the story, you get to see the good people live happily ever after.
+ - I let my music take me where my heart wants to go.
+ - Don’t you feel a change a coming From another side of time, Breaking down the walls of silence, Lifting shadows from your mind.
+ - From the moment I could talk I was ordered to listen.
+ - To be what you want to be, you must give up being what you are.
+ - The words of the songs speak for themselves.
+ - If you want to be free be free.
+ - I know many fine feathered friends But their friendliness depends on how you do They know many sure fired ways, To find out the one who pays And how you do.
+ - I’m gonna get me a gun, all those people who put me down you better get ready to run.
+ - Yesterday I was on the edge Hoping everything was going to work itself out A good honest man doing the work of God Trying to make things better for Him A lover of life in a school for fools Trying to find another way to survive.
+ - Communal well-being is central to human life.
+ - Baby I know, the first cut is the deepest.
+ - It is part of my faith as a Muslim to try to help those who are suffering from poverty or economic or political injustice.
+ - I’m not the best of you, but I’m not the worst either.
+ - Life is a maze of doors and they all open from the side you’re on. Just keep on pushing hard boy, try as you may, you’re going to wind up where you started from.
+ - When many astronauts go to space, they see the insignificant size of the earth and vastness of space, and they become very religious, because they have seen the Signs of Allah.
+ - You can argue with a philosopher, but you can’t argue with a good song. And I think I’ve got a few good songs.
+ - So on and on I go, the seconds tick the time out There’s so much left to know, and I’m on the road to find out.
+ - After embracing Islam in 1977, I considered the majority of underprivileged dark-skinned people of the so-called Third World brothers and sisters in humanity.
+ - Miles from nowhere. Guess I’ll take my time.
+ - The greatest legacy is that which benefits the widest number of people for the longest period without limit to value. No one but the Prophet Muhammad was given that role as the seal of God’s message.
+ - Love heats my blood, blood spins my head, and my head falls in love.
+ - Now I’ve been crying lately, Thinking about the world as it is. Why must we go on hating? Why can’t we live in bliss?
+ - I’m looking for a hard-headed woman, One who will make me do my best, And if I find my hard-headed woman, I know the rest of my life will be blessed.
+ - Man may live and man may die searching for the question why. But if he tries to rule the sky, he must fall.
+ - I had to learn my faith and look after my family, and I had to make priorities. But now I’ve done it all and there’s a little space for me to fill in the universe of music again.
+ - A person who steals bread during a famine is not treated as a thief.
+ - I enjoy life. I think I’ll enjoy death even more. Life is too confusing.
+ - There is a social need within our lives as human beings to have harmony.
+ - Oh I can’t keep it in; I can’t keep it in, I’ve gotta let it out I’ve got to show the world; world’s got to see, See all the love; love that’s in me.
+ - Lord, my body has been a good friend But I won’t need it when I reach the end Miles from nowhere, Guess I’ll take my time Oh yeah, to reach there.
+ - I looked at some of the statues of Jesus; they were just stones with no life. When they said that God is three, I was puzzled even more but could not argue. I believed it, simply because I had to have respect for the faith of my parents.
+ - Will you carry the words of love with you?
+ - Salman Rushdie, indeed any writer who abuses the prophet or indeed any prophet under Islamic law, the sentence for that is actually death.
+ - There is a powerful need for people to feel that gust of hope rise up again.
+ - If I make a mark in time, I can’t say the mark is mine.
+ - Oh God! If you save me I will work for you.
+ - Not only did the terrorists hijack planes and destroy life, but they also hijacked the peaceful religion of Islam and split the brother and sisterhood of mankind.
+ - Music can be healing, and with my history and my knowledge of both sides of what looks like a gigantic divide in the world, I feel I can point a way forward to our common humanity again.
+ - In a World where people are surrounded by darkness, ignorance and fear, it is a sign of hope to be celebrating Islam’s message of peace and light, and the last great Messenger, born and chosen to deliver them to all mankind.
+ - Moderation is part of faith, so those who accuse Muslim schools of fostering fanaticism should learn a bit more about Islam.
+ - Man is created to be God’s deputy on earth and it is important to realize the obligation to rid ourselves of all illusions and to make our lives a preparation for the next life.
+ - Ever since I became a Muslim, I’ve had to deal with attempts to damage my reputation and countless insinuations seeking to cast doubt on my character and trying to connect me to causes which I do not subscribe to.
+ - I never thought I’d be on the same stage as Kiss.
+ - Though times have changed, it’s a nice surprise to see that youthful feeling of anti-war sentiment returning once more to the cobbled main streets of Europe.
+ - At Jerusalem, I went to the mosque and sat down. A man asked me what I wanted. I told him I was a Muslim. Now I realize I can get direct contact with God, unlike Christianity or any other religion.
+ - If I ever loose my eyes, I won’t have to cry no more.
+ - I found a religion that blended scientific reason with spiritual reality in a unifying faith far removed from the headlines of violence, destruction and terrorism.
+ - I’ve been smiling lately, dreaming about the world as one. And I believe it could be someday it’s going to come.
+ - In the early days I had a very black-and-white view of everything. I think that’s kind of natural for anyone who’s just embraced Islam – or any religion – as a convert. It was important for me to duck out of the fast and furious life I’d been living as a pop star. I was in a different mood.
+ - To be calm when you’ve found something going on.
+ - This is the beauty of the Qur’an: it asks you to reflect and reason, and not to worship the sun or moon but the One who has created everything. The Qur’an asks man to reflect upon the sun and moon and God’s creation in general.
+ - There was no division I could see between the essential teaching of all Prophets and wise men of religion.
+ - Can’t keep it in, Gotta let it out.
+ - It seems to be the easiest thing in the world these days to make scurrilous accusations against Muslims, and in my case it directly impacts on my relief work and damages my reputation as an artist. The harm done is often difficult to repair.
+ - Life is a journey, you know; and a lot of journeys, you go out, you come back.
+ - I suppose that the media and their portrayal of Islam and the almost tribal separations and divisions of the Muslims are the greatest issues confronting Muslims in the United Kingdom.
+ - In those days a concert was a personal experience. I wanted to be as close as possible to the audience, and of course big stadiums didn’t enable you to do that. It wasn’t my style.
+ - I always stood for the elimination of conflict and wars, and any of those causes that ignite them.
+ - The spiritual quest was always the predominant aspect of my life. It’s always been there. But there’s also an incredible passion connected to it; it’s not just a dry investigative process. I have been extremely emotional about it, and that comes out in the songs.
+ - I became very famous, as a teenager, and my name and photo were splashed in all the media. They made me larger than life, so I wanted to live larger than life, and the only way to do that was to be intoxicated.
+ - Music is a lady that I still love because she gives me the air that I breathe. We need all sorts of nourishment. And music satisfies and nourishes the hunger within ourselves for connection and harmony.
+ - The fact that the Prophet cared for every human being and tried his best to ensure their security in the hereafter must be the most telling of his compassionate and merciful characteristics.
+ - It’s very difficult to ignore humanitarian disasters. The royalties from my albums continue to support my charity work.
+ - Because I don’t play guitar any more, African harmonies and rhythms have been an inspiration to me. I love the raw origin of the sound. It complements my voice and words naturally.
+ - I’ve returned to being an amateur without any ties or strings attached, which gives me a freedom I never had before.
+ - Say what you think; think what you mean.
+ - I became alienated from this religious upbringing, and started making music. I wanted to be a big star. All those things I saw in the films and on the media took hold of me, and perhaps I thought this was my god: the goal of making money.
+ - Some extremists take elements of the sacred scriptures out of context.
+ - I think I will just use guitar as backing. I’m not doing a traditional folk thing, but a contemporary thing-my own version of folk, if you like.
+ - All things can be forgiven if we can progress.
+ - I can never quite trust anybody anymore.
+ - My career is there for everyone to see and delve into.
+ - They have hijacked my religion.
+ - I suppose that by being absent from the music business, it appeared that I just dropped out, but really I never did. I was continuously working and doing various things.
+ - Violence is almost an everyday occurrence in some Muslim lands: it should not be exacerbated by revenge attacks on more innocent families and communities.
+ - I was brought up in the modern world of all the luxury and the highlight of show business. I was born into a Christian home.
+ - The harm done is often difficult to repair.
+ - Rather than go to a demonstration to burn an effigy of the author Salman Rushdie, I would have hoped that it’d be the real thing.
+ - It was important for me to duck out of the fast and furious life I’d been living as a pop star. I was in a different mood.
+ - The very first lesson that I learnt from the Qur’an was the message of unity and peace.
+ - Music satisfies and nourishes the hunger within ourselves for connection and harmony.
+
+90 quotes

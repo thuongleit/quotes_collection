@@ -1,0 +1,24 @@
+ - When a child has no hope, a nation has no future.
+ - Silence isn’t golden. It’s yellow.
+ - It is the soldier, not the poet, who has given us freedom of speech.
+ - Where I come from, deeds mean a lot more than words.
+ - Once upon a time, the most successful Democratic leader of them all, FDR, looked south and said I see one third of a nation ill-housed, ill clad, ill nourished. Today our national Democratic leaders look south and say, I see one third of a nation and it can go to hell.
+ - My family is more important than my party.
+ - I wish we lived in the day where you could challenge a person to a duel.
+ - I truly believe that at times like this, silence is not golden. It is yellow.
+ - Will someone please explain to me the logic that says we can trust someone with a Boeing 747 in bad weather but not with a Glock 9 millimeter?
+ - It is the soldier who salutes the flag, serves beneath the flag, whose coffin is draped by the flag who gives that protester the freedom to abuse and burn that flag.
+ - I can remember that little thrill – that little shiver of excitement – when the Opry audience would encore a person because that person had touched them so.
+ - A Marine knows that pride is the bedrock upon which he will lay the foundation of his life, and on that foundation he will build the structure by which the worth of his existence and the measure of his accomplishments will be judged.
+ - Motivated more by partisan politics than by national security, todays Democratic leaders see America as an occupier, not a liberator. And nothing makes this Marine madder than someone calling American troops occupiers rather than liberators.
+ - You won’t find average Americans on the left or on the right. You’ll find them at Kmart.
+ - I have knocked on the door of this man’s soul and found someone home.
+ - Cover this confirmation process with prayer. When they make it harder for us to pray, we just pray harder.
+ - For more than 20 years, on every one of the great issues of freedom and security, John Kerry has been more wrong, more weak and more wobbly than any other national figure.
+ - Howard Dean knows about as much about the South as a hog knows about Sunday.
+ - Twenty years of votes can tell you much more about a man than twenty weeks of campaign rhetoric. Campaign talk tells people who you want them to think you are. How you vote tells people who you really are deep inside.
+ - Why is it that there’s more indignation over a photo of a prisoner with underwear on his head than over the video of a young American with no head at all?
+ - I can remember when Democrats believed that it was the duty of America to fight for freedom over tyranny.
+ - I see one-third of a nation and it can go to hell.
+
+22 quotes

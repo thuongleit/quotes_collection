@@ -1,0 +1,95 @@
+ - Art exists because reality is neither real nor significant.
+ - Fiction is a branch of neurology.
+ - In a completely sane world, madness is the only freedom.
+ - The only truly alien planet is Earth.
+ - Civilised life, you know, is based on a huge number of illusions in which we all collaborate willingly. The trouble is we forget after a while that they are illusions and we are deeply shocked when reality is torn down around us.
+ - Sex times technology equals the future.
+ - Any fool can write a novel but it takes real genius to sell it.
+ - My brief stay at the hospital had already convinced me that the medical profession was an open door to anyone nursing a grudge against the human race.
+ - Science is the ultimate pornography, analytic activity whose main aim is to isolate objects or events from their contexts in time and space. This obsession with the specific activity of quantified functions is what science shares with pornography.
+ - Elaborate burial customs are a sure sign of decadence.
+ - Surrender to a logic more powerful than reason.
+ - I find wholly baffling the widespread belief today that the dropping of the Hiroshima and Nagasaki bombs was an immoral act, even possibly a war crime to rank with Nazi genocide.
+ - Unhappy parents teach you a lesson that lasts a lifetime.
+ - I believe in the power of the imagination to remake the world, to release the truth within us, to hold back the night, to transcend death, to charm motorways, to ingratiate ourselves with birds, to enlist the confidences of madmen.
+ - The suburbs dream of violence.
+ - Deep assignments run through all our lives; there are no coincidences.
+ - I wanted to rub the human race in its own vomit, and force it to look in the mirror.
+ - Sooner or later, everything turns into television.
+ - Sleep is an eight-hour peep show of infantile erotica.
+ - I accepted that a new kind of hate had emerged, silent and disciplined, a racism tempered by loyalty cards and PIN numbers. Shopping was now the model for all human behaviour, drained of emotion and anger.
+ - What our children have to fear is not the cars on the highways of tomorrow but our own pleasure in calculating the most elegant parameters of their deaths.
+ - The entertainment medium of film is particularly tuned to the present imaginations of people at large. A lot of fiction is intensely nostalgic.
+ - I admired anyone who could unsettle people.
+ - Memories have huge staying power, but like dreams, they thrive in the dark, surviving for decades in the deep waters of our minds like shipwrecks on the sea bed.
+ - Sooner or later, all games become serious.
+ - Most writers flinch at the thought of being completely honest about themselves. So absolute honesty is what marks the true modern.
+ - If you can smell garlic, everything is all right.
+ - A widespread taste for pornography means that nature is alerting us to some threat of extinction.
+ - The American Dream has run out of gas. The car has stopped. It no longer supplies the world with its images, its dreams, its fantasies. No more. It’s over. It supplies the world with its nightmares now: the Kennedy assassination, Watergate, Vietnam.
+ - Au revoir, jewelled alligators and white hotels, hallucinatory forests, farewell.
+ - Most English writers are not interested in change but in the social novel. That demands a static backdrop. I’m intensely interested in change – probably as a matter of self-preservation. What the hell is going to happen next?
+ - Selfish men make the best lovers. They’re prepared to invest in the women’s pleasures so that they can collect an even bigger dividend for themselves.
+ - The ultimate concept car will move so fast, even at rest, as to be invisible.
+ - An arts degree is like a diploma in origami. And about as much use.
+ - Yet she felt an impostor, and already the mask had begun to bite into her face.
+ - Put a higher value on yourself. Being hyper-realistic about everything is too simple a get-out.
+ - Everything is becoming science fiction. From the margins of an almost invisible literature has sprung the intact reality of the 20th century.
+ - The human race sleepwalked to oblivion, thinking only of the corporate logos on it’s shroud.
+ - Nagasaki destroyed by the magic of science is the nearest man has yet approached to the realization of dreams that even during the safe immobility of sleep are accustomed to develop into nightmares of anxiety.
+ - The advanced societies of the future will not be governed by reason. They will be driven by irrationality, by competing systems of psychopathology.
+ - If you’re against globalisation, it doesn’t achieve much by sort of bombing the head offices of Shell or Nestle. You unsettle people much more by blowing up an Oxfam shop because people can’t understand the motive.
+ - I don’t think it’s possible to touch people’s imagination today by aesthetic means.
+ - Perhaps violence, like pornography, is some kind of an evolutionary standby system, a last-resort device for throwing a wild joker into the game?
+ - A kind of banalization of celebrity has occurred: we are now offered an instant, ready-to-mix fame as nutritious as packet soup.
+ - The future is going to be boring. The suburbanisation of the planet will continue, and the suburbanisation of the soul will follow soon after.
+ - A ton of Proust isn’t worth an ounce of Ray Bradbury.
+ - They thrived on the rapid turnover of acquaintances, the lack of involvement with others, and the total self-sufficiency of lives which, needing nothing, were never dissapointed.
+ - Nonetheless, Scranton had travelled in space. He had known the loneliness of separation from all other human beings, he had gazed at the empty perspectives that I myself had seen.
+ - But I wouldn’t recommend writing. You can be a successful writer and never meet another soul. I’m not sure that’s a good thing.
+ - Consumerism is so weird. Its a sort of conspiracy we collude in. Youd think shoppers spending their hard-earned cash would be highly critical. You know that the manufacturers are trying to have you on.
+ - All through my career I’ve written 1,000 words a day – even if I’ve got a hangover. You’ve got to discipline yourself if you’re professional. There’s no other way.
+ - Medicine was certainly intended to be a career. I wanted to become a psychiatrist, an adolescent ambition which, of course, is fulfilled by many psychiatrists.
+ - Pop artists deal with the lowly trivia of possessions and equipment that the present generation is lugging along with it on its safari into the future.
+ - If I don’t write, I begin to feel unsettled and uneasy, as I gather people do who are not allowed to dream.
+ - People think that by living on some mountainside in a tent and being frozen to death by freezing rain, they’re somehow discovering reality, but of course that’s just another fiction dreamed up by a TV producer.
+ - Science and technology multiply around us. To an increasing extent they dictate the languages in which we speak and think. Either we use those languages, or we remain mute.
+ - Perhaps the future belongs to magic, and it’s we women who control magic.
+ - I take for granted that for the imaginative writer, the exercise of the imagination is part of the basic process of coping with reality, just as actors need to act all the time to make up for some deficiency in their sense of themselves.
+ - The enormous energy of the twentieth century, enough to drive the planet into a new orbit around a happier star, was being expended to maintain this immense motionless pause.
+ - After being bombarded endlessly by road-safety propaganda it was almost a relief to find myself in an actual accident.
+ - Yes, sometimes I think that all my writing is nothing more than the compensatory work of a frustrated painter.
+ - I suspect that many of the great cultural shifts that prepare the way for political change are largely aesthetic.
+ - In the post-Warhol era a single gesture such as uncrossing one’s legs will have more significance than all the pages in War and Peace.
+ - By the eighteenth book, one has a sense of having bricked oneself into a niche, a roosting place for other people’s pigeons. I wouldn’t recommend it.
+ - The chief role of the universities is to prolong adolescence into middle age, at which point early retirement ensures that we lack the means or the will to enforce significant change.
+ - I’ve never suffered from writer’s block. I have plenty of ideas, sometimes too many. I’ve always had a strong imagination. If it dries up I’ll stop and look for another career.
+ - People, particularly over-moralistic Americans, have often seen me as a pessimist and humourless to boot, yet I think I have an almost maniacal sense of humour. The problem is that it’s rather deadpan.
+ - A general rule: if enough people predict something, it won’t happen.
+ - Maybe you are a poet and a dreamer, but don’t you realize that those two species are extinct now?
+ - I think the enemy of creativity in the world today is that so much thinking is done for you.
+ - Lysenkoism: A forlorn attempt not merely to colonize the botanical kingdom, but to instill a proper sense of the puritan work ethic and the merits of self-improvement.
+ - The Enlightenment view of mankind is a complete myth. It leads us into thinking we’re sane and rational creatures most of the time, and we’re not.
+ - In his mind Vaughan saw the whole world dying in a simultaneous automobile disaster, millions of vehicles hurled together in a terminal congress of spurting loins and engine coolant.
+ - If their work is satisfying people don’t need leisure in the old-fashioned sense. No one ever asks what Newton or Darwin did to relax, or how Bach spent his weekends. At Eden-Olympia work is the ultimate play, and play the ultimate work.
+ - I felt the pressure of imagination against the doors of my mind was so great that they were going to burst.
+ - During the 1960s, the Shanghai of my childhood seemed a portent of the media cities of the future, dominated by advertising and mass circulation newspapers and swept by unpredictable violence.
+ - Our lives today are not conducted in linear terms. They are much more quantified; a stream of random events is taking place.
+ - Enlightened legislation or enlightened social activity of whatever kind, does play into the hands of people with agendas of their own. If you legalize euthanasia, you provide a field day for people who like killing other people.
+ - Given that external reality is a fiction, the writer’s role is almost superfluous. He does not need to invent the fiction because it is already there.
+ - Writing a novel is one of those modern rites of passage, I think, that lead us from an innocent world of contentment, drunkenness, and good humor, to a state of chronic edginess and the perpetual scanning of bank statements.
+ - It’s true that I have very little idea what I shall be writing next, but at the same time I have a powerful premonition of everything that lies ahead of me, even ten years ahead.
+ - The car as we know it is on the way out.
+ - Psychiatrists the dominant lay priesthood since the First World War...
+ - E. Klimov’s ‘Come and See,’ about partisans fighting the Germans in Byelorussia, is the greatest anti-war film ever made.
+ - I work for three or four hours a day, in the late morning and early afternoon. Then I go out for a walk and come back in time for a large gin and tonic.
+ - Everywhere you look Britain, the States, western Europe people are sealing themselves into crime-free enclaves. That’s a mistake a certain level of crime is part of the necessary roughage of life. Total security is a disease of deprivation.
+ - The car as we know it is on the way out. To a large extent, I deplore its passing, for as a basically old-fashioned machine, it enshrines a basically old-fashioned idea: freedom.
+ - I thought it was a wonderfully conceptual act actually, to fire a replica pistol at a figurehead – the guy could have been working for Andy Warhol!
+ - There is a British pop group called God. At a recent book signing the lead singer introduced himself and gave me a cassette. I have heard the voice of God.
+ - I feel that the surrealists have created a series of valid external landscapes which have their direct correspondences within our own minds.
+ - The residents had eliminated both past and future, and for all their activity, they existed in a civilized and eventless world.
+ - The history of psychiatry rewrites itself so often that it almost resembles the self-serving chronicles of a totalitarian and slightly paranoid regime.
+ - Across the communication landscape move the specters of sinister technologies and the dreams that money can buy.
+
+93 quotes

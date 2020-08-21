@@ -1,0 +1,63 @@
+ - A fool will lose tomorrow reaching back for yesterday.
+ - I treat others exactly the way I want to be treated.
+ - My motto in life is ‘If you think it, you can do it’ and if we all apply that thought we can end hunger the world over.
+ - Crying is cleansing. There’s a reason for tears, happiness or sadness.
+ - I am an outspoken person. I believe in what I say.
+ - You’ll never get to heaven, if you break my heart.
+ - I’m not psychic myself.
+ - Dust does rise, doesn’t it? And so can I.
+ - Man will never understand woman and vice versa. We are oil and water. An equal level can never be maintained, as one will always excel where the other doesn’t, and that breeds resentment.
+ - Brazil is where I belong, the place that feels like home. They love their family, their country and God, and are not afraid to let anybody know it.
+ - What’s it all about Alfie, is it just the moment we live?
+ - The Civil Rights for Musicians Act is about economic justice for African American artists. It’s about what’s right. And it’s about time.
+ - I refuse to allow prejudice to defeat me.
+ - I come from a singing family and as is said, ‘the apple does not fall far from the tree.’
+ - A bad relationship can do that, can make you doubt everything good you ever felt about yourself.
+ - I don’t give advice. 90% of the time nobody takes it anyway. I will give encouragement and if asked a question as to how, or why I did certain things and if I think this will help whomever is asking the question I will do this.
+ - Tom Walls and his cohort are wolves in sheep’s clothing who will besmirch the memory of some genuine historic figures by the next full moon.
+ - Rural communities in Africa, South Asia and Latin America are where the majority of hungry people are and the inequality that exists between women and men in these communities is holding back progress. These women have a very tough time, so much is expected of them.
+ - Do you know the way to San Hose?
+ - All the stars that never were are parking cars and pumping gas.
+ - I first came to Brazil in the Sixties. Then I started coming back every year since touring most of the country. I grew to love it, the people, the music. I thought this is where I belong. I’ve been living in Brazil for the past 23 years. I call it my stress-free country.
+ - I’ve had some incredible moments in my life – thus far. I hope a lot more are coming.
+ - I’d like to see a world free of strife, stress, pain, hunger, war – a cool place where everyone could live.
+ - Country music is so related to gospel. It seems I could go down that road pretty easily.
+ - My songs are like my children. I love every single one of them.
+ - I have bought a lot of beautiful clothes with my money, but I’ve also earned it.
+ - My self-imposed mandate is to be the voice for the voiceless.
+ - Do you know that other than my father, I’ve never had a man take care of me?
+ - My parents gave me stability and a belief in myself and in all the possibilities life has to offer. I was told the only limitations I would ever face were those I placed upon myself.
+ - The music for me is paradise. I think it’s where God lives.
+ - I like Brazilians and I like their values. They believe in family.
+ - As far am I’m concerned, I don’t listen to radio anymore. They play the same ten songs over and over again, so why would I?
+ - All my friends and peers keep asking me when I’m going to rest – I just tell them it’s another dirty four-letter word!
+ - Linda Georgian is a wonderful psychic. She can do amazing things.
+ - I have been consistent by staying true to who I am and will continue to sing the type of songs that those who have continued to support my career expect from me.
+ - A case of can’t do with, can’t do without, that’s why I married him again.
+ - The problem with fame is you no longer belong to you. You lose your persona and become the object of other people’s obsession.
+ - Before I put on my make up, I say a little prayer for you.
+ - I am a combination of my entire family.
+ - What do you get when you kiss a guy? You get enough germs to catch pneumonia. After you do, he’ll never phone you.
+ - It is frustrating to be a Black woman in the entertainment industry.
+ - I have no desire to look back, I only want to look forward to the things that are still ahead of me.
+ - I look at the careers of people I’m standing on the shoulders of. People like Lena Horne, Ella Fitzgerald, Sammy Davis Jr., and Sarah Vaughan. These are icons I wanted to emulate, and I feel like they’ve been holding me up for quite a long time.
+ - I had said before that I’d never write an autobiography because I’ve been around, and there’s a lot that I’ve seen and heard that stays with me. That’s just mine. I didn’t want to do a kiss-and-tell, as some of my peers have.
+ - I often feel the need of a man to take care of me, even though I can certainly take care of myself.
+ - I hold all of the songs that I have had the pleasure of recording and performing in high regard.
+ - I love what I do. I was given the most incredible gift that can be given to anyone. I could never imagine a world without music, and I feel grateful that I’ve been given the ability to share that.
+ - I don’t think there’s anything I can’t do. I have no regrets.
+ - Every time we buy a CD or download a song, the artist is paid for their work. You might not know that this isn’t the case when a musician’s work is played on the radio.
+ - Years ago I learned to be totally responsible for Dionne Warwick. I will not wait for opportunities. I will create them.
+ - I have been blessed with some incredible compositions to record and perform and all of my songs have had the ability to grow as I and those who have supported this career of mine for these 50 years have.
+ - I was born into a family of gospel singers. My early ambitions were many. I was going to be a ballerina. I almost had that one come true until I tore a tendon, so I transferred from my toes to my throat and that’s where the talent settled.
+ - I was told by my grandfather who was a minister that we all were put here on earth to be of service to one another, and it is quite gratifying to know that if I am able to be of help to one that is not able to help themselves then I am fulfilling my obligation as a human being.
+ - We are all here to be a service to those who can’t be a service to themselves. We can give people hope and more reasons for being human.
+ - People have been so supportive of this career for so long, and they are still enjoying the music that I bring to them.
+ - It was fashionable, youre supposed to be a married lady, so I did.
+ - It was step by step that I earned my way into the lives and hearts of people by giving them recordings that I grew to love and as I found my listening audience also grew to love.
+ - I try to be cognisant of when and how and what I eat and get as much rest as I possibly can, as that helps the vocal cords.
+ - During the time that my recording career seemed to be in a slump a music called disco came on the scene and literally took over radio stations as well as having radio stations created to play it which sort of negated my music as well as that of some of my peers.
+ - People like Ella Fitzgerald, Lena Horne, Marlene Dietrich and Sammy Davis Jr. all walked me down this path of entertainment.
+ - I still have some very dear friends from school, and we get together whenever possible.
+
+61 quotes

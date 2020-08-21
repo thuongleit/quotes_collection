@@ -1,0 +1,61 @@
+ - Global warming isn’t a prediction. It is happening.
+ - We’re running out of time.
+ - The evidence for human-made climate change is overwhelming.
+ - Planet Earth, creation, the world in which civilization developed, the world with climate patterns that we know and stable shorelines, is in imminent peril.
+ - Jail threats did not dissuade Martin Luther King – and intergenerational justice is a moral issue of comparable magnitude to civil rights.
+ - Policy decisions on climate change are being deliberated every day by those without full knowledge of the science, and often with intentional misinformation spawned by special interests.
+ - A level of no more than 350 ppm is still feasible, with the help of reforestation and improved agricultural practices, but just barely – time is running out.
+ - The democratic process is supposed to be one person one vote, but it turns out that money is talking louder than the votes.
+ - We are on the precipice of climate system tipping points beyond which there is no redemption.
+ - The trains carrying coal to power plants are death trains. Coal-fired power plants are factories of death.
+ - In view of the immense power of natural weather and climate fluctuations and the great buffering capacity of the Earth, especially the ocean, it is easy to be skeptical about whether small anthropogenic changes of atmospheric composition can have important practical impacts.
+ - The climate dice are now loaded. Some seasons still will be cooler than the long-term average, but the perceptive person should notice that the frequency of unusually warm extremes is increasing. It is the extremes that have the most impact on people and other life on the planet.
+ - Burning all the fossil fuels will destroy the planet we know, Creation, the planet of stable climate in which civilization developed.
+ - If we fail to act, we will end up with a different planet.
+ - As you get more global warming, you should see an increase in the extremes of the hydrological cycle – droughts and floods and heavy precipitation.
+ - It’s as certain that as long as fossil fuels are the cheapest energy, we will just keep burning them.
+ - I was lucky to grow up at a time when it was not difficult for the child of a tenant farmer to make his way to the state university.
+ - The forcings that drive long-term climate change are not known with an accuracy sufficient to define future climate change.
+ - It would be immoral to leave young people with a climate system spiraling out of control.
+ - Coal is the single greatest threat to civilization and all life on our planet.
+ - Scientists will say we can’t blame global warming for any single event. In a sense that’s right, but the fact that the frequency and intensity of these events is increasing you can blame on global warming.
+ - The greatest danger hanging over our children and grandchildren is initiation of changes that will be irreversible on any time scale that humans can imagine.
+ - The climate system is being pushed hard enough that change will become obvious to the man in the street in the next decade.
+ - I have been described as the grandfather of climate change. In fact, I am just a grandfather and I do not want my grandchildren to say that grandpa understood what was happening but didn’t make it clear.
+ - What has become clear from the science is that we cannot burn all of the fossil fuels without creating a very different planet.
+ - I’ve tried to be a straight scientist doing the science and reporting it as best I can.
+ - The five-year mean global temperature has been flat for the last decade.
+ - The United States did not sign Kyoto, yet its emissions are not that different from the countries that did sign it.
+ - Well, you know what happens to crime when the heat goes up.
+ - What we are doing to the future of our children, and the other species on the planet, is a clear moral issue.
+ - Politicians think that if matters look difficult, compromise is a good approach. Unfortunately, nature and the laws of physics cannot compromise – they are what they are.
+ - Rising carbon price is essential to ‘decarbonize’ the economy – to remove the nation towards the era beyond fossil fuels.
+ - We have at most ten years – not ten years to decide upon action, but ten years to alter fundamentally the trajectory of global greenhouse emissions.
+ - Only in the last few years did the science crystallize, revealing the urgency – our planet really is in peril. If we do not change course soon, we will hand our children a situation that is out of their control.
+ - As species are exterminated by shifting climate zones, ecosystems can collapse, destroying more species.
+ - We have known since the 1800s that carbon dioxide traps heat in the atmosphere. The right amount keeps the climate conducive to human life.
+ - The scientific excitement in comparing theory with data, and developing some understanding of global changes that are occurring, is what makes all the other stuff worth it.
+ - The last time the world was three degrees warmer than today-which is what we expect later this century-sea levels were 25m higher. So that is what we can look forward to if we don’t act soon.
+ - Until the public demands otherwise, the policy makers will continue to serve their financiers.
+ - The urgency derives from the nearness of climate tipping points.
+ - As a government employee, you can’t testify against the government.
+ - Because cap and trade is enforced through the selling and trading of permits, it actually perpetuates the pollution it is supposed to eliminate.
+ - The danger is that the compromises and special interests inherent in Kyoto-style targets and cap-and-trade will be accepted because of bureaucratic momentum.
+ - Adding CO2 to the air is like throwing another blanket on the bed.
+ - The climate is nearing tipping points. Changes are beginning to appear and there is a potential for explosive changes, effects that would be irreversible, if we do not rapidly slow fossil-fuel emissions over the next few decades.
+ - We cannot afford to put off change any longer. We have to get on a new path within this new administration. We have only four years left for Obama to set an example to the rest of the world. America must take the lead.
+ - Goals and caps on carbon emissions are practically worthless, if coal emissions continue, because of the exceedingly long lifetime of carbon dioxide in the air.
+ - Recent warming coincides with rapid growth of human-made greenhouse gases. The observed rapid warming gives urgency to discussions about how to slow greenhouse gas emissions.
+ - Talking nice about sun and wind and green jobs is just greenwash.
+ - Some Democrats deserve to be criticized.
+ - The carbon emissions from tar shale and tar sands would initiate a continual unfolding of climate disasters over the course of this century. We would be miserable stewards of creation. We would rob our own children and grandchildren.
+ - The five warmest years over the last century occurred in the last eight years.
+ - The fact is fossil fuel carbon will stay in the surface climate system for millennia.
+ - If we drive our fellow species to extinction, we will leave a far more desolate planet for our descendants than the world we inherited from our elders.
+ - CEOs of fossil energy companies know what they are doing and are aware of long-term consequences of continued business as usual. In my opinion, these CEOs should be tried for high crimes against humanity and nature.
+ - Money has too big an influence on our politics in Washington and somehow we need to do something about that.
+ - The five-year mean global temperature has been flat for the last decade, which we interpret as a combination of natural variability and a slow down in the growth rate of net climate forcing.
+ - I tend to be naive and gullible, I guess, but I try to believe that governments believe what they say.
+ - The question is not whether to close the parks, but how to accomplish this goal.
+
+59 quotes

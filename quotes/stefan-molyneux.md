@@ -1,0 +1,68 @@
+ - The law is an opinion with a gun.
+ - Distraction serves evil more than any other mental state.
+ - Love is an involuntary reaction to virtue.
+ - I refuse to let the standards of evil people chip away at my capacity for integrity.
+ - Deep connection is the antidote to madness.
+ - Imagining that you are deep and complex, but others are simple, is one of the primary signs of malignant selfishness.
+ - Pulse proximity is not intimacy.
+ - There is no such thing as gun control. There is only centralizing gun ownership into the hands of a small, political elite and their minions.
+ - Democracy is the suggestion box for slaves.
+ - Social anxiety results from being around people who are resolutely opposed to who you are.
+ - So bitcoin gives us an opportunity to reclaim the power of the people to say yes or no to what the government claims that it wants to do.
+ - Anger is the immune system of the soul.
+ - There is no external solution to the problem of insecurity.
+ - There is nothing that is going to make people hate you more, and love you more, than telling the truth.
+ - I’d like to live in a world where immigration is just called moving.
+ - The whole purpose of propaganda is to make the obvious seem obscure, or offensive.
+ - The major abscess in the mind is a lack of acknowledgement of evil.
+ - To see the farm is to leave it.
+ - We raise predators by treating children as prey.
+ - The genuine values in America arose from rational thought and breaking with tradition, not from blind allegiance to dirt and cloth.
+ - All money does with an empty heart is allow you to be miserable in style.
+ - Freedom for the government is enslavement for the people. When the government is free the people are enslaved. When the government is contained then the people are free.
+ - The whole point of the system is to bribe you with the leftovers of what they have stolen from you in the first place.
+ - No matter who you vote for, the government stays in power.
+ - You cannot connect with anyone except through reality.
+ - Statism ends with an eye roll.
+ - The continual manufacture of enemies is essential to the growth of the fascist state.
+ - Fundamentally, you can never be someone else. You can only be less of who you are.
+ - You can’t reason people out of beliefs they weren’t reasoned into.
+ - The only freedom is freedom from illusion...
+ - In the same way Marxism robs workers of ambition, Feminism robs men and women of love.
+ - Anybody who tries to change society without examining the family is trying to push a shadow without moving a statue.
+ - To limit money is to limit political power.
+ - The war on drugs is really the war on people who buy drugs from people who don’t lobby the government.
+ - When you give government the power to control the money supply, it grows like a tumor until it extinguishes society itself.
+ - We can only avoid the traps we can see.
+ - One of the best ways of repressing emotions is artificial certainty.
+ - We have won the time lottery of the last 4 billion years.
+ - There’s great peace in surrendering to principles.
+ - Government is a gun that shoots money at your enemy and blows up in your face.
+ - The moment I realised that my history was an excuse for nothing, was the moment I was freed from my history. The great danger of history is that we use it as an excuse and remain trapped in it. I cannot blame my history for anything, and therefore I have to have high standards for myself.
+ - The unconscious is the true accumulation of your history. It can be accepted or rejected but it can’t fundamentally be altered.
+ - Politicians are propaganda, the people with guns are the enforcers and the media is the enthusiastic lapdog who enables the entire behavior and acts as the verbal abuser against those who deviate from nodding their heads at the vast statues of evil that we inherited.
+ - Thus we can see that – at least at the level of economics – democracy is a sort of slow-motion suicide, in which you are told that it is the highest civic virtue to approve of those who want to rob you.
+ - The government is a giant logjam in the eternal river of human potential.
+ - To connect is to dissolve the imaginary pyramids of artificial privilege.
+ - There is going to be enormous amounts of resistance to the adoption of bitcoin, but I really believe that it’s about the most peaceful revolution that we can have in this world.
+ - The move towards the extension of personhood to children is already underway, and is utterly, completely and totally unstoppable!
+ - If the sound of happy children is grating on your ears, I don’t think it’s the children who need to be adjusted.
+ - Forgiveness is created by the restitution of the abuser; of the wrongdoer. It is not something to be squeeeeeezed out of the victim in a further act of conscience-corrupting abuse.
+ - It’s been easier to convince people to hand over half their income, their children to war, and their freedoms in perpetuity – than to engage them in seriously considering how roads might function in the absence of taxation.
+ - When poverty declines, the need for government declines, which is why expecting government to solve poverty is like expecting a tobacco company to mount an aggressive anti-smoking campaign.
+ - Spiritual means religion without any rules. It’s all the comfort of fictitious friends with none of their demands.
+ - The only part of you that hurts when you’re given the truth is the part that lives on lies.
+ - Political correctness is anti-empathetic because it has correctness in it. We all have biases, we all have prejudices and if we cant talk about them openly – if we get attacked for it then this is an anti-empathetic movement and therefore it cannot complain about a lack of empathy.
+ - We are supposed to call poison medicine and we wonder why we’re always sick.
+ - Mental anguish always results from the avoidance of legitimate suffering.
+ - Truth has nothing to do with the conclusion, and everything to do with the methodology.
+ - Trust is everything. If I didn’t have trust, there would be no downloads, no show, and no business.
+ - There is no key to open the heart of another – except curiosity.
+ - It’s not just the abuse of power that’s the problem. It’s the power to abuse.
+ - The vast majority of people are unthinking prejudice machines.
+ - If one man tells you to murder, you get a jail cell – if another man tells you to murder, you get medals and a pension.
+ - The acknowledgement of having suffered evil is the greatest step forward in mental health.
+ - And this is what we called our childhoods. Little more than a dress rehearsal for adding our digits to the butcher’s bill of war.
+ - If you look at America, which was the experiment of the smallest conceivable government, what grows out of that is the largest government the world has ever seen.
+
+66 quotes

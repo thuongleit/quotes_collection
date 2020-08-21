@@ -1,0 +1,33 @@
+ - Inspiration is an empty bank account.
+ - Mike Hammer drinks beer because I can’t spell Cognac.
+ - I’m a commercial writer, not an author. Margaret Mitchell was an author. She wrote one book.
+ - If you’re a singer you lose your voice. A baseball player loses his arm. A writer gets more knowledge, and if he’s good, the older he gets, the better he writes.
+ - The first chapter sells the book; the last chapter sells the next book.
+ - If I need something, I’ll invent it.
+ - I have no fans. You know what I got? Customers. And customers are your friends.
+ - Nobody reads a mystery to get to the middle; they read it to get to the end. If it’s a letdown, they won’t buy any more. The first page sells that book. The last page sells your next book.
+ - Victor Saville was bad news because he wanted money just to do one big picture.
+ - The most important part of a story is the ending. No one reads a book to get to the middle.
+ - I’m a country boy. I hate New York. But that’s where things happen, so I use it as a base for stories, I know enough about it. But I have to keep going back there.
+ - Where I am they can smell out a hurricane. My house survived Hurricane Hazel, but it didn’t get past Hugo.
+ - See, heroes never die. John Wayne isn’t dead, Elvis isn’t dead. Otherwise you don’t have a hero. You can’t kill a hero. That’s why I never let him get older.
+ - I’m the most translated writer in the world, behind Lenin, Tolstoy, Gorki and Jules Verne. And they’re all dead...
+ - I don’t like people. I don’t like any kind of people. When you get them together in a big lump they all get nasty and dirty and full of trouble. So I don’t like people including you. That’s what a misanthropist is.
+ - Oh yeah, I was one of the first guys writing comic books, I wrote Captain America, with guys like Stan Lee, who became famous later on with Marvel Comics.
+ - Imagine this guy hits Mike Hammer over the head with a wooden coathanger and knocks him out. You hit Mike Hammer over the head with a wooden coathanger, he’ll beat the crap out of you.
+ - Stephen King. Now I’m not crazy about him, but he’s a great a writer.
+ - I wrote the original Mike Hammer as a comic, Mike Danger.
+ - No one likes my books except the public.
+ - Nobody reads a book to get to the middle.
+ - I’m not an author, I’m a writer, that’s all I am. Authors want their names down in history; I want to keep the smoke coming out of the chimney.
+ - Those big-shot writers could never dig the fact that there are more salted peanuts consumed than caviar.
+ - I try to stay in good physical shape, I don’t smoke, I don’t drink.
+ - I started off at the high level, in the slick magazines, but they didn’t use my name, they used house names. Anyway, then I went downhill to the pulps, then downhill further to the comics.
+ - Critics themselves, they used to tear me up.
+ - If the public likes you, you’re good.
+ - I played in a movie called Ring of Fear with Clyde Beatty and Pat O’Brien.
+ - I know an awful lot of Hollywood people, who are so self-important, I can’t understand it.
+ - If the public likes you, you’re good. Shakespeare was a common, down-to-earth writer in his day.
+ - Now I’m not an author, I’m a writer, that’s all I am.
+
+31 quotes

@@ -1,0 +1,44 @@
+ - I don’t need a man in my life.
+ - Hope has a place in a lover’s heart.
+ - I am not reclusive. I just have a private life.
+ - Fame and success are very different things.
+ - My core beliefs revolve around the idea that we should live to the best of our abilities-we should live and let live.
+ - Night has brought to those who sleep, only dreams they can not keep.
+ - The ocean is a central image. It is the symbolism of a great journey.
+ - I am really a very shy person. If I appear, it is because of the music, not because I want to be seen.
+ - Look to love and you may dream, and if it should leave then give it wings. But if a love is meant to be, hope is home and the heart is free.
+ - Writing every song is a little journey. The first note has to lift you.
+ - I didn’t expect such a huge reaction, but I knew I was doing something different to everything else that was happening at the time.
+ - Music is like a mirror in front of you. You’re exposing everything, but surely that’s better than suppressing.
+ - People listen to the music and sense what it is about. Sometimes they know exactly what the songs are about, sometimes they interpret their own meaning to the music, and thats great when this happens because it shows its striking a chord.
+ - As with anything creative, change is inevitable.
+ - My mouth is a womb. My teeth are my children. My tongue is their babysitter.
+ - I’m not one for walking the beaches humming a melody. I love the discipline of sitting in the studio, writing and listening. That is my domain.
+ - You know love is everything you say A whisper, a word Promises you give You feel it in the heartbeat of the day You know this is the way love is.
+ - We called the album ‘Amarantine’ to mean everlasting. Poets use the word to describe an everlasting flower and I loved the image of that.
+ - It’s very homely, this castle. It doesn’t have huge ballrooms. I didn’t want a cold, cavernous place.
+ - With my music, I can express myself so much. A lot of the fans can sense that I’m relating to them something that’s quite personal.
+ - I enjoyed the two years I was with Clannad. I enjoyed touring. We toured a lot in Europe.
+ - The spring, summer, is quite a hectic time for people in their lives, but then it comes to autumn, and to winter, and you can’t but help think back to the year that was, and then hopefully looking forward to the year that is approaching.
+ - I don’t have pets, I have two guard dogs; and I don’t do my own shopping; it’s a security thing.
+ - I find it hard to work with other musicians because I know from experience that when they play, they play with their feeling, and that restricts me because I know I want to play in my own particular way.
+ - The writing of a melody is an emotional moment; success doesn’t make it easy.
+ - The success of Watermark surprised me. I never thought of music as something commercial; it was something very personal to me.
+ - When I was growing up, I’d be in the choir. My mum was the organist in the church, so I’d sing in the church.
+ - A lot of people tend to think that because I need all this time on my own in the studio, that I need time on my own, period. And that’s not really true.
+ - My first language is Gaelic.
+ - I do promotion when it is necessary, but I always want to get back to the music.
+ - Over in the UK, the music press can be brutal. They can say wonderful things about you one week, and the next week, you’re in the can.
+ - The moon upon the ocean is swept around in motion, but without ever knowing.
+ - Singing in Gaelic is very, very natural to do. I think lends itself very much so to being sung.
+ - I have had death threats from people with fixations.
+ - The personal appearances and red carpet events are very glitzy, but it’s a bit false.
+ - I told the record company I didn’t feel the need to be at red-carpet events. I wanted a career. But I wanted to keep myself intact as a person.
+ - The minuses of celebrity include having to live with security and the knowledge that you may be stalked.
+ - I do a so-called trip into myself: I sit down at the piano and the melody might start to evolve from my playing or then I might start to sing it.
+ - I could have been more famous if I did all the glitzy things, but celebrity always seemed so unnecessary.
+ - I tend to listen to the classical composers: Rachmaninov, Satie.
+ - I am privileged to do a job I love to do. I would never change any moment from my life.
+ - There’s something about Celtic mythology which is deep in the soul, and I just think that somehow she has tapped right into it.
+
+42 quotes

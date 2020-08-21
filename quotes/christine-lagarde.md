@@ -1,0 +1,29 @@
+ - Tackling climate change is a collective endeavour, it means collective accountability and it’s not too late.
+ - All stakeholders must participate in the gains and losses of any particular situation.
+ - To me, leadership is about encouraging people. It’s about stimulating them. It’s about enabling them to achieve what they can achieve – and to do that with a purpose.
+ - The financial industry is a service industry. It should serve others before it serves itself.
+ - Our fortunes rise together, and they fall together. ‘All men are brothers,’ said the Analects. We have a collective responsibility-to bring about a more stable and more prosperous world, a world in which every person in every country can reach their full potential.
+ - When women do better, economies do better.
+ - I love cooking. Not for myself alone. Cooking is about giving.
+ - When my father passed away and then when later on I gave birth, those are sort of ground-breaking experiences that put everything else into perspective.
+ - Regulation is necessary, particularly in a sector, like the banking sector, which exposes countries and people to a risk.
+ - I hate to say there are female and male ways of dealing with power, because I think each of us has a male and a female part. But based on my own experience, women will tend to be inclusive, to reach out more, to care a little more.
+ - I’m not in the business of reading tea leaves. I don’t have a crystal ball.
+ - I’m very much a believer that it’s action that matters much more so than, you know, the flurry of political promises and statements and slogans that are used during political campaigns.
+ - I think there are multiple studies now to demonstrate that diversity, a better balance between genders, but also between different fields as well, is actually conducive to better growth, better bottom line, better results.
+ - You know, when I sit in meetings and things are very tense and people take things extremely seriously and they invest a lot of their ego, I sometimes think to myself, ‘Come on, you know, there’s life and there’s death and there is love.’ And all of that ego business is nonsense compared to that.
+ - I learned that you can constantly improve, and that you should not be shy about your views, and about the direction that you believe is right.
+ - I have a theory that women are generally given space and appointed to jobs when the situation is tough. I’ve observed that in many instances. In times of crisis, women eventually are called upon to sort out the mess, face the difficult issues and be completely focused on restoring the situation.
+ - Massive progress has been made in the last five years. More progress has to be made in terms of fiscal union and banking union.
+ - Social unrest and protectionism are the two major risks of the world economic crisis.
+ - It’s become my brand in a way, you know, speaking the truth even though it was not politically correct.
+ - You are never wrong when you have voted because you’ve acted in accordance with your conscience and your beliefs, and you’ve exercised your democratic right, which is, you know, perfectly legitimate in our democracies.
+ - Unless we take action on climate change, future generations will be roasted, toasted, fried and grilled.
+ - I think more of the little kids from a school in a little village in Niger who get teaching two hours a day, sharing one chair for three of them, and who are very keen to get an education. I have them in my mind all the time. Because I think they need even more help than the people in Athens.
+ - France would be reluctant to embrace any proposal by the European Commission to slash agricultural tariffs if it threatened the European Union’s Common Agriculture Policy .
+ - If climate change issues are not adequately addressed – if we keep running those nice energy subsidies, if the price on carbon is not adequately set, if policymakers don’t have it on their radar screens – then financial stability in the medium and long-term is clearly at stake.
+ - A global world needs global firewalls.
+ - It’s a question of not so much pushing the boys out of the picture, but making the whole frame bigger so that both men and women access the labor market, contribute to the economy, generate growth, have jobs, and so on.
+ - The Europeans governments have massively changed the landscape in Europe. There is no doubt about it. They have put together the European Financial Stability Fund. They have discussed and approved the European Stability Mechanism.
+
+27 quotes

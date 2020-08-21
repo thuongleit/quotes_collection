@@ -1,0 +1,35 @@
+ - I love England and I love cricket.
+ - I don’t feel sorry for myself.
+ - I have no interest in anyone who wants to criticise me, or doesn’t like me despite never having met me.
+ - There’s always pressure in test cricket we just need to stick to our toes.
+ - I have principles in my professional and personal life as to how things are done.
+ - I always say that things are meant to be and everything happens for a reason, so I don’t have any regrets.
+ - I used to lie awake at night, willing myself to put in the hard work, the determination, the passion.
+ - Everyone is into male grooming.
+ - I need to rein myself in sometimes.
+ - I love living in London but I would like to buy a place in Dubai and spend a few months of the year out there.
+ - It’s not fun facing a ball going 97 mph, trust me.
+ - The hardest thing is that you can’t trust people now. You just can’t.
+ - Big players want to play in front of big audiences.
+ - I think I had about a month off when I broke my rib in Australia, which was magnificent.
+ - I have never been racist.
+ - Given half an opportunity to go and play the way I’m playing at the moment, of course I would.
+ - I am very fortunate having the job that I do and I want to do it for as long as possible.
+ - A good four to six weeks is about right for a proper break.
+ - I haven’t turned into an absolute geek who doesn’t like doing fun things.
+ - I am who I am, in terms of shooting from the hip occasionally.
+ - I have some real big goals with England.
+ - The boys are so well-rounded, they’re so self-disciplined, there is so much camaraderie.
+ - I change, like every single normal person.
+ - No one in their right mind would turn down the contracts I’ve been offered.
+ - I can never sit still for five minutes.
+ - I have played a lot of Test cricket with Paul Collingwood over the past year. I seem to be spending more time with him than my fiancee.
+ - I get along fine with the press.
+ - During my time as England captain I have always been both helpful and direct in my communications with the ECB.
+ - It’s the weight of expectation that’s the hardest to deal with, really, from my point of view.
+ - I’ve had to calm down, I have a kid! It is amazing. It’s the best thing ever. Nothing better than it.
+ - I’m a very proud person.
+ - I never think of playing for South Africa. It’s the furthest thing from my mind.
+ - An achilles, if it doesn’t heal right, there could be a danger of not playing again.
+
+33 quotes

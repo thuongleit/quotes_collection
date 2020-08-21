@@ -1,0 +1,42 @@
+ - Innovation is the ability to see change as an opportunity – not a threat. ~~Steve Jobs
+ - Innovation: Imagine the future and fill in the gaps. ~~Brian Halligan
+ - No organization ever created an innovation. People innovate, not companies. ~~Seth Godin
+ - Innovation comes from people who take joy in their work. ~~W. Edwards Deming
+ - I believe innovation is the most powerful force for change in the world. ~~Bill Gates
+ - Innovation is key. Only those who have the agility to change with the market and innovate quickly will survive. ~~Robert T. Kiyosaki
+ - Imagination plus innovation equals realization. ~~Denis Waitley
+ - Focus on how the end-user customers perceive the impact of your innovation – rather than on how you, the innovators, perceive it. ~~Thomas A. Edison
+ - Innovation is moving at a scarily fast pace. ~~Bill Gates
+ - There is no innovation and creativity without failure. Period. ~~Brené Brown
+ - There’s nothing efficient about innovation. ~~Simon Sinek
+ - Innovation is rewarded. Execution is worshipped. ~~Eric Thomas
+ - Innovation is taking two things that already exist and putting them together in a new way. ~~Tom Freston
+ - Never before in history has innovation offered promise of so much to so many in so short a time. ~~Bill Gates
+ - Because its purpose is to create a customer, the business has two and only two functions: Marketing and Innovation. Marketing and Innovation produce results. All the rest are costs. ~~Peter F. Drucker
+ - Small daily – seemingly insignificant – improvements and innovations lead to staggering achievements over time. ~~Robin S. Sharma
+ - Innovation, having fun and giving back, should be the core values for everyone. ~~Hillary Clinton
+ - Basically, to lead without a title is to derive your power within the organisation not from your position but from your competence, effectiveness, relationships, excellence, innovation and ethics. ~~Robin S. Sharma
+ - Marketing is about innovation. ~~Beth Comstock
+ - Innovation is a good thing. The human condition – put aside bioterrorism and a few footnotes – is improving because of innovation. ~~Bill Gates
+ - Great innovation only happens when people aren’t afraid to do things differently. ~~Georg Cantor
+ - Our problems are man-made, therefore they may be solved by man. And man can be as big as he wants. No problem of human destiny is beyond human beings. ~~John F. Kennedy
+ - Compliance does not foster innovation, trust does. You can’t sustain long-term innovation, for example, in a climate of distrust. ~~Stephen R. Covey
+ - Encourage innovation. Change is our lifeblood, stagnation our death knell. ~~David Ogilvy
+ - If I have a thousand ideas and only one turns out to be good, I am satisfied. ~~Alfred Nobel
+ - There are no dreams too large, no innovation unimaginable and no frontiers beyond our reach. ~~John S. Herrington
+ - I think the biggest innovations of the 21st century will be at the intersection of biology and technology. A new era is beginning. ~~Steve Jobs
+ - Business only has two functions – innovation and marketing. ~~Milan Kundera
+ - I appear as a skeptic, who believes that doubt is the great engine, the great fuel of all inquiry, all discovery and all innovation. ~~Christopher Hitchens
+ - There are only two things in a business that make money – innovation and marketing, everything else is cost. ~~Peter F. Drucker
+ - Making changes to better appeal to customer is INNOVATION. ~~Peter F. Drucker
+ - Optimism is an essential ingredient of innovation. How else can the individual welcome change over security, adventure over staying in safe places? ~~Robert Noyce
+ - You have all the reason in the world to achieve your grandest dreams. Imagination plus innovation equals realization. ~~Denis Waitley
+ - Large corporations welcome innovation and individualism in the same way the dinosaurs welcomed large meteors. ~~Scott Adams
+ - Every day were saying, ‘How can we keep this customer happy?’ How can we get ahead in innovation by doing this, because if we don’t, somebody else will. ~~Bill Gates
+ - Managing innovation will increasingly become a challenge to management, and especially to top management, and a touchstone of its competence. ~~Peter F. Drucker
+ - You don’t build it for yourself. You know what the people want and you build it for them. ~~Walt Disney
+ - To gain customer insights, we must understand that we are prisoners of what we know and what we believe. ~~Mohanbir Sawhney
+ - I’m an investor in a number of biotech companies, partly because of my incredible enthusiasm for the great innovations they will bring. ~~Bill Gates
+ - Our best ideas come from clerks and stockboys. ~~Sam Walton
+
+40 quotes

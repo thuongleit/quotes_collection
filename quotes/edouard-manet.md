@@ -1,0 +1,28 @@
+ - This woman’s work is exceptional. Too bad she’s not a man.
+ - There are no lines in nature, only areas of colour, one against another.
+ - I paint what I see and not what others like to see.
+ - No one can be a painter unless he cares for painting above all else.
+ - Conciseness in art is essential and a refinement. The concise man makes one think; the verbose bores. Always work towards conciseness.
+ - There is only one true thing: instantly paint what you see. When you’ve got it, you’ve got it. When you haven’t, you begin again. All the rest is humbug.
+ - It is not enough to know your craft – you have to have feeling. Science is all very well, but for us imagination is worth far more.
+ - There’s no symmetry in nature. One eye is never exactly the same as the other. There’s always a difference. We all have a more or less crooked nose and an irregular mouth.
+ - I would kiss you, had I the courage.
+ - Color is a matter of taste and sensitivity.
+ - Concision in art is a necessity and an elegance. The verbose painter bores: who will get rid of all these trimmings?
+ - I paint as I feel like painting; to hell with all their studies.
+ - The principal person in a picture is light.
+ - Who is this Monet whose name sounds just like mine and who is taking advantage of my notoriety?
+ - In a face, look for the main light and the main shadow; the rest will come naturally – it’s often not important. And then you must cultivate your memory, because Nature will only provide you with references. Nature is like a warden in a lunatic asylum. It stops you from becoming banal.
+ - Above all, keep your colors fresh!
+ - Every new painting is like throwing myself into the water without knowing how to swim.
+ - One must be of one’s time and paint what one sees.
+ - Insults are pouring down on me as thick as hail.
+ - The country only has charms for those not obliged to stay there.
+ - If I’m lucky, when I paint, first my patrons leave the room, then my dealers, and if I’m really lucky I leave too.
+ - Black is not a color.
+ - You must always remain master of the situation and do what you please. No school tasks, ah, no! no tasks!
+ - There is only one true thing: Instantly paint what you see.
+ - You would hardly believe how difficult it is to place a figure alone on a canvas, and to concentrate all the interest on this single and universal figure and still keep it living and real.
+ - I need to work to feel well.
+
+26 quotes

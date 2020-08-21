@@ -1,0 +1,460 @@
+ - The gospel is this: We are more sinful and flawed in ourselves than we ever dared believe, yet at the very same time we are more loved and accepted in Jesus Christ than we ever dared hope.
+ - How Religion Works: If I obey, then God will love and accept me. The Gospel: I’m loved and accepted, therefore I wish to obey.
+ - God sees us as we are, loves us as we are, and accepts us as we are. But by His grace, He does not leave us as we are.
+ - The church is not a museum for pristine saints, but a hospital ward for broken sinners.
+ - You are more sinful than you could dare imagine and you are more loved and accepted than you could ever dare hope.
+ - The Gospel is that Jesus Christ came to earth, lived the life we should have lived and died the death we should have died.
+ - Love without truth is sentimentality; it supports and affirms us but keeps us in denial about our flaws. Truth without love is harshness; it gives us information but in such a way that we cannot really hear it.
+ - Worry is not believing God will get it right, and bitterness is believing God got it wrong.
+ - Jesus Christ did not suffer so that you would not suffer. He suffered so that when you suffer, you’ll become more like him. The gospel does not promise you better life circumstances; it promises you a better life.
+ - The Christian gospel is that I am so flawed that Jesus had to die for me, yet I am so loved and valued that Jesus was glad to die for me.
+ - God’s reckless grace is our greatest hope.
+ - Religious people find God useful. Gospel people find him beautiful.
+ - The church does not simply have a missions department; it should wholly exist to be a mission.
+ - It is not the strength of your faith but the object of your faith that actually saves you.
+ - A lack of generosity refuses to acknowledge that your assets are not really yours, but God’s.
+ - We can only grasp the gospel’s sweetness if we first grapple with its offense- you can’t save yourself.
+ - The sin that is most destructive in your life right now is the one you are most defensive about.
+ - What is an idol? It is anything more important to you than God, anything that absorbs your heart and imagination more than God, anything you seek to give you what only God can give.
+ - Friendship is a deep oneness that develops when two people, speaking the truth in love to one another, journey together to the same horizon.
+ - God is so committed to your ultimate joy that he was willing to plunge into the greatest depths of suffering himself for you.
+ - Idolatry happens when we take good things and make them ultimate things.
+ - When pain and suffering come upon us, we finally see not only that we are not in control of our lives but that we never were.
+ - The resurrection makes Christianity the most irritating religion on the face of the earth.
+ - Freedom is not the absence of limitations and constraints but it is finding the right ones, those that fit our nature and liberate us.
+ - Christmas means Jesus came down and got involved in suffering. He hears your cries.
+ - Putting our faith in Christ is not about trying harder; it means transferring our trust away from ourselves and resting in him.
+ - In the original language, ‘Fear the Lord’ doesn’t mean be afraid. It means sustaining a joyful, astonished awe, and wonder before Him.
+ - The doctrine of grace and redemption keeps us from seeing any person or situation as hopeless.
+ - If God exists then every good endeavor, even the simplest ones, pursued in response to God’s calling can matter forever.
+ - Everyone worships something. The only choice you get is what to worship.
+ - If our identity is in our work, rather than Christ, success will go to our heads, and failure will go to our hearts.
+ - Tolerance isn’t about not having beliefs. It’s about how your beliefs lead you to treat people who disagree with you.
+ - If your god never disagrees with you, you might just be worshipping an idealized version of yourself.
+ - We were designed to know, serve, and love God supremely – and when we are faithful to that design, we flourish.
+ - Discipleship is not an option. Jesus says that if anyone would come after me, he must follow me.
+ - The gospel is an exclusive truth but it’s the most inclusive exclusive truth in the world.
+ - Pride is the carbon-monoxide of Sin. It silently and slowly kills you without you even knowing.
+ - Prayer-though it is often draining, even an agony-is in the long term the greatest source of power that is possible.
+ - Without the gospel we hate ourselves instead of our sin.
+ - Think like a prophet, serve like a priest, and plan like a king.
+ - God will only give you what you would have asked for if you knew everything he knows.
+ - Job never saw why he suffered, but he saw God, and that was enough.
+ - Suffering can refine us rather than destroy us because God himself walks with us in the fire.
+ - If God is not at the center of your life, something else is.
+ - Prayer turns theology into experience.
+ - It is no more narrow to claim that one religion is right than to claim that one way to think about all religions is right.
+ - If Jesus rose from the dead, then you have to accept all that he said; if he didn’t rise from the dead, then why worry about any of what he said? The issue on which everything hangs is not whether or not you like his teaching but whether or not he rose from the dead.
+ - Bad evangelism says: I’m right, you’re wrong, and I would love to tell you about it.
+ - If you are a child of God, you don’t lose your status if you have a bad week.
+ - A common vision can unite people of very different temperaments.
+ - Easter means that Christmas worked.
+ - Religion makes us proud of what we have done. The Gospel makes us proud of what Jesus has done.
+ - God relentlessly offers his grace to people who do not deserve it, or seek it, or even appreciate it after they have been saved by it.
+ - Money isn’t an idol. It just shows you where your idols are.
+ - The only love that won’t disappoint you is one that can’t change, that can’t be lost, that is not based on the ups and downs of life or of how well you live. It is something that not even death can take away from you. God’s love is the only thing like that.
+ - The basic purpose of prayer is not to bend God’s will to mine, but to mold my will into His.
+ - God’s salvation does not come in response to a changed life. A changed life comes in response to the salvation, offered as a free gift.
+ - Humility is so shy. If you begin talking about it, it leaves.
+ - If his suffering did not make Jesus give up on us, nothing will.
+ - Through the person and work of Jesus Christ, God fully accomplishes salvation for us, rescuing us from judgment for sin into fellowship with him, and then restores the creation in which we can enjoy our new life together with him forever.
+ - There is no evil that the father’s love cannot pardon and cover, there is no sin that is a match for his grace.
+ - Grace is the free, unmerited favor of God, working powerfully on the mind and heart to change lives.
+ - A life of gratitude to God for being saved is far more pleasing than a life based on self-righteousness over being good.
+ - Prayer is the way to experience a powerful confidence that God is handling our lives well, that our bad things will turn out for good, our good things cannot be taken from us, and the best things are yet to come.
+ - The peace of God is not the absence of fear. It, in fact, is His presence.
+ - No one is so good that they don’t need the grace of the gospel, nor so bad that they can’t receive the grace of the gospel.
+ - You are worse than you think you are, but also far more loved than you feel you are.
+ - The more you rejoice in your own forgiveness, the quicker you will be to forgive others.
+ - If God wiped out all sources of evil in the world we would no longer be here, the evil is inside us.
+ - The gospel shows a God far more holy than the legalist can bear, yet far more merciful than a humanist can conceive.
+ - The way to find your calling is to look at the way you were created. Your gifts have not emerged by accident.
+ - Every single emotion you have should be processed in prayer.
+ - Legalistic remorse says, “I broke God’s rules,” while real repentance says, “I broke God’s heart.”
+ - Jesus took the tree of death so you could have the tree of life.
+ - When people say, “I know God forgives me, but I can’t forgive myself,” they mean that they have failed an idol, whose approval is more important than God’s.
+ - Our Christian hope is that we are going to live with Christ in a new earth, where there is not only no more death, but where life is what it was always meant to be.
+ - Any person who only sticks with Christianity as long as things are going his or her way, is a stranger to the cross.
+ - I hate the moment when suddenly my anger turns into tears.
+ - The only person who dares wake up a king at 3:00 AM for a glass of water is a child. We have that kind of access.
+ - As many have learned and later taught, you don’t realize Jesus is all you need until Jesus is all you have.
+ - No one is exempt from trials and tribulations. In fact, this is often what happens to people God loves very much, for it is part of God’s often mysterious and good plan for turning us into something great.
+ - I am accepted by God through the work of Jesus Christ – therefore I obey.
+ - Gifts are abilities God gives us to meet the needs of others in Christ’s name.
+ - If you don’t love the poor, you don’t know what God’s done for you.
+ - God invites us to come as we are, not stay as we are.
+ - Prayer should be done regularly, persistently, resolutely, and tenaciously at least daily, whether we feel like it or not.
+ - Rejoicing and repentance must go together. Repentance without rejoicing will lead to despair. Rejoicing without repentance is shallow and will only provide passing inspiration instead of deep change.
+ - Fear-based repentance makes us hate ourselves. Joy-based repentance makes us hate the sin.
+ - Falling in love in a Christian way is to say,’I am excited about your future and I want to be part of getting you there. I’m signing up for the journey with you. Would you sign up for the journey to my true self with me? It’s going to be hard but I want to get there.
+ - Our culture says that feelings of love are the basis for actions of love. And of course that can be true. But it is truer to say that actions of love can lead consistently to feelings of love.
+ - Prayer can be simple, but it’s not easy. Nothing great is.
+ - Nobody who understands the free grace of God takes sin lightly.
+ - Repentance is like antiseptic. You pour antiseptic onto a wound and, at first, it stings. Then it heals.
+ - While marriage is many things, it is anything but sentimental. Marriage is glorious but hard. It’s a burning joy and strength, and yet it is also blood, sweat, and tears; humbling defeats and exhausting victories.
+ - Even if our own troubles are great, we should still serve. Jesus washed His disciples feet on the way to the cross.
+ - You won’t be able to change the world, yourself, anything, if you don’t change yourself inwardly, deeply, enduringly.
+ - Our need for worth is so powerful that whatever we base our identity and value on we essentially ‘deify.’ We will look to it with all the passion and intensity of worship and devotion, even if we think ourselves as highly irreligious.
+ - The world values power, comfort, success, and recognition. Jesus frees us to value grief, sacrifice, weakness, and exclusion.
+ - Religion operates on the principle ‘I obey-therefore I am accepted by God.’ But the operating principle of the gospel is ‘I am accepted by God through what Christ has done-therefore I obey.’
+ - If you have money, power, and status today, it is due to the century and place in which you were born, to your talents and capacities and health, none of which you earned. In short, all your resources are in the end the gift of God.
+ - While other worldviews lead us to sit in the midst of life’s joys, foreseeing the coming sorrows, Christianity empowers its people to sit in the midst of this world’s sorrows, tasting the coming joy.
+ - Truth without love is imperious self-righteousn ess. Love without truth is cowardly self-indulgence .
+ - Prayer is never just an emergency flare or desperate anxious gamble. God’s attention is not based on our performance but parental love.
+ - Describe the God you’ve rejected. Describe the God you don’t believe in. Maybe I don’t believe in that God either.
+ - You are a totally loved moral failure.
+ - It is remarkable that in all of his writings Paul’s prayers for his friends contain no appeals for changes in their circumstances.
+ - Those who condemn the self-righteous for the sake of self-discovery do so with ironic self-righteousness.
+ - Revival occurs when those who think they already know the gospel discover they do not really or fully know it.
+ - Jesus smashed two of the rich young ruler’s assumptions: Christianity is something you can ADD and something you can DO.
+ - Marriage has the power to set the course of your life as a whole. If your marriage is strong, even if all the circumstances in your life around you are filled with trouble and weakness, it won’t matter. You will be able to move out into the world in strength.
+ - There are some needs only you can see. There are some hands only you can hold. There are some people only you can reach.
+ - Like a baby learning language, we learn how to communicate with God by listening to His words first.
+ - Faith in God’s promises means not always following the expected, rational path.
+ - Forgiveness always comes at a cost to the one granting the forgiveness. To not retaliate is to absorb the cost.
+ - The deeper the experience of the free grace of God, the more generous we must become.
+ - Happiness is a by-product of wanting something more than happiness-to be rightly related to God and our neighbor.
+ - God loves you just because He loves you.
+ - How does Satan accuse us? By causing us to look at our sin rather than our Savior.
+ - While your character flaws may have created mild problems for other people, they will create major problems for your spouse and your marriage.
+ - Prayer is the way to experience a powerful confidence that God is handling our lives well.
+ - Religion: ‘My identity is built on being a good person.’ Gospel: ‘My identity is not built on my record or my performance but on Christ’s.’
+ - There is a direct relationship between a person’s grasp and experience of God’s grace, and his or her heart for justice and the poor.
+ - The ministry of mercy, then, is the best advertising a church can have. It convinces a community that this church provides people with actions for their problems, not only talk. It shows the community that this church is compassionate.
+ - Holding a grudge against someone means you think you know what they deserve and you take it upon yourself to give it to them.
+ - Truth is more important, freedom is more complex, and Jesus is more liberating than you think.
+ - The reason the stone was rolled away on Jesus’s tomb was not so that Jesus could get out, but so that we could get in.
+ - All life-changing love is inconvenient.
+ - Jesus experienced homelessness at Christmas so that we could experience a love we could never lose.
+ - So live in the light of the resurrection and renewal of this world, and of yourself, in a glorious, never-ending, joyful dance of grace.
+ - Christmas is telling you that you could never get to heaven on your own. God had to come to you.
+ - The great basis of Christian assurance is not how much our hearts are set on God, but how unshakably his heart is set on us.
+ - Mercy and forgiveness must be free and unmerited to the wrongdoer. If the wrongdoer has to do something to merit it, then it isn’t mercy, but forgiveness always comes at a cost to the one granting the forgiveness.
+ - Christ’s resurrection not only gives you hope for the future; it gives you hope to handle your scars right now.
+ - But to be fully known and truly loved is, well, a lot like being loved by God.
+ - We don’t merely need the money from work to survive. We need the work itself to survive and live fully human lives more than money.
+ - We must have a strong inner life of fellowship and intimacy with Jesus if we are going to have a strong outer life of ministry.
+ - Because of Jesus-there is always hope, even in the darkest moments of your life.
+ - People are messy; therefore, relationships will be messy. Don’t be surprised by messiness.
+ - The resurrection was God’s way of stamping PAID IN FULL right across history so that nobody could miss it.
+ - On the cross Jesus was treated as an outcast so that we could be brought into God’s family freely by grace.
+ - Prayer is our way of entering into the happiness of God himself.
+ - Jesus may ask of you far more than you planned to give, but He can give to you infinitely more than you dared ask or think.
+ - To discover the real you, look at what you spend time thinking about when no one is looking.
+ - The resurrection of the body means that we do not merely receive a consolation for the life we have lost but a restoration of it. We not only get the bodies and lives we had but the bodies and lives we wished for but had never before received.
+ - Anything can serve as a counterfeit god, especially the very best things in life.
+ - Sin has caused our affections to stray, propelling us to worship relationships, achievement, and work-everything but God.
+ - Look at Jesus Christ. Every time he was in trouble he used the Word of God. When he was tempted he used the Word. When he was suffering on the cross he used the Word.
+ - To pray is to accept that we are, and always will be, wholly dependent on God for everything.
+ - If you seek to serve people more than to gain power, you will not only serve people, you will gain influence.
+ - If Jesus rose from the dead, then you have to accept all that he said.
+ - To fear the Lord is to be overwhelmed with wonder before the greatness of God and his love.
+ - Religion poses a danger of creating division or intolerance between groups of people. However, the gospel of Jesus lead us to three things: humble service, reconciling behavior that is neither patronizing nor self-righteous, and a love toward people who hold different beliefs than we do.
+ - Prayer is both conversation and encounter with God.
+ - The world is polarizing over religion. It is getting both more religious and less religious at the same time.
+ - The church should be a place where people can be free to say that they are sinners.
+ - Christ will do everything for you or nothing. He’s either all of your righteousness or none.
+ - Prayer gives us relief from the melancholy burden of self-absorption .
+ - The basic premise of religion– that if you live a good life, things will go well for you– is wrong. Jesus was the most morally upright person who ever lived, yet He had a life filled with the experience of poverty, rejection, injustice, and even torture.
+ - Only with time do we really learn who the other person is and come to love the person for him- or herself and not just for the feelings and experiences they give us.
+ - To stand in the presence of God, that is what the Gospel is. The Gospel is not primarily about forgiveness. It’s not primarily about good feelings. It’s not primarily about power. All those things are byproducts, sparks. It’s primarily about the presence of God.
+ - Love is the effort and desire to make someone else everything they were created to be.
+ - What the heart most wants, the mind finds reasonable, the will finds doable, and the emotions find desirable.
+ - If you want God’s grace, all you need is need, all you need is nothing.
+ - God’s grace and forgiveness, while free to the recipient, are always costly for the giver...
+ - Everyone says they want community and friendship. But mention accountability or commitment to people, and they run the other way.
+ - The key question in order to change you is not ‘What would Jesus do?’ but “What has Jesus done for you?”
+ - I am God and I am coming to find you.
+ - No matter what precautions we take, no matter how well we have put together a good life, no matter how hard we have worked to be healthy, wealthy, comfortable with friends and family, and successful with our career – something will inevitably ruin it.
+ - How could a good, all-powerful God allow suffering?
+ - The world can’t save itself. That’s the message of Christmas.
+ - The prerequisite for receiving the grace of God is to know you need it.
+ - We are saved by a man who died loving his enemies.
+ - The greatness of prayer is nothing but an extension of the greatness and glory of God in our lives To fail to pray, then, is not to merely break some religious rule – it is a failure to treat God as God. It is a sin against his glory.
+ - Men, you’ll never be a good groom to your wife unless you’re first a good bride to Jesus.
+ - Jesus is the only Lord who, if you receive him, will fulfill you completely, and, if you fail him, will forgive you eternally.
+ - If you don’t feel like praying, pray to God to give you the desire.
+ - Disordered love always leads to misery and breakdown. The only way to ‘reorder’ our loves is to love God supremely.
+ - Those who understand the gospel cannot possibly look down on anyone, since they were saved by sheer grace, not by their perfect doctrine or strong moral character.
+ - The Gospel does not promise you better life circumstances; it promises you a better life.
+ - Many times people think if God has called you to something, he’s promising you success. He might be calling you to fail to prepare you for something else through the failure.
+ - What you treasure will ultimately require you die for it, Jesus is the only treasure that died for you.
+ - Jesus says, “I want you to follow me so fully, so intensely, so enduringly that all other attachments in your life look weak by comparison”
+ - If you say: I believed in God, I trusted God and He didn’t come through – You only trusted God to meet your agenda.
+ - Without immersion in God’s words, our prayers may not be merely limited and shallow but also untethered from reality.
+ - If this world was made by a triune God, relationships of love are what life is really all about.
+ - The product of a true, growing, gospel-centered nature is often gentleness.
+ - If you wait until your motives are pure and unselfish before you do something, you will wait forever.
+ - Don’t obey God to get things, obey God to get God.
+ - Legalism is looking to something besides Jesus Christ in order to be acceptable and clean before God.
+ - Only when our greatest love is God, a love that we cannot lose even in death, can we face all things with peace. Grief was not to be eliminated but seasoned and buoyed up with love and hope.
+ - Jesus’s miracles are not just a challenge to our minds, but a promise to our hearts, that the world we all want is coming.
+ - Like a surgeon, friends cut you in order to heal you.
+ - Faith is not primarily a function of how you feel. Faith is living out and believing what truth is despite what you feel.
+ - Careful obedience to God’s law may serve as a strategy for rebelling against God.
+ - Trust is accepting what God sends into your life whether you understand it or not.
+ - Love is counting someone else’s needs and interests as more important than your own needs or interests or comfort.
+ - Jesus didn’t come to tell us the answers to the questions of life, he came to be the answer.
+ - If you add anything to Jesus as a requirement for being happy, that’s your real king.
+ - Hell is having to execute a pointless act from which nothing ever comes except the need to do it again.
+ - All change comes from deepening your understanding of the salvation of Christ and living out the changes that understanding creates in your heart.
+ - Most people want Jesus as a consultant rather than a King, and He does not come that way.
+ - The main problem in the Christian life is that we have not thought out the deep implications of the gospel, we have not ‘used’ the gospel in and on all parts of our life.
+ - The infallible test of spiritual integrity, Jesus says, is your private prayer life.
+ - Suffering is unbearable if you aren’t certain that God is for you and with you.
+ - Christ literally walked in our shoes and entered into our affliction. Those who will not help others until they are destitute reveal that Christ’s love has not yet turned them into the sympathetic persons the gospel should make them.
+ - The cross is the place where we find the freedom to accept ourselves without being proud and to challenge ourselves without being crushed.
+ - A person’s faith can collapse almost overnight if she failed over the years to listen patiently to her own doubts, which should only be discarded after long reflection.
+ - In religion, you obey because God is useful. In Christianity, you obey because God is beautiful.
+ - We think that idols are bad things, but that is almost never the case. The greater the good, the more likely we are to expect that it can satisfy our deepest needs and hopes. Anything can serve as a counterfeit god, especially the very best things in life.
+ - The observer of beauty always receives a passion to share the beauty with others.
+ - It’s impossible to have met the real Jesus and be indifferent. You either bow down in wonder OR go away offended.
+ - Unless you point to the good news of God’s grace people will not be able to bear the bad news of God’s judgement.
+ - The gospel is not just the “ABCs” but the “A-to-Z” of the Christian life.
+ - In a smaller church your pastoring sets up your preaching. In a larger church your preaching sets up your pastoring.
+ - Public faith means going public with what’s in your heart, with humility and respect for others, as we speak of the truth of the gospel.
+ - When we grasp that we are unworthy sinners saved by an infinitely costly grace, it destroys both our self-righteousn ess and our need to ridicule others.
+ - God’s grace does not come to people who morally outperform others, but to those who admit their failure to perform and who acknowledge their need for a Savior.
+ - Prayer is awe, intimacy, struggle-yet, the way to reality.
+ - Jesus cannot be just liked. His claims make us either kill him or crown him.
+ - The gospel frees us from the relentless pressure of having to prove ourselves, for we are already proven and secure.
+ - The happy ending of the Resurrection is so enormous that it swallows up even the sorrow of the Cross.
+ - The world is a dark place, and yet the coming of Jesus Christ shows us no one and nothing is hopeless.
+ - The purpose of Jesus’s coming is to put the whole world right, to renew and restore the creation, not to escape it.
+ - When you experience God it is deeply personal, but it’s not at all private.
+ - All human problems are ultimately symptoms, and our separation from God is the cause.
+ - Jesus does not just bring good news; he is the good news.
+ - When Jesus got the big questions, he didn’t present arguments. He presented himself.
+ - Whatever you base your life on – you have to live up to that. Jesus is the one Lord you can live for who already died for you.
+ - The Gospel worldview equips the artist with a unique combination of optimism and realism about life.
+ - We modern people think of miracles as the suspension of the natural order, but Jesus meant them to be the restoration of the natural order.
+ - Because we put ourselves in God’s place, He put Himself in our place.
+ - Out of the cross comes the resurrection. Out of weakness comes real strength.
+ - Faith journeys are never simply intellectual exercises.
+ - The goal of prayer is not just the sharing of our ideas, but also of ourselves.
+ - If we are deeply moved by the sight of his love for us, it detaches our hearts from other would-be saviors. We stop trying to redeem ourselves through our pursuits and relationships, because we are already redeemed. We stop trying to make others into saviors, because we have a Savior.
+ - If we give God things in hope that they’ll earn us blessings, we’re really not doing anything for him. It’s for ourselves.
+ - God looks at the anxious and says, I tore my Son to shreds for you, and you’re afraid I will not give you what you need?
+ - There is a joy available that the deepest grief cannot put out. No circumstance or person can take away the joy God gives.
+ - Every treasure on this earth says, ‘Give your life to purchase me.’ Jesus says ‘I’m the one treasure who died to purchase you.’
+ - How do you change your behavior? Change what you worship.
+ - Adam wasn’t lonely because he was imperfect but because he was perfect. The ache for friends is not the result of sin.
+ - Only if you are part of a community of believers seeking to resemble, serve, and love Jesus will you ever get to know him and grow into his likeness.
+ - Jesus Christ was treated as we deserved so that when we believe in Jesus, God treats us as Jesus deserves.
+ - Power, approval, comfort, and control are meta-idols that hold sway over our daily lives.
+ - You don’t fall in love. You commit to it.
+ - To take a person out of slavery takes an instant. To take slavery out of a person takes a process.
+ - When you forgive, that means you absorb the loss and the debt. You bear it yourself. All forgiveness, then, is costly.
+ - When love of one’s people becomes an absolute, it turns into racism. When love of equality turns into a supreme thing, it can result in hatred and violence toward anyone who has led a privileged life. It is the settled tendency of human societies to turn good political causes into counterfeit gods.
+ - The more you see your own flaws and sins, the more precious, electrifying, and amazing God’s grace appears to you.
+ - The key to continual and deeper spiritual renewal and revival is the continual re-discovery of the gospel.
+ - Prayer is continuing a conversation that God has started through his Word and his grace, which eventually becomes a full encounter with him.
+ - Real love, the Bible says, instinctively desires permanence.
+ - Change happens not just by giving the mind new arguments but also by feeding the imagination new beauties.
+ - We have to be careful not to elevate our preferences to moral standards and judge others by them. We only do so to feel superior.
+ - Only if God can say things that make you struggle will you know that you have met a real God and not a figment of your imagination.
+ - The essence of forgiveness is absorbing pain instead of giving it.
+ - Success and suffering will either darken your heart or make you wise, but they won’t leave you where you were.
+ - Work is taking the raw material of creation and developing it for the sake of others.
+ - Proper wedding vows are more a promise of mutually binding future love than a declaration of your present love.
+ - Prayer is awe before an infinite force, and yet it’s intimacy with a personal friend.
+ - The problem with the world is it blames problems on things besides sin and identifies salvation on things besides God.
+ - Every religion has a prophet who is pointing people to God. Jesus is the only one who says, ‘I am God, and I am coming to find you.’
+ - If you can’t show the difference between religion and the Gospel, people will confuse morality with a changed heart.
+ - Unless you believe the gospel, everything you do will be driven by either pride or fear.
+ - The church is often like a football stadium where 22 people need a rest and thousands of people need exercise.
+ - If I have the smile of God, all other frowns are inconsequential.
+ - The God of the Bible takes our misery and suffering so seriously that he was willing to take it on himself.
+ - If we have not seen our sin and sought radical forgiveness from God, we will be unable to forgive and to seek the good of those who have wronged us.
+ - Sin is the despairing refusal to find your deepest identity in your relationship and service to God.
+ - Not everyone is your brother or sister in the faith, but everyone is your neighbor, and you must love your neighbor.
+ - We deserve to be forgotten because we forget Him. But because Jesus died on the cross, we will never, ever be forgotten by God.
+ - Life changing repentance begins where blame shifting ends.
+ - The main human problems often are that we misidentify what will make us happy; and we ask people and things to save us beyond their ability.
+ - The rich brother needs to let the gospel humble him while the poor brother needs to let the gospel affirm him.
+ - Only in Jesus Christ do we see how the untamable, infinite God can become a baby and a loving Savior. On the cross we see how both the love and the holiness of God can be fulfilled at once.
+ - If you’re avoiding sin and living morally so that God will have to bless you and save you, then you may be looking to Jesus as a teacher, model, and helper, but ironically you are avoiding him as Savior. You are trusting in your own goodness rather than in Jesus for your standing with God.
+ - The irreligious don’t repent at all and the religious only repent of sins. But Christians repent of their wrongfully placed righteousness.
+ - In the church we have to deliberately let ourselves be transparent and accountable to others. We’re a family.
+ - In the end, we love people into belief. We do not argue them into belief.
+ - You are under-qualified for the job of God.
+ - Covenant community is like air. We don’t miss it until we need it.
+ - If the church does not identify with the marginalized, it will itself be marginalized. This is God’s poetic justice.
+ - Do you realize that it is only in the gospel of Jesus Christ that you get the verdict before the performance?
+ - True citizens of the heavenly city are the best residents of the earthly city.
+ - Jesus is the ultimate Job, the only truly innocent sufferer.
+ - Friends become wiser together through a healthy clash of viewpoints.
+ - I have long profited from Adele Ahlberg Calhoun’s gifts in the field of spiritual development, and I am delighted that she has compiled her experience with spiritual disciplines into book form. I highly recommend it and I look forward to using it as a resource at our church.
+ - Pride is that which claims to be the author of what is really a gift.
+ - When I forget the gospel I become dependent on the smiles and evaluation of others.
+ - As long as we think we are not that bad, the idea of grace will never change us.
+ - Just because we don’t see a reason for evil and suffering doesn’t mean there’s not a reason for it.
+ - Grace is humbling and restorative. It pulls you down because Christ had to die for you, but also lifts you up because he wanted to die for you.
+ - The life of faith is not the perfect life; it is the life which clings on to what God has said he will do.
+ - In the secular view, suffering is never seen as a meaningful part of life but only as an interruption.
+ - It takes both spouses to say, “My self-centeredness is the main problem in my marriage” to have a great marriage.
+ - As things are brought back under Christ’s rule and authority, they are restored to health, beauty, and freedom.
+ - Are you living to justify yourself, or are you living because you are justified?
+ - Big cities have a lot of ‘younger brothers’ who have left traditional parts of the world and their families for a more liberal lifestyle. But cities are filled to the gills with ‘elder brothers’ too.
+ - We must not settle for an informed mind without an engaged heart.
+ - Honor the image of God. Human beings are not accidents, but creations.
+ - The very fact that we have access to God’s attention and presence should concentrate the thoughts and elevate the heart.
+ - To preach the gospel is to show people their need for salvation against a backdrop of God’s nature and the character of sin, and then present Jesus as the only remedy for what ails them and the world. In my weekly preaching in the worship services I always call people to believe in Christ.
+ - It takes pride to be anxious – I am not wise enough to know how my life should go.
+ - If God does not have our highest allegiance, we will use prayer to try to get things that have that designation.
+ - Love is primarily giving. It’s an action that leads to a feeling, not a feeling first.
+ - Doing justice includes not only the righting of wrongs but generosity and social concern, especially toward the poor and vulnerable.
+ - Occasionally God rips aside the veil, and you begin to see this very fact: All things happen for you. All things. Everything is knit together.
+ - We are so quick to tweet, Facebook, and Instagram but we treat prayer with a sense of delay?
+ - God made you to love him supremely, but he lost you. He returned to get you back, but it took the cross to do it. He absorbed your darkness so that one day you can finally and dazzlingly become your true self and take your seat at his eternal feast.
+ - If God is real, why does he align perfectly with our views? We should expect God to challenge us on what we think is right somewhere.
+ - We get angry when we feel like God owes us a better life than we have.
+ - Jesus Christ as only an example will crush you. You’ll never be able to live up to it. But Jesus Christ as the Lamb will save you.
+ - We should let Scripture interpret us more than we interpret Scripture.
+ - Secularism and Religion are both all about your personal performance. The Gospel is the performance of another applied to you.
+ - It is impossible to forgive someone if you feel superior to him or her.
+ - If Christianity is really true it will be offending and correcting you somewhere.
+ - Nothing is more important than to learn how to maintain a life of purpose in the midst of painful adversity.
+ - The lack of joy in your life is due to your lack of mission.
+ - Where you find your significance is where you find your salvation.
+ - If the evolutionary mechanism of natural selection depends on death, destruction, and violence of the strong against the weak, then these things are perfectly natural. On what basis, then, does the atheist judge the natural world to be horribly wrong, unfair, and unjust?
+ - Christians don’t believe that goodness gets you to heaven. Christians believe it’s exhausting to rely on your own goodness to please God.
+ - Generosity is not only about money. There is more than one currency. Let your generosity be pervasive in life.
+ - To the degree you experience God’s love towards you – seeing you as beautiful and radiant – to that degree sex won’t ruin your life.
+ - When we try and use fear or pride to stop from sinning, we are forgetting that we sin because of either fear or pride.
+ - Nothing we formulate or do can qualify us for access to God. Only grace can do that- based not on our performance but on the saving work of Christ.
+ - It’s important to remember the Gospel is a story; not a set of bullet points.
+ - All I know is, if I don’t care about the poor, if my church doesn’t care about the poor, that’s evil.
+ - To say doctrine doesn’t matter, only how you live matters, is itself a doctrine. It’s the doctrine of salvation by works.
+ - Suffering is the stripping of our hope in finite things, therefore we do not put our ultimate hope in anything finite.
+ - For every one look at your sins, take five looks at your Savior.
+ - The gospel is not just the A-B-C’s but the A-Z of Christianity. The gospel is not just the minimum required doctrine necessary to enter the kingdom, but the way we make all progress in the kingdom.
+ - Our moral efforts are too feeble and falsely motivated to ever merit salvation.
+ - God loves and defends those with the least economic and social power, and so should we.
+ - Because sin is not just breaking the rules, it is putting yourself in the place of God as Savior, Lord, and Judge just as each son sought to displace the authority of the father in his own life.
+ - We are regularly in danger of having too light a view of our sin and also too light a grasp of what Jesus has done to free us from our sin.
+ - The gospel humbles us into the dust and at the very same time exalts us to the heavens.
+ - Paul sees all kinds of sins in himself and all kinds of accomplishments too, but he refuses to connect them with his identity.
+ - The gospel is not only the way to enter the kingdom; it is the way to live in the kingdom.
+ - Because of the Cross, God can be both just towards sin and yet mercifully justifying to sinners.
+ - Jesus came into this world not as a philosopher or a general but as a carpenter. All work matters to God.
+ - The simple fact is that only if I love Jesus more than my wife will I be able to serve her needs ahead of my own.
+ - God so loved us and hates suffering that he was willing to come down and get involved in it.
+ - If we pick out which parts of the Bible we dislike, we actually have a god we’ve created. How can that god ever call you out on anything?
+ - Jesus warns people far more often about greed than about sex, yet almost no one thinks they are guilty of it.
+ - Two things we want so desperately, glory and relationship, can coexist only in God.
+ - We need to remember that we are saved by grace when we fail. But we need to remember it much more when we succeed.
+ - A god of less wrath than the God of the Bible is necessarily a god of less love. His anger is a product of his love.
+ - There seems to be a human instinct for prayer. Swiss theologian Karl Barth calls it our ‘incurable God-sickness.’
+ - The common moral framework: Do anything as long as it does no harm to others. Problem: Whose definition of harm?
+ - Fear, logic, and tradition are not going to make you live a good life when no one is looking.
+ - If you have a small view of your sin, God’s grace will be small to you.
+ - While we want doubts to give way to faith, we should be merciful and patient with those who are still in a doubt-troubled place.
+ - The cross is the place where the Judge takes the Judgment.
+ - The gospel is not about choosing to follow advice; it’s about being called to follow a King.
+ - If the preaching of our ministers and the practice of our parishioners do not have the same effect on people that Jesus had, then we must not be declaring the same message that Jesus did.
+ - Jesus’s teaching consistently attracted the irreligious while offending the Bible-believing, religious people of his day.
+ - Marriage is two broken people having little broken people.
+ - To love our success more than God and our neighbor hardens the heart, making us less able to feel and to sense.
+ - Christianity does not set faith against thinking. It sets faith against assuming.
+ - Your heart is smothering under your small ambitions.
+ - If you’re a Christian how do you deal with stress without Jesus? You don’t.
+ - The human race doesn’t need more books telling them what to do. They need the power to do what they already know.
+ - Our character is mainly shaped by our primary social community – the people with whom we eat, play, converse, and study.
+ - If you aren’t constantly astonished at God’s grace in your solitude, there’s no way it can happen in public.
+ - People only get in the afterlife what they have most wanted-either to have God as Savior and Master or to be their own Saviors and Masters.
+ - We only fully grasp the gospel when we understand, as Paul did, that we are the worst sinner we know.
+ - To truly become Christians we must also repent of the reasons we ever did anything right.
+ - The Christian faith gives us a new conception of work as the means by which God loves and cares for his world through us.
+ - One of the signs that you may not grasp the unique, radical nature of the gospel is that you are certain that you do.
+ - How you experience your present is completely shaped by what you believe your ultimate future to be.
+ - A Christian is somebody whose eyes have been opened, who admits that Jesus is not what you expected, but he’s what you need.
+ - We are called not simply to communicate the gospel to nonbelievers; we must also intentionally celebrate the gospel before them.
+ - When you say, “Come in Jesus as my caregiver, stay out as my Lord,” he can’t. He’s both.
+ - The more you understand how your salvation isn’t about your behavior, the more radically your behavior will change.
+ - If we can’t “love the sinner; hate the sin” then how can we relate to ourselves? Love who we are in Christ but still hate the sin remaining.
+ - Jesus was much more interested in the quality of the people’s response to him than in the quantity of the crowd.
+ - The best people often have terrible lives. Job is one example, and Jesus – the ultimate ‘Job,’ the only truly, fully innocent sufferer – is another.
+ - We must neither confuse evangelism with doing justice, nor separate them from one another.
+ - If God is treated as God during suffering, then suffering can reveal and present him in all his greatness.
+ - In cities you have more image of God per square inch than anywhere else on Earth.
+ - No writer or thinker has taught me as much as James Hunter has about this all-important and complex subject of how culture is changed.
+ - We’ve got at least two other streams of that are filled with good, helpful material on meditation – the Catholic stream and the Quaker stream that are not primarily based on meditating on the Scripture.
+ - Paul reminds us that in the Gospel we are both brought lower and raised higher than we can imagine.
+ - The sin under all other sins is a lack of joy in Christ.
+ - Jesus is not asking us to do anything for him that he hasn’t already done for us, under conditions of difficulty beyond our comprehension.
+ - Only on the cross do you have a totally holy God and a totally loving God.
+ - One of the most frequent responses I get from non-Christian readers is: ‘I’m not sure I agree with all this, but I must say this is the first book I’ve read by a Christian that didn’t treat me like I was an idiot.’
+ - It’s a mistake to think that you must feel love to give it.
+ - If you try to add to God’s salvation you subtract. If you try to add to God’s salvation you subtract. If you try to merit God’s salvation you haven’t believed at all, even if you try to do a little bit.
+ - Suffering is actually at the heart of the Christian story.
+ - Ironically, the insistence that doctrines do not matter is really a doctrine itself.
+ - Reason can get you to probability, but only commitment can get you to certainty.
+ - Christians necessarily believe we depend on God for everything-a prayerless Christian, then, is a contradiction in terms.
+ - If you need something in addition to God to make you happy, that is your true King.
+ - The gospel has two parts. It has the part that says you’re a sinner, and it has the part that says you’re loved and accepted.
+ - Faith is not opposed to reason, but it is sometimes opposed to feelings and appearances.
+ - When people say, “God is love,” I think they mean that love is extremely important, or that God really wants us to love. But in Christian conception, God really has love as his essence.
+ - What you do today is shaped by what you believe about tomorrow.
+ - Christians need the gospel as much as non-Christians do.
+ - Let us preach grace till humility just starts to grow in us.
+ - If you have to run away from something that used to be an idol, you’re actually still enslaved by it. It’s still controlling you.
+ - We are free to fight sin, and free to win; but we must still fight.
+ - Change won’t happen through ‘trying harder’ but only through encountering the radical grace of God.
+ - How could you possibly know that no religion can see the whole truth unless you yourself have the superior, comprehensive knowledge of spiritual reality you just claimed non of the religions have?
+ - The gospel has supernatural versatility to address the particular hopes, fears, and idols of every culture and every person.
+ - Most apologetic books are really written for Christians, even the ones that purport to be written for non-believers.
+ - If you come from insignificance and when you die you return to insignificance, then nothing is significant now.
+ - Christianity is not just for the strong; it’s for everyone.
+ - If we are not deliberately thinking about our culture and our context, we will be conformed to it without ever knowing.
+ - What you do in secret tells you who your God is.
+ - If we say, ‘I believe in Jesus,’ but it doesn’t affect the way we live, the answer is not that now we need to add hard work to our faith so much as that we haven’t truly understood or believed in Jesus at all.
+ - The world says you are loved because of what you do. Jesus says you can now do all things because you are loved.
+ - All Christians have opportunities to serve those who might never come to church or listen to a sermon.
+ - But resurrection is not just consolation – it is restoration. We get it all back – the love, the loved ones, the goods, the beauties of this life – but in new, unimaginable degrees of glory and joy and strength.
+ - Prayer is a recognition of the greatness of our God.
+ - The most liberating act of free, unconditional grace demands that the recipient give up control of his or her life.
+ - There is no sin that is a match for God’s grace.
+ - Marriage does not so much bring you into confrontation with your spouse as confront you with yourself.
+ - A Christian is one who stops working to be saved, not one who stops working!
+ - Holiness gives us new desires and brings old desires into line with one another.
+ - What greater value could you possibly have than to be delighted in and sacrificed for by the Maker of the universe.
+ - Suffering dispels the illusion that we have the strength and competence to rule our own lives and save ourselves.
+ - Your feelings come from where you find your hope. Where is your happiness and your significance?
+ - You should not begin to pray for all you want until you realize that in God you have all you need.
+ - God has become human. The absolute has become particular. The ideal has become real. The divine has taken up a human nature.
+ - Without the gospel we hate ourselves instead of our sin. Without the gospel we’re motivated through all sorts of awful fear and pride to change and it doesn’t really change our hearts; it just restrains our hearts.
+ - The determining factor in our relationship with God is not our past but Christ’s past.
+ - If anything becomes more fundamental than God to your happiness, meaning of life, and identity then it is an idol.
+ - It is possible to avoid Jesus as Savior as much by keeping all the Biblical rules as by breaking them.
+ - If you want God’s grace, all you need is need, all you need is nothing. But that kind of spiritual humility is hard to muster. We come to God saying, “Look at all I’ve done,” or maybe “Look at all I’ve suffered.” God, however, wants us to look to him – to just wash.
+ - It takes more than a great church to reach a city, it takes a great movement of churches.
+ - I wouldn’t venture to say which kind of sin is more prevalent. I wouldn’t even want to try to characterize certain ‘circles.’
+ - One of the biggest obstacles in the way of people coming to Christianity is that they think they know about it already.
+ - The future is already won, and the more hostile the culture, the easier it is to communicate the difference of Christianity.
+ - The Gospel is the deepest consolation you can offer to the human heart.
+ - To be a Christian is a standing, a legal position. It means to be a child of God. You are or you are not, there is no try.
+ - No one is too bad for Jesus. A lot of people think they are too good for Jesus.
+ - The primary means-of-reviva l that everyone agrees upon is extraordinary prayer.
+ - The story of Jesus changes our lives because it is true.
+ - By praying with friends, you will be able to hear and see facets of Jesus that you have not yet perceived.
+ - The gospel destroys pride because it tells us we are so lost that Jesus had to die for us.
+ - If you didn’t earn your salvation how are you going to un-earn it?
+ - If there is a God, you owe him far more than a morally decent life.
+ - Jesus is the author of faith, the provider of faith, and the object of faith.
+ - Important reminder: It’s not fair of you to demand more proof of Christians for their beliefs than you demand for your own.
+ - Ministry to the poor is a crucial sign that we believe the gospel.
+ - If you come to recognize the beliefs on which your doubts about Christianity are based, and if you seek as much proof for those beliefs as you seek from Christians for theirs – you will discover that your doubts are not as solid as they first appeared.
+ - At the cross, we see the worst that sin can do, as humanity – of which each one of us is a part – crucified the Lord. But at the cross, we also see that the most that sin can do cannot thwart God’s salvation.
+ - When Job was prospering, he prayed. When he was suffering, he still prayed.
+ - When the world sees us doing evangelism, they just see us recruiting. When they see us doing justice, they see God’s glory.
+ - We tend to see God as a means through which we get things to make us happy. For most of us, He has not become our happiness.
+ - We must go back again and again to the Gospel of Christ crucified, so that our hearts are more deeply gripped by the reality of what He did and who we are in Him.
+ - The Gospel is news of what God has done to reach us. It is not advice about what we must do to reach God.
+ - Grace is to be let into a place that you don’t have a right to be.
+ - If you love anything in this world more than God, you will crush that object under the weight of your expectations.
+ - Christians should not be optimists; we know too much about sin. We should also not be pessimists, for we know the living God.
+ - You can’t live the Christian life without a band of Christian friends, without a family of believers in which you find a place.
+ - The Bible says that our real problem is that every one of us is building our identity on something besides Jesus.
+
+458 quotes

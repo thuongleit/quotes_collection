@@ -1,0 +1,31 @@
+ - We must remember that one determined person can make a significant difference, and that a small group of determined people can change the course of history.
+ - One of the basic tenets of radical feminism is that any woman in the world has more in common with any other woman regardless of class, race, age, ethnic group, nationality – than any woman has with any man.
+ - We don’t need someone to show us the ropes. We are the ones we’ve been waiting for. Deep inside us we know the feelings we need to guide us. Our task is to learn to trust our inner knowing.
+ - The mid-life crisis hits men harder than women.
+ - Women have to risk civil disobedience for their rights.
+ - There has been only one war fought literally worldwide, affecting every living thing, and that has been men’s all-out, non-stop, millennia-long war against women, a war that not only continues to this moment without the slightest abatement but intensifies hourly.
+ - Freedom is necessary for honesty, honesty for integrity, integrity for power, power for creativity, and all of them for intimacy.
+ - I like to remind people what radical means – ‘at the root of things.’ It shouldn’t be considered a pejorative. There isn’t a great name out of history you can pick who wasn’t ’radical.
+ - Language, as symbol, determines much of the nature and quality of our experience.
+ - We survive day by day on this planet by adjusting down, adjusting down. Little by little, imperceptibly, we adjust to increasingly deadly conditions, and come to accept them as ‘natural’ or inevitable.
+ - The guiding principle of my life, ‘the means are the ends,’ has taught me that our participation in a corrupt system facilitates it and corrupts and therefore defeats us.
+ - One of my favorite fantasies is that next Sunday not one single woman, in any country of the world, will go to church. If women simply stop giving our time and energy to the institutions that oppress, they would have to cease to do so.
+ - So long as we think dugout canoes are the only possibility-all that is real or can be real-we will never see the ship, we will never feel the free wind blow.
+ - I came from the most orthodox background you could ask for.
+ - How desperately we wish to maintain our trust in those we love! In the face of everything, we try to find reasons to trust. Because losing faith is worse than falling out of love.
+ - It’s only when we have nothing else to hold onto that we’re willing to try something very audacious and scary.
+ - In our home we grew up thinking we were Mormons first and human beings second.
+ - Somehow I evolved into a person who ceased to ask permission.
+ - Like the one-tenth of our brain that we currently use, I think now that most if not all of us have access to about one-tenth of our possible feelings.
+ - Obviously, the anti-ERA people are tickled about my ordeal because it proves that the ERA breaks up families. When they point out that feminism is a dangerous thing, I just say marriage is pretty precarious too.
+ - I’m one of the few people in this world who can do anything I choose. I can’t tell you how good I’m feeling.
+ - Some people always assume that if you mention a problem, you caused it.
+ - As we do at such times I turned on my automatic pilot and went through the motions of normalcy on the outside, so that I could concentrate all my powers on surviving the near-mortal wound inside.
+ - All bonafide revolutions are of necessity revolutions of the spirit.
+ - Sometimes I think we can tell how important it is to risk by how dangerous it is to do so.
+ - A friend said to me, ‘Be glad for your troubles – they strengthen you.’ Well, if that’s the truth, I’m going to be so strong they’ll have to beat me to death!
+ - It’s funny how heterosexuals have lives and the rest of us have “lifestyles.”
+ - The church belongs to its hierarchy, which is men in power. Those outside the hierarchy, and especially women, are at best only renters and at worst squatters in religious territory.
+ - What we have most to fear is failure of the heart.
+
+29 quotes

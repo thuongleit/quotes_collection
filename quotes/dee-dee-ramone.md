@@ -1,0 +1,30 @@
+ - Because I’m quiet, people think I’m really cold, or rude, or snobby. But I’m literally scared to talk to them.
+ - I’d like to thank myself, and congratulate myself, and give myself a big pat on the back.
+ - The main issue was deciding what to play: Should it be old Ramones material or new material? I had about three albums worth of new material, but I knew that people would rather hear the Ramones songs.
+ - I like to do what I do in my house and I love to play shows, but I don’t want to have to go out and talk to a bunch of people I don’t know.
+ - I couldn’t do rap. I was trying. I don’t know how. I’m not good enough to know.
+ - I’ve always liked extreme performers; I don’t think I am one, but my mentality is in line with that.
+ - Metallica – they’re so demonic, they’re crazy, I don’t know how they do it.
+ - I loved rap, especially in the early days. But I wasn’t trying to shove it down anybody’s throats.
+ - I had a really intense flying dream most of my childhood into my teens. I would go out at night and fly all over the city and I could facilitate other people to fly with me.
+ - I get really affected by songs as a music listener – they mean so much and they feel so significant.
+ - I used to be a hairdresser.
+ - Progression is important. I’m always going to play music in the general vein of rock’n’roll, but when I started I was very much associated with the West Coast lo-fi thing and I didn’t want to get anchored in with anything that was just in vogue for the time being.
+ - I got tired of the Ramones around the time I quit and I really got into rap. I thought it was the new punk rock. LL Cool J was my biggest idol.
+ - I like the guitar better these days. I like the bass, too, but it’s hard to fit a bass amp in a small car.
+ - It’s very expensive to bring a band to New York.
+ - It’s very hard to tour.
+ - Billboard called my solo album, ‘Standing In The Spotlight,’ a great party album and even said that my raps put the Beastie Boys to shame.
+ - I think the Internet shortens the distance between people, and that can often lead to inappropriateness.
+ - When I met Ronnie Spector, she walked in and said, ‘You look like me.’
+ - I like California a lot more than New York these days.
+ - I’ve always admired people with really strong presences and felt that caring about the visual component of what you do is not intrinsically superficial or vain.
+ - Initially, I was very much concerned with having absolute control. But as time has gone by, I’m not. I mean, the whole first record was really just how I spent my free time: stoned and drinking coffee in my house, spending three hours on a song.
+ - Wondering what I’m doing tonight I’ve been in the closet and feel all right.
+ - Visuals are as artistic as sounds, so being serious about both isn’t a contradiction to me.
+ - All of my favorite records have vocals high in the mix, even if it’s music that wasn’t necessarily mainstream.
+ - There’s a side to being in a band that some people embrace and some don’t: the fact that you’re performing and you care about how it comes across.
+ - I think it would be nice to be a prince.
+ - I’ve always just wanted to sing in a rock band.
+
+28 quotes

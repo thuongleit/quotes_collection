@@ -1,0 +1,26 @@
+ - My three P’s would be pray, pray first. Second, prepare, and then persist.
+ - South Carolina is a great place to be from.
+ - We have to attack those things which stand in the way of America progress. And what stands in the way of American progress right now is the federal government.
+ - As a small business owner for the last 15 years, when I think of what truly changed my life, it was my faith, a strong family, my mom did a really, really good job of encouraging me in very clear and discernible ways.
+ - And the Tea Party represents many of us who believe that we are taxed enough already. We believe in free markets.
+ - As I have traveled throughout my Congressional district, the one thing I heard loud and clear was simply please stop spending money you do not have, rein in spending, live within a budget.
+ - After watching the video, the senseless shooting and taking of Walter Scott’s life was absolutely unnecessary and avoidable. My heart aches for the family and our North Charleston community. I will be watching this case closely.
+ - Conservative principles place growth and opportunity at the forefront, and I look forward to the RNC continuing to promote those values in communities across the nation as we grow the party.
+ - I see myself as a person who wants to serve the constituents within my district and find a way to move those who are not in our position philosophically to our position.
+ - Ensuring fairness in the American workplace should be a cornerstone of our economic policy.
+ - I think the question is who am I? That’s what we all should be asking ourselves. Who am I? Well, if I am first a Christian conservative then that dictates my response to all questions so my response first as a Christian conservative is to vote consistent with my value system.
+ - I think you hear, at least as an undertone, and it’s going to grow louder, is that we believe that capitalism is the mantra of the day and anything that creeps towards socialism is a problem.
+ - There are good people and bad people in all organizations fundamentally however, when you look at the basis of the Tea Party it has nothing to do with race. It has to do with an economic recovery. It has to do with limiting the role of our government in our lives. It has to do with free markets.
+ - Just it’s as close to magic as you can get in America, education.
+ - I think about my grandfather who’s 89 years old, and the last thing he needs is more money out of his pocket.
+ - But the question we should ask ourselves is, who is the next visionary leader of America? How do we have the aspiration and inspire Americans to reach their highest level? We need a president that does so.
+ - I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.
+ - I was warmly embraced by the Tea Party. They openly seek more minorities.
+ - The future of the Republican Party and the future of America is based on a values system and the issues that drive those values are on our side.
+ - The fact of the matter is that hope comes from many sources. I think depending on the federal government to be some sort of a savior is false hope.
+ - I have campaigned all over the state of South Carolina. It is the friendliest state in the country. And truly here people judge you by the content of your character not the color of your skin.
+ - I think when you look to the future what you’ll find is that the Republican Party is building a bigger party base on stronger values.
+ - I think the nation as a whole has a role in making sure that each individual, each citizen maximizes one’s potential.
+ - We need the private sector to create jobs. If the government could create jobs Communism would have worked, but it didn’t.
+
+24 quotes

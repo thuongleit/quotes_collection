@@ -1,0 +1,23 @@
+ - Gossip is the currency of the discourse, so you should shut up about yourself. Never confess, never explain, never apologize, and never complain.
+ - Beauty is and always will be blue skies and open highway.
+ - I have no evangelical feelings about art at all. I despise art education. Art doesn’t lend itself to education. There is no knowledge there. It’s a set of propositions about how things should look.
+ - Bad taste is real taste, of course, and good taste is the residue of someone else’s privilege.
+ - Beautiful art sells. If it sells itself, it is an idolatrous commodity; if it sells anything else, it is a seductive advertisement.
+ - Art editors and critics – people like me – have become a courtier class.
+ - Even if one succeeds in making a silk purse out of a sow’s ear, there remains the problem of what to do with a one-eared sow.
+ - If I go to London, everyone wants to talk about Damien Hirst. I’m just not interested in him. Never have been.
+ - My mother was an economics professor. I’m proficient in math, and statistics, game theory, symbolic logic and all of that.
+ - Where do you learn how to act? Not at church. America is a lot more like pagan Rome than we think. We still sacrifice to objects to gain our social goals.
+ - Martha Stewart contributes more to our civility than the Baptist Church.
+ - The idea of political content is irrelevant. Content is irrelevant. I always tell my students, “Never forget you’re writing words! You know, word one, word two, word three, word four. The words have to be organized. Nothing else does.”
+ - When you really respect somebody who does something different from you, your respect is for the quality of the job.
+ - Most famous artists are created by their work and the idea of them as a character, and if they’re smart and ambitious, they reinforce that character because they want to win. They want their views to prevail.
+ - Art has political consequences, which is to say, it reorganizes society and creates constituencies of people around it.
+ - Out of sheer perversity, I followed beauty where it lead, into the silence.
+ - Art and writing come from somewhere down around the lizard brain. It’s a much more peculiar activity than we like to think it is. The problems arise when we try to domesticate the practice, to pretend that it’s a normal human activity and that “everybody’s creative.” They’re not.
+ - I think that if you don’t like something and it’s not easy, you shouldn’t be doing it.
+ - I hate all that woozy political and psychotherapeutic crap applied to books and art.
+ - I don’t think the government should touch art. Governments are risk averse. They encourage risk-averse personalities to be artists.
+ - I’m retiring because my time is up.
+
+21 quotes

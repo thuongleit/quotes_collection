@@ -1,0 +1,53 @@
+ - Real courage is doing the right thing when nobody’s looking. Doing the unpopular thing because it’s what you believe, and the heck with everybody.
+ - We live, we die. Somewhere along the way, if we’re lucky, we may find someone to help lighten the load.
+ - My theory of characterization is basically this: Put some dirt on a hero, and put some sunshine on the villain, one brush stroke of beauty on the villain.
+ - I grew up during the Cold War, when everything seemed very tenuous. For many years, right up until the fall of the Berlin Wall, I had vivid nightmares of nuclear apocalypse.
+ - Even on the darkest night, my friend, life will have its way.
+ - He breathed once more, holding the air in his chest, as if it were not air but something more – a sweet taste of freedom, of all cares lifted, everything over and done.
+ - This ravishing world. This achingly bittersweet, ravishing world.
+ - And I grew up on a steady diet of science fiction, especially apocalyptic and postapocalyptic fiction.
+ - What strange places our lives can carry us to, what dark passages.
+ - As long as we remember a person, they’re not really gone. Their thoughts, their feelings, their memories, they become a part of us.
+ - She remembered no one at all. She remembered one day thinking: I am alone. There is no I but I. She lived in the dark. She taught herself to walk in the light, though it was not easy.
+ - I’m still an English professor at Rice University here in Houston. They’ve been very generous in letting me on a very long leash to just work on ‘The Passage’ and its sequels.
+ - Before she became the Girl from Nowhere-the One Who Walked In, the First and Last and Only, who lived a thousand years-she was just a little girl in Iowa, named Amy. Amy Harper Bellafonte.
+ - One of the great themes in American literature is the individual’s confrontation with the vast open spaces of the continent.
+ - Kittredge had obviously misjudged her, but he had learned that was the way with most people. The story was never the story, and it surprised you, how much another person could carry.
+ - It had never occurred to her that God would cry, but of course that was wrong. God would be crying all the time. He would cry and cry and never stop.
+ - My rule has always been, write the next part of the book that you seem to know well. So I won’t necessarily write chapter two after chapter one.
+ - And indeed, I am a warmhearted and thoroughly domestic man who gets up and makes pancakes for his children and kisses them on the head when he sends them off to their day.
+ - Writing is a job: you must show up.
+ - I tend to start at 9 o’clock in the morning and write until 3. Those are my best hours. They fit the other rhythms of the world. So I write for six hours, pretty much without any breaks.
+ - When you write, you take the ball and you hold it up to the light and you turn it slowly, and let people draw their own conclusions. And try to bring empathy to all sides of the equation.
+ - The sadness you feel is not your own. It’s his sadness you feel in your heart, Amy, for missing you.
+ - If asked to name the worst moment of his life, Michael Fisher wouldn’t have hesitated to give his answer: it was when the lights went out.
+ - There’s an outline for each of the books that I adhere to pretty closely, but I’m not averse to taking it in a new direction, as long as I can get it back to where I need it to go.
+ - I came to Houston for a job, the reason most people move halfway across the country with a first grader and a five-week-old. I came here to teach at Rice.
+ - I like creating villains.
+ - Behind every writer stands a very large bookshelf.
+ - So perhaps the greatest worry of all was that one day you would realize that all the worries of your life amounted to one thing: the desire to just stop worrying.
+ - It’s different being afraid when there’s the hope it will amount to something.
+ - If you write a good action sequence well in a novel, you’re already writing it for film, because the only way to do it well is to use some of the same tricks. They’re rhetorical, not visual, but it’s the same move.
+ - One thing that worried me was how writers get categorized and so they end up having to write the same kind of book again and again. That is fine if it is what you want to do, but I would rather be locked in the trunk of my car with a weasel than write the same book every three years until I die.
+ - I saw my one purpose in that moment, looking into that little girls eyes. I was the one who was meant to save her, that was my one purpose all this time.
+ - Here she was, a women who could bolt-load a crossbow in under a second, put half a dozen long arrows in the air in fewer than five, blade a target dead through the sweet spot at six meters, on the run, on an off day; and yet knitting a pair of baby booties seemed completely beyond her power.
+ - It happened fast. Thirty-two minutes for one world to die, another to be born.
+ - Choosing writing as a career, just by itself, is a measure of not being a calculating person.
+ - If you are writing any book about the end of the world, what you are really writing about is what’s worth saving about it.
+ - One of the traps or the pitfalls of writing a trilogy – or a triptych, or whatever term you want to use – is that the second book can be a long second act to get you from book one to book three, which borrows all of its energy from the first book.
+ - The military was all about hierarchies, who urinated highest on the hydrant.
+ - It was what you did, Wolgast understood; you started to tell a story about who you were, and soon enough the lies were all you had and you became that person.
+ - Every book has got its challenges. You run into a plot point that you can’t figure out, or a scene that you struggle to write and have to write 50 times.
+ - I was very much a child of the Cold War.
+ - I’m a workmanlike writer. I show up every day and treat it like a job. The old rule that writing is like any other job, the first rule is that you must show up. I’m at the keyboard from 9 to 4 every day.
+ - The world was a world of dreaming souls who could not die.
+ - The fact is, there’s a great deal of hair-splitting fussiness when it comes to fly-fishing, most of it as silly as a top hat.
+ - I have any number of completely dark obsessions and fascinations, and none of this was present in my profile or my growing profile as a writer.
+ - You learn to write by reading, and my experiences and tastes as a reader are pretty wide.
+ - And I had always liked vampire stories because they are great material that can be refashioned in lots of ways.
+ - My inventing time is all done under the influence of aerobic exercise. Basically, I do all my thinking while I run.
+ - Writers who pretend that everything they’re doing is completely new are full of it.
+ - So, whenever I’m writing, I’m writing in the presence of all the other books I’ve read and I think we all are.
+ - I like to break left when people think I’m going to go right.
+
+51 quotes

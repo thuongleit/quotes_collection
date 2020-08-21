@@ -1,0 +1,31 @@
+ - To be a good draftsman was to me a blessing.
+ - Never give up listening to the sounds of birds.
+ - When the bird and the book disagree, believe the bird.
+ - During all these years there existed within me a tendency to follow Nature in her walks.
+ - Thank God it has rained all day. I say thank God, though rain is no rarity, because it is the duty of every man to be thankful for whatever happens by the will of the Omnipotent Creator; yet it was not so agreeable to any of my party as a fine day would have been.
+ - To repay evils with kindness is the religion I was taught to practise, and this will forever be my rule.
+ - There is but one kind of love; God is love, and all his creatures derive theirs from his; only it is modified by the different degrees of intelligence in different beings and creatures.
+ - But hopes are shy birds flying at a great distance, seldom reached by the best of guns.
+ - All trembling, I reached the Falls of Niagara, and oh, what a scene! My blood shudders still, although I am not a coward, at the grandeur of the Creators power; and I gazed motionless on this new display of the irresistible force of one of His elements.
+ - My heart swelled with uncontrollable delight...
+ - The fact is I am growing old too fast, alas! I feel it, and yet work I will, and may God grant me life to see the last plate of my mammoth work finished.
+ - Mathematics was hard, dull work. Geography pleased me more. For dancing I was quite enthusiastic.
+ - As I grew up I was fervently desirous of becoming acquainted with Nature.
+ - But the moment a bird was dead, no matter how beautiful it had been in life, the pleasure of possession became blunted for me.
+ - Great men show politeness in a particular way; a smile suffices to assure you that you are welcome, and keep about their avocations as if you were a member of the family.
+ - Because my father was often absent on naval duty, my mother suffered me to do much as I pleased.
+ - The Fur Company may be called the exterminating medium of these wild and almost uninhabitable regions, which cupidity or the love of money alone would induce man to venture into. Where can I now go and find nature undisturbed?
+ - I never for a day gave up listening to the songs of our birds, or watching their peculiar habits, or delineating them in the best way I could.
+ - After all, I long to be in America again, nay, if I can go home to return no more to Europe, it seems to me that I shall ever enjoy more peace of mind, and even Physical comfort than I can meet with in any portion of the world beside.
+ - I cannot help but think a curious event is this life of mine.
+ - Poor France, thy fine climate, rich vineyards, and the wishes of the learned avail nothing; thou art a destitute beggar, and not the powerful friend thou wert represented to me.
+ - A Mocking Bird regularly resorts to the south angle of a chimney top and salutes us with sweetest notes from the rising of the moon until about midnight.
+ - I looked long and carefully at the picture of a stag painted by Landseer – the style was good, and the brush was handled with fine effect, but he fails in copying Nature, without which the best work will be a failure.
+ - I purchased excellent and beautiful horses, visited all such neighbors as I found in congenial spirits, and was as happy as happy could be.
+ - How could I make a little book, when I have seen enough to make a dozen large books?
+ - The best recommendation I can have is my own talents, and the fruits of my own labors, and what others will not do for me, I will try and do for myself.
+ - The mercantile business did not suit me.
+ - I feel fully decided that we should all go to Europe together and to work as if an established Partnership for Life consisting of Husband Wife and Children.
+ - I discover that my friends think only of my apparel, and those upon whom I have conferred acts of kindness prefer to remind me of my errors.
+
+29 quotes

@@ -1,0 +1,23 @@
+ - To give somebody your time is the biggest gift you can give.
+ - The secret is to just keep moving.
+ - I think I’m a really good partner and very sensitive to the other person’s feelings. I want somebody else to be comfortable, to understand about my job, and if they want to come on a set and see me work, they always can.
+ - I think working with Johnny Depp was very intimidating. It was my fault though. I mean he’s a total cool nice, nice guy, but I was just so, I don’t know, overpowered by his presence. Like he’s a very mystic person. He’s older so I never really warmed up around him. I was so stiff.
+ - As the audience, I always love to get to a point where, surprisingly, I find myself in a secret friendship allegiance with the characters that are unexpected.
+ - I’m so uncomfortable, especially in emotional situations, having to say sentences that don’t feel right. As an actor – or really, as any kind of person sensitive to it.
+ - I used to be very afraid of flying. It would creep me out and make me very tense and very uncomfortable, and I would sweat or even cry. I was very, very scared of dying, but I’m not anymore. Fears need to be indulged, in order to exist. I don’t have much time to indulge in any fears.
+ - If you ever get really dressed up for a party, you get a feeling from the reactions of people that you don’t need to be that loud. It’s the same when you act. You have to always consider what’s around you and the texture of things and try to meld in with what’s going on.
+ - I never consciously said, ‘I want to be an actor.’ It sounds stupid, but it’s kind of like being a painter or something. You don’t say, ‘From today on I’m going to be a painter.’ It’s not something conscious – you’ve just been painting pictures all your life.
+ - I don’t really care where I work, actually, because you know making a movie is like living in movie world. There’s such a secluded world, and the director is the king ruling the country, and everybody’s building this little town to speak in symbolism.
+ - Difference is always the biggest challenge for humans. That’s why we do enjoy reading or watching movies or watching TV. It’s a personal challenge to get close to people that we never get close to.
+ - I choose my work very carefully, always for the script and the director, and I don’t think that’s going to change. My work is like a house. It’s built on very strong poles.
+ - Only in movies or books or TV do we have a chance to actually like aspects of a killer.
+ - I think when I’m in love, I really am very good with calling, little faxes, and visiting and I really put a lot of effort into it. I’m really not the one that’s not available because of work and I’m very sad when I actually leave.
+ - Everybody is great when things are great. It’s the ‘not great’ stuff that matters.
+ - Television in America is so elaborate. There are so many remote cranes, and they have all the toys to play with. The directors are really good. They really work with you. So, I’m not really on set thinking, “Oh, my God, this is television. It’s very different.”
+ - I always performed when I was a child. My parents got very annoyed, because my brother and I had our little bedrooms upstairs, and I would plaster the house with posters with arrows pointing upstairs.
+ - I don’t like actors who try to talk directors into making their part bigger and that’s really lame.
+ - I’ve published one book before, and now I’m writing a book of essays and stories about life in Tokyo. And I have one book coming out in May in Germany, about fitness.
+ - I think actors are divided into two groups: one that wants to be an actor to become famous and rich, and the other that wants to be an actor because they have to be. I’m more in the second group.
+ - When I was a kid at first I wanted to own a candy shop. I guess every kid wants to – we just want to have access – free access.
+
+21 quotes

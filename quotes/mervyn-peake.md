@@ -1,0 +1,38 @@
+ - Oh how I hate people!
+ - I am the wilderness lost in man.
+ - Mount and begone. The world awaits you.
+ - I am too rich already, for my eyes mint gold. – Coloured Money.
+ - This tower, patched unevenly with black ivy, arose like a mutilated finger from among the fists of knuckled masonry and pointed blasphemously at heaven. At night the owls made of it an echoing throat; by day it stood voiceless and cast its long shadow.
+ - For death is life. It is only living that is lifeless.
+ - The Earth swirls down through the ominous moons of preconsidered generations.
+ - There is a brotherhood among the kindly- Closer and defter and more integral- Than any of aisle or coven- For love rang out before the chapel bell.
+ - As I see it, life is an effort to grip before they slip through one’s fingers and slide into oblivion, the startling, the ghastly or the blindingly exquisite fish of the imagination before they whip away on the endless current and are lost for ever in oblivion’s black ocean.
+ - And now, my poor old woman, why are you crying so bitterly? It is autumn. The leaves are falling from the trees like burning tears- the wind howls. Why must you mimic them?
+ - Seeing an Earl as an owl on a mantelpiece, and having part of one’s face removed by a cat, both on the same morning, can temporarily undermine the self-control of any man.
+ - The sun sank with a sob and darkness waded in from all horizons so that the sky contracted and there was no more light left in the world, when, at this very moment of annihilation, the moon, as though she had been waiting for her cue, sailed up the night.
+ - Each day I live in a glass room unless I break it with the thrusting of my senses and pass through the splintered walls to the great landscape.
+ - In the presence of real tragedy you feel neither pain nor joy nor hatred, only a sense of enormous space and time suspended, the great doors open to black eternity, the rising across the terrible field of that last enormous, unanswerable question.
+ - We are all imprisoned by the dictionary. We choose out of that vast, paper-walled prison our convicts, the little black printed words, when in truth we need fresh sounds to utter, new enfranchised noises which would produce a new effect.
+ - He saw in happiness the seeds of independence, and in independence the seeds of revolt.
+ - Gormenghast, that is, the main massing of the original stone, taken by itself would have displayed a certain ponderous architectural quality were it possible to have ignored the circumfusion of those mean dwellings that swarmed like an epidemic around it s Outer Walls.
+ - To live at all is miracle enough.
+ - Lingering is so very lonely when one lingers all alone.
+ - Cold love’s the loveliest love of all. So clear, so crisp, so empty. In short, so civilized.
+ - His was not the hatred that arises suddenly like a storm and as suddenly abates. It was, once the initial shock of anger and pain was over, a calculated thing that grew in a bloodless way.
+ - Life is too fleet for onomatopoeia.
+ - He had no longer any need for home, for he carried his Gormenghast within him. All that he sought was jostling within himself. He had grown up. What a boy had set out to seek a man had found, found by the act of living.
+ - Something to remember, that: cats for missiles.
+ - Yet not with all of me am I in love. Too much of my own quietness is with me.
+ - I am clever enough to know that I am clever.
+ - There are times when the air that floats between mortals becomes, in its stillness and silence, as cruel as the edge of a scythe.
+ - The moon slid inexorably into its zenith, the shadows shrivelling to the feet of all that cast them, and as Rantel approached the hollow at the hem of the Twisted Woods he was treading in a pool of his own midnight.
+ - Noon, ripe as thunder and silent as thought, had fled unfingered.
+ - Years on end, and swords on end – where will it end, if our ears unbend – what shall I spend on a wrinkled friend in a pair of tights like a bunch of lights?
+ - I was brooding, boy. Than which there is no richer pastime. It muffles one with rotting plumes. It gives forth sullen music. It is the smell of home.
+ - Why break the heart that never beat from love?
+ - And there shall be a flame-green daybreak soon. And love itself will cry for insurrection! For tomorrow is also a day – and Titus has entered his stronghold.
+ - I want a lot to eat, I’m going to think today.
+ - Through her, in microcosm, the wide earth sobbed. The starglobe sank in her; the colours faded. The death-dew rose and the wild birds in her breast climbed to her throat and gathered songless, hovering, all tumult, wing to wing, so ardent for those climes where all things end.
+ - For what use are books to anyone whose days are like a rook’s nest with every twig a duty.
+
+36 quotes

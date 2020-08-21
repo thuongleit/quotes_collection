@@ -1,0 +1,21 @@
+ - Health requires healthy food.
+ - The human body heals itself and nutrition provides the resources to accomplish the task.
+ - Sometimes the truth is stupid.
+ - The greatest crime is not developing your potential. When you do what you do best, you are helping not only yourself, but the world.
+ - All men of conscience or prudence ply to windward, to maintain their wars to be defensive.
+ - That cannot be a true religion which needs carnal weapons to uphold it.
+ - There is no regularly constituted church of Christ on earth, nor any person qualified to administer any church ordinances; nor can there be until new apostles are sent by the Great Head of the Church for whose coming I am seeking.
+ - Forced worship stinks in God’s nostrils.
+ - But who is to decide who truly fears the Lord? The magistrate has no power to enforce religious demands. The laws of the First Table of the Ten Commandments are not regulations for a civil society or a political order. They belong to the realm of religion, not politics.
+ - When in doubt, use nutrition first.
+ - God requireth not an uniformity of Religion to be inacted and inforced in any civill state.
+ - Having bought truth dear, we must not sell it cheap, not the least grain of it for the whole world.
+ - Only my loyal Steinway piano endures. Be it beaten or caressed, its gorgeous tone remains.
+ - An enforced uniformity of religion throughout a nation or civil state, confounds the civil and religious, denies the principles of Christianity and civility, and that Jesus Christ has come in the flesh.
+ - Nutrients always act as a team. Comprehensive nutritional science must rise above the traditional piece-meal approach.
+ - We find not in the Gospel, that Christ hath anywhere provided for the uniformity of churches, but only for their unity.
+ - Men’s consciences ought in no sort to be violated, urged, or constrained.
+ - I’m playing better than I’ve ever played, and I m feeling better. I have this crazy idea that the best part of my career is ahead of me. I really believe that with all my heart.
+ - All civil states, with their officers of justice, in their respective constitutions and administrations, are proved essentially civil, and therefore not judges, governors, or defenders of the spiritual, or Christian, state and worship.
+
+19 quotes

@@ -1,0 +1,30 @@
+ - Music exalts each joy, allays each grief, expels diseases, softens every pain.
+ - You can’t help people that don’t want to be helped.
+ - To please the fancy is no trifling good, Where health is studied; for whatever moves The mind with calm delight, promotes the just And natural movements of th’harmonious frame.
+ - The most beautiful form of compromise is forgiveness.
+ - For want of timely care Millions have died of medicable wounds.
+ - You don’t ask a juggler which ball is highest in priority. Success is to do it all.
+ - Know, then, whatever cheerful and serene supports the mind supports the body too.
+ - Imagination paints a charming view of the future, conveniently adapted to the demands of our current emotion.
+ - Virtue, the strength and beauty of the soul, Is the best gift of Heaven: a happiness That even above the smiles and frowns of fate Exalts great Nature’s favourites: a wealth That ne’er encumbers, nor can be transferr’d.
+ - How happy he whose toil Has o’er his languid pow’rless limbs diffus’d A pleasing lassitude; he not in vain Invokes the gentle Deity of dreams. His pow’rs the most voluptuously dissolve In soft repose; on him the balmy dews Of Sleep with double nutriment descend.
+ - Sometimes pantheists will use the term “pandeism” to underscore that they share with the deists the idea that God is not a personal God who desires to be worshipped.
+ - Money can purchase the symbols but not the causes of serenity and buoyancy. In a straightforward way we must agree that money cannot buy happiness.
+ - Hope is the first thing to take some sort of action.
+ - The boy may wrestle, when Night – working Fancy steals him to the arms Of nymph oft wish’d awake, and, ’mid the rage Of the soft tumult, ev’ry turgid cell Spontaneous disembogues its lucid store, Bland and of azure tinct.
+ - Virtue and sense are one; and, trust me, still A faithless heart betrays the head unsound.
+ - Autumn ripens in the summer’s ray.
+ - When you’re doing wrong, you’re gonna think wrong.
+ - We need to be free if we are to love.
+ - Then love of pleasure sways each heart, and we From that no more than from ourselves can fly. Blameless when govern’d well. But where it errs Extravagant, and wildly leads to ill, Public or private, there its curbing pow’r Cool reason must exert.
+ - There are, while human miseries abound, A thousand ways to waste superfluous wealth, Without one fool or flatterer at your board, Without one hour of sickness or disgust.
+ - Tis not for mortals always to be blest.
+ - If from thy secret bed Of luxury unbidden offspring rise, Let them be kindly welcom’d to the day.
+ - The athletic fool, to whom what heaven denied of soul, is well compensated in limbs.
+ - Time shakes the stable tyranny of thrones, And tottering empires rush by their own weight.
+ - The blood, the fountain whence the spirits flow The generous stream that waters every part, And motion, vigor, and warm life conveys To every particle that moves or lives.
+ - How sickly grow, How pale, the plants in those ill-fated vales That, circled round with the gigantic heap Of mountains, never felt, nor ever hope To feel, the genial vigor of the sun!
+ - What Nature bids is good, is wise, and faultless we obey.
+ - For wisest ends this universal Power Gave appetites, from whose quick impulse life Subsists, by which we only live, all life Insipid else, unactive, unenjoy’d. Hence to this peopled earth, which, that extinct, That flame for propagation, soon would roll A lifeless mass, and vainly cumber heaven.
+
+28 quotes

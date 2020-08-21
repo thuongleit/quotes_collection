@@ -1,0 +1,58 @@
+ - There is only one thing more painful than learning from experience and that is not learning from experience.
+ - If God is God He is not good, if God is good He is not God; take the even, take the odd.
+ - If you commit yourself to the art of poetry, you commit yourself to the task of learning how to see, using words as elements of sight and their sounds as prisms. And to see means to see something worth all the agony of learning how to see.
+ - What is more important in a library than anything else-than everything else-is the fact that it exists.
+ - A poem should not mean but be.
+ - What is wrong is not the great discoveries of science – information is always better than ignorance, no matter what information or what ignorance. What is wrong is the belief behind the information, the belief that information will change the world. It won’t.
+ - The business of the law is to make sense of the confusion of what we call human life – to reduce it to order but at the same time to give it possibility, scope, even dignity.
+ - Beauty is that Medusa’s head which men go armed to seek and sever, and dead will starve and sting forever.
+ - Around, around the sun we go: The moon goes round the earth. We do not die of death: We die of vertigo.
+ - Democracy is never a thing done. Democracy is always something that a nation must be doing. What is necessary now is one thing and one thing only, that democracy become again democracy in action, not democracy accomplished and piled up in goods and gold.
+ - There are those, I know, who will say that the liberation of humanity, the freedom of man and mind, is nothing but a dream. They are right. It is the American dream.
+ - Love becomes the ultimate answer to the ultimate human question.
+ - The one man who should never attempt an explanation of a poem is its author. If the poem can be improved by it’s author’s explanations it never should have been published, and if the poem cannot be improved by its author’s explanations the explanations are scarcely worth reading.
+ - A world ends when its metaphor has died.
+ - We have learned the answers, all the answers: it is the question that we do not know.
+ - The American mood, perhaps even the American character, has changed. There are few manifestations any longer of the old American self-assurance which so irritated Dickens. Instead, there is a sense of frustration so perceptible that even our politicians have attempted to exploit it.
+ - We have no choice but to be guilty. God is unthinkable if we are innocent.
+ - A poem should be wordless As the flight of birds.
+ - How shall freedom be defended? By arms when it is attacked by arms, by truth when it is attacked by lies, by faith when it is attacked by authoritarian dogma. Always, in the final act, by determination and faith.
+ - There is no dusk to be, There is no dawn that was, Only there’s now, and now, And the wind in the grass.
+ - History, like a badly constructed concert hall, has occasional dead spots where the music can’t be heard.
+ - Man can live his truth, his deepest truth, but cannot speak it.
+ - A Poem should be palpable and mute As a globed fruit.
+ - Freedom is the right to choose: the right to create for oneself the alternatives of choice. Without the possibility of choice and the exercise of choice a man is not a man but a member, an instrument, a thing.
+ - That peculiar disease of intellectuals, that infatuation with ideas at the expense of experience, that compels experience to conform to bookish expectations.
+ - Spring has many American faces. There are cities where it will come and go in a day and counties where it hangs around and never quite gets there. Summer is drawn blinds in Louisiana, long winds in Wyoming, shade of elms and maples in New England.
+ - Children know the grace of god better than most of us. They see the world the way the morning brings it back to them; new and born and fresh and wonderful.
+ - To separate journalism and poetry, therefore-history and poetry-to set them up at opposite ends of the world of discourse, is to separate seeing from the feel of seeing, emotion from the acting of emotion, knowledge from the realization of knowledge.
+ - A man who lives, not by what he loves but what he hates, is a sick man.
+ - Once you permit those who are convinced of their own superior rightness to censor and silence and suppress those who hold contrary opinions, just at that moment the citadel has been surrendered.
+ - The infantile cowardice of our time which demands an external pattern, a nonhuman authority.
+ - The task of man is not to discover new worlds, but to discover his own world in terms of human comprehension and beauty.
+ - What once was cuddled must learn to kiss, The cold worm’s mouth. That’s all the mystery.
+ - A real writer learns from earlier writers the way a boy learns from an apple orchard – by stealing what he has a taste for, and can carry off.
+ - The map of America is a map of endlessness, of opening out, of forever and ever. No man’s face would make you think of it but his hope might, his courage might.
+ - You burned the city of London in our houses and we felt the flames.
+ - The roots of the grass strain, Tighten, the earth is rigid, waits-he is waiting- And suddenly, and all at once, the rain!
+ - Conventional wisdom notwithstanding, there is no reason either in football or in poetry why the two should not meet in a man’s life if he has the weight and cares about the words.
+ - It is not in the world of ideas that life is lived. Life is lived for better or worse in life, and to a man in life, his life can be no more absurd than it can be the opposite of absurd, whatever that opposite may be.
+ - Journalism is concerned with events, poetry with feelings. Journalism is concerned with the look of the world, poetry with the feel of the world.
+ - Piety’s hard enough to take among the poor who have to practice it. A rich man’s piety stinks. It’s insufferable.
+ - Keepers of books, keepers of print and paper on the shelves, librarians are keepers also of the records of the human spiritthe records of men’s watch upon the world and on themselves.
+ - We are as great as our belief in human liberty – no greater. And our belief in human liberty is only ours when it is larger than ourselves.
+ - Races didn’t bother the Americans. They were something a lot better than any race. They were a People. They were the first self-constituted, self-declared, self-created People in the history of the world.
+ - Democracy is never a thing done. Democracy is always something that a nation must be doing.
+ - Freedom is the right to one’s dignity as a man.
+ - The perversion of the mind is only possible when those who should be heard in its defence are silent.
+ - The dissenter is every human being at those moments of his life when he resigns momentarily from the herd and thinks for himself.
+ - Journalism wishes to tell what it is that has happened everywhere as though the same things had happened for every man. Poetry wishes to say what it is like for any man to be himself in the presence of a particular occurrence as though only he were alone there.
+ - If the poem can be improved by the author’s explanations, it never should have been published.
+ - A self-advertising writer is always a self-extinguished writer.
+ - Poetry is the art of understanding what it is to be alive.
+ - America is promises to take! America is promises to us to take them.
+ - See the world as it truly is, small and blue, beautiful in that eternal silence where it floats.
+ - What happened at Hiroshima was not only that a scientific breakthrough had occurred and that a great part of the population of a city had been burned to death, but that the problem of the relation of the triumphs of modern science to the human purposes of man had been explicitly defined.
+ - Young poets are advised by their elders to avoid the practice of journalism as they would wet socks and gin before breakfast.
+
+56 quotes

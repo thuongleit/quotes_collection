@@ -1,0 +1,35 @@
+ - Never underestimate the predictability of stupidity.
+ - The FA have given me a pat on the back. I’ve taken violence off the terracing and onto the pitch.
+ - Winning doesn’t really matter as long as you win.
+ - In ‘Hell Ride,’ I play a biker – it’s about the bikers. It’s with Dennis Hopper and Michael Madsen, Larry Bishop and myself. We’re bikers, and I play Billy Wings; I’ve got all sorts of wings, and you have to watch the movie to find out what the wings are about.
+ - I’m lucky in that I travel a lot for work. I also manage several holidays a year. I’m not someone who sits in the sun or goes sightseeing, though. If I go away, it will be for fishing or something like that.
+ - Film is like football – you join a team, get close to one or two people, then never hear from them again. I don’t get emotionally involved. Do one, move on.
+ - Egil Olsen should have gone six games ago. He was totally useless. I’d like to give him a right-hander!
+ - I love goofing around, and I love breaking people’s balls. I do it off camera, as well as on camera.
+ - I like Alaska for the salmon fishing – it’s fantastic there. I usually stay in a log cabin with no one around for miles. I like to go with friends, but I’m also happy to be on my own with nature.
+ - Awareness about heart disease has got to be raised.
+ - I always want to try new things, and ‘Mean Machine’ has given me that chance. I have got plans to carry on acting and would love to play all sorts of roles – you’ll see that there’s more strings to my bow!
+ - I’ve always had my ear pierced with a diamond stud. I did it myself when I was 16.
+ - My parents split when I was 13. For a youngster, it’s quite devastating. One minute you’re all happy families, then everything changes.
+ - If all else fails, you could wait for the first corner and tie his dreadlocks to the goalpost.
+ - There are a few YouTube clips of me singing at The King’s Head in Santa Monica, so you can see how bad I am.
+ - I do my independent stuff where it’s real acting if you like. Intense, drama stuff. I love me actions.
+ - Over the years, I’ve had about 80 stitches in my head and face from football incidents and bar incidents, so I have lots of scars. I don’t think I look intimidating, but I’m sure other people have their opinions.
+ - For some people, becoming a parent does change them, but it never changed me.
+ - I buy hats like women buy shoes. I have well over 150.
+ - My mum calls my temper ‘Devilman.’ They say you calm down with age, but I don’t know. It never goes away.
+ - I signed schoolboy forms for Watford when I was 12, but then my parents got divorced, and I never kicked a ball for three years. I rebelled, I left home, but getting back into football sorted me out. It was the second chance I needed.
+ - Football became my life at five or six. The earliest memory I have is of playing in my first boots, a pair of black and white Alan Balls. It was 1970, four years after the World Cup, and I scored three goals at school.
+ - There’s good action stars. I’m a bad-guy action star. What disappoints me is when you all of a sudden you get a good action star and then he wants to play a comedy with kids, you know? That upsets me, and that’s not being true to your fans.
+ - I was captain of Wales; I’ve been captain of numerous football clubs.
+ - All of my shows involve men in tights. It’s a bit bizarre, really.
+ - I’m always have been in my life a big protector of women. If I see a guy slap a girl I would rip their head off; I’m very like that.
+ - I got into moisturiser when I played football. If you’re out in all weathers you have to take care of your face.
+ - Look at me – I was the boo boy for years and years. Did I ever think I would end up in Hollywood or the FA Cup final? No, I didn’t.
+ - To me, England is past its sell-by date. It’s not the country I grew up in.
+ - I’d like to be the romantic lead one day, but I’ve got to grow my hair first.
+ - I’ve plenty of bows to my string.
+ - After ‘Big Brother,’ people came up to me in the street shouting, ‘You woz robbed!’
+ - John Wayne never ever disappointed his fans, because he was a cowboy.
+
+33 quotes

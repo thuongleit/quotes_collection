@@ -1,0 +1,73 @@
+ - Crispus Attucks, who said, Don’t shoot till you see the whites! Never got a dinner!
+ - There is only one goal. That’s to keep working and keep flossing.
+ - Christopher Columbus, who said to Queen Isabella, No, you got it wrong! The world is round. You’re flat! Never got a dinner!
+ - Henry Ford, who despite his immense wealth never owned a Cadillac. Never got a dinner!
+ - Gandhi, who went to Wendy’s and asked, Where’s the belief? Never got a dinner!
+ - Moses, who said when the Red Sea parted, What the hell was that? I was just going in for a dip! Never got a dinner!
+ - Ponce de Leon, who said when he discovered the Fountain of Youth, Where the hell are the paper cups? Never got a dinner!
+ - Orville Wright said to his brother, “Wilbur, you were only in the air for 12 seconds. How could my luggage be in Cleveland?”
+ - Saint Christopher, who said, Where can I get a Frank Sinatra medal? Never got a dinner!
+ - Joseph Cotten, who said, You know how I got my name? Sammy Davis picked it for me. Never got a dinner!
+ - Pliny the Elder, who when Rome was burning requested Nero to play You Picked a Fine Time to Leave Me, Lucille. Never got a dinner!
+ - King Henry VIII, who said to his lawyer, Forget the alimony, I’ve got a better idea. Never got a dinner!
+ - Sleeping Beauty, who said to Prince Charming, Are you sure all we did was kiss? Never got a dinner!
+ - Michelangelo’s girlfriend, who said to Angelo, Forget the paint – let’s put a mirror on the ceiling. Never got a dinner!
+ - Goliath’s mother, who said to Goliath, Stop running around with David! You’re always coming home stoned! Never got a dinner!
+ - Adam, who said to Eve, What do you mean you have nothing to wear? Never got a dinner!
+ - Moshe Dayan, who said to Sammy Davis, Jr., That’s funny, to me you only look half Jewish. Never got a dinner!
+ - Ben Hur, who said to his sister Ben Him, We’d better swap names before they start calling me Ben Gay! Never got a dinner!
+ - Donald Trump’s mother, who said, Donnie! Stop playing Monopoly and get in that barber’s chair! Never got a dinner!
+ - Some of the most famous people in history never got a dinner!
+ - Sophia Loren, whose new baby asked her, Is all that for me? Never got a dinner!
+ - Amelia Earhart, who said, Stop looking for me; see if you can find my luggage! Never got a dinner!
+ - Moses, who said to the children of Israel, Wear your galoshes; I never did this trick before. Never got a dinner!
+ - Maid Marion, who said to Robin Hood, I will not live in a house with a Little John. Never got a dinner!
+ - Noah’s wife, who said to him after 40 days and 40 nights, It’s your turn to spread the papers on the floor! Never got a dinner!
+ - Joe Torre, who switched to first base because he didn’t want to go through life as Chicken Catcher Torre. Never got a dinner!
+ - Eve said to the serpent, ‘You know I could go for a bit to eat, but I don’t know you from Adam.’
+ - Captain Hook’s mother, who said to Little Hook, For God sakes, don’t scratch it! Never got a dinner!
+ - The Hunchback of Notre-Dame, who said to his tailor Irving, Forget the slacks – please work on the blazer! Never got a dinner!
+ - When people ask me if Dean Martin drank, let me put it this way. If Dracula bit Dean in the neck, he’d get a Bloody Mary.
+ - Dracula, who said while they drove a wooden stake into his heart, Boy, I sure hope this is heartburn. Never got a dinner!
+ - Orson Welles, who said to Anita Bryant, Stop picketing me. What I said was I was a thespian. Never got a dinner!
+ - J. Paul Getty, who still hasn’t been buried – they keep finding oil! Never got a dinner!
+ - Dean Martin’s pancreas, who overheard his liver singing I got a right to sing the blues. Never got a dinner!
+ - Jack the Ripper’s mother, who said to Jack, How come I never see you with the same girl twice? Never got a dinner!
+ - The Puerto Rican doctor, who wrote all his prescriptions with spray paint. Never got a dinner!
+ - Julius Caesar’s wife, who said to Julius, We are not naming our son Sid! Never got a dinner!
+ - Sonny Von Bulow, who said to her husband Claus on their honeymoon, Stop needling me. Never got a dinner!
+ - Alexander Graham Bell’s wife, who said to Alex on their wedding night, Your three minutes are up. Never got a dinner!
+ - Venus de Milo’s mother, who once said to Venus, You never call me. Can’t you pick up a phone? Never got a dinner!
+ - George Washington, who said to his father, Dad, if I never tell I lie, how am I ever gonna become President? Never got a dinner!
+ - Adam, who said to our Lord in the Garden of Eden, I got more ribs – you got more broads? Never got a dinner!
+ - Peter Minuet, who said to the Indians in modern-day Manhattan, Will you accept a check from a Puerto Rican bank? Never got a dinner!
+ - Dr. Spock, who said, Never raise your hands to your kids. It leaves your groin unprotected. Never got a dinner!
+ - John Travolta, who said, My Saturday night fever was nothing compared to my Sunday morning rash. Never got a dinner!
+ - Where else but in America can a poor black man like Michael Jackson grow up to be a rich white woman?
+ - Pope John Paul II’s press secretary, who said, See, if only the Pope were Italian, he woulda shot back! Never got a dinner!
+ - Dean Martin’s great-great-uncle, Ebenezer Martin, who said to Eli Whitney, I see the cotton, but where’s the gin? Never got a dinner!
+ - Elizabeth Taylor has a big heart. She recently built a halfway house for girls who don’t want to go all the way.
+ - William Tell’s son, Telly, who said as his father was pointing the bow and arrow at the apple on his head, There’s gotta be an easier way to kill worms. Never got a dinner!
+ - Bluebeard, who said to Scottland Yard, How do I know how many wives I’ve killed? I’m not an accountant! Never got a dinner!
+ - Dinah Shore? Wonderful woman. Dinah formed a foundation to locate missing senior citizens by putting their pictures on prune juice bottles.
+ - Queen Elizabeth, who said, Not now, I’m on the throne. Never got a dinner!
+ - Jacques Cousteau, the last man to see Jimmy Hoffa. Never got a dinner!
+ - I am always joking and always clowning, giving and helping.
+ - Nostradamus, who predicted that Billy Bailey would not come home. Never got a dinner!
+ - Making you a pioneer only means one thing. You were around at the time.
+ - If I lose show business – I’ll really be an orphan!
+ - Stan Musial, who said, Why didn’t they make me the first Polish pope? I was such a good Cardinal. Never got a dinner!
+ - George Burns, what a man. He read in the paper that it takes ten dollars a year to support a kid in India. So he sent his kids there.
+ - Alex Hailey, who traced his roots all the way to the back of the bus. Never got a dinner!
+ - Zsa Zsa Gabor, the only woman ever to apply for group alimony. Never got a dinner!
+ - Ninety isn’t old. You’re old when your doctor doesn’t X-ray you any more – he just holds you up to the light!
+ - Billy Carter, who asked his brother Jimmy, Do you think you could get me on the Gong Show? Never got a dinner!
+ - George W. Bush, who said to Pope John Paul II, Give us a visit, and bring the missus. Never got a dinner!
+ - Aladdin, who said to his wife, I know it’s not a lamp, keep rubbing! Never got a dinner!
+ - Simon Peter, who embarrassed the other disciples at the Last Supper by asking for seconds. Never got a dinner!
+ - Helen of Troy, a hooker from Upstate New York. Never got a dinner!
+ - Vincent Van Gogh, who said to the hat salesman, I like it, but it keeps sliding over my ear. Never got a dinner!
+ - The Mayor of Hong Kong, who said Can’t work today. Have American flu. Never got a dinner!
+ - Joan Rivers, who said to Marcel Marceau, Can we talk? Never got a dinner!
+
+71 quotes

@@ -1,0 +1,41 @@
+ - We’re all pilgrims on the same journey but some pilgrims have better road maps.
+ - The problem with doing nothing is not knowing when you are finished.
+ - Panic – a deep abiding, free-floating anxiety, often without any reason or logical basis.
+ - Everyone looked pensive, which is good cover-up for clueless.
+ - Basically, all women are nurturers and healers, and all men are mental patients to varying degrees.
+ - Somehow our devils are never quite what we expect when we meet them face to face.
+ - I generally unwind by having dinner with close friends.
+ - I try to end every chapter with an air of suspense. I try to leave the reader wanting to turn the page.
+ - I’ve always been fascinated by the Gold Coast. The homes themselves are spectacular, unlike anything you’ll see other than in Newport, Bar Harbor or Palm Beach. It’s a very special area that, because of local demographics, is not going to survive much longer.
+ - The meaning of life has not much to do with good and evil, right and wrong, duty, honor, country, or any of that. It has to do with cutting the right deal.
+ - I had a very strong desire to be successful at something.
+ - Kate had never been married, so she had no way of knowing if I was a normal husband. This has been good for our marriage.
+ - Most of my books are about contemporary subjects, and the world changes so fast that I’m lucky when events haven’t overtaken the book I’m writing at the moment.
+ - There is no terra incognito left.
+ - How you handle life depends a lot on how you handle plan B, or if you have a plan B.
+ - I was trained in Army Intelligence, but spent most of my army career in the infantry. But like many people of my generation, I was very much caught up in the Cold War, and books and movies about espionage.
+ - I do write my manuscripts by hand, in pencil on legal pads. Then they are typed on a word processor by my typist.
+ - It’s really scary when you have a moment of temporary sanity.
+ - It’s much different today than it was during the Cold War. The CIA is not the subject of many books anymore. But that might change, because of international terrorism and Red China.
+ - Even the most radical Islamic terrorist would not want to see the revered holy city of Medina go up. It would be like losing the Vatican in Rome.
+ - Ernest Hemingway was the author I drew inspiration from.
+ - I think it’s more difficult now to write a spy thriller with the collapse of the Soviet Union. Many authors have tried, but few have succeeded in capturing the interest of readers.
+ - Mrs. Corey still uses her maiden name for business, or when she wants to pretend she doesn’t know me.
+ - Stephen King once told me he liked my writing. And that was great.
+ - I like the process of pencil and paper as opposed to a machine. I think the writing is better when it’s done in handwriting.
+ - If everyone howled at every injustice, every act of barbarism, every act of unkindness, then we would be taking the first step towards a real humanity.
+ - I sometimes use some personality traits to fashion part of a character. Most of my characters are composites of either people I know or people in the public eye.
+ - Writing doesn’t leave much time for hobbies, unless you consider that I began writing as a hobby and have made the hobby into a profession.
+ - I try to use short sentences, short paragraphs and short chapters to keep the reader’s interest.
+ - I don’t like mysteries, which is why I want to solve them. It bothers me that there are things I don’t know.
+ - A lot of our perception of history is influenced by inaccurate movies.
+ - I have no plans to use the Internet as the main subject of a novel.
+ - It’s good to stay as close to real life as you can, and then kind of dress it up.
+ - There are a lot of books about the passing of the English aristocracy, but the vast majority of Long Islanders don’t understand their own backyard. It’s a private preserve.
+ - There are Mafia families that have bought magnificent houses on the North Shore, although not yet the great estates because they don’t want that kind of high profile.
+ - Lawrence Kelter is an exciting new novelist, who reminds me of an early Robert Ludlum.
+ - You have to go out of your way as a suspense novelist to find situations where the protagonists are somewhat helpless and in real danger.
+ - I thought to myself, what is everyone’s worst fear? Nuclear terrorism in America.
+ - Job happiness is directly proportional to the distance you are from the home office.
+
+39 quotes

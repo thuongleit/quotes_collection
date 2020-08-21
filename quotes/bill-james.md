@@ -1,0 +1,45 @@
+ - I made baseball as much fun as doing your taxes!
+ - Standardization leads to rigidity, and rigidity causes things to break.
+ - Any of us are capable of doing things we’re not proud of under the wrong kind of stresses. Anyone can become a drug addict if you let yourself do it and, once you become a drug addict, you’ll do whatever you have to to get the drugs. Absolutely, anybody can do it.
+ - There will always be people who are ahead of the curve, and people who are behind the curve. But knowledge moves the curve.
+ - A chart of numbers that would put an actuary to sleep can be made to dance if you put it on one side of a card and Bombo Rivera’s picture on the other.
+ - Famous crime stories almost always lead to the passing of new laws.
+ - Professionalism in medicine has given us medial miracles for the affluent but hospitals that will charge $35 for aspirin.
+ - Any of us are capable of doing things we’re not proud of under the wrong kind of stresses.
+ - Do people really believe there’s something different about the eyes of murderers?
+ - You’re just too poor to get rich.
+ - In a crime story, the details become tremendously important – where the staircase was in relation to the bed, for example.
+ - You know one little way in which baseball changes us? We don’t even think twice about Japanese names anymore. You know what I mean?
+ - Television is full of fictional and real violence that’s turned into entertainment. It’s an interesting phenomena and I tried to put it in perspective and tried to think through a few of the real questions that this sometimes unseemly business raises.
+ - All societies have these cases. There are many, many crime cases that remain famous from the times of the Romans. The Bible is full of crime stories. You can almost flip to a page. Joseph being sold into slavery by his brothers is a crime story. The Bible is full of crime stories.
+ - When people disagree with you, what you ultimately have to do is persuade people to agree with you – period.
+ - There are, I believe, many more false confessions to murders than true confessions.
+ - Do we need to have 280 brands of breakfast cereal? No, probably not. But we have them for a reason – because some people like them. It’s the same with baseball statistics.
+ - Serial murders are just the worst stories. It can take an emotional toll on you.
+ - Crime cases tend to be fascinating until you figure out what happened.
+ - I learned to write because I am one of those people who somehow cannot manage the common communications of smiles and gestures, but must use words to get across things that other people would never need to say.
+ - It’s extremely damaging to a fair trial to have people reaching judgment about the case in the newspapers and on the radio before the facts are heard in a case.
+ - Television is full of fictional and real violence that’s turned into entertainment.
+ - Well, stealing bases adds some runs but very few, and you lose most of the runs that you gain by having runners caught stealing.
+ - The human race has been in a long struggle to eliminate murder. And we will succeed.
+ - Letting him manage in the major leagues is like sending Bo Derek through cellblock A without a bodyguard.
+ - You can’t ultimately dodge defeat by winning close elections.
+ - I like to feel that I understand little things about sports.
+ - I have always been much better at asking questions than knowing what the answers were.
+ - When I was a small kid, I grew up in the newspapers.
+ - Computers, like automobiles and airplanes, do only what people tell them to do.
+ - Famous crime stories almost always lead to the passing of new laws. There’s a great many intersections between this unseemly tabloid phenomena and serious social issues and we never get to that intersection because serious people don’t like to talk about that unattractive stuff.
+ - I try to take large, general questions that are difficult to resolve and break them down into small, very specific questions that have clear answers.
+ - There comes a moment during a job interview when you’re still talking, but you might as well take off your shoes.
+ - Visualizing the movement finally got me over the top after months of practice.
+ - Crime stories show us the part of people’s lives they try to keep hidden.
+ - It is a very long and very difficult road from a fact to a conclusion. But it is a million times longer from a theory to a fact.
+ - I do have a family, and obviously I spend as much time as I can with them. Though even when I’m with my family, my mind tends to drift toward baseball.
+ - The fact is that everybody around a college basketball game – the coaches, the announcers, even the referees at a lower level – calculates when the game is really over. They calculate it with intuition and guesswork.
+ - It’s easy for people to grow up in our society believing that certain lifestyles are risk free when they certainly are not.
+ - Even if Mays is given every conceivable break on every unknown – defense, base running, clutch hitting – his performance still would not match Mantle’s.
+ - I would never encourage my children to be athletes – first because my children are not athletes and second because there are so many people pushing to get to the top in sports that 100 people are crushed for each one who breaks through. This is unfortunate.
+ - We don’t genuinely need more literary geniuses. One can only read so many books in a lifetime.
+ - The business of popularizing crime is how we expose the faults in our justice system. It’s how we expose police misconduct.
+
+43 quotes

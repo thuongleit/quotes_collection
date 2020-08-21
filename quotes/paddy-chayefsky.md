@@ -1,0 +1,27 @@
+ - Stop thinking about writing as art. Think of it as work. If you’re an artist, whatever you do is going to be art. If you’re not an artist, at least you can do a good day’s work.
+ - I’m a human being, god-dammit. My life has value!
+ - God save us from people who do the morally right thing. It’s always the rest of us who get broken in half.
+ - Television is god-damned amusement park. Television is a circus, a carnival, a traveling troupe of acrobats, storytellers, dancers, singers, jugglers, sideshow freaks, lion tamers and football players. We’re in the boredom killing business.
+ - Television is not the truth. Television is a goddamned amusement park.
+ - Television is democracy at its ugliest.
+ - The first dead man on Omaha Beach must be a sailor!
+ - I don’t know what’s good, or bad, or true. I let God worry about truth. I just want to know the momentary fact of things. Life isn’t good, or bad, or true. It’s merely factual. It’s sensual. It’s alive!
+ - Artists don’t talk about art. Artists talk about work. If I have anything to say to young writers, it’s stop thinking of writing as art. Think of it as work.
+ - I’m afraid to look in the mirror. I’m afraid I’m going to see an old lady with white hair, just like the old ladies in the park. Alittle bundle in a black shawl just waiting for the coffin.
+ - This was the story of Howard Beale: The first known instance of a man who was killed because he had lousy ratings.
+ - All my brothers, my brothers-in-law, they’re always telling me what a good-hearted guy I am. You don’t get to be good-hearted by accident. You get kicked around long enough, you get to be a real professor of pain.
+ - Howard Beale is processed, instant God, and right now it looks like he might just go over bigger than Mary Tyler Moore.
+ - Americans don’t want drama, especially good drama, they just want their boredom killed.
+ - The worst kind of censorship is the kind that takes place in your own mind before you sit down to a typewriter.
+ - I’m not a great writer. I’m a great rewriter.
+ - You British plundered half the world for your own profit. Let’s not pass it off as the Age of Enlightenment.
+ - The best thing that can happen is for the theme to be nice and clear from the beginning.
+ - You’re not such a dog as you think you are.
+ - I’m not sentimental about war. I see nothing noble in widows.
+ - You don’t send a man to his death because you want a hero.
+ - It’s always the generals with the bloodiest records who are the first to shout what a hell it is. And it’s always the war widows who lead the Memorial Day parades.
+ - Don’t think of it as art, think of it as work.
+ - Ma, sooner or later there comes a point in a man’s life when he’s gotta face some facts. And one fact I’ve got to face is whateverit is women like, I ain’t got it.
+ - Television is the menace that everyone loves to hate but can’t seem to live without.
+
+25 quotes

@@ -1,0 +1,22 @@
+ - A happy marriage is a new beginning of life, a new starting point for happiness and usefulness.
+ - The true call of a Christian is not to do extraordinary things, but to do ordinary things in an extraordinary way.
+ - In the long term, there are many factors that will help the luxury market, the creation of new wealth and the Asian tourist boom.
+ - The true religion of Jesus Christ our Saviour is that which penetrates, and which receives all the warmth of the heart, and all the elevation of the soul, and all the energies of the understanding, and all the strength of the will.
+ - Christianity is, above all other religions ever known, a religion of sacrifice. It is a religion founded on the greatest of all sacrifices, the sacrifice of the Incarnation, culminating in the sacrifice on Calvary.
+ - I have looked on scenery as a strange and on scenery more grand, but on scenery at once so strange and so grand I have never looked and probably never shall again.
+ - Give us a man, young or old, high or low, on whom we know we can thoroughly depend, who will stand firm when others fail; the friend faithful and true, the adviser honest and fearless, the adversary just and chivalrous,-in such a one there is a fragment of the Rock of Ages.
+ - Most people would succeed above themselves.
+ - You never get to the end of Christ’s words. There is something in them always behind. They pass into proverbs – they pass into laws – they pass into doctrines – they pass into consolations; but they never pass away, and, after all the use that is made of them, they are still not exhausted.
+ - Each one of us is bound to make the little circle in which he or she lives better and happier. Bound to see that out of that small circle the widest good may flow.
+ - It is through the multitudinous mass of living human hearts, of human acts and words of love and truth, that the Christ of the first century has become the Christ of the nineteenth.
+ - High above all earthly lower happiness, the blessedness of the eight Beatitudes towers into the heaven itself. They are white with the snows of eternity; they give a space, a meaning, a dignity to all the rest of the earth over which they brood.
+ - The cross of Christ is the pledge to us that the deepest suffering may be the condition of the highest blessing; the sign, not of God’s displeasure, but of His widest and most compassionate face.
+ - I doubt if hard work, steadily and regularly carried on, ever yet hurt anybody.
+ - Posterity preserves only what will pack into small compass. Jewels are handed down from age to age; less portable valuables disappear.
+ - I think in reality the Japanese have to make changes in monetary policy, otherwise we’re still going to be dealing with some upward pressure on the yen against the dollar.
+ - Doubtless there are times when controversy becomes a necessary evil. But let us remember that it is an evil.
+ - The greatness of God is the true rebuke to the littleness of men. The greatness of Christ is the true rebuke to the littleness of Christians.
+ - The more we can be raised above the petty vexations and pleasures of this world into the eternal life to come, the more shall we be prepared to enter into that eternal life whenever God shall please to call us hence.
+ - We must never throw away a bushel of truth because it happens to contain a few grains of chaff.
+
+20 quotes

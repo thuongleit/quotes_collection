@@ -1,0 +1,53 @@
+ - I kept telling myself this word, process. Focus on my process, don’t care about the result.
+ - With success comes expectation and I know the expectation on me is going to be pretty high.
+ - I was more worried about what other people would think rather than, you know, me. But you have got to do what is right for yourself and what you feel comfortable with.
+ - I expect big things from myself but as long as I can keep the commitment and dedication and put the hard work in, I don’t see why there’s any reason not to handle it OK.
+ - It is never easy to win but it is a lot easier to win when you play well. The key is winning golf tournaments when you are not playing so well. Managing your game is something that I feel that I am still learning to do.
+ - I’m happy with the success I’ve had, and I feel like there’s been a lot that I’ve learned this year, and that’s a great thing going into the future.
+ - Home will always be Northern Ireland but my schedule means for the next few years I won’t be there as much. I can’t do the same things that I did a year ago. That is I’m something conscious of, but I’m not sad about it. It’s fine.
+ - Going to the gym is great for your body, but it’s also great for your mind.
+ - Of course, money matters to everyone even if some don’t want to admit it. If I won the Race to Dubai, I look at that prize money and think it could pay off my new house or the range I’m building. I am privileged to play golf for a living – look around St Andrews, that’s my office.
+ - The next time I cry about golf it will only be with joy. It’s not worth crying over golf for any other reason. After all, it’s only a game.
+ - You know I need that cockiness, the self-belief, arrogance, swagger, whatever you want to call it, I need that on the golf course to bring the best out of myself. So you know once I leave the golf course, you know that all gets left there.
+ - Fitness plays such an important role in my life, and an integral part of my golf structure, that I think I might be quite good at teaching others the benefits of sport and fitness.
+ - I am a proud product of Irish golf and the Golfing Union of Ireland and am hugely honoured to have come from very rich Irish sporting roots I am also a proud Ulsterman who grew up in Northern Ireland. That is my background and always will be.
+ - I believe that anybody with Mandela’s capacity to endure hardship and then forgive is a born leader and example to us all.
+ - To be a top-class athlete, you have to train hard, you have to eat right, you have to get enough rest. I feel the way golf is going nowadays, you have to treat yourself as an athlete.
+ - I have always said I will try to answer questions honestly. I don’t want to change that about myself. I think people appreciate that about me.
+ - My dad’s a scratch golfer and I’ve got the knack of seeing something and then replicating it. I saw my dad swing a club and I worked out how to do the same thing. My backswing and follow-through have been basically the same since I was two.
+ - It’s a great feeling to know that I’ve played the best golf throughout the season of any of the guys for the second time in three years, it’s really nice.
+ - I mean I don’t want to feel inferior to any other golfer in the world. You know if you do that, then you know you’re giving them an advantage, you know, right off the – you know, right from the start.
+ - In a serious sense, wanting to change something from the past doesn’t work for me – change something you don’t enjoy now rather than regretting it later.
+ - I don’t really remember, but from about the age of five I told anyone who would listen that I was going to be the best golfer in the world.
+ - This is the great thing about Northern Ireland. I walk down the street and people stop me and say things like, ‘I know you. You’re that wee golfer, aren’t you?’ I say, ‘Yeah, that’s me.’ They say, ‘Keep it up, wee man.’ It’s very funny and that’s why I want to stay here as long as possible.
+ - I started to really believe in myself, and my abilities, when I won the World Under-10 championship in Doral, Florida. I was nine and saw for the first time that I was amongst the best players in the world for my age. This was a massive confidence-builder for me.
+ - The Open is the one that we all want and strive for and to be able to hold this Claret Jug is an incredible feeling. To be three legs towards the career grand slam at the age of 25 is a pretty good achievement. It’s not going to sink in for a while.
+ - I want to try to become the best golfer in the world.
+ - I wanted to make a point of basing myself at home, being close to my family. I’ll never be able to repay Mum and Dad for what they did, but at least they know they’ll never have to work another day. I’ll do whatever it takes to look after them.
+ - I feel like I came through this year stronger and wiser, and I can go into 2015 in a much better place.
+ - Sport was an obvious favourite of mine, and not only golf. I was, and still am, a big rugby fan.
+ - I really enjoy playing ‘Tiger Woods’ on the Wii, and you can set the levels to easy, medium, or hard, so I think it’s definitely a good way for kids to learn the motion of a golf swing if they want to get into the sport. It makes it more fun for them as well.
+ - As an international sportsman, I am very lucky to be supported by people all over the world, many of who treat me as one of their own, no matter what their nationality, or indeed mine. This is the way sport should be.
+ - I’m afraid there are no replays or second chances in amateur or professional golf, and that’s the way it should be.
+ - I realise that every time my face is on TV or I’m playing in a tournament, that I am a role model for a lot of people and a lot of kids do look up to me. I try to do my best in that regard and put myself across as honestly and as modestly as possible, as well.
+ - I always got very excited about the Masters as a kid. I could hardly wait until the Wednesday when you’d get the BBC’s preview. And I’d then be glued to the screen until Sunday night.
+ - I was detained a couple of times but that was for not handing in homework because I was playing golf or not present because I was playing golf. There was a theme evolving.
+ - I’ve had support from all sides, from people who call themselves Irish, from Northern Irish, to the whole of the UK, to people in America, and it would be terrible for me to segregate myself from one of those groups that support me so much.
+ - I used to not really like going to the gym when I was playing tournaments because I’d be sore and stiff. But the more you keep doing it, the less soreness you have. And you actually start to enjoy it.
+ - Leaving golf aside for the moment, I’d choose Roger Federer as a sporting role model, Muhammad Ali for a sporting and non-sporting role model and Nelson Mandela as a true and lasting inspiration.
+ - I was very excited when I first started to travel so much. In fact, I was amazed that people were paying me to travel to play the game I loved.
+ - I’ve always said the players don’t build up rivalries themselves, people from the outside build up the rivalries. I just want to play good golf. I want to try and keep winning golf tournaments.
+ - You get thrown off balance out there. And I never recovered. Well, I haven’t recovered yet.
+ - My game wasn’t where it should have been at all at the start of the year. I got into a couple of bad habits on my swing, and it just took me a little bit of time to get out of them.
+ - As long as I keep enjoying my golf, then hopefully I’ll be able to play well.
+ - If somebody asks me whether I’d rather sink the winning putt in the Ryder Cup or win a major, it’s the major every day. World championship or Ryder Cup? Win a world championship. At the end of the day you’re going to be remembered for what you achieve in an individual sport.
+ - I’m three legs toward completing the career Grand Slam at 25. So, I’m feeling pretty good right now.
+ - The flight I’m most excited about is the one that takes me back to Northern Ireland to visit family and friends.
+ - It’s been 18 months since I won on The European Tour and to win the flagship event, I could not have asked for any more.
+ - It may come as a surprise but I also really started to get into history while I was at school. I found the projects about World War Two fascinating – perhaps when I get the time again, I could pick up where I left off.
+ - My parent are very proud, but Dad ripped into me for throwing a club on the 11th. He’s happy with the way I played, but he always has to have something to moan about!
+ - How can I intimidate Tiger Woods? I mean, the guy’s got 75 or whatever PGA Tour wins, 14 majors. He’s been the biggest thing ever in our sport. How could some little 23-year-old from Northern Ireland with a few wins come up and intimidate him.
+ - Because I lived so close to the school and walked there every day, I used to enjoy the school bus trips.
+ - If I’m playing in the morning, I’ll get some carbs early: porridge with chopped banana. If I’m playing in the afternoon, I’ll start with less carbs and have some eggs and fruit for breakfast, then a light lunch about 90 minutes before I play, so I don’t feel sluggish or full.
+
+51 quotes

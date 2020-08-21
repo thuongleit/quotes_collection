@@ -1,0 +1,21 @@
+ - Education is not a way to escape poverty, it is a way of fighting it.
+ - There is no time to waste. We must either unite now or perish.
+ - You cannot develop people. You must allow people to develop themselves.
+ - The greatest contraceptive one can have in the developing world is the knowledge that your children will live.
+ - In Tanzania, it was more than one hundred tribal units which lost their freedom; it was one nation that regained it.
+ - Independence cannot be real if a nation depends upon gifts.
+ - If a door is shut, attempts should be made to open it; if it is ajar, it should be pushed until it is wide open. In neither case should the door be blown up at the expense of those inside.
+ - African nationalism is meaningless, dangerous, anachronistic, if it is not, at the same time, pan-Africanism.
+ - Should we really let our people starve so we can pay our debts.
+ - If real development is to take place, the people have to be involved.
+ - Take every penny you have set aside for aid for Tanzania and spend it in the UK, explaining to people the facts and causes of poverty.
+ - We, in Africa, have no more need of being ‘converted’ to socialism than we have of being ‘taught’ democracy. Both are rooted in our past – in the traditional society which produced us.
+ - Cooperation and conflict are two sides of the same coin; both arise out of man’s relationship with his fellows. The larger the group, the greater the possibility of development through cooperation, and the greater the possibility of conflict.
+ - Small nations are like indecently dressed women. They tempt the evil-minded.
+ - A house should not be built so close to another that a chicken from one can lay an egg in the neighbor’s yard, nor so far away that a child cannot shout to the yard of his neighbor.
+ - We spoke and acted as if, given the opportunity for self-government, we would quickly create utopias. Instead injustice, even tyranny, is rampant.
+ - Decisions made in Washington are more important to us than those made here in Dar es-Salaam. So, maybe my people should be allowed to vote in American presidential elections.
+ - Freedom to many means immediate betterment, as if by magic. Unless I can meet at least some of these aspirations, my support will wane and my head will roll just as surely as the tickbird follows the rhino.
+ - No nation has the right to make decisions for another nation; no people for another people.
+
+19 quotes

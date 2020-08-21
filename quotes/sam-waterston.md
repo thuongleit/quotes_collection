@@ -1,0 +1,29 @@
+ - If you’re not moving forward, you’re falling back.
+ - I’m too old to be governed by fear of dumb people.
+ - Separation is painful, and there’s such a thing as doing it too much – the limits are how much it hurts.
+ - There is no problem that is not improved by effort, and no effort that is too paltry to be worth undertaking.
+ - The Killing Fields, my character’s teachings frame the movie and the argument of his lectures is the challenge of dealing with the painfulness of life in the absence of faith.
+ - If you’re going to be born ugly and be an actor – the least they can do is let you play Lincoln.
+ - I think people have some control over what they want; there’s a relationship – maybe not automatic – between what you want and get.
+ - I enjoy listening to opera at home, occasionally, but I would much rather see it than just listen to it.
+ - I don’t like driving much.
+ - If there’s any business that instructs you in the strong hand of fate, it’s show business. You can plan and plan, but it’s what happens to you that really determines what your career will be like.
+ - I got a note from my father, who said that Success is wonderful, if you don’t inhale. That was his own aphorism, and I think it’s the very best thing he could have said to me or anyone else on the subject.
+ - As for lawyers, it’s more fun to play one than to be one.
+ - Painting is very interesting.
+ - I think the bait for doing something really is always the part.
+ - I don’t think there’s anything to be desired in a bunch of people chasing you around, trying to get a piece of your clothing.
+ - Good directors say, Here’s where the play is. They stand by the heart of the matter. Some of them stand beside it.
+ - Shakespeare is the one who gets re-interpreted most frequently.
+ - We’re paid to care. That’s what actors get their money for. But the main goal is not for the actors to be frustrated at the end of the show, but for the audience to be throwing their shoes at the television set. That’s what we’re trying for.
+ - I literally was saved by a role, from becoming a cab driver. I never did have to wait tables, though, so looking back I guess I had it pretty soft.
+ - Obviously the first roles that you’re proud of are the ones that everybody else liked too.
+ - I’ve been able to do things that allow me to hold my head up and still be popular.
+ - If I have to be typecast, I’d like it to be as Abraham Lincoln.
+ - That’s where I’d like to be: when the business says here’s a good actor who is marketable so we can use him. Just that.
+ - I’m sort of obsessed with the news. That is a syndrome. But I don’t watch a whole lot of TV.
+ - I came to New York in 1962 and it began to look like I might he able to make a living in 1972.
+ - I’ve always done what I thought was good if I could live on what they were offering-and sometimes if I couldn’t. So even when I was broke, my career didn’t lack for interest.
+ - The virtue of the country is that it makes you thirsty for the city.
+
+27 quotes

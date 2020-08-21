@@ -1,0 +1,65 @@
+ - My life needs editing.
+ - If you can’t join them, beat them.
+ - Everything I tell you is true, but this is factual.
+ - What happens in Vegas, stays in Vegas – except the drone.
+ - There’s a danger our fiscal bankruptcy might overtake our moral bankruptcy.
+ - That feeling of hopelessness only serves your masters.
+ - I went to computer class with my Dell and I was bullied by a guy with a Mac.
+ - Remember that no matter how selfish, how cruel, how unfeeling you have been today, every time you take a breath, you make a flower happy.
+ - This matter of two sides to every question is bad logic and bad practice: sometimes there are no sides; sometimes there are a hundred.
+ - You haven’t lived until you’ve died in California.
+ - I don’t believe in good people and bad people. I believe in the better parts of people.
+ - Women want their men to be cops. They want you to punish them and tell them what the limits are. The only thing that women hate worse from a man than being slapped is when you get on your knees and say you’re sorry.
+ - Liberals feel unworthy of their possessions. Conservatives feel they deserve everything they’ve stolen.
+ - Washington couldn’t tell a lie, Nixon couldn’t tell the truth, and Reagan couldn’t tell the difference.
+ - If you maintain a consistent political position long enough, you’ll eventually be accused of treason.
+ - When Obama ran, he said, We can change the world! The world: can you change it back?!
+ - I’m not a liberal, I’m a radical!
+ - The beat generation is a coffeehouse full of people expectantly looking at their watches waiting for the beat generation to come on.
+ - One thing about being narrow-minded: you’ll never be lonely.
+ - We would have broken up except for the children. Who were the children? Well, she and I were.
+ - If someone were to ask me for a short cut to sensuality, I would suggest he go shopping for a used 427 Shelby-Cobra. But it is only fair to warn you that of the 300 guys who switched to them in 1966, only two went back to women.
+ - If you were the only person left on the planet, I would have to attack you. That’s my job.
+ - You know what I want you to do? I want you to blow out the candle and curse the darkness.
+ - I took benzedrine – I got clairvoyance. With benzedrine you can have a very wide view of the world, like you can decide the destiny of man and other pressing problems, such as which is the left sock?
+ - Every time the Russians throw an American in jail, the Committee throws an American in jail to get even.
+ - A conservative is someone who believes in reform. But not now.
+ - There are Russian spies here now. And if we’re lucky, they’ll steal some of our secrets and they’ll be two years behind.
+ - Now that Obama is at war in a 3rd country, does that mean he has to give back his Nobel Peace Prize?
+ - Reagan won because he ran against Jimmy Carter. If he ran unopposed he would have lost.
+ - New book on Malcolm X says we don’t know how he was killed. Want to bring in the FBI. Maybe they were in already.
+ - Obama is running again for spite.
+ - The bravest thing that men do is love women.
+ - I used to go out with actresses and other female impersonators.
+ - People tell me there are a lot of guys like me, which doesn’t explain why I’m lonely.
+ - My whole life is a movie. It’s just that there are no dissolves. I have to live every agonizing moment of it. My life needs editing.
+ - There’s so much Botox around now that you can’t tell when a Jewish girl is angry!
+ - We claim we believe in compassion, which is an abstract, and when it’s personified we discredit the man.
+ - We all know that America is the worst country in the world, except for all the others.
+ - The distance between taking social action and having the knowledge is as wide as the mouth of the Mississippi.
+ - I don’t think fascism is dying for.
+ - Most people past college age are not atheists. It’s too hard to be in society, for one thing. Because you don’t get any days off. And if you’re an agnostic you don’t know whether you get them off or not.
+ - I never met a man I didn’t like until I met Will Rogers.
+ - Hillary’s explanation of the Libyan action to Congress was so good, I wonder who explained it to her?
+ - The New York Times is the official leak of the State Department.
+ - A Yuppie is someone who believes it’s courageous to eat in a restaurant that hasn’t been reviewed yet.
+ - In the forties, to get a girl you had to be a GI or a jock. In the fifties, to get a girl you had to be Jewish. In the sixties, to get a girl you had to be black. In the seventies, to get a girl you’ve got to be a girl.
+ - I’m for capital punishment. You’ve got to execute people. How else are they going to learn?
+ - Television is never more false than when it’s openly sincere.
+ - There were four million people in the American Colonies and we had Jefferson and Franklin. Now we have over 200 million and the two top guys are Clinton and Dole. What can you draw from this? Darwin was wrong!
+ - Obama said he went to Libya because of his conscience. Did anyone ever wrestle with his conscience and lose?
+ - I found people looked better when they laughed.
+ - Nixon’s the kind of guy that if you were drowning fifty feet off shore, he’d throw you a thirty foot rope. Then Kissinger would go on TV the next night and say that the President had met you more than half-way.
+ - I’ve arranged with my executor to be buried in Chicago. Because when I die, I want to still remain active politically.
+ - A political satirist’s job is to draw blood. I’m not so much interested in politics as I am in overthrowing the government.
+ - Those who the gods would make rich and famous on TV, they first drive mad.
+ - A conservative doesn’t want anything to happen for the first time; a liberal feels it should happen, but not now.
+ - I don’t think crucifixion is the answer. I believe in the resurrection. I like that part of the story.
+ - I made the mistake early in my career, when I moved to Hollywood, of being attracted to actresses. I used to go out exclusively with actresses and other female impersonators.
+ - The fact is that you can’t have a good relationship with a girl who hasn’t settled things with her father.
+ - Bush is the face on the can. But who canned that soup?
+ - Remember when movies were just good or bad, before auteurs, film festivals, and guys from USC who were the first to shoot underwater?
+ - Professional comedians, surprisingly, have a lack of humor. They’re insensitive to the insanity of our times.
+ - You know me, I love lost causes.
+
+63 quotes

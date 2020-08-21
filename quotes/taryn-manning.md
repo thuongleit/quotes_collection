@@ -1,0 +1,63 @@
+ - Pride is the community coming together and showing that love is real.
+ - With acting, I get to escape into this character and embody it. With music it’s like, “Hey guys, this is my diary, here’s all my feelings.”
+ - Lauren Hill, I always have her solo CD nearby. I have Coldplay, Radiohead, just a mix.
+ - My singing is my hobby. It’s me and my brother. We just enjoy writing music.
+ - My dad died when I was 14. It was very sudden, traumatic, and confusing. I always felt I could have gone down a bad road at that point, but I made a choice to be a winner.
+ - Everyone thinks I’m some big drug addict and loser because of the parts I play – quite the opposite. I decided to be a winner.
+ - I’ve seen a lot in my life. My dad was pretty gnarly but I loved him and I wouldn’t change it for the world. My mom’s a survivor.
+ - That’s why I’m an actress, to do something completely opposite from myself.
+ - In my martial arts days. I was taught a lot of discipline that probably rolls over into other parts of my life. You’re not supposed to attack back until you’re attacked. You never take your skills and abuse them. I knew I could be lethal to someone my size.
+ - Normally I wouldn’t spoil anything because I love surprises – I don’t even shake my presents at Christmas.
+ - I feel the craziest people are sometimes the most intelligent.
+ - After reading Eminem’s autobiography, which I did because I’m so interested in him as an artist, I respect him a lot. Even though he seems angry and mad, he’s had to fight so many demons in his life.
+ - I’ve made money doing things I love. DJing was a hobby. When I bought my turntables my mom said, “Oh what now, Taryn?” But it became pretty fruitful right away. I come from a very music-oriented family.
+ - I grew up in a mobile home, but it wasn’t like white trash – it was a beautiful mobile home park, I had a loving mother, there were kids everywhere, there was a playground in the center, I just grew up in poverty.
+ - There’s really nothing else I’m going to do with my life. I’d be useless if I weren’t singing or acting.
+ - The Wreckoning is a darker song. But the record is positive.
+ - As a brother and sister, our tastes were pretty different growing up. He liked a lot of early hip hop. My dad didn’t understand it and would try to talk him out of it.
+ - I never wanted to stop. I feel like to the day I die I’ll play guitar and sing.
+ - I’m pretty hard on myself. Every now and again I’ll go on my IMDB or update my resume and I’m like, “man, I’ve done a lot of work.”
+ - My whole thing is I like to hang around winners, I like winning spirits, I have zero tolerance for jealousy.
+ - Watching people party is cool, but I don’t love watching people get super-duper trashed and annoying. I feel protected behind my booth – away from the madness, but a part of it too.
+ - The reason I love acting is because I feel like acting is all about listening.
+ - Some people might say I need to learn how to relax.
+ - There are likable characters in prison. Sometimes the worst criminals are also some of the most charming people.
+ - I play, in real life, Kim, who is actually Marshall Mathers ex-wife as of now. She lies and says she is pregnant because she really wants to keep him and he figures her out.
+ - I DJ very often. I’ll probably do it more. I’m not available during the week because of the show but I travel most weekends to DJ. I’ve been doing it for about six years.
+ - We wanted to write a whole song about partying and then taking Yellow Cabs home. That’s the weirdest topic we’ve ever thought of centering a song around.
+ - As far as making a living, acting has been much more lucrative. Music’s been tough.
+ - If you are being weird or silly you can be excused because you are just playing a character.
+ - I meditate twice a day. I chant. I lean more towards Buddhist practices.
+ - Everybody thinks because of my character that I’m this wild girl and I am, I’m an actor, and I have that in me – but I’m actually very calm and mellow.
+ - Through teaching myself how to be happy and get through things, I hope I can also do that for other people.
+ - I won’t even take jobs where you get paid to sit with a group of friends and party. That’s never been my vibe.
+ - I write most of my stuff. When I’m rejected in music, it hurts worse than when I don’t get a role, because that’s someone else’s vision. If they don’t see me as that part, even if I believe I’m the perfect person for it, that’s their vision. The music is my vision.
+ - A lot of people want to judge the fact that I’m an actor. That’s ridiculous. No one knows what I was doing before I made my first movie. I just happened to do it as an actor all the while I’ve been doing music, but never with the intention to become a screaming famous pop star.
+ - The most interesting place I’ve gone on location was New Orleans.
+ - I’ve had ups and downs but always maintained I was a working actor, which is a beautiful thing.
+ - Alison Lohman is an amazing actress. I was so proud to work with her.
+ - As soon as you put an actor to a person who is real, that person comes to life through another person.
+ - I went through the process of auditioning like every other struggling actress in this town.
+ - Acting, I love it and I feel that I’m good at it, but the thing that makes me feel most alive is when I’m playing guitar and singing.
+ - I don’t really like approach music to become famous. I’ve actually consciously made the decision that I’m just going to do music because I love it.
+ - I have played some very kind and loving character. I don’t know why I’m so good at playing bad. I really don’t.
+ - I’m more like an animalistic rock chick.
+ - It’s just different in the music world. You come more with an entourage.
+ - I’ve had an interesting time adjusting to New York. I’m from California and I’m very much a California girl. I feel lucky to officially say I’m bi-coastal.
+ - I’m definitely the worker. My brother is the jokester.
+ - It could be fun to sing with Prince or Michael Jackson. Justin Timberlake has an amazing new sound now.
+ - It’s really hard for actors to cross over and get any respect as a singer, and if I could just keep it separate and not use my music in movies, it’s cool.
+ - I’m not a part of any organized practices, but I believe heavily on love and the universe and what you give is what you get.
+ - I’m very, very, very, very spiritual. I grew up in an organized religion, I went to Sunday school as a kid. I’m very grateful that there was religion. I think it instills a good moral compass.
+ - I just get focused on whatever is in front of me. When I was filming Crossroads, it had all my focus. Now I’m all focused on finishing my recording so I can get that out. It’s just day by day.
+ - Every time I’m not on a project, I’m writing or in the studio or doing gigs DJing.
+ - My dad was a musician and I traveled around with him, so it was something that I knew.
+ - It’s actually harder to write a fun song.
+ - I ended up doing amazing things with my life; I’m well-read, educated and sophisticated – and I’m not the stereotype everyone makes me out to be.
+ - Even though it seems like there are a lot of parts, there is really tons of downtime in the acting world.
+ - I like to contribute. Even in my bands, I can’t really just be the singer.
+ - I’m not really into movies on dates because you can’t chat it up.
+ - I grew up in a very musical household. There was music and dance. My great-grandma was a famous tap dancer in the ’40s, my mom was a dancer, she met my dad on the road when he was on tour in the ’60s. Music is my heart and soul, it’s my love.
+ - I just had to find something else to fulfill me. Always being a singer and writing, it was a blessing. My brother started making music that was the kind of music I always saw myself singing.
+
+61 quotes

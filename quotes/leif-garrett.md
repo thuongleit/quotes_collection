@@ -1,0 +1,22 @@
+ - I’m not a slave to anything anymore. And I never will be again.
+ - I have no problem with starting from scratch.
+ - I’ve come to understand that there’s always something positive, even in a negative situation.
+ - I have an extremely addictive personality. I’m an extremist.
+ - Just do what you like to do, and do it all the time.
+ - Each song is a lifetime, it begins and ends, and there’s a journey taken within the songs.
+ - When I was a kid, I went from ground zero to Pluto. The first place I played was the Houston Astrodome.
+ - I believe in a higher power and I believe in good and bad, right and wrong. You sleep in the bed you make.
+ - Stay on top of your finances. Don’t leave that up to others.
+ - They had me doing Beach Boys remakes and all that. I was basically a marionette.
+ - I did plenty of crazy stuff, but I did a lot of charity stuff. You can’t stop. You want to continue to taste, and sometimes that’s crazy, stupid things.
+ - Stop doing what the record companies are doing and do what’s in your heart.
+ - I’ve always written songs, even when I wasn’t doing anything with my personal life in music.
+ - There are certain things people always bring up with me. The accident. The drugs. And how tight my pants were.
+ - Somehow I wasn’t completely crucified by the critics. I don’t know how or why, I probably should’ve been.
+ - Having regrets and things, it just takes your time away.
+ - Frank Sinatra is the only one that went from teen idol to superstar.
+ - I have no problem paying my dues and I have no problem going out and working the club circuit.
+ - The stardom thing happened and now I’m trying to make a comeback, if you want to call it that.
+ - Don’t believe your own publicity. You can’t; you’ll start thinking that you’re better than you are.
+
+20 quotes

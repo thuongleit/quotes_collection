@@ -1,0 +1,40 @@
+ - The power of community to create health is far greater than any physician, clinic or hospital.
+ - Just eat less and exercise more.
+ - It’s more important to understand the imbalances in your body’s basic systems and restore balance, rather than name the disease and match the pill to the ill.
+ - While weight loss is important, what’s more important is the quality of food you put in your body – food is information that quickly changes your metabolism and genes.
+ - The body is one integrated system, not a collection of organs divided up by medical specialties. The medicine of the future connects everything.
+ - The fork is your most powerful tool to change your health and the planet; food is the most powerful medicine to heal chronic illness.
+ - You can’t exercise your way out of a bad diet.
+ - Seems you can’t outsmart Mother Nature.
+ - Don’t get me wrong, I admire elegance and have an appreciation of the finer things in life. But to me, beauty lies in simplicity.
+ - Chronic disease is a foodborne illness. We ate our way into this mess, and we must eat our way out.
+ - Chronic disease is a food borne illness.
+ - There are ways to cut cravings by naturally balancing your blood sugar.
+ - It is food – we now know that food is information, not just calories, and that it can upgrade your biologic software. The majority of chronic disease is primarily a food borne illness. We ate ourselves into this problem and we have to eat ourselves out of it.
+ - The key to creating health is figuring out the cause of the problem and then providing the right conditions for the body and soul to thrive. It isn’t taking another medication.
+ - The body maintains balance in only a handful of ways. At the end of the day, disease occurs when these basic systems are out of whack.
+ - The most powerful medicine is at the end of your fork, not at the bottom of your pill bottle. Food is more powerful than anything in your medicine cabinet!
+ - Children with obesity and diabetes live harder poorer lives, they often don’t finish school and earn much less than their healthy counterparts.
+ - One in four kids have either pre-diabetes or diabetes – what I like to call diabesity. How did this happen?
+ - All medicine comes down to this: Find out what’s bugging you; get rid of it. Find out what you need; get it. The body does the rest.
+ - We need community action and policies to support healthy communities.
+ - Tricking your brain into thinking you are getting something sweet plays dirty tricks on your metabolism.
+ - Shrinking someone’s stomach to the size of a walnut with surgery is one way to battle obesity and diabetes and may be lifesaving for a few, but it doesn’t address the underlying causes.
+ - Your social networks may matter more than your genetic networks. But if your friends have healthy habits you are more likely to as well. So get healthy friends.
+ - If you want to get healthy, you just might not want to go to a doctor. You might instead, go to church.
+ - When it becomes a revolutionary act to eat real food, we are in trouble.
+ - In the 21st century our tastes buds, our brain chemistry, our biochemistry, our hormones and our kitchens have been hijacked by the food industry.
+ - The New Health Rules is the new manifesto for how to eat well, feel good, and live long. If you ever wondered what’s really true about the things that work and the things that don’t, look no further.
+ - The way most doctors practice medicine right now isn’t working.
+ - The best advice is to avoid foods with health claims on the label, or better yet avoid foods with labels in the first place.
+ - Heart disease is not a Lipitor, Crestor or even an “anacetrapib” deficiency. It is a complex end result of multiple factors driven by our diet, fitness level, stress, and other lifestyle factors such as smoking, social connections, and, increasingly, environmental toxins.
+ - You are more likely to be overweight if your friend’s, friend’s friend is overweight than if your parents are overweight.
+ - Glutathione is also the most critical and integral part of your detoxification system. All the toxins stick onto glutathione, which then carries them into the bile and the stool – and out of your body.
+ - Recommending gastric bypass as a national solution for our diabetes epidemic is bad medicine and bad economics.
+ - I don’t need the fillers, additives, excessive amounts of sugars, fats, salts and other measures taken to taint the natural goodness of real food.
+ - Yet an estimated 99 percent of people who have a problem with eating gluten don’t even know it. They ascribe their ill health or symptoms to something else-not gluten sensitivity, which is 100 percent curable.
+ - The Point, not unlike the Communist Chinese, the ACLU abhors individual religious freedom, and it supports only those civil liberties that fit its narrow political agenda.
+ - Most schools have only a microwave or deep fryer, hardly the tools needed to feed our children real, fresh food.
+ - I have experienced some amazing food! Yet when I think about the most luxurious and exquisite meals I have had, visions of simple food made from a few natural ingredients are what most excite me.
+
+38 quotes

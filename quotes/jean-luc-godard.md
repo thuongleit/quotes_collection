@@ -1,0 +1,66 @@
+ - Photography is truth.
+ - Art is not a reflection of reality, it is the reality of a reflection.
+ - He who jumps into the void owes no explanation to those who stand and watch.
+ - Cinema is the most beautiful fraud in the world.
+ - It’s not where you take things from – it’s where you take them to.
+ - Sometime reality is too complex. Stories give it form.
+ - Photography is truth. The cinema is truth twenty-four times per second.
+ - To be or not to be. That’s not really a question.
+ - The cinema is not an art which films life: the cinema is something between art and life. Unlike painting and literature, the cinema both gives to life and takes from it, and I try to render this concept in my films. Literature and painting both exist as art from the very start; the cinema doesn’t.
+ - People like to say, ‘What do you mean exactly?’ I would answer, ‘I mean, but not exactly.’
+ - The cinema is not an art which films life: the cinema is something between art and life.
+ - Film is like a personal diary, a notebook or a monologue by someone who tries to justify himself before a camera.
+ - A story should have a beginning, a middle and an end, but not necessarily in that order.
+ - I don’t know if I am free because I am happy or happy because I am free.
+ - Film begins with DW Griffith and ends with Abbas Kiarostami.
+ - I pity the French Cinema because it has no money. I pity the American Cinema because it has no ideas.
+ - Suddenly, I don’t know what to say. It happens often to me. I know what I want to say, I think about whether it is what I mean, but when the moment comes to speak, I can’t say it. – Nana Kleinfrankenheim, Vivre Sa Vie.
+ - Sometimes reality is too complex for oral communication. But legend embodies it in a form which enables it to spread all over the world.
+ - There is no point in having sharp images when you’ve fuzzy ideas.
+ - Europe has memories, America has t-shirts.
+ - Objects exist and if one pays more attention to them than to people, it is precisely because they exist more than the people. Dead objects are still alive. Living people are often already dead.
+ - The cinema substitutes for our gaze a world more in harmony with our desires.
+ - Beauty is composed of an eternal, invariable element whose quantity is extremely difficult to determine, and a relative element which might be, either by turns or all at once, period, fashion, moral, passion.
+ - This is not a just image, this is just an image.
+ - People come to Cannes just to advertise their films, not with a particular message. But the advantage is that if you go to the festival, you get so much press coverage in three days that it advertises the film for the rest of the year.
+ - First there was Greek civilization. Then there was the Renaissance. Now we’re entering the Age of the Ass.
+ - If you want to make a documentary you should automatically go to the fiction, and if you want to nourish your fiction you have to come back to reality.
+ - To be only spectacular should be 5 or 10 percent of cinema.
+ - I don’t think you should feel about a film. You should feel about a woman, not a movie. You can’t kiss a movie.
+ - Killing a man in defense of an idea is not defending an idea; it is killing a man.
+ - To me style is just the outside of content, and content the inside of style, like the outside and the inside of the human body – both go together, they can’t be separated.
+ - Once we know the number one, we believe that we know the number two, because one plus one equals two. We forget that first we must know the meaning of plus.
+ - To be immortal and then die.
+ - We once believed we were auteurs but we weren’t. We had no idea, really. Film is over. It’s sad nobody is really exploring it. But what to do? And anyway, with mobile phones and everything, everyone is now an auteur.
+ - Movies are a world of Fragments.
+ - One of the most striking signs of the decay of art is when we see its separate forms jumbled together.
+ - There is no such thing as intellectual property.
+ - Reportage is interesting only when placed in a fictional context, but fiction is interesting only if it is validated by a documentary context.
+ - A critic is a soldier that fires on his own men.
+ - My aesthetic is that of the sniper on the roof.
+ - Why all these signs around us that make me doubt language and submerge me in meanings, drowning reality instead of extracting it from the imaginary?
+ - If direction is a look, montage is a heartbeat. To foresee is the characteristic of both; but what one seeks to foresee in space, the other seeks in time.
+ - To live in society today is like living in one enormous comic-strip.
+ - The world isn’t a sad place, it’s just big.
+ - The invention of photography. For whom? Against whom?
+ - Poetry is a game of loser-take-all.
+ - When you go to the cinema you look up, when you watch television you look down.
+ - Truth is in all things, even partly, in error.
+ - People in life quote as they please, so we have the right to quote as we please. Therefore I show people quoting, merely making sure that they quote what pleases me.
+ - You don’t make a movie, the movie makes you.
+ - American pictures usually have no subject, only a story. A pretty woman is not a subject. Julia Roberts doing this and that is not a subject.
+ - All you need to make a movie is a girl and a gun.
+ - I am a painter with letters. I want to restore everything, mix everything up and say everything.
+ - I believe what Jesus said, but Jesus never said priests couldn’t be fools.
+ - Mirrors should reflect before sending an image.
+ - Photography could have been invented in color. Colors existed.
+ - I make film to make time pass.
+ - In films, we are trained by the American way of moviemaking to think we must understand and ‘get’ everything right away. But this is not possible. When you eat a potato, you don’t understand each atom of the potato!
+ - I had the feeling that Sarajevo was the perfect place to shoot the film I wanted to shoot. It is the perfect illustration of purgatory.
+ - Movies in Hollywood now, for the past 20 or 30 years, are made mainly by lawyers or agents.
+ - The truth is that there is no terror untempered by some great moral idea.
+ - Americans have no past, so they buy the pasts of others.
+ - I would never see a good movie for the first time on television.
+ - When we talked, I talked about me, you talked about you, when we should have talked about each other.
+
+64 quotes

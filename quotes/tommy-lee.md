@@ -1,0 +1,55 @@
+ - It’s all about the music. For me, that’s truly what I live for. Just music constantly. Always listening to, writing, or playing music. That’s definitely me.
+ - You know what the most destructive force in the universe is? Regret.
+ - Just because we are wearing lipstick doesn’t mean we can’t kick your ass!
+ - I hate rude behavior in a man. I won’t tolerate it.
+ - I don’t really put too much emphasis on what somebody else might think of it. Otherwise your putting limits on yourself.
+ - I did the marching band all throughout junior high and high school. Music was one of my favorite things in school.
+ - I don’t listen to anybody’s full record anymore and when I did, I don’t think I listened to the whole record. I’m sorry, and I don’t care who it is, if it’s the Beatles, I can’t listen to an hour and a half of anybody straight so I guess that’s just my personal preference.
+ - The Radiohead record, The Bends is my all-time favorite record on the planet.
+ - Single’s fun – you don’t have to check in with your girl, but it’s not easy. I do get lonely.
+ - I got it: stay away from cocaine and heroin.
+ - Why is it that the hot chicks never can sing?
+ - Imagine how frustrating it is, being completely locked up and watching your family leave, your wife and children, and not being able to do anything about it.
+ - It sounds kind of strange, but Jail time was almost a good experience for me.
+ - I think that when I did the Methods Of Mayhem record, some of the hip-hop stuff probably freaked a lot of Motley Crue fans out.
+ - Once the song is done and recorded, I like to go back and then cut the drums, because then I know exactly what the song needs, and what it doesn’t need.
+ - A lot of hip-hop artists wear fur, and they think it’s a status symbol. That doesn’t register for me; I just see dead animals.
+ - My father lived by the philosophy, ‘Be yourself, because everyone else is taken,’ and he made sure I did, too. Whatever I wanted to do, he supported me. I don’t mean that I was spoilt – he didn’t believe in material gifts – but he watched my back while I worked to achieve things.
+ - I am such a gearhead. In my recording studio, I personally engineer and edit everything on computers.
+ - I’m really a cool, mellow guy. I’m not as crazy as everybody thinks.
+ - One day I would love to do rock a gig on the moon – how rad would that be? Isn’t Richard Branson flying planes to outer space? Motley Crue could be the first band to play on the moon.
+ - I lived up on Kanan and Mulholland. It’s a bit of a drive, but once you get there, the horses, vineyards, it’s just so peaceful.
+ - When I was a little kid, I took tap and ballet. I’ve always loved to dance. I’m a rhythm machine.
+ - Being married to two extremely high profile, you know, actresses, and being sort of chased by, you know, paparazzi and people, it’s a whole different dynamic happens to a relationship when that happens. All of a sudden, things get a little crazy, a little crazy.
+ - I’ve always loved the mixture of crushing live drums with a programmed groove, that really cool blend, like in the verse there’s a really funky drum beat that is programmed then it comes in to the chorus; you’ve got that enormous human feel where the band kicks in.
+ - You never know what’s going to happen sometimes, or what you think’s going to happen never happens, or when you least expect it, the Santana record comes along and just blows up.
+ - No one really buys records anymore. You can look at sales and do that math real quick. Unfortunately, it’s fast food in the music industry. People don’t ingest full records anymore.
+ - That’s the good part of having my past follow me, is that sometimes some of that stuff can help.
+ - I still play but for some reason, I am having so much fun playing guitar and singing that I don’t really miss it because I’ve done it for so long like twenty-something years with Motley.
+ - But you know what I’m trying to say, it’s that there’s a couple of really dangerous drugs out there and I’ve lost some friends to them.
+ - What I wanna do with Methods is keep that around as sorta my freak out, creative free for all- anything goes project.
+ - Well, some people die and then they sell more records, go figure.
+ - When I’m single, I’m one guy, and when I’m in a relationship I’m totally another. They’re both a good time.
+ - Nikki lives around the corner from me and I see him all the time. We talk a lot, and of course we’re still friends. That was our baby, Motley Crue, we put that band together.
+ - The only thing that’s changed for me is that I’ve figured out a new way to do this; when I go to record, I like to do the drums last, if that makes any sense to you.
+ - You know what, I just write what I feel.
+ - I don’t have a problem with my temper.
+ - The record is definitely a musical journey. It’s kind of all over the place, which I like.
+ - I don’t think anybody should ever touch anybody in anger, ever.
+ - I start my own frat, and try out for the women’s swim team.
+ - Whenever I write, I only write about what I know or what I have experienced or feeling.
+ - There’s Tommy, Tommy Lee the rock star, and Tommy the dad. I’m wearing several hats these days.
+ - Obviously, I’m a little more responsible these days.
+ - If it’s successful and it sounds awesome, and looks killer live, then I guess I can pat myself on the back and take all the credit too.
+ - Aerosmith’s ‘Rocks’ is on the list of my top favorite albums of all time.
+ - I’m happy doing what I’m doing, and if you have that kind of attitude then everything else from there on is a bonus.
+ - I was just reading some poetry, and it talked about how things start as one thing and change into another, and I just thought, what a great concept for a song.
+ - I find that doing the drums last, coming from a drum history, really works well for me.
+ - Sometimes when you cut your bed tracks right off the bat, you don’t really know where the vocal is landing and where the background vocals are, and other loops and stuff that are going on.
+ - You know what’s weird, I just write to write, with no intention, I just write.
+ - I’m not Superman. I can’t handle all of these women.
+ - It’s always interesting to me that we all hear music differently. It’s an awesome experience to hear what other people hear.
+ - Sometimes when you have children they’re the opposites of you.
+ - At 17, I signed a recording contract right out of high school, so I started touring and traveling the world. I sort of missed out on the college experience.
+
+53 quotes

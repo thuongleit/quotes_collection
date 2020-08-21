@@ -1,0 +1,21 @@
+ - If you’re not busy living, you’re dying.
+ - I have a history of disregarding orders. – Mitch Rapp.
+ - No matter how bad you think you have it, there’s always – always somebody who’s got it way, way worse.
+ - A good football team plays offense and defense. You have to be aggressive and disrupt.
+ - A major theme in all my books is that the CIA is not only the first line of defense but they should also be the first line of offense.
+ - It’s this upside-down world that we live in where we afford political correctness to the most intolerant group of individuals on the planet.
+ - There’s a lot more to publishing a book than writing it and slapping a cover on it.
+ - I have been blessed to have the same editor and work for a great publishing house.
+ - People, especially successful people, are habitual creatures. They’re organized. This makes them productive – Gus Mitchell.
+ - It’s what every writer needs: a daybed.
+ - I just look at what’s going on in the world.
+ - I think the more avenues that open up when people want to publish, the better. Some of the authors that want to jump ship from the traditional houses and go on their own, you know what? Good luck. It’s going to be a lot tougher than you think.
+ - When I give a lot of speeches, they’re always on the fly. I mean, I know what I’m going to say roughly, but I do not – will not read.
+ - I’m a big believer in free enterprise. If people want to try it, then go for it.
+ - I am a huge fan of Alan Furst. Furst is the best in the business – the most talented espionage novelist of our generation.
+ - I have such bad memories, sitting in the back of a classroom, being told, you know, everybody is going to read a paragraph, and skipping ahead to my paragraph and being mortified and trying to read it enough times so that I wouldn’t stutter and stammer, getting called on, even in high school.
+ - I’m a bit of a Libertarian.
+ - Anybody who knew me growing up calls me Vinny.
+ - One of the most talented writers out there is Brian Haig.
+
+19 quotes

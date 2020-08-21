@@ -1,0 +1,87 @@
+ - We are not human beings having a spiritual experience, but are spiritual beings having a human experience.
+ - The future belongs to those who give the next generation reason for hope.
+ - Someday, after mastering the winds, the waves, the tides and gravity, we shall harness for God the energies of love, and then, for a second time in the history of the world, man will have discovered fire.
+ - Above all trust in the slow work of God. Only God could say what this new spirit gradually forming within you will be. Give our Lord the benefit of believing that His hand is leading you, and accept the anxiety of feeling yourself in suspense and incomplete.
+ - Joy is the infallible sign of the presence of God.
+ - Above all, trust in the slow work of God.
+ - Love is the most powerful and still most unknown energy in the world.
+ - Matter is spirit moving slowly enough to be seen.
+ - By virtue of Creation, and still more the Incarnation, nothing here below is profane for those who know how to see.
+ - We are collaborators in creation.
+ - Love is the most universal, the most tremendous and the most mysterious of the cosmic forces.
+ - The human person is the sum total of a 15 billion year chain of unbroken evolution now thinking about itself.
+ - Remain true to yourself, but move ever upward toward greater consciousness and greater love! At the summit you will find yourselves united with all those who, from every direction, have made the same ascent. For everything that rises must converge.
+ - Everything that rises must converge.
+ - We had thought that we were human beings making a spiritual journey; it may be truer to say that we are spiritual beings making a human journey.
+ - Love is the most universal, the most tremendous and the most mystical of cosmic forces. Love is the primal and universal psychic energy. Love is a sacred reserve of energy; it is like the blood of spiritual evolution.
+ - We are one, after all, you and I, together we suffer, together exist and forever will recreate each other.
+ - Our duty, as men and women, is to proceed as if limits to our ability did not exist. We are collaborators in creation.
+ - When humans truly discover the power of love, it will prove more important than the harnessing of fire.
+ - Blessed be you, mighty matter, irresistible march of evolution, reality ever newborn; you who, by constantly shattering our mental categories, force us to go ever further and further in our pursuit of the truth.
+ - It doesn’t matter if the water is cold or warm if you’re going to have to wade through it anyway.
+ - He that will believe only what he can fully comprehend must have a long head or a very short creed.
+ - Instead of standing on the shore and proving to ourselves that the ocean cannot carry us, let us venture on its waters just to see.
+ - The dog knows, but does not know that he knows.
+ - Reach beyond your grasp. Your goals should be grand enough to get the best of you.
+ - Love is a sacred reserve of energy; it is like the blood of spiritual evolution.
+ - Growing old is like being increasingly penalized for a crime you haven’t committed.
+ - Truth has to appear only once, in one single mind, for it to be impossible for anything ever to prevent it from spreading universally and setting everything ablaze.
+ - The future is more beautiful than all the pasts.
+ - By means of all created things, without excaption, the divine assails us, penetrates us, and molds us. We imagined it as distant and inaccessible, when in fact we live steeped in its burning layers.
+ - A universal love is not only psychologically possible; it is the only complete and final way in which we are able to love.
+ - Science, philosophy and religion are bound to converge as they draw nearer to the whole.
+ - Not everything is immediately good to those who seek God; but everything is capable of becoming good.
+ - There is almost a sensual longing for communion with others who have a large vision. The immense fulfillment of the friendship between those engaged in furthering the evolution of consciousness has a quality impossible to describe.
+ - What paralyzes life is lack of faith and lack of audacity. The difficulty lies not in solving problems but identifying them.
+ - The truth is, indeed, that love is the threshold of another universe.
+ - The world is round so that friendship may encircle it.
+ - The universe as we know it is a joint product of the observer and the observed.
+ - Today, something is happening to the whole structure of human consciousness. A fresh kind of life is starting. Driven by the forces of love, the fragments of the world are seeking each other, so that the world may come into being.
+ - This it the greatest success I can dream of for my life: to have spread a new vision of the world.
+ - The most empowering relationships are those in which each partner lifts the other to a higher possession of their own being.
+ - The most telling and profound way of describing the evolution of the universe would undoubtedly be to trace the evolution of love.
+ - That there is an evolution of one sort or another is now common ground among scientists. Whether or not that evolution is directed is another question.
+ - Our century is probably more religious than any other. How could it fail to be, with such problems to be solved? The only trouble is that it has not yet found a God it can adore.
+ - From an evolutionary point of view, man has stopped moving, if he ever did move.
+ - The only way forward is in the direction of a common passion, for nothing in the universe can ultimately resist the cumulative ardor of the collective soul.
+ - Love alone is capable of uniting living beings in such a way as to complete and fulfill them, for it alone takes them and joins them by what is deepest in themselves.
+ - To see more is to become more.
+ - The age of nations has passed. Now, unless we wish to perish, we must shake off our old prejudices and build the Earth. The more scientifically I regard the world, the less can I see any possible biological future for it except in the active consciousness of its unity.
+ - Faith has need of the whole truth.
+ - It is done. Once again the Fire has penetrated the earth, not with the sudden crash of thunderbolt, riving the mountain tops: does the Master break down doors to enter His own home? Without earthquake, or thunderclap: the flame has lit up the whole world from within.
+ - We may, perhaps, imagine that the creation was finished long ago. But that would be quite wrong. It continues still more magnificently, and at the highest levels of the world.
+ - The past has revealed to me the structure of the future.
+ - Since once again, O Lord, in the steppes of Asia, I have no bread, no wine, no altar, I will raise myself above those symbols to the pure majesty of reality, and I will offer to you, I, your priest, upon the altar of the entire earth, the labor and the suffering of the world.
+ - God loves everyone in the world who doesn’t love himself. Does God love God?
+ - The day is not far distant when humanity will realize that biologically it is faced with a choice between suicide and adoration.
+ - The whole life lies in the verb seeing.
+ - To love is to approach each other center to center.
+ - Those who spread their sails in the right way to the winds of the earth will always find themselves born by a current toward the open seas.
+ - The more we split and pulverise matter artificially, the more insistently it proclaims its fundamental unity.
+ - At a finite distance in the future, a critical state of encounter will occur, an ultimate co-reflective Center. A focused conspiration will allure individual persons to identify with others in profound affinity. Because of thinking altogether, love will grow into Divinity.
+ - In the final analysis, the questions of why bad things happen to good people transmutes itself into some very different questions, no longer asking why something happened, but asking how we will respond, what we intend to do now that it happened.
+ - Man only progresses by slowly elaborating from age to age the essence and the totality of a universe deposited within him.
+ - Humankind is now caught up, as though in a train of gears, at the heart of a continually accelerating vortex of self-totalization.
+ - The most satisfying thing in life is to have been able to give a large part of one’s self to others.
+ - The world, this palpable world, which we were wont to treat with the boredom and disrespect with which we habitually regard places with no sacred association for us, is in truth a holy place, and we did not know it. Venite, adoremus.
+ - At the heart of our universe, each soul exists for God, in our Lord.
+ - You must overcome death by finding God in it.
+ - The task for us now, if we are to survive, is to build the earth.
+ - More primordial than any idea, beauty will be manifest as the herald and generator or ideas.
+ - God is inexhaustibly attainable in the totality of our action.
+ - We have only to believe. And the more threatening and irreducible reality appears, the more firmly and desperately we must believe. Then, little by little, we shall see the universal horror unbend, and then smile upon us, and then take us in its more than human arms.
+ - The stars are laboratories in which the evolution of matter proceeds in the direction of large molecules.
+ - And now, as a germination of planetary dimensions, comes the thinking layer which over its full extent develops and intertwines its fibres, not to confuse and neutralise them but to reinforce them in the living unity of a single tissue.
+ - Your creatures can come into being only, like shoot from stem, as part of an endlessly renewed process of evolution.
+ - Individual human beings are so subtly developed through the centuries that it is strictly impermissible to compare any two men who are not contemporaries-that is to say are taken from two quite different times.
+ - A breeze passes in the night. When did it spring up? Whence does it come? Whither is it going? No man knows.
+ - It often happens that what stares us in the face is the most difficult to perceive.
+ - The reality of spirit-matter is inevitably translated into and confirmed by a structure of the spirit.
+ - Energy is the measure of that which passes from one atom to another in the course of their transformations. A unifying power, then, but also, because the atom appears to become enriched or exhausted in the course of the exchange, the expression of structure.
+ - Research students are numbered in the hundreds of thousands-soon to be millions -and they are no longer distributed superficially and at random over the globe, but are functionally linked together in a vast organic system that will remain in the future indispensable to the life of the community.
+ - The world can no more have two summits than a circumference can have two centres.
+ - We now know from neural-net technology that when there are more connections between points in a system, and there is greater strength between these connections, there will be sudden leaps in intelligence, where intelligence is defined as success rate in performing a task.
+ - In the spiritual life, as in all organic processes, everyone has their optimum and it is just as harmful to go beyond it as not to attain it.
+ - He recognized with absolute certainty the empty fragility of even the noblest theorizings as compared with the definitive plenitude of the smallest fact grasped in its total, concrete reality.
+
+85 quotes

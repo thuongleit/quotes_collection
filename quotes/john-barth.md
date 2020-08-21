@@ -1,0 +1,34 @@
+ - The story of your life is not your life; it’s your story.
+ - The Bible is not man’s word about God, but God’s word about man.
+ - In art as in lovemaking, heartfelt ineptitude has its appeal and so does heartless skill, but what you want is passionate virtuosity.
+ - Those rituals of getting ready to write produce a kind of trance state.
+ - Finally you begin to make your mistakes on the highest level-let’s say the upper slopes of slippery Parnassus-and it’s at that point you need coaching.
+ - The horror of our history has purged me of opinions.
+ - All men are loyal, but their objects of allegiance are at best approximate.
+ - Like an ox-cart driver in monsoon season or the skipper of a grounded ship, one must sometimes go forward by going back.
+ - You’re probably wasting time on things like eating and sleeping. Cease that, and read all of philosophy and all of literature. Also art. Plus politics and a few other things. The history of everything.
+ - Self knowledge is always bad news.
+ - More history is made by secret handshakes than by battles, bills and proclamations.
+ - One of the things I miss about teaching is that students would tell me what I ought to read. One of my students, back in the 1960s, put me onto Borges, and I remember another mentioning Flann O’Brien’s At Swim Two-Birds in the same way.
+ - I admire writers who can make complicated things simple, but my own talent has been to make simple things complicated.
+ - He wishes he had never entered the funhouse. But he has. Then he wishes he were dead. But he’s not. Therefore he will construct funhouses for others and be their secret operator – though he would rather be among the lovers for whom funhouses are designed.
+ - I don’t see how anybody starts a novel without knowing how it’s going to end. I usually make detailed outlines: how many chapters it will be and so forth.
+ - It is often pleasant to stone a martyr, no matter how much we may admire him.
+ - Though life’s tuition is always ruinous, inexorably we learn.
+ - If you are a novelist of a certain type of termperament, then what you really want to do is re-invent the world. God wasn’t too bad a novelist except he was a Realist.
+ - Nothing is loathsomer than the self-loathing of a self one loathes.
+ - The transaction will enable us to become a single source of integrated products and services that building owners want in order to optimize comfort and energy efficiency.
+ - Nobody knew how to be what they were right.
+ - The first obligation of the writer is to be interesting. To be interesting; not to change the world.
+ - History – an account, mostly false, of events, mostly unimportant.
+ - Tis e’er the wont of simple folk to prize the deed and o’erlook the motive, and of learned folk to discount the deed and lay open the soul of the doer.
+ - Yet everyone begins in the same place; how is it that most go along without difficulty but a few lose their way?
+ - If you would learn a thing, straightway declare yourself a professor of it!
+ - Tis e’er the lot of the innocent in the world, to fly to the wolf for succor from the lion.
+ - Every artist joins a conversation that’s been going on for generations, even millennia, before he or she joins the scene.
+ - It’s easier and sociabler to talk technique than it is to make art.
+ - Nothing is intrinsically valuable; the value of everything is attributed to it, assigned to it from outside the thing itself, by people.
+ - A curious thing about written literature: It is about four thousand years old, but we have no way of knowing whether four thousand years constitutes senility or the maiden blush of youth.
+ - I particularly scorn my fondness for paradox. I despise pessimism, narcissism, solipsism, truculence, word-play, and pusillanimity, my chiefer inclinations; loathe self-loathers ergo me; have no pity for self-pity and so am free of that sweet baseness. I doubt I am. Being me’s no joke.
+
+32 quotes

@@ -1,0 +1,22 @@
+ - Change is not an event, its a process.
+ - I’m at a point in my life where I have something solid now. I’m a peaceful person, and I want to be surrounded by peace no matter what I’m doing.
+ - I’m not really into the fashion thing.
+ - There are different kinds of people in the world.
+ - Rap is hardcore street music but there are women out there who can hang with the best male rappers. What holds us back is that girls tend to rap in these high, squeaky voices. It’s irritating. You’ve gotta rap from the diaphragm.
+ - For me, the bulimia was about stuffing my emotions. So I stopped suppressing my feelings.
+ - Christians often want to hide behind the walls of the church, where we are comfortable, but sometimes we have to come out of the box.
+ - The best form of flattery is to be admired, imitated or respected. I’ve always felt proud our fans look up to us or feel we are inspirational.
+ - I’ve changed my life in a lot of ways. I’m a mom, a wife, and a Christian. Some of the things I expressed in my early 20s aren’t what I care to express right now.
+ - One of the speakers asked how many women had been harassed or abused sexually in their life? There were thousands of women in the audience, and almost every one of them raised her hand.
+ - I got to that desperate place where nobody could help me but God.
+ - There were times in my career I went a little further than I wanted because of expectations. Doing certain things onstage when children were in the audience, wearing certain clothes, singing certain lyrics.
+ - There are a lot of good things that we can do. Maybe my example can help someone.
+ - I’m really open to doing music. We just have to figure out what kind of music it’s going to be – something where I don’t feel compromised.
+ - Our attitude is that we want to cross over. You can’t go on making records just for your own hometown.
+ - People have this impression that I’m this crazy Christian, but I’m really balanced.
+ - For the moment, I’m concentrating on my own stuff.
+ - I remember feeling all right with myself until age 13. Then, I was getting off the bus one day and this guy called me Miss Piggy. That was the first time I ever really felt like I wasn’t okay.
+ - I don’t like the fact that there are so few women in rap.
+ - I don’t want to give the illusion that one day God came down and I was healed.
+
+20 quotes

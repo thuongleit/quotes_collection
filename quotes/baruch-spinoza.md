@@ -1,0 +1,170 @@
+ - The highest activity a human being can attain is learning for understanding, because to understand is to be free.
+ - The more clearly you understand yourself and your emotions, the more you become a lover of what is.
+ - If you want the present to be different from the past, study the past.
+ - Reason connot defeat emotion, an emotion can only be displaced or overcome by a stronger emotion.
+ - What Paul says about Peter tells us more about Paul than about Peter.
+ - I do not know how to teach philosophy without becoming a disturber of the peace.
+ - God is not He who is, but That which is.
+ - Men believe themselves to be free, simply because they are conscious of their actions, and unconscious of the causes whereby those actions are determined.
+ - Peace is not an absence of war, it is a virtue, a state of mind, a disposition for benevolence, confidence, justice.
+ - I can control my passions and emotions if I can understand their nature.
+ - The world would be happier if men had the same capacity to be silent that they have to speak.
+ - Desire is the very essence of man.
+ - In the mind there is no absolute or free will; but the mind is determined to wish this or that by a cause, which has also been determined by another cause, and this last by another cause, and so on to infinity.
+ - No matter how thin you slice it, there will always be two sides.
+ - Big fish eat small fish with as much right as they have power.
+ - Freedom is self-determination.
+ - He who seeks equality between unequals seeks an absurdity.
+ - I believe that a triangle, if it could speak, would say that God is eminently triangular, and a circle that the divine nature is eminently circular; and thus would every one ascribe his own attributes to God.
+ - In the mind there is no absolute or free will.
+ - There is no hope unmingled with fear, and no fear unmingled with hope.
+ - Emotion, which is suffering, ceases to be suffering as soon as we form a clear and precise picture of it.
+ - I call him free who is led solely by reason.
+ - Happiness is a virtue, not its reward.
+ - Reality and perfection are synonymous.
+ - We feel and know that we are eternal.
+ - The greatest good is the knowledge of the union which the mind has with the whole nature.
+ - When a man is prey to his emotions, he is not his own master.
+ - Many errors, of a truth, consist merely in the application of the wrong names of things.
+ - Do not weep; do not wax indignant. Understand.
+ - No to laugh, not to lament, not to detest, but to understand.
+ - Love is pleasure accompanied by the idea of an external cause, and hatred pain accompanied by the idea of an external cause.
+ - I have made a ceaseless effort not to ridicule, not to bewail, not to scorn human actions, but to understand them.
+ - The proper study of a wise man is not how to die but how to live.
+ - All happiness or unhappiness solely depends upon the quality of the object to which we are attached by love.
+ - I make this chief distinction between religion and superstition, that the latter is founded on ignorance, the former on knowledge.
+ - How would it be possible if salvation were ready to our hand, and could without great labor be found, that it should be by almost all men neglected? But all things excellent are as difficult as they are rare.
+ - Everything in nature is a cause from which there flows some effect.
+ - Fame has also this great drawback, that if we pursue it, we must direct our lives so as to please the fancy of men.
+ - He who loves God cannot endeavor that God should love him in return.
+ - Whatsoever is, is in God, and without God nothing can be, or be conceived.
+ - Let unswerving integrity be your watchword.
+ - Desire nothing for yourself, which you do not desire for others.
+ - Everyone has as much right as he has might.
+ - Nature has no goal in view, and final causes are only human imaginings.
+ - The most tyrannical of governments are those which make crimes of opinions, for everyone has an inalienable right to his thoughts.
+ - Speculation, like nature, abhors a vacuum.
+ - Philosophy has no end in view save truth; faith looks for nothing but obedience and piety.
+ - Human infirmity in moderating and checking the emotions I name bondage : for, when a man is a prey to his emotions, he is not his own master, but lies at the mercy of fortune : so much so, that he is often compelled, while seeing that which is better for him, to follow that which is worse.
+ - So long as a man imagines that he cannot do this or that, so long as he is determined not to do it; and consequently so long as it is impossible to him that he should do it.
+ - The endeavor to understand is the first and only basis of virtue.
+ - The order and connection of ideas is the same as the order and connection of things.
+ - He who wishes to revenge injuries by reciprocal hatred will live in misery. But he who endeavors to drive away hatred by means of love, fights with pleasure and confidence; he resists equally one or many men, and scarcely needs at all the help of fortune. Those whom he conquers yield joyfully.
+ - A good thing which prevents us from enjoying a greater good is in truth an evil.
+ - Sadness diminishes a man’s powers.
+ - Men who are ruled by reason desire nothing for themselves which they would not wish for all mankind.
+ - God and all attributes of God are eternal.
+ - Only free men are thoroughly grateful one to another.
+ - I do not presume that I have found the best philosophy, I know that I understand the true philosophy.
+ - We strive to further the occurrence of whatever we imagine will lead to Joy, and to avert or destroy what we imagine is contrary to it, or will lead to Sadness.
+ - Care of the poor is incumbent on society as a whole.
+ - It is usually the case with most men that their nature is so constituted that they pity those who fare badly and envy those who fare well.
+ - Men are especially intolerant of serving and being ruled by, their equals.
+ - Happiness is not the reward of virtue, but is virtue itself; nor do we delight in happiness because we restrain from our lusts; but on the contrary, because we delight in it, therefore we are able to restrain them.
+ - Academies that are founded at public expense are instituted not so much to cultivate men’s natural abilities as to restrain them.
+ - The more intelligible a thing is, the more easily it is retained in the memory, and counterwise, the less intelligible it is, the more easily we forget it.
+ - Men govern nothing with more difficulty than their tongues, and can moderate their desires more than their words.
+ - In so far as the mind sees things in their eternal aspect, it participates in eternity.
+ - Fear cannot be without hope nor hope without fear.
+ - If anyone conceives that he is loved by another, and believes that he has given no cause for such love, he will love that other in return.
+ - Whatsoever is contrary to nature is contrary to reason, and whatsoever is contrary to reason is absurd.
+ - Of all the things that are beyond my power, I value nothing more highly than to be allowed the honor of entering into bonds of friendship with people who sincerely love truth. For, of things beyond our power, I believe there is nothing in the world which we can love with tranquility except such men.
+ - Whatever increases, decreases, limits or extends the body’s power of action, increases decreases, limits, or extends the mind’s power of action. And whatever increases, decreases, limits, or extends the mind’s power of action, also increases, decreases, limits, or extends the body’s power of action.
+ - Faith is nothing but obedience and piety.
+ - The supreme mystery of despotism, its prop and stay, is to keep men in a state of deception, and with the specious title of religion to cloak the fear by which they must be held in check, so that they will fight for their servitude as if for salvation.
+ - As men’s habits of mind differ, so that some more readily embrace one form of faith, some another, for what moves one to pray may move another to scoff, I conclude that everyone should be free to choose for himself the foundations of his creed, and that faith should be judged only by its fruits.
+ - Freedom is absolutely necessary for the progress in science and the liberal arts.
+ - If a man had begun to hate an object of his love, so that love is thoroughly destroyed, he will, causes being equal, regard it with more hatred than if he had never loved it, and his hatred will be in proportion to the strength of his former love.
+ - I have tried sedulously not to laugh at the acts of man, nor to lament them, nor to detest them, but to understand them.
+ - The greatest pride, or the greatest despondency, is the greatest ignorance of one’s self.
+ - True piety for the universe but no time for religions made for man’s convenience.
+ - In practical life we are compelled to follow what is most probable ; in speculative thought we are compelled to follow truth.
+ - The mind has greater power over the emotions, and is less subject thereto, insofar as it understands all things to be necessary.
+ - He who regulates everything by laws, is more likely to arouse vices than reform them.
+ - Laws which prescribe what everyone must believe, and forbid men to say or write anything against this or that opinion, are often passed to gratify, or rather to appease the anger of those who cannot abide independent minds.
+ - The idea, which constitutes the actual being of the human mind, is not simple, but compounded of a great number of ideas.
+ - The less the mind understands and the more things it perceives, the greater its power of feigning is; and the more things it understands, the more that power is diminished.
+ - If slavery, barbarism and desolation are to be called peace, men can have no worse misfortune.
+ - Whatsoever is, is in God.
+ - The highest endeavor of the mind, and the highest virtue, it to understand things by intuition.
+ - Pride is pleasure arising from a man’s thinking too highly of himself.
+ - It is not possible that we should remember that we existed before our body, for our can bear no trace of such existence, neither can eternity be defined in terms of time or have any relation to time. But notwithstanding, we feel and know that we are eternal.
+ - The human mind cannot be absolutely destroyed along with the body, but something of it remains, which is eternal.
+ - We are so constituted by Nature that we easily believe the things we hope for, but believe only with difficulty those we fear, and that we regard such things more or less highly than is just. This is the source of the superstitions by which men everywhere are troubled. For the rest, I don.
+ - When we love a thing similar to ourselves, we endeavor, as far as we can, to bring about that it should love us in return.
+ - Ceremonies are no aid to blessedness.
+ - He that can carp in the most eloquent or acute manner at the weakness of the human mind is held by his fellows as almost divine.
+ - According as each has been educated, so he repents of or glories in his actions.
+ - All the objects pursued by the multitude not only bring no remedy that tends to preserve our being, but even act as hinderances, causing the death not seldom of those who possess them, and always of those who are possessed by them.
+ - He who hates anyone will endeavor to do him an injury, unless he fears that a greater injury will thereby accrue to himself; on the other hand, he who loves anyone will, by the same law, seek to benefit him.
+ - The greater emotion with which we conceive a loved object to be affected toward us, the greater will be our complacency.
+ - It may easily come to pass that a vain man may become proud and imagine himself pleasing to all when he is in reality a universal nuisance.
+ - Hatred is increased by being reciprocated, and can on the other hand be destroyed by love.
+ - Everything excellent is as difficult as it is rare.
+ - Will and intellect are one and the same thing.
+ - God is a thing that thinks.
+ - Only that thing is free which exists by the necessities of its own nature, and is determined in its actions by itself alone.
+ - Nothing exists from whose nature some effect does not follow.
+ - Things could not have been brought into being by God in any manner or in any order different from that which has in fact obtained.
+ - In proportion as we endeavor to live according to the guidance of reason, shall we strive as much as possible to depend less on hope, to liberate ourselves from fear, to rule fortune, and to direct our actions by the sure counsels of reason.
+ - No one doubts but that we imagine time from the very fact that we imagine other bodies to be moved slower or faster or equally fast. We are accustomed to determine duration by the aid of some measure of motion.
+ - The mind can only imagine anything, or remember what is past, while the body endures.
+ - A man is as much affected pleasurably or painfully by the image of a thing past or future as by the image of a thing present.
+ - If facts conflict with a theory, either the theory must be changed or the facts.
+ - To understand something is to be delivered of it.
+ - A free man thinks of nothing less than of death; and his wisdom is a meditation not on death but on life.
+ - Nature is satisfied with little; and if she is, I am also.
+ - Surely human affairs would be far happier if the power in men to be silent were the same as that to speak. But experience more than sufficiently teaches that men govern nothing with more difficulty than their tongues, and can moderate their desires more easily than their words.
+ - Superstition, then, is engendered, preserved, and fostered by fear.
+ - Ambition is the immoderate desire for power.
+ - The more we understand individual things, the more we understand God.
+ - The real disturbers of the peace are those who, in a free state, seek to curtail the liberty of judgment which they are unable to tyrannize over.
+ - Nothing in the universe is contingent, but all things are conditioned to exist and operate in a particular manner by the necessity of the divine nature.
+ - True virtue is life under the direction of reason.
+ - Measure, time and number are nothing but modes of thought or rather of imagination.
+ - God is the indwelling and not the transient cause of all things.
+ - Blessed are the weak who think that they are good because they have no claws.
+ - Indulge yourself in pleasures only in so far as they are necessary for the preservation of health.
+ - I would warn you that I do not attribute to nature either beauty or deformity, order or confusion. Only in relation to our imagination can things be called beautiful or ugly, well-ordered or confused.
+ - Man can, indeed, act contrarily to the decrees of God, as far as they have been written like laws in the minds of ourselves or the prophets, but against that eternal decree of God, which is written in universal nature, and has regard to the course of nature as a whole, he can do nothing.
+ - Anyone who seeks for the true causes of miracles, and strives to understand natural phenomena as an intelligent being, and not to gaze at them like a fool, is set down and denounced as an impious heretic.
+ - He whose honor depends on the opinion of the mob must day by day strive with the greatest anxiety, act and scheme in order to retain his reputation. For the mob is varied and inconsistent, and therefore if a reputation is not carefully preserved it dies quickly.
+ - Self-complacency is pleasure accompanied by the idea of oneself as cause.
+ - Simply from the fact that we have regarded a thing with the emotion of pleasure or pain, though that thing be not the efficient cause of the emotion, we can either love or hate it.
+ - If men were born free, they would, so long as they remained free, form no conception of good and evil.
+ - In regard to intellect and true virtue, every nation is on a par with the rest, and God has not in these respects chosen one people rather than another.
+ - Be not astonished at new ideas; for it is well known to you that a thing does not therefore cease to be true because it is not accepted by many.
+ - Yet nature cannot be contravened, but preserves a fixed and immutable order.
+ - Love or hatred towards a thing, which we conceive to be free, must, other things being similar, be greater than if it were felt towards a thing acting by necessity.
+ - He who has a true idea, knows at that same time that he has a true idea, nor can he doubt concerning the truth of the thing.
+ - Hatred which is completely vanquished by love passes into love: and love is thereupon greater than if hatred had not preceded it...
+ - To give aid to every poor man is far beyond the reach and power of every man. Care of the poor is incumbent on society as a whole.
+ - If anyone conceives, that an object of his love joins itself to another with closer bonds of friendship than he himself has attained to, he will be affected with hatred towards the loved object and with envy towards his rival.
+ - He who would distinguish the true from the false must have an adequate idea of what is true and false.
+ - To comprehend an idea, a person must simultaneously accept it as true. Conscious analysis – which, depending on the idea, may occur almost immediately or with considerable effort – allows the mind to reject what it intially accepted as fact.
+ - We must take care not to admit as true anything, which is only probable. For when one falsity has been let in, infinite others follow.
+ - Minds are not conquered by force, but by love and high-mindedness.
+ - True knowledge of good and evil as we possess is merely abstract or general, and the judgment which we pass on the order of things and the connection of causes, with a view to determining what is good or bad for us in the present, is rather imaginary than real.
+ - It is sure that those are most desirous of honour or glory who cry out loudest of its abuse and the vanity of the world.
+ - In the state of nature, wrong-doing is impossible ; or, if anyone does wrong, it is to himself, not to another.
+ - Love is nothing but joy accompanied with the idea of an eternal cause.
+ - Nature offers nothing that can be called this man’s rather than another’s; but under nature everything belongs to all.
+ - Those who know the true use of money, and regulate the measure of wealth according to their needs, live contented with few things.
+ - None are more taken in by flattery than the proud, who wish to be the first and are not.
+ - Pride is over-estimation of oneself by reason of self-love.
+ - Schisms do not originate in a love of truth, which is a source of courtesy and gentleness, but rather in an inordinate desire for supremacy.
+ - Sin cannot be conceived in a natural state, but only in a civil state, where it is decreed by common consent what is good or bad.
+ - Things which are accidentally the causes either of hope or fear are called good or evil omens.
+ - What everyone wants from life is continuous and genuine happiness.
+ - He alone is free who lives with free consent under the entire guidance of reason.
+ - Blessedness is not the reward of virtue but virtue itself.
+ - I shall consider human actions and desires in exactly the same manner, as though I were concerned with lines, planes and solids.
+ - I saw that all things I feared, and which feared me, had nothing good or bad in them save insofar as the mind was affected by them.
+ - The virtue of a free man appears equally great in refusing to face difficulties as in overcoming them.
+ - Peace is not the absence of war, but a virtue based on strength of character.
+ - Laws directed against opinions affect the generous-minded rather than the wicked, and are adapted less for coercing criminals than for irritating the upright.
+ - Statesman are suspected of plotting against mankind, rather than consulting their interests, and are esteemed more crafty than learned.
+ - Those who are believed to be most abject and humble are usually most ambitious and envious.
+ - The multitude always strains after rarities and exceptions, and thinks little of the gifts of nature; so that, when prophecy is talked of, ordinary knowledge is not supposed to be included. Nevertheless it has as much right as any other to be called Divine.
+
+168 quotes

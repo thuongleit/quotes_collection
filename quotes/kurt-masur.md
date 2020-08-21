@@ -1,0 +1,26 @@
+ - I wouldn’t say I’ve changed my mind. I changed some of my natural habits, some of my natural character.
+ - An orchestra full of stars can be a disaster.
+ - And at the same time, I had my very first concert at the age of 16. I hadn’t heard a symphony orchestra before, and I was so deeply impressed I said I have to be a conductor.
+ - If every school would hire two more music teachers, we would need two fewer police officers.
+ - What I never overcame is a kind of shyness.
+ - As I came to New York, it was for me a new beginning. To discover what people are living here. What do they need, what do they expect, what would they like to be the image and the performance of the New York Philharmonic?
+ - Even my family laughed at me because they thought this young guy who’s always stuttering in front of other people should be in front of 100 musicians and talk to them and leading them.
+ - You have to change your mind with every orchestra because every orchestra has a different character.
+ - The message of music was also the first thing what I learned from my first teacher. She was an organist too and she was very devoted to what she played, so she had a respect for every piece and she felt that she is not allowed to add something of her own.
+ - In South America, I heard the 8th Symphony of Beethoven. And the young conductor thought, Beethoven must be heroic. But this is piece which shouldn’t be heroic. And this was such a misunderstanding, such a deep misunderstanding.
+ - If you go to Japan for instance, you should know that they have a different way of playing Beethoven or Brahms. But if you play with them Mozart, Debussy, Mendelssohn, they have a wonderful light feeling for that.
+ - And I always tried to be not a star. To be someone who people like to talk to.
+ - Sometimes if you have very confident people, you have to tell them please, be polite, there are other players are good enough as you and you should never speak out of an orchestra.
+ - I worked on scores. I went to the musical library in Berlin which is very famous. I discovered that we had scores of Beethoven, printed scores of Beethoven, that are full of mistakes. Not the wrong or false notes, but the wrong dynamic, understandable things.
+ - Young conductors who are confident enough, they very often have success.
+ - And if you are strong enough, then you can grow as a conductor more and more.
+ - I was different from most young conductors today.
+ - You know as I started as a shy young conductor, I always wanted to cooperate. To build up the musicians. To help them to be better than without a conductor. And sometimes young talented musicians have to be encouraged.
+ - Since the composer has said everything, if you discover everything, it will be enough and you will be a happy man. Don’t try to say it’s your taste, and because of that you are changing this or that. And I must say this respect is still there.
+ - At the age of 16, something happened with my finger and the doctor told me, you never can be a organist or pianist, so think about what you do with music.
+ - I can go in front of an orchestra. I can go in front of an audience. But if you see me walking through an audience in the reception or through a lot of people, I’m still shy.
+ - I always imagined that to bring an orchestra to play together is not enough for a conductor.
+ - Even I had no opportunity to conduct very many concerts after World War II.
+ - Very often, if I know the orchestra doesn’t know a piece or it’s a new piece, I have main ideas about it. But then we start to play and I never talk about places where they played so beautiful and so clear in the beginning that there is nothing to say.
+
+24 quotes

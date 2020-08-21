@@ -1,0 +1,60 @@
+ - You always have a choice.
+ - You’re stronger than you believe. Don’t let your fear own you. Own yourself.
+ - Pride goes before the fall.
+ - If I were to live a thousand years, I would belong to you for all of them. If we were to live a thousand lives, I would want to make you mine in each one.
+ - I did something brave, then. Or stupid. Sometimes it’s hard to tell the difference.
+ - Thinking something does not make it true. Wanting something does not make it real.
+ - It doesn’t matter what we are. It matters what we do.
+ - You can’t hurt me the way you think you can. But even if you could? I would rather die with the taste of you on my tongue than live and never touch you again. I’m in love with you, Mara. I love you. No matter what you do.
+ - I don’t have feelings.
+ - Do not find peace. Find passion.
+ - They rattled my cage to see if I’d bite. When they released me, they’d see that the answer was yes.
+ - Everyone’s a little crazy. Some people just hide it better than others.
+ - I would rather die with the taste of you on my tongue than live and never touch you again.
+ - If you expect the worst from people, that’s exactly what you’ll get.
+ - Her sound is a siren’s song, calling me to the rocks.
+ - Everyone is a little crazy. The only difference between us and them is that they hide it better.
+ - There will come a moment when there’s nothing you want more than us. Together. When you’re free of every fear and there is nothing in our way.
+ - I looked up at the video camera and stared. Then raised my hand and gave it the middle finger. “I thought you were going to give it the District Twelve salute,” Jamie said.
+ - If I truly loved him, she said, I would let him go. I wish I loved him enough.
+ - He would kiss me, right now, after everything I’d done. I was poison, and Noah was the drug that would make me forget it.
+ - I knew one hundred little things about Noah Shaw but when he kissed me I couldn’t remember my own name.
+ - I’m sorry, is driving and talking too complicated? No problem, I’ll shut up.
+ - I’m not sure you can appreciate how much I want to lay you out before me and make you scream my name.
+ - Why do you always look like you just rolled out of bed?? ‘Because usually I have.’ And the way he raised his eye-brow at me made me blush. ‘Classy,’ I said.
+ - Maybe sometimes we can only see the truth about ourselves if someone shows us where to look.
+ - I’ll walk forever with stories inside me that the people I love the most can never hear.
+ - I can’t bear to look at my bed without seeing you in it.
+ - They lie, you know. It’s not easier to ask for forgiveness. Not even a little.
+ - Our mouths were fluent in the language of each other and we moved with one mind and shared the same breath.
+ - I was going to kiss him, and I was going to regret it. But at that moment, I couldn’t bring myself to care.
+ - Noah started this chase and I stood before him, waiting to be caught. He could have me, but he refused to move. Only now did I realize why. He wanted to be caught. He was waiting for me to chase him.
+ - There’s nothing I want. There’s nothing I can’t do. I don’t care about anything. No matter what, I am an imposter. An actor in my own life.
+ - This was the boy I loved. A little bit messy. A little bit ruined. A beautiful disaster. Just like me.
+ - I must be made of nothing to feel so much nothing.
+ - Pain is just a feeling, and feelings aren’t real.
+ - Boys are stupid and girls are trouble.
+ - No, it isn’t irrelevant. You want me as much as I want you. And all I want is you.
+ - Noah acted like he felt nothing because he felt everything. He seemed not to care because he cared too much.
+ - And just like that, I was completely, utterly, and entirely, His.
+ - Sometimes, the biggest secrets you can only tell a stranger.
+ - The thing about happiness, though, is that it never lasts.
+ - I’m not making you hate me. I’m making you love me.
+ - The people we care about are always worth more to us than the people we don’t. No matter what anyone pretends.
+ - I twisted my arm to curl him behind me and he unfolded there, the two of us snuggled like quotation marks in his room full of words.
+ - I’d rather he not know the depths of my crazy.
+ - I hate that I never managed to persuade you to watch Buffy. It’s a flaw in you, Mara.
+ - But when everyone tells you you’re crazy and no one believes you when you swear you aren’t, a small part of you will always wonder if they’re right.
+ - I find it hilarious that whenever I light up, Americans look at me like I’m going to urinate on their children.
+ - Today, tonight, tommorrow, forever. I was made for you.
+ - You can’t be fixed. You can’t be saved.
+ - It’s a long story that involves copious quantities of alcohol and Lolita.
+ - Go away. I’m smelly. And you bother me enormously.
+ - And that for every negative event or coincidence that has happened since, imagining that you triggered them, that you made them happen makes you feel like you possess a degree of control that you don’t have.
+ - My brother spent a large portion of the agonizingly slow drive to school banging his forehead on the stearing wheel.
+ - I pointed to a low bowl filled with what purported to be stew, but then Noah said, “Are you going to point, or are you going to eat?” “I just like to know what I’m putting in my mouth before I swallow.” Noah arched an eyebrow, and I wanted to crawl into a hole and die.
+ - I feel something, I do it. I want something, I take it.
+ - He didn’t look like the same person who picked me up this morning. Noah – sarcastic, distant, untouchable Noah – cared. And that made him real.
+ - I looked closely at it for the first time; the charm was just a slim line of silver – half of it hammered into the shape of a feather, the other half a dagger. It was interesting and beautiful; just like him.
+
+58 quotes

@@ -1,0 +1,502 @@
+ - Wilderness is not a luxury but a necessity of the human spirit.
+ - May your trails be crooked, winding, lonesome, dangerous, leading to the most amazing view. May your mountains rise into and above the clouds.
+ - Sentiment without action is the ruin of the soul.
+ - When the situation is hopeless, there’s nothing to worry about.
+ - Anarchism is democracy taken seriously.
+ - Growth for the sake of growth is the ideology of the cancer cell.
+ - A patriot must always be ready to defend his country against his government.
+ - Power is always dangerous. Power attracts the worst and corrupts the best.
+ - Anarchism is not a romantic fable but the hardheaded realization, based on five thousand years of experience, that we cannot entrust the management of our lives to kings, priests, politicians, generals, and county commissioners.
+ - Better a cruel truth than a comfortable delusion.
+ - God bless America. Let’s try to save some of it.
+ - Guns don’t kill people; people kill people. Of course, people with guns kill more people. But that’s only natural. It’s hard. But it’s fair.
+ - The earth, like the sun, like the air, belongs to everyone and to no one.
+ - The idea of wilderness needs no defense, it only needs defenders.
+ - Why is it that the destruction of something created by humans is called vandalism, yet the destruction of something created by God is called development?
+ - A man on foot, on horseback or on a bicycle will see more, feel more, enjoy more in one mile than the motorized tourists can in a hundred miles.
+ - A leader leads from in front, by the power of example. A ruler pushes from behind, by means of the club, the whip, the power of fear.
+ - Anarchism is founded on the observation that since few men are wise enough to rule themselves, even fewer are wise enough to rule others.
+ - Wilderness is not a luxury but a necessity of the human spirit, and as vital to our lives as water and good bread. A civilization which destroys what little remains of the wild, the spare, the original, is cutting itself off from its origins and betraying the principle of civilization itself.
+ - Our modern industrial economy takes a mountain covered with trees, lakes, running streams and transforms it into a mountain of junk, garbage, slime pits, and debris.
+ - The idea of wilderness needs no defense. It only needs more defenders. Remaining silent about the destruction of nature is an endorsement of that destruction.
+ - Life is unfair. And it’s not fair that life is unfair.
+ - This is the most beautiful place on Earth. There are many such places. Every man, every woman, carries in heart and mind the image of the ideal place, the right place, the one true home, known or unknown, actual or visionary.
+ - There is science, logic, reason; there is thought verified by experience. And then there is California.
+ - Balance, that’s the secret. Moderate extremism. The best of both worlds.
+ - If America could be, once again, a nation of self-reliant farmers, craftsmen, hunters, ranchers, and artists, then the rich would have little power to dominate others. Neither to serve nor to rule: That was the American dream.
+ - Paradise for a happy man lies in his own good nature.
+ - The basic science is not physics or mathematics but biology – the study of life. We must learn to think both logically and bio-logically.
+ - The extreme clarity of the desert light is equaled by the extreme individuation of desert life forms. Love flowers best in openness and freedom.
+ - It’s a fool’s life, a rogue’s life, and a good life if you keep laughing all the way to the grave.
+ - Simplicity is always a virtue.
+ - As a confirmed melancholic, I can testify that the best and maybe only antidote for melancholia is action. However, like most melancholics, I suffer also from sloth.
+ - Be loyal to what you love, be true to the earth, fight your enemies with passion and laughter.
+ - Humans were free before the word freedom became necessary.
+ - There is a deep, abiding, unshakable satisfaction in a life of complete failure.
+ - There is beauty, heartbreaking beauty, everywhere.
+ - To die alone, on rock under sun at the brink of the unknown, like a wolf, like a great bird, seems to me very good fortune indeed.
+ - Where all think alike there is little danger of innovation.
+ - We need the possibility of escape as surely as we need hope.
+ - Heaven is home. Utopia is here. Nirvana is now.
+ - Beware of the man who has no enemies.
+ - An empty man is full of himself.
+ - Death is every man’s final critic. To die well you must live bravely.
+ - Only the half-mad are wholly alive.
+ - Poetry – even bad poetry – may be our final hope.
+ - When a man must be afraid to drink freely from his country’s river and streams that country is no longer fit to live in.
+ - The industrial corporation is the natural enemy of nature.
+ - Art, science, philosophy, religion – each offers at best only a crude simplification of actual living experience.
+ - What draws us into the desert is the search for something intimate in the remote.
+ - The longest journey begins with a single step, not with a turn of the ignition key.
+ - I would never betray a friend to serve a cause. Never reject a friend to help an institution. Great nations may fall in ruin before I would sell a friend to save them.
+ - I choose to listen to the river for a while, thinking river thoughts, before joining the night and the stars.
+ - Cold morning on Aztec Peak Fire Lookout. First, build fire in old stove. Second, start coffee. Then, heat up last night’s pork chops and spinach for breakfast. Why not? And why the hell not?
+ - Belief? What do I believe in? I believe in sun. In rock. In the dogma of the sun and the doctrine of the rock. I believe in blood, fire, woman, rivers, eagles, storm, drums, flutes, banjos, and broom-tailed horses...
+ - It is not enough to understand the natural world; the point is to defend and preserve it.
+ - Wilderness. The word itself is music.
+ - Desire, said the Buddha, is the cause of suffering. But without desire, what delight?
+ - The death penalty would be even more effective, as a deterrent, if we executed a few innocent people more often.
+ - The tragedy of modern war is that the young men die fighting each other – instead of their real enemies back home in the capitals.
+ - It is an author’s most solemn obligation to honor truth. If the free and independent writer does not speak truth to power, who will?
+ - The rich can buy everything but health, virtue, friendship, wit, good looks, love, pride, intelligence, grace, and, if you need it, happiness.
+ - The great question of life is not the question of death but the question of life. Fear of death shames us all.
+ - Page, Arizona, Shithead Capital of Coconino County: any town with thirteen churches and only four bars has got an incipient social problem. That town is looking for trouble.
+ - Climbing K2 or floating the Grand Canyon in an inner tube; there are some things one would rather have done than do.
+ - I am an enemy of the State. But isn’t everyone?
+ - If my decomposing carcass helps nourish the roots of a juniper tree or the wings of a vulture – that is immortality enough for me. And as much as anyone deserves.
+ - No tyranny is so irksome as petty tyranny: the officious demands of policemen, government clerks, and electromechanical gadgets.
+ - Is there a God? Who knows? Is there an angry unicorn on the dark side of the moon?
+ - Counterpart to the knee-jerk liberal is the new knee-pad conservative, always groveling before the rich and the powerful.
+ - The true, unacknowledged purpose of capital punishment is to inspire fear and awe – fear and awe of the State.
+ - Mental degeneracy may be caused by lead poisoning. Or by a poor dip in the gene pool.
+ - I hold no preference among flowers, so long as they are wild, free, spontaneous.
+ - A drink a day keeps the shrink away.
+ - Anarchism? You bet your sweet betsy. The only cure for the ills of democracy is more democracy. Much more.
+ - When the biggest, richest, glassiest buildings in town are the banks, you know that town’s in trouble.
+ - Concrete is heavy; iron is hard – but the grass will prevail.
+ - I know my own nation best. That’s why I despise it the most. And know and love my own people, too, the swine. I’m a patriot. A dangerous man.
+ - Nothing could be older than the daily news, nothing deader than yesterday’s newspaper.
+ - You can’t study the darkness by flooding it with light.
+ - Freedom begins between the ears.
+ - There are circumstances in which suicide presents a viable option; a workable alternative; the only sensible solution.
+ - Society is like a stew. If you don’t stir it up every once in a while then a layer of scum floats to the top.
+ - Somewhere in the depths of solitude, beyond wilderness and freedom, lay the trap of madness.
+ - Henry James was our master of periphrasis – the fine art of saying as little as possible in the greatest number of words.
+ - God is a sound people make when they’re too tired to think anymore.
+ - Without courage, all other virtues are useless.
+ - The “terror” of the French Revolution lasted for ten years. The terror that preceded and led to it lasted for a thousand years.
+ - It is not death or dying that is tragic, but rather to have existed without fully participating in life- that is the deepest personal tragedy.
+ - Our job is to record, each in his own way, this world of light and shadow and time that will never come again exactly as it is today.
+ - A crowded society is a restrictive society; an overcrowded society becomes an authoritarian, repressive and murderous society.
+ - Put the park rangers to work. Lazy scheming loafers, they’ve wasted too many years selling tickets at toll booths and sitting behind desks filling out charts and tables.
+ - In the dog-eat-dog economy, the Doberman is boss.
+ - What we need now are heroes and heroines, about a million of them, one brave deed is worth a thousand books. Sentiment without action is the ruin of the soul.
+ - Why do I write? I write to entertain my friends and to exasperate our enemies. To unfold the folded lie, to record to truth of our time, and, of course, to promote esthetic bliss.
+ - I’m a humanist; I’d rather kill a man than a snake.
+ - A life without tragedy would not be worth living.
+ - There’s nothing so obscene and depressing as an American Christmas.
+ - Places: a cold, bleak, lonely day on the rim at Muley Point, Utah. And the heart-cracking loveliness of the blood-smeared, bitter, incomprehensible slaughterhouse of a world...
+ - A cowboy is a farm boy in leather britches and a comical hat.
+ - America My Country: last nation on earth to abolish human slavery; first of all nations to drop the nuclear bomb on our fellow human beings.
+ - King Arthur and his armored goons of the Round Table functioned as the Politburo of a slave state: Camelot. Of all who have written on the Matter of Arthur, from Malory to White, only Mark Twain understood this. But Mark Twain was a great writer.
+ - Jesus don’t walk on water no more; his feet leak.
+ - I am not an atheist but an earthiest. Be true to the earth.
+ - Cowboys make better lovers: Ask any cow.
+ - Roosters: The cry of the male chicken is the most barbaric yawp in all of nature.
+ - Little boys love machines; girls adore horses; grown-up men and women like to walk.
+ - I love America because it is a confused, chaotic mess – and I hope we can keep it this way for at least another thousand years. The permissive society is the free society.
+ - In history-as-politics, the ‘future’ is that vacuum in time waiting to be filled with the antics of statesmen.
+ - How to Avoid Pleurisy: Never make love to a girl named Candy on the tailgate of a half-ton Ford pickup during a chill rain in April out on Grandview Point in San Juan County, Utah.
+ - Paradise is the here and now, the actual, tangible, dogmatically real Earth on which we stand. Yes, God bless America, the Earth upon which we stand.
+ - Baseball is a slow, sluggish game, with frequent and trivial interruptions, offering the spectator many opportunities to reflect at leisure upon the situation on the field: This is what a fan loves most about the game.
+ - A giant thirst is a great joy when quenched in time.
+ - Charity should be spontaneous. Calculated altruism is an affront.
+ - To be alive is to take risks; to be always safe and secure is death.
+ - Of all the featherless beasts, only man, chained by his self-imposed slavery to the clock, denies the elemental fire and proceeds as best he can about his business, suffering quietly, martyr to his madness. Much to learn.
+ - There is no force more potent in the modern world than stupidity fueled by greed.
+ - Capitalism sounds good in theory but it just doesn’t work.
+ - Ah yes, the head is full of books. The hard part is to force them down through the bloodstream and out through the fingers.
+ - I’d sooner exchange ideas with the birds on earth than learn to carry on intergalactic communications with some obscure race of humanoids on a satellite planet from the world of Betelgeuse.
+ - You long for success? Start at the bottom; dig down.
+ - Life is too tragic for sadness: Let us rejoice.
+ - All we have, it seems to me, is the beauty of art and nature and life, and the love which that beauty inspires.
+ - Scientific method: There’s a madness in the method.
+ - A world without huge regions of total wilderness would be a cage; a world without lions and tigers and vultures and snakes and elk and bison would be – will be – a human zoo. A high-tech slum.
+ - This world may be only illusion – but it’s the only illusion we’ve got.
+ - Music begins where words leave off. Music expresses the inexpressible. If there is a Kingdom of Heaven, it lies in music.
+ - Simply because humankind have the power now to meddle or ‘manage’ or ‘exercise stewardship’ in every nook and cranny of the world does not mean that we have a right to do so. Even less, the obligation.
+ - To be everywhere at once is to be nowhere forever, if you ask me.
+ - The ever-rising cost of living: Someday soon, the corporate technicians will be locking meters on our noses and charging us a royalty on the air we breathe.
+ - Women: We cannot love them all. But we must try.
+ - I’m in favor of animal liberation. Why? Because I’m an animal.
+ - Life imitates art – but badly.
+ - In writing, fidelity to fact leads eventually to the poetry of truth.
+ - Quantum mechanics provides us with an approximate, plausible, conjectural explanation of what actually is, or was, or may be taking place inside a cyclotron during a dark night in February.
+ - Great art is indefinable but that’s all right; it exists anyway.
+ - We spend more time working for our labor-saving machines than they do working for us.
+ - In the modern world, all literary art is necessarily political – especially that which pretends not to be.
+ - My computer tells me that in twenty-five years there will be no more computers.
+ - Why the critics, like a flock of ducks, always move in perfect unison: Their authority with the public depends upon an appearance of unanimous agreement. One dissenting voice would shatter the whole fragile structure.
+ - The feminist notion that the whole of human history has been nothing but a vast intricate conspiracy by men to enslave their wives, mothers, daughters, and sisters presents us with an intellectual neurosis for which we do not yet have a name.
+ - The ideal kitchen-sink novel: Throw in everything but the kitchen sink. Then add the kitchen sink.
+ - The world is older and bigger than we are. This is a hard truth for some folks to swallow.
+ - Liberty cannot be guaranteed by law. Nor by any thing else except the resolution of free citizens to defend their liberties.
+ - One single act of defiance against power, against the State that seems omnipotent but is not, transforms and transfigures the human personality. At least for a time. For a while. Perhaps that is enough.
+ - Of course I litter the public highway. Every chance I get. After all, it’s not the beer cans that are ugly; it’s the highway that is ugly.
+ - A man without passion would be like a body without a soul. Or even more grotesque, like a soul without a body.
+ - The love of a man for his wife, his child, of the land where he lives and works, is for me the real meaning of mystical experience.
+ - Nature is indifferent to our love, but never unfaithful.
+ - Life: another day, another dolor.
+ - New Yorkers like to boast that if you can survive in New York, you can survive anywhere. But if you can survive anywhere, why live in New York?
+ - Beware of your wishes: They will probably come true.
+ - Girls, like flowers, bloom but once. But once is enough.
+ - A man without a horse is like a man without a weapon: stunted and naked.
+ - There are some places so beautiful they can make a grown man break down and weep.
+ - All dams are ugly, but the Glen Canyon Dam is sinful ugly.
+ - But of the seven deadly sins, wrath is the healthiest – next only to lust.
+ - Passion, sexual passion, may lead to marriage, but cannot sustain marriage. The purpose of marriage is the raising of children, for which patience, not passion, is the necessary foundation.
+ - Writing on the wall: Will trade three blind crabs for two with no teeth.
+ - The domination of nature leads to the domination of human nature.
+ - Great art is never perfect; perfect art is never great.
+ - Every important change in our society, for the good, at least, has taken place because of popular pressure-pressure from below, from the great mass of people.
+ - Love flowers best in openness and freedom.
+ - Fence straddlers have no balls. In compensation, however, they enjoy a comfortable seat and can retreat swiftly, when danger threatens, to either side of the fence. There is something to be said for every position.
+ - One of the pleasant things about small town life is that everyone, whether rich or poor, liked or disliked, has some kind of a role and place in the community. I never felt that living in a city – as I once did for a couple of years.
+ - What did Jesus say to the headwaiter at the Last Supper? ‘Separate checks, please.’
+ - Alaska is our biggest, buggiest, boggiest state. Texas remains our largest unfrozen state. But mountainous Utah, if ironed out flat, would take up more space on a map than either.
+ - Jack Kerouac, like a sick refrigerator, worked too hard at keeping cool and died on his mama’s lap from alcohol and infantilism.
+ - When guns are outlawed, only the Government will have guns. The Government – and a few outlaws. If that happens, you can count me among the outlaws.
+ - Phoenix, Arizona: an oasis of ugliness in the midst of a beautiful wasteland.
+ - The ready availability of suicide, like sex and alcohol, is one of life’s basic consolations.
+ - Anton Bruckner wrote the same symphony nine times, trying to get it just right. He failed.
+ - A crude meal, no doubt, but the best of all sauces is hunger.
+ - The best argument for Christianity is the Gregorian chant. Listening to that music, one can believe anything – while the music lasts.
+ - Romanticism was more than merely an alternative to a sterile classicism; romanticism made possible, especially in art, a great expansion of the human consciousness.
+ - The national parks belong to everyone. To the people. To all of us. The government keeps saying so and maybe, in this one case at least, the government is telling the truth. Hard to believe, but possible.
+ - One word is worth a thousand pictures. If it’s the right word.
+ - I thought of the wilderness we had left behind us, open to sea and sky, joyous in its plenitude and simplicity, perfect yet vulnerable, unaware of what is coming, defended by nothing, guarded by no one.
+ - Defiance is beautiful. The defiance of power, especially great or overwhelming power, exalts and glorifies the rebel.
+ - Life without music would be an intolerable insult.
+ - To the intelligent man or woman, life appears infinitely mysterious. But the stupid have an answer for every question.
+ - We need wilderness whether or not we ever set foot in it. We need a refuge even though we may never need to go there. We need the possibility of escape as surely as we need hope.
+ - If you’re never ridden a fast horse at a dead run across a desert valley at dawn, be of good cheer: You’ve only missed out on one half of life.
+ - The ideal society can be described, quite simply, as that in which no man has the power of means to coerce others.
+ - I’m tired of doing what I don’t want to do to live the way I don’t want to live.
+ - I despise my own nation most. Because I know it best. Because I still love it, suffering from Hope. For me, that’s patrotism.
+ - Wilderness begins in the human mind.
+ - Homosexuality, like androgyny, might be an instinctive racial response to overpopulation, crowding, and stress. Both flourish when empire reaches its apogee.
+ - Don’t talk to me about other worlds, separate realities, lost continents or invisible realms – I know where I belong. Heaven is home. Utopia is here. Nirvana is now.
+ - The earth is real. Only a fool, milking his cow, denies the cow’s reality.
+ - So I lived alone. The first thing I did was take off my pants. Naturally.
+ - Mexico: where life is cheap, death is rich, and the buzzards are never unhappy.
+ - In the modern technoindustrial culture, it is possible to proceed from infancy into senility without ever knowing manhood.
+ - There is a wine called Easy Days and Mellow Nights, well-known on the outskirts of the Navajo reservation. It is an economical wine, fortified with the best of intentions, and I recommend it to every serious wino.
+ - Life is already too short to waste on speed.
+ - Belief in God? An afterlife? I believe in rock: this apodictic rock beneath my feet.
+ - Salome had but seven veils; the artist has a thousand.
+ - Anarchy works. Italy has proved it for a thousand years.
+ - J. Edgar Hoover, J. Bracken Lee, J. Parnell Thomas, J. Paul Getty – you can always tell a shithead by that initial initial.
+ - A mother’s sorrow is more true, honorable, and beautiful than the detachment of the sage.
+ - Original sin, the true original sin, is the blind destruction for the sake of greed of this natural paradise which lies all around us-if only we were worthy of it.
+ - Our culture runs on coffee and gasoline, the first often tasting like the second.
+ - Wealth should come like manna from heaven, unearned and uncalled for. Money should be like grace – a gift. It is not worth sweating and scheming for.
+ - One thing worse than self-hatred is chiggers.
+ - The very poor are strictly materialistic. It takes money to be a mystic.
+ - What’s the difference between the Lone Ranger and God? There really is a Lone Ranger.
+ - Let us praise the noble turkey vulture: No one envies him; he harms nobody; and he contemplates our little world from a most serene and noble height.
+ - Married couples who quarrel bitterly every day may really need each other as deeply as those who appear to be desperately in love.
+ - Spartacus, like Jesus, was also crucified by the Romans. And for equally good reasons.
+ - Shakespeare wrote great poetry and preposterous plays. Who really cares, for example, which petty tyrant rules Milan? Or who succeeds to the throne of Denmark? Or why the barons ganged up on Richard II?
+ - In metaphysics, the notion that earth and all that’s on it is a mental construct is the product of people who spend their lives inside rooms. It is an indoor philosophy.
+ - Good writing can be defined as having something to say and saying it well. When one has nothing to say, one should remain silent. Silence is always beautiful at such times.
+ - What ideal, immutable Platonic cloud could equal the beauty and perfection of any ordinary everyday cloud floating over, say, Tuba City, Arizona, on a hot day in June?
+ - Some of my ancestors fought in the American Revolution. A few more wore red coats, a few wore blue coats, and the rest wore no coats at all. We never did figure out who won that war.
+ - Despair leads to boredom, electronic games, computer hacking, poetry and other bad habits.
+ - All living things on earth are kindred.
+ - Some people write to please, to soothe, to console. Others to provoke, to challenge, to exasperate and infuriate. I’ve always found the second approach the more pleasing.
+ - Everyone should learn a manual trade: It’s never too late to become an honest person.
+ - Wilderness and motors are incompatible and the former can best be experienced, understood and enjoyed when the machines are left behind where they belong – on the superhighways and in the parking lots, on the reservoirs and in the marinas.
+ - The knowledge that refuge is available, when and if needed, makes the silent inferno of the desert more easily bearable. Mountains complement desert as desert complements city, as wilderness complements and completes civilization.
+ - An economic system which can only expand or expire must be false to all that is human.
+ - All power rests on hierarchy: An army is nothing but a well-organized lynch mob.
+ - Mozart, striving for perfection, wrote the same symphony forty-one times. In his case, it worked. He wrote a perfect symphony.
+ - What is the purpose of the giant sequoia tree? The purpose of the giant sequoia tree is to provide shade for the tiny titmouse.
+ - In all of nature, there is no sound more pleasing than that of a hungry animal at its feed. Unless you are the food.
+ - The only thing left worth saving is wilderness.
+ - I am hopeful, though not full of hope, and the only reason I don’t believe in happy endings is because I don’t believe in endings.
+ - In the American Southwest, I began a lifelong love affair with a pile of rock.
+ - Running the big rapids is like sex: half the fun lies in the anticipation. Two thirds of the thrill with the approach. The remainder is only ecstasy-or darkness.
+ - Money confers the power to command the labor of others. Love of money is love of power. And love of power is the root of evil.
+ - Every moment is precious. And precarious.
+ - Appearance versus reality? Appearance is reality, God damn it!
+ - What is truth? I don’t know and I’m sorry I brought it up.
+ - We live in a society in which it is normal to be sick; and sick to be abnormal.
+ - Instant communication is not communication at all but merely a frantic, trivial, nerve-wracking bombardment of cliches, threats, fads, fashions, gibberish and advertising.
+ - A writer must be hard to live with: when not working he is miserable, and when he is working he is obsessed.
+ - There comes a point, in literary objectivity, when the author’s self- effacement is hard to distinguish from moral cowardice.
+ - A journey into the wilderness is the freest, cheapest, most nonprivileged of pleasures. Anyone with two legs and the price of a pair of army surplus combat boots may enter.
+ - My books always make the best-seller lists in Wolf Hole, Arizona, and Hanksville, Utah.
+ - High technology has done us one great service: It has retaught us the delight of performing simple and primordial tasks – chopping wood, building a fire, drawing water from a spring.
+ - In the land of bleating sheep and braying jackasses, one brave and honest man is bound to create a scandal.
+ - The sense of justice springs from self-respect; both are coeval with our birth. Children are born with an innate sense of justice; it usually takes twelve years of public schooling and four more years of college to beat it out of them.
+ - If wilderness is outlawed, only outlaws can save wilderness.
+ - We’re all undesirable elements from somebody’s point of view.
+ - In both metaphysics and art, honesty is the best policy. Keep it clean.
+ - Filling out the form: Race? Human. Religion? Paiute. Occupation? Criminal anarchy. Hobbies? Survival with honor.
+ - As between the skulking and furtive poacher, who hunts for the sake of meat, and the honest gentleman shooter, who kills for the pleasure of sport, I find the former a higher type of humanity.
+ - Are people more important than the grizzly bear? Only from the point of view of some people.
+ - Rocks, like louseworts and snail darters and pupfish and 3rd-world black, lesbian, militant poets, have rights, too. Especially the right to exist.
+ - The missionaries go forth to Christianize the savages – as if the savages weren’t dangerous enough already.
+ - In everything but brains and brawn, women are vastly superior to men. A different race.
+ - Narrow-minded provincialism: Sad to say but true – I am more interested in the mountain lions of Utah, the wild pigs of Arizona, than I am in the fate of all the Arabs of Araby, all the Wogs of Hindustan, all the Ethiopes of Abyssinia...
+ - We should restore the practice of dueling. It might improve manners around here.
+ - Saving the world is only a hobby. Most of the time I do nothing.
+ - We are preoccupied with time. If we could learn to love space as deeply as we are now obsessed with time, we might discover a new meaning in the phrase to live like men.
+ - A city man is a home anywhere, for all big cities are much alike. But a country man has a place where he belongs, where he always returns, and where, when the time comes, he is willing to die.
+ - A good writer must have more than vin rose in his veins, use more than Chablis for ink.
+ - The function of an ideal is not to be realized but, like that of the North Star, to serve as a guiding point.
+ - The artist’s job? To be a miracle worker: make the blind see, the dull feel, the dead to live...
+ - I would give ten years off the beginning of my life to see, only once, Tyrannosaurus rex come rearing up from the elms of Central Park, a Morgan police horse screaming in its jaws. We can never have enough of nature.
+ - I once sat on the rim of a mesa above the Rio Grande for three days and nights, trying to have a vision. I got hungry and saw God in the form of a beef pie.
+ - The axiom of conditioned repetition, like the binomial theorem, is nothing but a piece of insolence.
+ - Government should be weak, amateurish and ridiculous. At present, it fulfills only a third of the role.
+ - In social institutions, the whole is always less than the sum of its parts. There will never be a state as good as its people, or a church worthy of its congregation, or a university equal to its faculty and students.
+ - By the age of forty, a man is responsible for his face. And his fate.
+ - Motherhood is an essential, difficult, and full-time job. Women who do not wish to be mothers should not have babies.
+ - It’s all still there in heart and soul. The walk, the hills, the sky, the solitary pain and pleasure-they will grow larger, sweeter, lovelier in the days and years to come.
+ - I come more and more to the conclusion that wilderness, in America or anywhere else, is the only thing left that is worth saving.
+ - Humankind will not be free until the last Kremlin commissar is strangled with the entrails of the last Pentagon chief of staff.
+ - Life is hard? True – but let’s love it anyhow, though it breaks every bone in our bodies.
+ - Football is a game for trained apes. That, in fact, is what most of the players are – retarded gorillas wearing helmets and uniforms. The only thing more debased is the surrounding mob of drunken monkeys howling the gorillas on.
+ - Nothing can excel a few days in jail for giving a young man or woman a quick education in the basis of industrial society.
+ - If you feel that you must suffer, then plan your suffering carefully – as you choose your dreams, as you conceive your ancestors.
+ - I wish to be an inspector of volcanoes. I want to study cloud formations and memorize the wind and learn by heart the habits of the ponderosa pine.
+ - Longevity, like intelligence and good looks and health and strength of character, is largely a matter of genetic heritage. Choose your parents with care.
+ - Representative government has broken down. Our politicians represent not the people who vote for them but the commercial interests who finance their election campaigns. We have the best politicians that money can buy.
+ - My Aunt Ida at age eighty-three: ‘Yeah,’ she said, ‘I’ll be dead pretty soon. And frankly, I don’t give a damn.’
+ - If the end does not justify the means – what can?
+ - The New Age orgy: The flesh was willing but the spirit’s weak.
+ - I, too, believe in fidelity. But how can I be true to one woman without being false to all the others?
+ - Tee Vee football: one team wins, one team loses – they tie – who cares? And why?
+ - I’ve wrecked and ravaged half my life in the pursuit of women, and I suffer the pangs of about seventeen regrets – the seventeen who got away.
+ - Those who dream of the joys of living in a space colony should live in a space colony.
+ - Beauty is only skin deep; ugliness goes all the way through.
+ - We know this apodictic rock beneath our feet. That dogmatic sun above our heads. The world of dreams, the agony of love and the foresight of death. That is all we know. And all we need to know? Challenge that statement.
+ - The most striking thing about the rich is the gracious democracy of their manners – and the crude vulgarity of their way of life.
+ - Generally speaking, it’s a matter of only mild intellectual interest to me whether the earth goes around the sun or the sun goes around the earth. In fact, I don’t care a rat’s ass either way.
+ - Terrorism: deadly violence against humans and other living things, usually conducted by government against its own people.
+ - Critics are like ticks on a dog or tits on a motor: ornamental but dysfunctional.
+ - If it’s knowledge and wisdom you want, then seek out the company of those who do real work for an honest purpose.
+ - Suicide: Don’t knock it if you ain’t tried it.
+ - My own ambition, my deepest and truest ambition, is to find within myself someday, somehow, the ability to do likewise, to do NOTHING – and find it enough.
+ - All governments require enemy governments.
+ - The rebel is doomed to a violent death. The rest of us can look forward to sedated expiration in a coma inside an oxygen tent, with tubes inserted in every bodily orifice.
+ - In the Soviet Union, government controls industry. In the United States, industry controls government. That is the principal structural difference between the two great oligarchies of our time.
+ - You can’t belay a man who’s falling in love.
+ - A house built on greed cannot long endure.
+ - Love implies anger. The man who is angered by nothing cares about nothing.
+ - I wouldn’t trade a good horse for the best Rolls-Royce ever made – unless I could trade the Rolls for two good horses.
+ - It is the difference between men and women, not the sameness, that creates the tension and the delight.
+ - From the point of view of a tapeworm, man was created by God to serve the appetite of the tapeworm.
+ - A rancher is a farmer who farms the public lands with a herd of four-legged lawn mowers.
+ - As war and government prove, insanity is the most contagious of diseases.
+ - Grown men do not need leaders.
+ - The greater your dreams, the more terrible your nightmares.
+ - I took the other road, all right, but only because it was the easy road for me, the way I wanted to go. If I’ve encountered some unnecessary resistance that’s because most of the traffic is going the other way.
+ - You cannot reshape human nature without mutilating human beings.
+ - Why must love always be accompanied – sooner or later – by sorrow and pain? Why not? Because pure bliss is for pure idiots.
+ - One day in Dipstick, Nebraska, or Landfill, Oklahoma, is worth more to me than an eternity in Dante’s plastic Paradiso, or Yeats’s gold-plated Byzantium.
+ - Only a fool would leave the enjoyment of rainbows to the opticians. Or give the science of optics the last word on the matter.
+ - In a nation of sheep, one brave man forms a majority.
+ - If, as some say, evil lies in the hearts and not the institutions of men, then there’s hardly a distinction worth making between, say, Hitler’s Germany and Rebecca’s Sunnybrook Farm.
+ - Democracy – rule by the people – sounds like a fine thing; we should try it sometime in America.
+ - I am happy to be a regional writer. My region is the American West, old Mexico, West Virginia, New York, Europe, Australia, the human heart, and the male groin.
+ - There has never been a day in my life when I was not in love.
+ - No man-made structure in all of American history has been hated so much, by so many, for so long, with such good reason, as that Glen Canyon Dam at Page, Arizona, Shithead Capital of Coconino County.
+ - There comes a time in the life of us all when we must lay aside our books or put down our tools and leave our place of work and walk forth on the road to meet the enemy face-to-face. Once and for all and at last.
+ - A critic is to an author as a fungus to an oak.
+ - Nature, like Miamonides said, is mainly a good place to throw beer cans on Sunday afternoons.
+ - Where all pretend to be thinking alike, it’s likely that no one is thinking at all.
+ - If there’s anything I hate, it’s the vibraphone. And the cha-cha-cha. And Latin rhythms generally.
+ - The dog’s life is a good life, for a dog.
+ - We live in the kind of world where courage is the most essential of virtues; without courage, the other virtues are useless.
+ - Those who fear death most are those who enjoy life least.
+ - Going to bed with Gertrude Stein, Jeane Kirkpatrick, Susan Sontag, or Margaret Thatcher: There are some things one prefers neither to do nor to have done.
+ - In the end, for all our differences and conflicts, most women and men share the same food, work, shelter, bed, life, joy, anguish, and fate. We need each other.
+ - The nuclear bomb took all the fun out of war.
+ - Doctrines like Christianity or Islam or Marxism require unanimity of belief. One dissenter casts doubt on the creed of millions.
+ - Music is a savage art, a measured madness.
+ - The gurus come from the sickliest nation on earth to tell us how to live. And we pay them for it.
+ - I stand for what I stand on.
+ - There are no vacant lots in nature.
+ - A pretty girl can do no wrong.
+ - One thing more dangerous than getting between a grizzly sow and her cub is getting between a businessman and a dollar bill.
+ - The Latino military fare badly when they stumble into war with the gringos. But in the torture, murder, and massacre of their own people, they have always performed with brilliance and elan.
+ - Has joy any survival value in the operations of evolution? I suspect that it does; I suspect that the morose and fearful are doomed to quick extinction. Where there is no joy there can be no courage; and without courage all other virtues are useless.
+ - Nobody has so many friends that he can afford to lose one.
+ - In marriage, the occasional catastrophic crisis is easier to manage than the daily routine.
+ - If you feel that you’re not ready to die, never fear; nature will give you complete and adequate assistance when the time comes.
+ - The hawk’s cry is as sharp as its beak.
+ - Tofu and futons. The adepts of Orientalism seem to spend most of their lives reclining. They can’t quite summon the energy to crawl up onto a chair. Even their Yogic exercises are carried out in a prone or sitting position.
+ - It seems clear at last that our love for the natural world-Nature-is the only means by which we can requite God’s obvious love for it.
+ - Man was created to complete the horse.
+ - The distrust of wit is the beginning of tyranny.
+ - Grand opera is a form of musical entertainment for people who hate music.
+ - Preacher to me: ‘A dollar for the Lord, brother?’ Me to preacher: ‘That’s all right, I’m headed his way. I’ll give it to him when I see him.’
+ - Every man should be his own guru; every woman her own gurette.
+ - Proust again: One can only wish that a man with such powers of total recall had led a less tedious life, moved among somewhat livelier circles...
+ - There is a fine art to making enemies and it requires diligent cultivation. It’s not as easy as it looks.
+ - Truth is merely common sense, say the naive realist. Really? Then where, precisely, is the location of – a rainbow? In the air? In the eye? In between? Or somewhere else?
+ - What our economists call a depressed area almost always turns out to be a cleaner, freer, more livable place than most.
+ - How could anything non-controversial be of intellectual interest to grown-ups?
+ - We know so very little about this strange planet we live on, this haunted world where all answers lead only to more mystery.
+ - My cousin Elroy spent seven years as an IBM taper staring at THINK signs on the walls before he finally got a good idea: He quit.
+ - When the situation is desperate, it is too late to be serious. Be playful.
+ - A cowboy is a hired hand on the middle of a horse contemplating the hind end of a cow.
+ - Metaphysics is a cobweb that the mind weaves around things.
+ - I was once invited to take part in a heroic, possibly fatal enterprise, but I declined, mainly on account of sloth.
+ - And if the computer gives you any back talk, pour some well-sugared office coffee into its evil little silicon brain.
+ - The absurd vanity of metaphysicians who like to imagine that they create the world by thinking about it.
+ - The purpose and function of government is not to preside over change but to prevent change. By political methods when unavoidable, by violence when convenient.
+ - There are two kinds of people I cannot abide: bigots and any well-organized ethnic group.
+ - Our big social institutions do not reflect human nature; they distort it.
+ - The tragic sense of life: our heroic acceptance of the suffering of others.
+ - Through logic and inference we can prove anything. Therefore, logic and inference, in contrast to ordinary daily living experience, are secondary instruments of knowledge. Probably tertiary.
+ - The best thing about graduating from the university was that I finally had time to sit on a log and read a good book.
+ - To the question: Wilderness, who needs it? Doc would say: Because we like the taste of freedom, comrades. Because we like the smell of danger. But, thought Hayduke, what about the smell of fear, Dad?
+ - Only a fool is astonished by the foolishness of mankind.
+ - Capitalism: Nothing so mean could be right. Greed is the ugliest of the capital sins.
+ - The result of this bestial lust is an indiscriminate and promiscuous splaying of all of my energies- wanting all, I accomplish nothing; desiring everything, I satisfy nothing and am satisfied by nothing.
+ - The world is full of burled and gnarly knobs on which you can hang a metaphysical system. If you must.
+ - The best American writers have come from the hinterlands – Mark Twain, Theodore Dreiser, Jack London, Hemingway, Faulkner, Wolfe, Steinbeck. Most of them never even went to college.
+ - Belief in the supernatural reflects a failure of the imagination.
+ - Is it possible to grow wiser without knowing it? One hopes so. We all hope so.
+ - Industrialism, whether of the capitalist or socialist coloration, is the basic tyrant of the modern age.
+ - Why administrators are respected and schoolteachers are not: An administrator is paid a lot for doing very little, while a teacher is paid very little for doing a lot.
+ - Most academic economists know nothing of economy. In fact, they know little of anything.
+ - Might does not make right but it sure makes what is.
+ - It’s true: Every time you kill an elk, you’re saving some cow’s life.
+ - I would like to evoke the sense of wonder and magic in the reader but without invoking the mystical, the supernatural or the transcendent.
+ - Whenever I see a photograph of some sportsman grinning over his kill, I am always impressed by the striking moral and esthetic superiority of the dead animal to the live one.
+ - What is reason? Knowledge informed by sympathy, intelligence in the arms of love.
+ - Civilization, like an airplane in flight, survives only as it keeps going forward.
+ - So I write mainly for the fun of it, the hell of it, the duty of it. I enjoy writing and will probably be a scribbler on my dying day, sprawled on some stony trail halfway between two dry waterholes.
+ - It may be true that there are no atheists in foxholes. But you don’t find many Christians there, either. Or, about as many of one as the other.
+ - Literary critics, like a herd of cows or a school of fish, always face in the same direction, obeying that love for unity that every critic requires.
+ - My sole literary ambition is to write one good novel, then retire to my hut in the desert, assume the lotus position, compose my mind and senses, and sink into meditation, contemplating my novel.
+ - I’m a fastidious sort of fellow, fond of watermelon and buckbrush nuts.
+ - The world of employer and employee, like that of master and slave, debases both.
+ - Not all questions can be answered.
+ - I have written much about many good places. But the best places of all, I have never mentioned.
+ - Reincarnation? There is such a thing. What could be more Mozartian than the Nutcracker Suite?
+ - Though I’ve lived in the rural West most of my life, I never once fell in love with a horse. Not once. Neither end.
+ - Nothing could be more reckless than to base one’s moral philosophy on the latest pronouncements of science.
+ - The only thing worse than a knee-jerk liberal is a knee- pad conservative...
+ - One can imagine a sane, healthy, cheerful human society based on no more than the principles of common sense, as validated each day by work, play, and living experience. But this remains the most utopian and fantastic of ideals.
+ - Recorded history is largely an account of the crimes and disasters committed by banal little men at the levers of imperial machines.
+ - A man’s duty? To be ready – with rifle or rood – to defend his home when the showdown comes.
+ - If industrial man continues to multiply his numbers and expand his operations he will succeed in his apparent intention, to seal himself off from the natural and isolate himself within a synthetic prison of his own making.
+ - In art as in life, form and subject, body and soul, are one.
+ - The consolation of reading biography: Most great men have led lives even more miserable than our own.
+ - In the world of words, one of my best-loved tribes is the diatribe.
+ - How can I be so evil? It ain’t easy.
+ - Though men now possess the power to dominate and exploit every corner of the natural world, nothing in that fact implies that they have the right or the need to do so.
+ - How did Haydn and Mozart produce such vast quantities of formally perfect art? They worked from a perfect formula. In music, Beethoven was the Great Emancipator.
+ - Science transcends mere politics. As recent history demonstrates, scientists are as willing to work for a Tojo, a Hitler, or a Stalin as for the free nations of the West.
+ - Pure science is a myth: Both mathematical theoreticians like Albert Einstein and practical crackpots like Henry Ford dealt with different aspects of the same world.
+ - By the age of eighteen, a human has acquired enough joy and heartache to provide the food of reflection for a century.
+ - War? The one war I’d be happy to join is the war against officers.
+ - The night I filled an inside straight: Even a blind hog’s gonna root up an acorn once in a while.
+ - All revolutions have failed? Perhaps. But rebellion for good cause is self- justifying – a good in itself. Rebellion transforms slaves into human beings, if only for an hour.
+ - Chastity is more a state of mind than of anatomy.
+ - The rifle and handgun are ‘equalizers’ – the weapons of a democracy. Tanks and bombers represent dictatorship.
+ - Most of us lead lives of chaotic improvisation from day to day, bawling for peace while plunging grimly into fresh disorders.
+ - Of all bores, the worst is the sparkling bore.
+ - No man is wise enough to be another man’s master. Each man’s as good as the next – if not a damn sight better.
+ - A true libertarian supports free enterprise, opposes big business; supports local self-government, opposes the nation-state; supports the National Rifle Association, opposes the Pentagon.
+ - For this world that men have made, none of us is bad enough. For the world that made us, none is good enough.
+ - We judge individual man and women as we do nations and races – by the character of their achievement and by their achievement of character.
+ - Do I believe in ghosts? I believe in the ghosts that haunt the human mind.
+ - Truth is always the enemy of power. And power the enemy of truth.
+ - The one great gift to humankind from our nuclear physicists has been the nuclear bomb. How can we ever thank them?
+ - Lightning streaks like gunfire through the clouds, volleys of thunder shake the air.
+ - When riding my old Harley a ninety per at midnight down the Via Roma in Naples, I kept one consolation firmly in mind: If anything goes wrong, I’ll never have time to regret it.
+ - Anywhere, anytime, I’d sacrifice the finest nuance for a laugh, the most elegant trope for a smile.
+ - Except for the scale of the operation, there was nothing unusual about Hitler’s massacre of the Jews. Genocide’s an old tradition, as human as mother love or cherry pie.
+ - Girls: I never wanted them all. Just all the ones I wanted.
+ - That which today calls itself science gives us more and more information, and indigestible glut of information, and less and less understanding.
+ - A good book is a kind of paper club, serving to rouse the slumbrous and to silence the obtuse.
+ - The rich are not very nice. That’s why they’re rich.
+ - I intend to be good for the rest of my natural life – if I live that long.
+ - Reply to Plato: I seen horses I seen cows I haint never yet seen horsiness nor that there bovinity neither.
+ - A good philosopher is one who does not take ideas seriously.
+ - Whatever we cannot understand easily we call God; this saves wear and tear on the brain tissues.
+ - I now find the most marvelous things in the everyday, the ordinary, the common, the simple and tangible.
+ - Music clouds the intellect but clarifies the heart.
+ - If the world is irrational, we can never know it – either it or its irrationality.
+ - The Proustian aquarium: grotesque and gorgeous fish drifting with languid fins through a subaqueous medium of pale violet polluted ink.
+ - Most of what we call the classics of world literature suggest artifacts in a wax museum. We have to hire and pay professors to get them read and talked about.
+ - For women, the sexual act is a means to a higher end. For a man, it is an end in itself.
+ - A world without open country would be universal jail.
+ - In America, as elsewhere, the general irritability level keeps rising.
+ - Baseball serves as a good model for democracy in action: Every player is equally important and each has a chance to be a hero.
+ - When a man’s best friend is his dog, that dog has a problem.
+ - I have been a lucky man. But someone has to be.
+ - Every writer has his favorite coterie of enemies: Mine is the East Coast literati – those prep school playmates and their Ivy League colleagues.
+ - My own best books have not been published. In fact, they’ve not even been written yet.
+ - What good is a Bill of Rights that does not include the right to play, to wander, to explore, the right to stillness and solitude, to discovery and physical freedom?
+ - Too many American authors have a servile streak where their backbone should be. Where’s our latest Nobel laureate? More than likely you’ll find him in the Rose Garden kissing the First Lady’s foot.
+ - Hierarchical institutions are like giant bulldozers – obedient to the whim of any fool who takes the controls.
+ - Platitude: a statement that denies by implication what it explicitly affirms.
+ - When the philosopher’s argument becomes tedious, complicated, and opaque, it is usually a sign that he is attempting to prove as true to the intellect what is plainly false to common sense.
+ - A society that feels itself too poor to afford the preservation of wilderness is not worthy of the name civilization.
+ - There has never yet been a human society worthy of the name of civilization. Civilization remains a remote ideal.
+ - Any hack can safely rail away at foreign powers beyond the sea; but a good writer is a critic of the society he lives in.
+ - All governments need enemies. How else to justify their existence?
+ - England has never enjoyed a genuine social revolution. Maybe that’s what’s wrong with that dear, tepid, vapid, insipid, stuffy, little country.
+ - It is true that some of my fiction was based on actual events. But the events took place after the fiction was written.
+ - Our ‘neoconservatives’ are neither new nor conservative, but old as Bablyon and evil as Hell.
+ - Congress is always willing to appropriate money for more and bigger paved roads, anywhere – particularly if they form loops.
+ - There are only two kinds of books – good books and the others. The good are winnowed from the bad through the democracy of time.
+ - There is a kind of poetry in simple fact.
+ - There is no trajectory so pathetic as that of an artist in decline.
+ - It is not the writer’s task to answer questions but to question answers. To be impertinent, insolent, and, if necessary, subversive.
+ - The feminists have a legitimate grievance. But so does everyone else.
+ - Men love their ideas more than their lives. And the more preposterous the idea, the more eager they are to die for it. And to kill for it.
+ - The more fantastic an ideology or theology, the more fanatic its adherents.
+ - Every man has two vocations: his own and philosophy.
+ - A genius is always on duty; even his dreams are tax deductible.
+ - As Mark Twain said, ‘I love Wagner – if only they’d cut out all that damned singing!’
+ - All forms of government are pernicious, including good government.
+ - I must confess that I know nothing whatsoever about true underlying reality, never having met any.
+ - Writers should avoid the academy. When a writer begins to accept pay for talking about words, we know what he will produce soon: nothing but words.
+ - I have found through trial and error that I work best under duress. In fact I work only under duress.
+ - I would not sacrifice a single living mesquite tree for any book ever written. One square mile of living desert is worth a hundred ‘great books’ – and one brave deed is worth a thousand.
+ - The best people, like the best wines, come from the hills.
+ - Most new books drop immediately into the oblivion they so richly deserve.
+ - Books are like eggs – best when fresh.
+ - When the writer has done his best, he then should proceed to do his second best.
+ - A true conservative must necessarily be a conservationalist.
+ - There has never been an ‘original’ sin: each is quite banal.
+ - If we had the power of ten Shakespeares or a dozen Mozarts, we could not produce anything half so marvelous as one ordinary human child.
+ - Life is cruel? Compared to what?
+ - Some lives are tragic, some ridiculous. Most are both at once.
+ - Christian theology: nothing so grotesque could possibly be true.
+ - Readers, not critics, are the people who determine a book’s eventual fate.
+ - Women who love only women may have a good point.
+ - Once upon a time, I dreamed of becoming a great man. Later, a good man. Now, finally, I find it difficult enough and honor enough to be – a man.
+ - Susan Sontag: What she really wanted, throughout her career, was to grow up to be a Frenchman.
+ - Who needs astrology? The wise man gets by on fortune cookies.
+ - The author: an imaginary person who writes real books.
+ - But it is a writer’s duty to write and speak and record the truth, always the truth, no matter whom may be offended.
+ - No man likes to be smoked out of his hole in February.
+ - I would prefer to write about everything; what else is there? But one must be selective.
+ - The writer concerned more with technique than truth becomes a technician, not an artist.
+ - It is not an easy thing to inflate a dog.
+ - Vaughan Telecom installers and contractors ensure the highest quality service for data and network cabling in Toronto and GTA area.
+ - I’ve never yet read a review of one of my own books that I couldn’t have written much better myself.
+ - Orthodoxy is a relaxation of the mind accompanied by a stiffening of the heart.
+ - How long does it take to write a good book? All of the years that you’ve lived.
+ - Most of the literary classics are worth reading, if you’ve nothing better to do.
+
+500 quotes

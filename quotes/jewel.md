@@ -1,0 +1,143 @@
+ - I’m half alive but I feel mostly dead.
+ - In the end only kindness matters.
+ - I enjoy hard work; I love setting goals and achieving them.
+ - Only kindness matters. We are God’s hands.
+ - Who will save your soul, if you won’t save your own?
+ - Reality is what you believe it to be. It’s what you put your thought and energy into, because your hands physically manifest thought. So your world becomes what you feel and what you think.
+ - We are loved beyond our ability to comprehend.
+ - Self love is a great recurring theme, the headwaters that feed my ability to be the best version of myself in every other aspect of my life. Self worth sets the standard that life meets.
+ - If I could tell the world just one thing, it would be that we’re all OK.
+ - We can’t underestimate the value of silence. We need to create ourselves, need to spend time alone. If you don’t, you risk not knowing yourself and not realizing your dreams.
+ - Live your life with love and bravery and you shall lead a life uncommon.
+ - No longer lend your strength to that which you wish to be free from.
+ - All things change. Cultivate flexibility rather than perfection.
+ - I try to give myself permission to be a work-in-progress and not have everything figured out at once. It’s more manageable and takes some of the pressure off of feeling like I have to have everything right all the time.
+ - I know, you love me and soon you will see, you were meant for me and I was meant for you.
+ - The chief significance of Alpha Phi Alpha lies in its purpose to stimulate, develop, and cement an intelligent, trained leadership in the unending fight for freedom, equality and fraternity. Our task is endless.
+ - I like pressure. If I am not on the edge of failure, I’m not being sufficiently challenged.
+ - Don’t be made useless or idle with despair. Gather yourself around your strength for light does the darkness most fear.
+ - To shut down the ability to feel pain means you shut down all emotions, joy included. It makes our hearts feel small, it robs us of our joy, and really keeps us no safer.
+ - Sometimes the tide is just out. But it always comes back in again. In times of severe distress, we tend to get tunnel vision and think this feeling will last forever. It will not.
+ - Love bravely, live bravely, be courageous; there’s really nothing to lose.
+ - A good love is delicious, you can’t get enough too soon.
+ - My life has been full of struggles – coming from a troubled home, moving out when I was fifteen, ending up homeless by eighteen. The one thing I always knew was being jaded and bitter was equal to letting life win.
+ - I guess I’m a Gemini through and through, but I’m mercurial. I get bored doing the same things.
+ - Faith and hope are the antidote. Stay actively involved in manifesting your dreams and the world created will be one we all want to live in.
+ - Self worth sets the standard that life meets.
+ - I have always been a workaholic.
+ - Dreams last so long, even after you’re gone.
+ - Worry is wasteful and useless in times like these.
+ - It’s just an inch from me to you depending on what map you use.
+ - Through Love and through Beauty, we achieve immortality.
+ - Writing with privacy is paramount. You must feel free to admit to yourself your deepest, darkest secrets and true feelings.
+ - Suffering is everywhere. Don’t ever think it isn’t. So are miracles. Don’t ever think they aren’t.
+ - In silence you hear who you are becoming. You create yourself.
+ - It’s important to cultivate a tolerance and patience with uncomfortable feelings. It’s best to feel them.
+ - Excuse me, guess I’ve mistaken you for somebody else, somebody who gave a damn, somebody more like myself.
+ - Words can crush things that are unseen.
+ - Love bravely, live bravely, be courageous, there’s really nothing to lose. There’s no wrong you can’t make right again, so be kinder to yourself, you know, have fun, take chances. There’s no bounds.
+ - I don’t exist without writing.
+ - I’ve always been a workhorse, and I’ve been supporting myself since I was 15.
+ - My intention for my life is to stay centered, and from that intention come my priorities: my son, my family, my job, my self. That then informs what kind of work I can take on. It’s a balancing act, but a fun one.
+ - I’m having a bad day. I am not size six. My legs are not skinny as sticks, and dammit, someone’s got to pay. I’m afraid that I can’t satisfy myself and that my happiness depends on someone else. I feel weak, so you’re gonna take the fall. You’re so shallow.
+ - If you love somebody; You better let it out; Don’t hold it back; While you’re trying to figure it out; Cause the only real pain a heart can ever know; Is the sorrow of regret; When you don’t let your feelings show. So, did you say it, Did you mean it?
+ - Another day, another dollar, another war, another tower Went up where the homeless had their home.
+ - Well in case you failed to notice, In case you failed to see, This is my heart bleeding before you, This is me down on my knees These foolish games are tearing me apart Your thoughtless words are breaking my heart You’re breaking my heart.
+ - But maybe if we are surrounded in beauty Someday we will become what we see.
+ - I’d rather see the world from a different angle.
+ - Show me one man who knows his own heart, to him I shall belong.
+ - I want love to be simple. I want to trust without thinking. I want to be generous with my affection and patience and love unconditionally. It is easier to love a person with their flaws than to weed through them. I want to love the whole person, not parts; and this is how I want to be loved.
+ - It’s been too many nights of being with to now be suddenly without.
+ - Maybe I could have loved you better. Maybe you should have loved me more. Maybe our hearts were just next in line. Maybe everything breaks sometime.
+ - What we call human nature, is actually human habit.
+ - I have this theory that if we’re told we’re bad, then that’s the only idea we’ll ever have. Maybe if we are surrounded in beauty, one day we will become what we see. Anyone can start a conflict. It’s harder yet to disregard it. I’d rather see the world from another angle. We are everyday angels...
+ - I would always encourage people of any age not to be so quick to follow other people’s truths but to search and follow your own moral code and live by your own integrity, and mostly just be brave.
+ - I have been told for so many years that you can’t be smart and sexy. I started to think, “Well, why the heck can’t you be both?”
+ - We must all work together to end youth homelessness in America.
+ - I’m becoming more and more myself with time. I guess that’s what grace is. The refinement of your soul through time.
+ - I don’t feel like I’ve changed as much as radio formats have changed.
+ - Cynicism isn’t smarter, it’s only safer. There’s nothing fluffy about optimism.
+ - It’s like a garden: Whatever you water the most will do the best. At some point, you decide whether you’ll water your career or your relationship more.
+ - Being part of the natural world reminds me that innocence isn’t ever lost completely; we just need to maintain our goodness to regain it.
+ - I’m the classic absent-minded professor: I’m very focused on something, and meanwhile, I’ve left the refrigerator door open for hours.
+ - I’m a Gemini and I have a lot of different moods. Sometimes I’m very serious and introspective and pensive, but other times I’m completely goofy and girlie. So, I like my songs to cover all my moods.
+ - I want my whole life to be a great work of art, not just my art. And that means paying attention to my entire life and trying to make sure my whole life is balanced.
+ - Like every girl, I felt amazing pressure to look like the popular girls, but no one told me the popular girls were all air brushed in magazines.
+ - I have hundreds and hundreds of songs waiting to get on albums, but I don’t know about the three-month radio tours and if I’ll be interested in that. I haven’t figured it out, but I will definitely be doing music, whether it is independent or with a major record label.
+ - Sharing lets us feel less isolated and puts us on a path of being connected. At the end of the day, that’s what we all want.
+ - I love vulnerability. It’s what keeps me soft and from becoming emotionally calcified.
+ - Telling the truth to yourself and someone you can trust are great ways to help elevate your whole emotional quality.
+ - Love is a flame neither timid nor tame.
+ - On my own I generally have very messy hair, wear jeans and sneakers.
+ - For now I’m just enjoying being a mom. I don’t want to be more famous and more rich. I want to be a good mom.
+ - Support for shelters and transitional living and housing programs is necessary if we are going to change the landscape for homeless boys and girls in America.
+ - I was raised in a household where I read Nietzsche and Dostoyevsky and Kant, and I was never taught that my mind was feminine. I’m aware that my body is.
+ - You have to be an ally in a difficult time and not turn on yourself with self-shaming thoughts, which makes facing pain intolerable.
+ - I get bored very easily. I have a voracious appetite and I do not feel alive if I’m repeating something I’m good at. So I’m always looking for new challenges.
+ - I’ve always had a love for poetry and when I got signed to a record label I thought, ‘How odd that I’m doing a record before a book of poetry,’
+ - I didn’t mean to be a songwriter; I just was writing for fun, you have all day to do it. I was homeless so that’s all I had to do.
+ - I get really bored if I don’t have more than one thing going on.
+ - I have a life that I enjoy; I try and value the things that I think are worth valuing and everything else is icing. You know, it is a kick to go down the red carpet in that dress and then you go back home.
+ - I used to love reading when I was little, and then it became difficult and I didn’t understand why. I thought, what a bummer, my passion all drained out of me. So when I found out I had dyslexia, it was like, oh, that’s what it was.
+ - We must demand more not from each other, but more from ourselves.
+ - I have a two-year-old boy. Being his mom feels like I have a present I get to spend the rest of my life opening.
+ - People living their lives for you on TV; They say they’re better than you, and you agree.
+ - I am most alive when I let myself be touched by the fingers of life.
+ - I was really inspired while I was pregnant and I wrote a whole album for my baby. I wanted to write a kids album that didn’t annoy parents. I used The Beatles ‘Rocky Raccoon’ as sort of a starting place for my writing.
+ - Lots of people have gone from public housing to do great things in the world and have a tremendous sense of duty to their fellow man because of it.
+ - Life is seductive, yet so few allow themselves to be seduced.
+ - I’m trying to be in the moment and really enjoy my pregnancy. I feel really lucky.
+ - Optimisn is a choice. Cynicism isnt smarter – it’s just safer.
+ - Writing is a really good first step toward that goal of knowing yourself.
+ - Amazingly, I’ve been sort of an anomaly in the music industry. I feel like I’ve been able to exist as kind of a throwback artist.
+ - I love touring – I don’t do it as often as I should.
+ - I developed a loyal following. No one knew I was homeless.
+ - I wanted to be an honest writer and show my ugliness as much as I showed my hopes or goodness. And that really sculpted the type of artist I’ve become.
+ - I never found much comfort in overly organized religion of any sort.
+ - I was turning 20 during my first record. Those decade birthdays always kind of cause me, it seems, to reflect, look back, and then look forward. I just was closing this period of my life where I was living in a car and scrambling my whole life to then signing a six-record deal with Atlantic.
+ - I don’t see the world unless I see it in ink.
+ - Without a band, I’m much more free to improvise.
+ - Your life becomes what you believe.
+ - Most homeless kids are on the streets because they have been forced by circumstances that cause them to think that they are safer there than in any home they once knew.
+ - The savages are upon me and I feel my flesh burn beneath the teeth of their indifference.
+ - I’ve always toured solo acoustic.
+ - We all need to demand the happiness for ourselves we desire. Fight for it. Wrestle it out of the clenched fist of the world you live in.
+ - Being engaged with life. One has to develop a poet’s eye for perfect moments, moments that most people pass by.
+ - Most of us don’t spend any time knowing ourselves. We just keep reacting.
+ - I love playing big rooms. There’s nothing like it. It’s a power trip.
+ - There is a pretty girl on the face of the magazine and all I see is my dirty hands turning the page.
+ - The things you fear are undefeatable, not by their nature, but by your approach.
+ - I love to be alone with life. I love to study simple things: the light as it filters in a window; the music of a room full of people chatting; a horizon.
+ - I consider myself a product of Alaska. The love and the debt that I feel to my home state, you always want your hometown to be the proudest of you.
+ - Forgiveness is the needle that knows how to mend.
+ - I was Renee Zellweger’s fat doppelganger. If she ever played in a movie where she needed to be fat, apparently I could be her stunt double.
+ - Music has given me a career. But even if it doesn’t become yours it teaches you confidence and allows you to express your creativity.
+ - Hard times make you bitter or make you more compassionate.
+ - You always feel better when you sing. Music touches people’s hearts. You know, it doesn’t go through your mental capacity, it just moves you and it will let you cry. It’s worth it doing a show and when you touch a crowd and move yourself at the same.
+ - My whole goal is to keep my spirit intact. If that doesn’t happen, none of this is worth it.
+ - Solutions and technologies exist to provide clean, affordable drinking water anywhere in the world. These solutions will save lives, reduce financial burdens, foster peace, and relieve millions of people from worrying about their next drink of water.
+ - We are each others angels in the way that we answer each others prayers and we can also make each others lives miserable.
+ - I think being raised spending so much time outdoors was really important – while you’re in it, you might not know, but now I think of the things I was thankful for.
+ - What I know about street outreach is that it is essential to dealing with the issue of youth homelessness.
+ - I find you get out of people what you put into them.
+ - Nature has a funny way of breaking what does not bend.
+ - We all will be Christed when we hear ourselves say: We are that to which we pray.
+ - It’s really fun to see young kids trying to find excellence in themselves.
+ - Some people want fame, popularity and huge sales. I’ve always hoped to have a really long career. So I’ve tried to make each of my creative decisions and business decisions to allow for longevity. As a side effect I got really famous and really big. I didn’t realize the two could go together.
+ - My second record I used a producer, which was frustrating in a way, because I think a lot of the punky spirit and provocative nature of the lyrics didn’t come across – the music was pretty.
+ - I make a living with a song, and I feel honored to do something I love and believe in.
+ - I’ve had mentors who were kind of the troubadour singer-songwriters, like Merle Haggard, Loretta Lynn, Joni Mitchell, Bob Dylan and Neil Young, and that’s just what I’ve always liked – people who would talk real honestly about their lives and their circumstance.
+ - I have a sneaking suspicion that all religions lead to the same place, a very unified place.
+ - I have this theory – that if we’re told we’re bad, then that’s the only ideal we’ll ever have.
+ - I grew up doing live tours and playing in bars, so it was what I love to do.
+ - I personally feel the most vulnerable when I write. That’s where I learned to tell the truth when I was young.
+ - We’ve made houses for hatred. It’s time we made a place where people’s souls may be seen and made safe.
+ - I was homeless and I was in San Diego and I started singing in a local coffee shop and people started coming to hear me sing.
+ - So what are we given? We’re also given, my generation, the disillusionment of our parents.
+ - I’m somebody who, as a child, had a lot of insecurity about stable housing, where I was going to be living, if I was going to have a roof over my head, all those types of things. And I know the impact it can have on you psychologically and emotionally.
+ - I say to myself, sometimes the tide is just out. But it always comes back in again.
+ - The best antidote for loneliness, hopelessness, and fear is vulnerability: sharing your secrets and talking about what shames you, what you fear.
+ - Cynicism is for lightweights.
+ - Lend your voices only to sounds of freedom, no longer lend your strength to that which you wish to be free from. Fill your life with love and bravery, and you shall live a life uncommon.
+
+141 quotes

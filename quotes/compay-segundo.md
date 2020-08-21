@@ -1,0 +1,22 @@
+ - My secret? A desire to work, years of dedication and loving what you do; I can’t live without music.
+ - I’m still strong and in the best shape to continue living my life.
+ - As long as your heart beats, one is never too old.
+ - I’ve done a lot of things away from my homeland.
+ - I don’t sit in the corner waiting for death: death has to pursue me. I’m going strong. I hope to reach 100 and ask for an extension, just like my grandmother did.
+ - Young people don’t want to be second to anyone. Everyone wants to be an overnight star. Look how many years I had to wait, how many roads I had to travel, how many songs I had to sing. And now I’m just beginning, never ending.
+ - Ry Cooder for me is a master, a great master that has a wonderful feel for Cuban music. He’s also paid tribute my talent a bit, even though I don’t know half of what he knows.
+ - Can you imagine that Cuba and Europe’s youth, who had forgotten about traditional music, who only thought of rock music, are now looking back towards their grandparents? That is a phenomenon.
+ - I am still simple, just as if I were beginning.
+ - I’ll only stop singing when I’m in my grave.
+ - Cubans are frantic when it comes to appreciating music.
+ - Towns are suffering from all these things, we should unite until we are all satisfied, man cannot be killing each other as if we were animals, as if we had no culture; that is a lack of culture.
+ - Everyone should have a philosophy for living better.
+ - Every time I talk about this, I say: when the singer is singing, he must be respected, you must be able to hear what he’s saying. You can’t put a trombone and a drum up there, and a microphone on the drum, microphones on everybody. You can’t hear what he’s saying.
+ - In order to grow old, you have to experience everything, but in moderation.
+ - The music that I play and that I like is traditional music, maybe it’s because of my age.
+ - I am a scholar of life. Every night before I go to sleep, I analyze every detail of what I did that day. I evaluate things and people, which helps me avoid mistakes.
+ - The roots of Cuban music are in my head.
+ - As far as pleasures, you’ve got to have limits. You shouldn’t have too much of good things, so you’ll always have a desire for more and you won’t get bored.
+ - When it comes to musicians, I’m like the daddy of musicians here in Cuba.
+
+20 quotes

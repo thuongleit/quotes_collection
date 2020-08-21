@@ -1,0 +1,9 @@
+ - James says that you deceive yourself if you only hear the Word but do not do it. How many people live in this deception their whole life-hearing and hearing, but never even trying to do what they hear!
+ - God implants Spirit and zeal into our hearts in order to accomplish a work. When the work is done, a quiet rest remains. We do not have to push one another aside because God has prepared our works so that each one can keep out of one another’s way. We only have to take heed that we do His works.
+ - If a person forges ahead in the light and yet has lost his care for the others, the purpose of the light is wasted. God does not give us light for its own sake, but for the purpose of doing something in the light.
+ - Because there is liberating power in each and every truth, the one who walks in the truth in all his ways will be set free. A lie, no matter how “little,” gives the powers of darkness an opening for attack, but the truth chases them far away.
+ - No one can be transferred from darkness to light and from the power of Satan to God without a great battle and by the good fight of faith. No one receives full light in a single day. Great faithfulness is required for us to receive more light.
+ - An inner life and inner enemies to conquer, battle and destroy. These enemies are the various desires that seek to distract our concentration by causing our thoughts to cling to outward things, things that will pass away.
+ - A longsuffering person will endure where others give up. He always thinks about how God has been longsuffering toward him, and he counts God’s longsuffering as salvation. Longsuffering endures where no one else can endure, and it always hopes for a happy result at the end.
+
+7 quotes

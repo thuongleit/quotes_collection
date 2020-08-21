@@ -1,0 +1,164 @@
+ - Has fortune dealt you some bad cards. Then let wisdom make you a good gamester.
+ - The fountain of beauty is the heart and every generous thought illustrates the walls of your chamber.
+ - Be neither too early in the fashion, nor too long out of it, nor too precisely in it; what custom hath civilized is become decent, till then ridiculous; where the eye is the jury thy apparel is the evidence.
+ - Be wisely worldly, but not worldly wise.
+ - Death’s a fable. Did not Heaven inspire your equal Elements with living Fire blown from the Spring of Life? Is not that breath Immortal? Come; ye are as free from death as He that made ye: Can the flames expire which he kindled?
+ - Too much is a vanity; enough is a feast.
+ - My mind’s my kingdom.
+ - If you desire to be magnanimous, undertake nothing rashly, and fear nothing thou undertakest; fear nothing but infamy; dare anything but injury; the measure of magnanimity is neither to be rash nor timorous.
+ - The height of all philosophy is to know thyself; and the end of this knowledge is to know God.
+ - Sin, when it is finished, bringeth forth death.
+ - Sin is a basilisk whose eyes are full of venom. If the eye of thy soul see her first, it reflects her own poison and kills her; if she see thy soul, unseen, or seen too late, with her poison, she kills thee: since therefore thou canst not escape thy sin, let not thy sin escape thy observation.
+ - If thou expect death as a friend, prepare to entertain it; if thou expect death as an enemy, prepare to overcome it; death has no advantage, but when it comes a stranger.
+ - Lust is an immoderate wantonness of the flesh, a sweet poison, a cruel pestilence; a pernicious poison, which weakeneth the body of man, and effeminateth the strength of the heroic mind.
+ - I see no virtue where I smell no sweat.
+ - O lust, thou infernal fire, whose fuel is gluttony; whose flame is pride, whose sparkles are wanton words; whose smoke is infamy; whose ashes are uncleanness; whose end is hell.
+ - I’ll ne’er distrust my God for cloth and bread while lilies flourish and the raven ’s fed.
+ - The place of charity, like that of God, is everywhere.
+ - Virtue is nothing but an act of loving that which is to be beloved, and that act is prudence, from whence not to be removed by constraint is fortitude; not to be allured by enticements is temperance; not to be diverted by pride is justice.
+ - Let the ground of all thy religious actions be obedience; examine not why it is commanded, but observe it because it is commanded. True obedience neither procrastinates nor questions.
+ - The road to perseverance lies by doubt.
+ - The heart is a small thing, but desireth great matters. It is not sufficient for a kite’s dinner, yet the whole world is not sufficient for it.
+ - Sweet tastes have sour closes; and he repents on thorns that sleeps in beds of roses.
+ - Read not books alone, but men, and amongst them chiefly thyself.
+ - Scandal breeds hatred; hatred begets division; division makes faction, and faction brings ruin.
+ - My soul, sit thou a patient looker-on; Judge not the play before the play is done: Her plot hath many changes; every day Speaks a new scene; the last act crowns the play.
+ - Hath fortune dealt thee ill cards? let wisdom make thee a good gamester. In a fair gale, every fool may sail, but wise behavior in a storm commends the wisdom of a pilot; to bear adversity with an equal mind is both the sign and glory of a brave spirit.
+ - For trash and toys, And grief-engend’ring joys, What torment seems too sharp for flesh and blood; What bitter pills, Compos’d of real ills, Men swallow down to purchase one false good!
+ - Thy pride is but the prologue of thy shame; where vain-glory commands, there folly counsels; where pride rides, there shame lackeys.
+ - And what’s a life? – a weary pilgrimage, Whose glory in one day doth fill the stage With childhood, manhood, and decrepit age.
+ - Anger may repast with thee for an hour, but not repose for a night; the continuance of anger is hatred, the continuance of hatred turns malice.
+ - Lust is a sharp spur to vice, which always putteth the affections into a false gallop.
+ - The world is deceitful; her end is doubtful, her conclusion is horrible, her judge terrible, and her judgment is intolerable.
+ - With a bloody flux of oaths vows deep revenge.
+ - The next way home’s the farthest way about.
+ - What money creates, money preserves: if thy wealth decays, thy honor dies; it is but a slippery happiness which fortunes can give, and frowns can take; and not worth the owning which a night’s fire can melt, or a rough sea can drown.
+ - Heaven finds an ear when sinners find a tongue.
+ - It is no happiness to live long, nor unhappiness to die soon; happy is he that hath lived long enough to die well.
+ - Think not thy love to God merits God’s love to thee; His acceptance of thy duty crowns His own gifts in thee; man’s love to God is nothing but a faint reflection of God’s love to man.
+ - Necessity of action takes away the fear of the act, and makes bold resolution the favorite of fortune.
+ - Becoming fearless isn’t the point. That’s impossible. It’s learning how to control your fear, how to be free from it, that’s the point. Necessity of action takes away the fear of the act, and makes bold resolution the favorite of fortune.
+ - Read not books alone, but men, and amongst them chiefly thyself. If thou find anything questionable there, use the commentary of a severe friend, rather than the gloss of a sweet-lipped flatterer there is more profit in a distasteful truth than in deceitful sweetness.
+ - The way to bliss lies not on beds of down, And he that had no cross deserves no crown.
+ - If thou desire the love of God and man, be humble, for the proud heart, as it loves none but itself, is beloved of none but itself. Humility enforces where neither virtue, nor strength, nor reason can prevail.
+ - Beware of him that is slow to anger; for when it is long coming, it is the stronger when it comes, and the longer kept. Abused patience turns to fury.
+ - If virtue accompany it, it is the heart’s paradise; if vice associate it, it is the soul’s purgatory.
+ - Nor fire, nor rocks, can stop our furious minds, Nor waves, nor winds.
+ - Knowledge descries; wisdom applies.
+ - As all things eternal and primordial reappear, so all things mortal return to the earth. Honor, old age, probity, justice, constance, virtue, and gentleness are all gathered into the cold tomb.
+ - To fear death is the way to live long; to lie afraid of death is to be long a dying.
+ - Mark, how the ready hands of Death prepare: His bow is bent, and he hath notch’d his dart; He aims, he levels at thy slumb’ring heart: The wound is posting, O be wise, beware.
+ - If thou neglectest thy love to thy neighbor, in vain thou professest thy love to God; for by thy love to God, the love to thy neighbor is begotten, and by the love to thy neighbor thy love to God is nourished.
+ - In thy apparel avoid singularity, profuseness, and gaudiness. Be not too early in the fashion, nor too late. Decency is half way between affectation and neglect. The body is the shell of the soul, apparel is the husk of that shell; the husk often tells you what the kernel is.
+ - In all thy actions think God sees thee; and in all His actions labor to see Him; that will make thee fear Him; this will move thee to love Him; the fear of God is the beginning of knowledge, and the knowledge of God is the perfection of love.
+ - Flatter not thyself in thy faith in God if thou hast not charity for thy neighbor.
+ - God’s pleasure is at the end of our prayers.
+ - Rather do what is nothing to the purpose than be idle; that the devil may find thee doing. The bird that sits is easily shot, when fliers scape the fowler. Idleness is the Dead Sea that swallows all the virtues, and the self-made sepulchre of a living man.
+ - Temper your enjoyments with prudence, lest there be written on your heart that fearful word ‘satiety.’
+ - Use law and physic only for necessity; they that use them otherwise abuse themselves unto weak bodies, and light purses; they are good remedies, bad businesses, and worse recreations.
+ - Make philosophy thy journey, theology thy journey’s end: philosophy is a pleasant way, but dangerous to him that either tires or retires; in this journey it is safe neither to loiter nor to rest, till thou hast attained thy journey’s end; he that sits down a philosopher rises up an atheist.
+ - The strong desires of man’s insatiate breast may stand possess’d Of all that earth can give; but earth can give no rest.
+ - Let the fear of a danger be a spur to prevent it; he that fears not gives advantage to the danger; it is less folly not to endeavor the prevention of the evil thou fearest than to fear the evil which thy endeavor cannot prevent.
+ - The suburbs of folly is vain mirth, and profuseness of laughter is the city of fools.
+ - Mercy turns her back to the unmerciful.
+ - Heaven is never deaf but when man’s heart is dumb.
+ - Proportion thy charity to the strength of thine estate, lest God proportion thine estate to the weakness of thy charity. Let the lips of the poor be the trumpet of thy gift, lest in seeking applause, thou lose thy reward. Nothing is more pleasing to God than an open hand and a closed mouth.
+ - A despairing heart is the true prophet of approaching evil; his actions may weave the webs of Fortune, but not break them.
+ - If thy daughter marry well, thou hast found a son; if not, thou hast lost a daughter.
+ - Whose gold is double with a careful hand, His cares are double.
+ - Before thy undertaking of any design, weigh the glory of thy action with the danger of the attempt; if the glory outweigh the danger, it is cowardice to neglect it; if the danger exceed the glory, it is rashness to attempt it; if the balances stand poised, let thy own genius cast them.
+ - In giving of thy alms, inquire not so much into the person, as his necessity. God looks not so much upon the merits of him that requires, as into the manner of him that relieves; if the man deserve not, thou hast given it to humanity.
+ - What well-advised ear regards What earth can say? Thy words are gold, but thy rewards Are painted clay.
+ - If thou desire to be held wise, be so wise as to hold thy tongue.
+ - The grave is sooner cloy’d than men’s desire.
+ - Nothing is more pleasing to God than an open hand, and a closed mouth.
+ - Is not this lily pure? What fuller can procure A white so perfect, spotless clear As in this flower doth appear?
+ - Death aims with fouler spiteAt fairer marks.
+ - Immortal life is something to be earned, By slow self-conquest, comradeship with Pain, And patient seeking after higher truths.
+ - Flatter not thyself in thy faith to God, if thou wantest charity for thy neighbor; and think not thou halt charity for thy neighbor, if thou wantest faith to God; where they are not both together, they are both wanting; they are both dead, if once divided.
+ - If any speak ill of thee, flee home to thy own conscience, and examine thy heart: if thou be guilty, it is a just correction; if not guilty, it is a fair instruction: make use of both; so shalt thou distil honey out of gall, and out of an open enemy create a secret friend.
+ - Luxury is an enticing pleasure, a bastard mirth, which hath honey in her mouth, gall in her heart, and a sting in her tail.
+ - Afflictions clarify the soul.
+ - How is the anxious soul of man befool’d in his desire, That thinks an hectic fever may be cool’d in flames of fire?
+ - Seest thou good days? Prepare for evil times. No summer but hath its winter. He never reaped comfort in adversity that sowed not in prosperity.
+ - Neutrality is dangerous, whereby thou becomest a necessary prey to the conqueror.
+ - If thy words be too luxuriant, confine them, lest they confine thee; he that thinks he never can speak enough may easily speak too much. A full tongue and an empty brain are seldom parted.
+ - If opinion hath lighted the lamp of thy name, endeavor to encourage it with thy own oil, lest it go out and stink; the chronical disease of Popularity is shame; if thou be once up, beware; from fame to infamy is a beaten road.
+ - Make thy recreation servant to thy business, lest thou become a slave to thy recreation.
+ - Meditation is the life of the soul: Action, the soul of meditation; and honor the reward of action.
+ - In the commission of evil, fear no man so much as thyself; another is but one witness against thee, thou art a thousand; another thou mayest avoid, thyself thou canst not. Wickedness is its own punishment.
+ - After years of research, scientists recently reported that there is, indeed, arroz in Spanish Harlem. A full tongue and an empty brain are seldom parted.
+ - What treasures here do Mammon’s sons behold! Yet know that all that which glitters is not gold.
+ - Wickedness is its own punishment.
+ - That friendship will not continue to the end which is begun for an end.
+ - My soul, the seas are rough, and thou a stranger In these false coasts; O keep aloof; there’s danger; Cast forth thy plummet; see, a rock appears; Thy ships want sea-room; make it with thy tears.
+ - When the flesh presents thee with delights, then present thyself with dangers; where the world possesses thee with vain hopes, there possess thyself with true fear; when the devil brings thee oil, bring thou vinegar. The way to be safe is never to be secure.
+ - He that discovers himself, till he hath made himself master of his desires, lays himself open to his own ruin, and makes himself prisoner to his own tongue.
+ - If thou seest anything in thyself which may make thee proud, look a little further and thou shalt find enough to humble thee; if thou be wise, view the peacock’s feathers with his feet, and weigh thy best parts with thy imperfections.
+ - They who cannot be induced to fear for love will never be enforced to love for fear. Love opens the heart, fear shuts it; that encourages, this compels; and victory meets encouragement, but flees compulsion.
+ - Be as far from desiring the popular love as fearful to deserve the popular hate; ruin dwells in both: the one will hug thee to death; the other will crush thee to destruction: to escape the first, be not ambitious; to avoid the second, be not seditious.
+ - Hath any wounded thee with injuries? Meet them with patience. Hasty words rankle the wound; soft language dresses it.
+ - No labor is hard, no time is long, wherein the glory of eternity is the mark we level at.
+ - Be very circumspect in the choice of thy company. In the society of thine equals thou shalt enjoy more pleasure; in the society of thy superiors thou shalt find more profit. To be the best in the company is the way to grow worse; the best means to grow better is to be the worst there.
+ - Heav’n is not always got by running.
+ - Wouldst thou multiply thy riches? diminish them wisely; or wouldst thou make thy estate entire? divide it charitably. Seeds that are scattered increase; but, hoarded up, they perish.
+ - Humility enforces where neither virtue nor strength can prevail, nor reason.
+ - In the height of thy prosperity expect adversity, but fear it not. If it come not, thou art the more sweetly possessed of the happiness thou hast, and the more strongly confirmed. If it come, thou art the more gently dispossessed of the happiness thou hadst, and the more firmly prepared.
+ - The light of the understanding, humility kindleth and pride covereth.
+ - If thou wouldst preserve a sound body, use fasting and walking; if a healthful soul, fasting and praying. Walking exercises the body; praying exercises the soul; fasting cleanses both.
+ - Reason can discover things only near, – sees nothing that’s above her.
+ - If thou desire to purchase honor with thy wealth, consider first how that wealth became thine; if thy labor got it, let thy wisdom keep it; if oppression found it, let repentance restore it; if thy parent left it, let thy virtues deserve it; so shall thy honor be safer, better and cheaper.
+ - He that hath no cross deserves no crown.
+ - Toyish airs please trivial ears.
+ - Of all the difficulties in a state, the temper of a true government most felicifies and perpetuates it; too sudden alterations distemper it. Had Nero tuned his kingdom as he did his harp, his harmony had been more honorable, and his reign more prosperous.
+ - Let the words of a virgin, though in a good cause, and to as good purpose, be neither violent, many, nor first, nor last; it is less shame for a virgin to be lost in a blushing silence than to be found in a bold eloquence.
+ - It is the lot of man but once to die.
+ - He that gives all, though but little, gives much; because God looks not to the quantity of the gift, but to the quality of the givers.
+ - Wrinkle not thy face with too much laughter, lest thou become ridiculous; neither wanton thy heart with too much mirth, lest thou become vain: the suburbs of folly is vain mirth, and profuseness of laughter is the city of fools.
+ - If thou be rich, strive to command thy money, lest it command thee.
+ - Every man’s vanity ought to be his greatest shame; and every man’s folly ought to be his greatest secret.
+ - Charity feeds the poor, so does pride; charity builds an hospital, so does pride. In this they differ: charity gives her glory to God; pride takes her glory from man.
+ - Pleasures bring effeminacy, and effeminacy foreruns ruin; such conquests, without blood or sweat, sufficiently do revenge themselves upon their intemperate conquerors.
+ - The voice of humility is God’s music, and the silence of humility is God’s rhetoric.
+ - Physicians, of all men, are most happy; whatever good success soever they have, the world proclaimeth; and what faults they commit, the earth covereth.
+ - The birds of the air die to sustain thee; the beasts of the field die to nourish thee; the fishes of the sea die to feed thee. Our stomachs are their common sepulchre. Good God! with how many deaths are our poor lives patched up! how full of death is the life of momentary man!
+ - Let grace conduct thee to the paths of peace.
+ - If God send thee a cross, take it up willingly and follow him. Use it wisely, lest it be unprofitable. Bear it patiently, lest it be intolerable. If it be light, slight it not. If it be heavy, murmur not. After the cross is the crown.
+ - Charity is a naked child, giving honey to a bee without wings.
+ - That action is not warrantable which either fears to ask the divine blessing on its performance, or having succeeded, does not come with thanksgiving to God for its success.
+ - Wisdom not only gets, but once got, retains.
+ - Hath any wronged thee? be bravely revenged; slight it, and the work is begun; forgive it, and it is finished; he is below himself that is not above an injury.
+ - If thou hast no inferiors, have patience awhile, and thou shalt have no superiors. The grave requires no marshal.
+ - Other vices make their own way; this makes way for all vices. He that is a drunkard is qualified for all vice.
+ - Obedience to truth known, is the king’s highway to that which is still beyond us.
+ - Fear nothing but what thy industry may prevent; be confident of nothing but what fortune cannot defeat; it is no less folly to fear what is impossible to be avoided than to be secure when there is a possibility to be deprived.
+ - Take heed thou trust not the deceitful lap Of wanton Dalilah; the world’s a trap.
+ - Gold is Caesar’s treasure, man is God’s; thy gold hath Caesar’s image, and thou hast God’s.
+ - Even such is man, whose glory lendsHis life a blaze or two, and ends.
+ - Let the fear of a danger be a spur to prevent it...
+ - No man is born unto himself alone; Who lives unto himself, he lives to none.
+ - I wish thee as much pleasure in the reading, as I had in the writing.
+ - He that begins to live, begins to die.
+ - The world’s an Inn; and I her guest.
+ - Though virtue give a ragged livery, she gives a golden cognizance; if her service make thee poor, blush not. Thy poverty may disadvantage thee, but not dishonor thee.
+ - Be not too rash in the breaking of an inconvenient custom; as it was gotten, so leave it by degrees. Danger attends upon too sudden alterations; he that pulls down a bad building by the great may be ruined by the fall, but he that takes it down brick by brick may live to build a better.
+ - Things temporal are sweeter in the expectation, things eternal are sweeter in the fruition; the first shames thy hope, the second crowns it; it is a vain journey, whose end affords less pleasure than the way.
+ - Put off thy cares with thy clothes; so shall thy rest strengthen thy labor, and so thy labor sweeten thy rest.
+ - False world, thou ly’st: thou canst not lend The least delight: Thy favours cannot gain a friend, They are so slight.
+ - Let the greatest part of the news thou hearest be the least part of what thou believest, lest the greater part of what thou believest be the least part of what is true.
+ - Be not too great a niggard in the commendations of him that professes thy own quality: if he deserve thy praise, thou hast discovered thy judgment; if not, thy modesty: honor either returns or reflects to the giver.
+ - The average person’s ear weighs what you are, not what you were.
+ - Shine Son of glory, and my sinnes are goneLike twinkling Starres before the rising Sunne.
+ - Diogenes found more rest in his tub than Alexander on his throne.
+ - He that hath promised pardon on our repentance hat not promised life till we repent.
+ - The way to subject all things to thyself is to subject thyself to reason; thou shalt govern many, if reason govern thee. Wouldst thou be crowned the monarch of a little world? command thyself.
+ - To bear adversity with an equal mind is both the sign and glory of a brave spirit.
+ - Borrow neither money nor time from your neighbor; both are of equal value.
+ - When ambitious men find an open passage, they are rather busy than dangerous; and if well watched in their proceedings, they will catch them selves in their own snare, and prepare a way for their own destruction.
+ - Whosoever obeyeth the devil, casteth himself down: for the devil may suggest, compel he cannot.
+ - So use prosperity, that adversity may not abuse thee: if in the one, security admits no fears, in the other, despair will afford no hopes; he that in prosperity can foretell a danger can in adversity foresee deliverance.
+ - Before thou reprehend another, take heed thou art not culpable in what thou goest about to reprehend. He that cleanses a blot with blotted fingers makes a greater blur.
+ - A lamb appears a lion, and we fear Each bush we see’s a bear.
+ - If thou wouldst be justified, acknowledge thine injustice. He that confesses his sin, begins his journey toward salvation. He that is sorry for it, mends his pace. He that forsakes it, is at his journey’s end.
+
+162 quotes

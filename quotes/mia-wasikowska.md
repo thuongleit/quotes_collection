@@ -1,0 +1,60 @@
+ - I would hope everyone would be a feminist.
+ - I read a lot of books. So, usually when I go home I try to re-charge my batteries and absorb new stories to become inspired again.
+ - It’s hard to tell what people realize. Everybody’s different and has a different understanding of the difference in times.
+ - You never choose the way that you’re raised, it’s just the way that you were raised, but you do get to a certain age where you’re in a position to question the expectations of you and the way that you’ve been formed by your surroundings.
+ - I hate the feeling when I’m overseas, away from Australia, that I’m trapped, blocked by an ocean from getting to the people I love. That gives me anxiety.
+ - Everybody is completely different. I think there is no formula for filmmaking. Everybody finds their own way of doing things.
+ - Although I’m not particularly troubled myself, I do have a lot of empathy for troubled characters.
+ - I like characters who remind me of someone I know.
+ - You are relying on a waiting on other people in acting and films, so to be able to have something that I have full creative control over is really very therapeutic.
+ - The wardrobe is always the last piece of the puzzle. When you step into the clothing, that’s the final step to figuring out that character.
+ - I really like trying to find the roles that are actually really meaningful to me.
+ - I used to love ballet and I did it really, really intensely. But it came so much about achieving physical perfection, which when I was 14 was a big deal.
+ - Dance has such an intensity to it. You become, in a way, an intense person.
+ - Ballet has really helped me in every acting role. You have to be very disciplined, you have to be able to control your nerves and perform under pressure, and all those things you have to use in acting when you’re on film or going for an audition.
+ - You definitely put a bit of yourself in every character, and you always have to have an understanding and empathy for the person that you play.
+ - Feminism is just about equality, really, and there’s so much stuff attached to the word, when it’s actually so simple. I don’t know why it’s always so bogged down.
+ - I think that dancing has helped or prepared me, in a number of different ways, for the film industry, especially with controlling your nerves when you walk into an audition because you’re on stage from a young age.
+ - Even if you’re independent, I think you get lonely.
+ - Photography, for me, is something I can control fully. It’s wholly my own expressions.
+ - I want to just do my job and do it well.
+ - With dance, you learn to channel nerves into energy, excited energy.
+ - I come from a background of independent films.
+ - I definitely have an appreciation for fashion.
+ - Traveling to Russia and Germany and being able to see the world at a young age was really cool for me, and I really liked that.
+ - I’m a huge sucker for comfort.
+ - Someone once told me to believe 5 percent of what everybody tells you.
+ - I got the first thing I auditioned for – a guest role on two episodes on ‘All Saints,’ and I don’t think I had ever been that excited.
+ - I love doing accents because it takes you one step away from yourself and allows you to embody someone else’s character.
+ - I always try and learn as much as I can from different departments on a film set.
+ - I like to be absorbed in what my character’s doing.
+ - To have a creative outlet that you can control is really important because you do a lot of waiting to be cast, then waiting to go into production, and then waiting on set.
+ - Everybody who is an actor has been acting since they were three.
+ - The independent films are really where I kind of come from and where I feel comfortable. It’s never been about the blockbusters and making a huge tonne of money. It’s always been about wanting to do projects about the things that I think are important to be out there.
+ - I think it’s really important for actors to have another creative outlet, or for anyone, really.
+ - I like to do projects that challenge me, and hopefully in turn challenge the audience, or open your eyes to something you’re not aware of.
+ - Doing an accent removes you from yourself and reminds you, every instant, that you’re playing a part.
+ - I always collect a bunch of images for every film that I do, that reminds me of an essence of the character, or the time that they live in, or what they’re experiencing.
+ - I like my anonymity – that when I meet people they don’t know me.
+ - Dance is such a stressful environment.
+ - I was a bit of a loner as a teenager. I never went to a single social event, because they terrified me.
+ - Dancers are kept in a perpetual state of pre-puberty, and for young girls in particular, that type of pressure breeds insecurities.
+ - The independent films are really where I kind of come from and where I feel comfortable.
+ - Ultimately, it’s a really brave thing to do what makes you happy as opposed to what the norm, or the social norm is, and that’s a very important thing for people to remember, especially young women.
+ - What I like about film is it explores imperfections.
+ - I’ve had a great experience with pretty much everybody I’ve worked with.
+ - I don’t consider myself a starlet or a Hollywood person.
+ - Acting really suited me because I could connect as an actor to emotion.
+ - We have so many American and English films in Australia that we hear those accents often, so they’re not too hard to pick up, but it’s always a challenge.
+ - Fame is useful in certain ways, because it helps you get more roles.
+ - In our world, we have so many ways we can escape with technology, like TV, Facebook, computers, text messaging and all that.
+ - When you dance intensely, you are really aware of your physicality, and that’s always great to have as a tool, when you’re an actress.
+ - I get restless easily so I always want to keep working, but I am trying to pace it as well.
+ - As an actor you have to wait for someone to cast you, so you’re relying on the business.
+ - Director Park asking that if there was a pocket on one side of the piece of clothing then there should be a pocket on the other side. They were a little uncomfortable to wear, yes, because there were a lot of tight, high-waisted things so it was great at the end of the day to slip into some pajamas!
+ - There’s a bunch of directors that I really admire, and Australian ones as well. It would be nice to do a film at home.
+ - I always start a film thinking I know how to do it, then I learn all over again.
+ - Coming from dance, I feel acting is – I’m not going to say easy, because it’s not. But the dance world is more hard-core.
+ - I wanted to be a dancer from when I was about nine or something like that and started ballet. I used to really like it and got into it and did it full time for a couple of years. I did a lot of ballet but I traded that in for acting when I was about 15.
+
+58 quotes

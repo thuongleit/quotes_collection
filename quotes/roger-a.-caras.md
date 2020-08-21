@@ -1,0 +1,22 @@
+ - Dogs have given us their absolute all. We are the center of their universe. We are the focus of their love and faith and trust. They serve us in return for scraps. It is without a doubt the best deal man has ever made.
+ - I always thought that my canine family tended to view me as the funny-looking two-legged dog who runs the can opener.
+ - It looks like a miniature hippopotamus with badly-fitting panty hose all over.
+ - Some of our greatest historical and artistic treasures we place in museums; others, we take for walks.
+ - Cats virtually always underestimate human intelligence just as we, perhaps, underestimate theirs.
+ - For me a house or an apartment becomes a home when you add one set of four legs, a happy tail, and that indescribable measure of love that we call a dog.
+ - Dogs are not our whole life, but they make our lives whole.
+ - We are the ones who have high blood pressure, ulcers, and heart attacks, not cats.
+ - We derive immeasurable good, uncounted pleasures, enormous security, and many critical lessons about life by owning dogs.
+ - Why cat were given such terrific peripheral vision when they spend so much time looking down their noses is difficult to understand.
+ - Anyone who has owned many cats in long succession can define his or her life as a series of furry episodes.
+ - Two would actually do it- two magic words that could replace all the religions in the world- two wonderful words that embrace all the powers and all of the energy we need to survive with each other and with our planet and with all the world’s living creatures- don’t hurt.
+ - Try throwing a ball just once for a dog. It would be like eating only one peanut or potato chip. Try to ignore the importuning of a Golden Retriever who has brought you his tennis ball, the greatest treasure he possesses!
+ - It doesn’t matter where you are in your own personal development, nor has it mattered where you have been culturally; dogs simply don’t pass judgment on you the way all of the rest of life and all your other companions seem to.
+ - Cats are a tonic, they are a laugh, they are a cuddle, they are at least pretty just about all of the time and beautiful some of the time.
+ - I am as confounded by dogs as I am indebted to them.
+ - Cats can be cooperative when something feels good, which, to a cat, is the way everything is supposed to feel as much of the time as possible.
+ - Being patted is what it is all about.
+ - It’s our mortality that terrifies us, because what we’re really seeking is immortality – that is, after all, a fool’s errand.
+ - Generally, or at least very often, people with a deep interest in animals are the best people around.
+
+20 quotes

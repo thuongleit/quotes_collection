@@ -1,0 +1,31 @@
+ - Three Tips: Simplify, Simplify, Simplify.
+ - In the attention economy, anyone trying to connect with an audience must treat the user’s time as the ultimate resource.
+ - A bad website is like a grumpy salesperson.
+ - What we learned is money doesn’t grow on trees.
+ - A general principle for all user interface design is to go through all of your design elements and remove them one at a time.
+ - Designers are not users.
+ - On the Web, all advantages are temporary, and you must keep innovating to stay ahead.
+ - Usability rules the web. Simply stated, if the customer can’t find a product, then he or she will not buy it.
+ - Good information architecture makes users less alienated and suppressed by technology. It simultaneously increases human satisfaction and your company’s profits. Very few jobs allow you to do both at the same time, so enjoy.
+ - Clear content, simple navigation and answers to customer questions have the biggest impact on business value. Advanced technology matters much less.
+ - The best Web sites are better than Reality.
+ - Even the best designers produce successful products only if their designs solve the right problems. A wonderful interface to the wrong features will fail.
+ - Inadequate use of usability engineering methods in software development projects have been estimated to cost the US economy about $30 billion per year in lost productivity.
+ - Consistency is one of the most powerful usability principles: when things always behave the same, users don’t have to worry about what will happen. Instead, they know what will happen based on earlier experience.
+ - To design an easy-to-use interface, pay attention to what users do, not what they say. Self-reported claims are unreliable, as are user speculations about future behavior.
+ - Users spend most of their time on other sites. This means that users prefer your site to work the same way as all the other sites they already know.
+ - On average, when you ask someone to perform a task on a site, they cannot do it. It’s not their fault; it’s the designer’s fault.
+ - Ultimately, users visit your website for its content. Everything else is just the backdrop.
+ - Minimize the user’s memory load by making objects, actions, and options visible. The user should not have to remember information from one part of the dialogue to another. Instructions for use of the system should be visible or easily retrievable whenever appropriate.
+ - Even better than good error messages is a careful design which prevents a problem from occurring in the first place. Either eliminate error-prone conditions or check for them and present users with a confirmation option before they commit to the action.
+ - The system should always keep users informed about what is going on, through appropriate feedback within reasonable time.
+ - The web is the ultimate customer-empowering environment. He or she who clicks the mouse gets to decide everything. It is so easy to go elsewhere; all the competitors in the world are but a mouseclick away.
+ - Even though it is better if the system can be used without documentation, it may be necessary to provide help and documentation. Any such information should be easy to search, focused on the user’s task, list concrete steps to be carried out, and not be too large.
+ - People have to want to change before there’s any chance of helping them do so.
+ - The usability tests we have conducted during the last year have shown an increasing reluctance among users to accept innovations in Web design. The prevailing attitude is to request designs that are similar to everything else people see on the Web.
+ - At most project meetings, everyone has a seat at the table except the poor victims who will have to operate the technology.
+ - Diversity is power on the Web. Big sites may be bigger, but smaller sites will keep scoring higher for specialized topics, both in terms of their connections with users and in terms of each visit’s commercial value.
+ - Windows ’98 is so similar to Windows ’95 because Apple hasn’t invented anything worth copying since 1995.
+ - Progressive disclosure defers advanced or rarely used features to a secondary screen, making applications easier to learn and less error-prone.
+
+29 quotes

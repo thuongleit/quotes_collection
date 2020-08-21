@@ -1,0 +1,30 @@
+ - Philosophy is this amazing technique we’ve devised for getting reality to answer us back when we’re getting it wrong. Science itself can’t make those arguments. You actually have to rely on philosophy, on philosophy of science.
+ - I don’t think I can write the story of my life, but I can write the story of my hair.
+ - We need science. We need empirical evidence. We can’t just use mathematical reasoning to deduce the nature of the world.
+ - Having your husband at a party is like adding anchovies to a salad. I love anchovies, but you can’t taste anything else.
+ - So dogma, doctrine, unexamined assumptions, that’s what it is to be sharing that, the hippies shadow, no way of grounding it to reality. It’s where we’re just cut off from reality unless we can argue, we can substantiate, we can justify, we can convince each other.
+ - I’m a Spinozist. I believe in reason. I think all the progress that we’ve made making this a better world have been because of reason and not religion. I think religion has been pulled along by reason and that’s why we read The Bible now so differently, even believers.
+ - Everybody is struggling to refine their views in opposition to the other people. And that’s one of the most important things that philosophy actually has to teach us that you have to air your views and bring them to the table with people – with whom you disagree very much.
+ - Youth is not an essential, but rather an accidental property. Nobody is in essence young. One either ceases to be or ceases to be young.
+ - Philosophical progress changes what we take to be “intuitively” obvious, and this change covers up the tracks of the laborious arguments that preceded the changes. We don’t see these changes, because we see with them.
+ - When the first people started to argue against slavery, for example, this was a new idea. If you crowd-source, you’d never come up with this. And so the – exactly the kind of progress we’ve made couldn’t be made if we depend it on crowd-sourcing.
+ - Philosophy addresses, in a systematic and progress-making way, questions of deep concern to everyone.
+ - Answers? Forget answers. The spectacle is all in the questions.
+ - We may not need God to tell us where the world came from, but we need God to be able to live moral lives and for there to be morality in the first place.
+ - What is love? When you love somebody then I mean we all want good things to happen to ourselves and keep the bad things at bay. When you love somebody you want that as much for them if not more than you do for yourself.
+ - If we look at our attitudes consistently and work out the logical implications we’re on the road to moral progress, moral understanding.
+ - It’s something that’s very often said that philosophy, as opposed to science, never makes any progress.
+ - What was tortuously secured by complex argument becomes widely shared intuition, so obvious that we forget its provenance. We don’t see it, because we see with it.
+ - Less money spent on billboards that just make us feel good about ourselves and more on soup kitchens and organized visits to the sick and dying.
+ - In fact, it’s the very impersonality of impersonal knowledge that renders such knowledge the most ethically potent of all.
+ - I was raised in an Orthodox Jewish household and I wouldn’t say so much it’s informed my views, but it’s informed my interest, so I think as a child I was often very baffled by knowledge claims.
+ - Because of the failure of religion to offer satisfying answers to an increasing number of people, it’s time for philosophy to address forcefully these questions that everybody is wondering about.
+ - Plato’s concern is not just an intellectual issue, but it is knitted with emotional life as well.
+ - It’s very important to remember that the philosophers were social dissidents. They were social critics. The man in the street or woman in the street did not particularly cherish what they said. Socrates was killed.
+ - Those who share my heroes are, in the deepest sense, of my own kind.
+ - I’ve got access to your mysterious body but not your mysterious soul. Souls seem to me the loneliest possibility of all.
+ - I think the humanities always have to take science, our great knowledge that we get from science, into account, but then try to answer the human questions and try to make sense out of our lives, taking into account all of the scientific knowledge.
+ - That’s one of the compensations for being mediocre. One doesn’t have to worry about becoming mediocre.
+ - Almost everybody thinks about philosophy, even if they don’t realize it’s philosophy and even if they have no sense of the difficulty of the problems, the array of possible answers.
+
+28 quotes

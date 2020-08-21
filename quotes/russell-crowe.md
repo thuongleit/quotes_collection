@@ -1,0 +1,62 @@
+ - Perhaps it is good to have a beautiful mind, but an even greater gift is to discover a beautiful heart.
+ - People accuse me of being arrogant all the time. I’m not arrogant, I’m focused.
+ - The secret to riches is the same as the secret to comedy – timing.
+ - Imagine what you will be, and it will be so.
+ - The important thing to me is that I’m not driven by people’s praise and I’m not slowed down by people’s criticism. I’m just trying to work at the highest level I can.
+ - You need to learn to live with your mistakes. And you need to be in a position to say No once in a while. It’s important in life, and it’s important for any career that you want to pursue.
+ - Sport for me is about inspiring kids. Here’s the rules, here’s the play area, sometimes you win, sometimes you lose. This is all about teaching kids how to approach life. If we’re not playing sport to benefit kids, I’m not really sure why we play sport.
+ - From an over-arching point-of-view, in war there is heroism on both sides. Obviously, the victor gets the spoils, the victor gets to write history, but there’s heroism and compassion on both sides, and to me that’s very important.
+ - Reality is, I’m an actor and an entertainer, and I really wouldn’t know what to do with another profession.
+ - I love going shopping. I have a black belt in it.
+ - God bless America. God save the Queen. God defend New Zealand and thank Christ for Australia.
+ - Even bad men love their mamas.
+ - In tyranny lies only failure. Empower every man and you will gain strength.
+ - While I was trying to save money to go to the National Institute of Dramatic Art in Australia I ended up getting all of this experience which meant that by the time I had enough money in the bank to go to school I didn’t really need to go to school anymore.
+ - There’s nothing like sitting back and talking to your cows.
+ - If you actually read the Bible, you can see there’s a whole lot more information in there than the way we interpret the Bible. Because there are single lines in the Bible where if you just take them at face-value, they don’t make any sense whatsoever in the world we see, we know, and we understand.
+ - My bottom line is that I think Ridley Scott is one of the greatest visual artists of our time and I feel very privileged that he wants to work with me, so I go with that flow.
+ - I have to believe I got some kind of say over our lives.
+ - We can’t repay our good luck with bad grace. It invites darkness.
+ - Do I think Cate Blanchett is the most spectacular creature that ever walked the planet? Yes, I do.
+ - When you’re heading into Anzac cove you are going into this battle situation staring into the sun. So, any movement in that water, any glint is going to be seen for miles away. Even in the first rays of dawn, there’s nowhere to hide.
+ - I hate having long hair. It’s like walking around with a dead koala on your back!
+ - I’d move to Los Angeles if New Zealand and Australia were swallowed up by a tidal wave, if there was a bubonic plague in England and if the continent of Africa disappeared from some Martian attack.
+ - I don’t make demands. I don’t tell you how it should be. I’ll give you options, and it’s up to you to select or throw ’em away. That should be the headline: If you’re insecure, don’t call.
+ - This is possibly the most shameful situation I’ve ever gotten myself in in my life, and I’ve done some pretty dumb things in my life. So to actually make a new No. 1 is spectacularly stupid.
+ - Iceland is fascinating; really an amazing place to visit, and great for a film to go there.
+ - I’m sick to death of famous people standing up and using their celebrity to promote a cause. If I see a particular need, I do try to help. But there’s a lot that can be achieved by putting a check in the right place and shutting up about it.
+ - There has to be a mathematical explanation for how bad that tie is.
+ - I’m destined to be attracted to those I cannot defeat.
+ - If I don’t get the goose-bump factor when I’m reading it than I can’t do it.
+ - You don’t want to be starting a film not knowing what you want to do.
+ - I want to make movies that pierce people’s hearts and touch them in some way, even if it’s just for the night while they’re in the cinema; in that moment, I want to bring actual tears to their eyes and goosebumps to their skin.
+ - Meg Ryan is a beautiful and courageous woman. I grieve the loss of her companionship but I’ve not lost the friendship. We talk all the time and that was what our connection was about. She has a wonderful mind and we just like a chat.
+ - I really feel sorry for people who are, who divide their whole life up into ‘things that I like’ and ‘things that I must do.’ You’re only here for a short time, mate. Learn to like it.
+ - My children have never watched any of my films. Charlie knows that daddy makes movies, but he says they are not good enough for him to watch.
+ - You can’t understand it until you experience the simple joy of the first time your son points at a seagull and says ‘Duck!’
+ - Are you not entertained?
+ - Some of the things you read you get an immediate reaction to so I’ve stopped reading things now. I do worry about my family though. Some people do try some nasty things to get at them and try and get a reaction from them.
+ - I have respect for beer.
+ - I never actually expected success, but it doesn’t surprise me when it comes because I know how much work I put into what I do.
+ - I have a new horse. I get her to come to me from half a mile away. With just a simple call. That’s because she knows that when she’s with me, she’s taken care of. She trusts me.
+ - Even though Noah is in the Koran as well. But we knew going into this project that you can’t make stories or render images about the Prophet. But I do believe people are missing out if they don’t have the choice to see this film.
+ - It’s such an intimate experience, being a director, artistically. It’s deep and it’s satisfying and it’s wonderful, on so many levels, but it’s also really scary.
+ - If you live like it’s the past and you behave like it’s the past, then guys from the future find it very hard to see you.
+ - If there’s anything about someone’s life that’s important enough to make a movie about it, I have to take responsibility to get all of it right. It’s a huge responsibility.
+ - I am a man that has a lot of respect for faith and spirituality. I think it is important that we talk about religion in today’s world.
+ - I’d like to play passionate women, but no one will let me.
+ - I read the bible often, not just to prepare for “Noah”. I believe it is a very important book.
+ - I respond in the moment which is what makes me a good actor.
+ - I don’t know if I was ever looking for this kind of success- it came along as a by-product of concentrating on what I was doing.
+ - Some people have got advice, some people have got horror stories. I like people that look you in the eye with a glow and say “It’s gonna be cool.”
+ - I’m not one of those fellows that is just going to have a psuedo-middling relationship.
+ - Nobody wants zealotry in a police force, you know? You do want to know that the guy who’s got that badge, is confident enough to judge a certain level of benign corruption. Like a man steals some food to feed his starving children.
+ - Once you’re a parent, male or female, every single thing that happens in your life is seen through the prism of being a parent.
+ - If I’m creating the composition, it’s easier for me as an actor because I’ve just cut out the middle man. Because I’ve created the composition and now I’m in it, I already know exactly what I want to get out of it. So, bang!
+ - A lot of the things that other people from outside the business would see as crazy or strange are just a natural part of the working process. Preparation is key, and detail and collaboration are the rule, but no matter how many hours you spend preparing, there’s always something.
+ - My days, if they start in the morning with a cuddle from my son, are just so much more glorious than they were prior to that.
+ - Like everyone else, I’ve had moments when I’ve felt that I’ve been losing my grip.
+ - The thing about films is you learn new stuff all the time. You think you can get to a point where you’ve got it all down. But then another, different situation arises.
+ - When I was a little kid, I used to really embarrass my parents.
+
+60 quotes

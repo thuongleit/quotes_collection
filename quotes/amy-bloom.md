@@ -1,0 +1,29 @@
+ - You are imperfect, permanently and inevitably flawed. And you are beautiful.
+ - Marriage is not a ritual or an end. It is a long, intricate, intimate dance together and nothing matters more than your own sense of balance and your choice of partner.
+ - Love at first sight is easy to understand; it’s when two people have been looking at each other for a lifetime that it becomes a miracle.
+ - You cannot fake effort; talent is great, but perseverance is necessary.
+ - A blind man can see how much I love you.
+ - Intimacy is being seen and known as the person you truly are.
+ - Some people are your family no matter when you find them, and some people are not, even if you are laid, still wet and crumpled, in their arms.
+ - All intimacy is rare-that’s what makes it precious.
+ - There is no such thing as a good writer and a bad liar.
+ - Be real and unashamed. Even of your faults.
+ - And sometimes we cling because the memory is so painful that we can’t stop visiting it and hoping to make it come out differently. The risk of letting go is that we have to confront our own selves and our own possibilities.
+ - The past is a candle at great distance: too close to let you quit, too far to comfort you.
+ - It is a wonderful, moving, heart-filling experience to sit with the man or woman you love and your beloved children and know that all are happy to be just where they are with each other and loving one another. This doesnt happen very often.
+ - Everyone has two memories. The one you can tell and the one that is stuck to the underside of that, the dark, tarry smear of what happened.
+ - My writing process, such as it is, consists of a lot of noodling, procrastinating, dawdling, and avoiding.
+ - I wasn’t surprised to find myself in the back of Mr. Klein’s store, wearing only my undershirt and panties, surrounded by sable.
+ - I met Jay Jonhson. I won him the way poor people occasionally win the lottery: Shameless perseverance and embarrassingly dumb luck, and every time I see one of those sly, toothless, beaten-down souls on TV holding a winning ticket, I think, Go, team.
+ - I have made the best and happiest ending that I can in this world, made it out of the flax and netting and leftover trim of someone else’s life, I know, but made it to keep the innocent safe and the guilty punished, and I have made it as the world should be and not as I have found it.
+ - Is it better for a woman to marry a man who loves her than a man she loves.
+ - It takes something to get married: nerve, hope, a strong desire to make a certain statement – and it takes something to stay married: more hope, determination, a sense of humor, and needs that are best met by being in a pair.
+ - For me, the short story is the depth of a novel, the breadth of a poem, and, as you come to the last few paragraphs, the experience of surprise.
+ - I do not say what I feel, and people often take that for shyness, even kindness.
+ - Aging is a chance to make what was good, great; and what was never so good, better.
+ - Be real and be unashamed, even of your faults. I do truly know what my husband is made of and vice versa.
+ - Men do not know what they do not know, and women should not tell them.
+ - Bad people doing bad things is not interesting. What I find interesting is good people doing bad things.
+ - Boundaries are the lines we draw that mark off our autonomy and that of other people, that protect our privacy and that of others. Boundaries allow for intimate connection without dissolving or losing one’s sense of self.
+
+27 quotes

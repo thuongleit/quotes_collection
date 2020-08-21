@@ -1,0 +1,26 @@
+ - Keep your heart in peace and let nothing trouble you, not even your faults. You must humble yourself and amend them peacefully, without being discouraged or cast down, for God’s dwelling is in peace.
+ - Let us begin in earnest to work out our salvation, for no one will do it for us, since even He Himself, Who made us without ourselves, will not save us without ourselves.
+ - Let every knee bend before Thee, O greatness of my God, so supremely humbled in the Sacred Host. May every heart love Thee, every spirit adore Thee and every will be subject to Thee!
+ - He will take good care to provide what is necessary for our sanctification, provided we are careful to accept everything according to His designs.
+ - I need nothing but God, and to lose myself in the heart of God.
+ - Are you making no progress in prayer? Then you need only offer God the prayers which the Savior has poured out for us in the sacrament of the altar. Offer God His fervent love in reparation for your sluggishness.
+ - We must submit to the Will of God and kiss the hand that strikes us, for we know it is better to suffer in this life than in the next, since one moment of suffering willingly accepted for the love God, is worth an eternity of happiness.
+ - But above all preserve peace of heart. This is more valuable than any treasure.
+ - Until we have acquired genuine prayer, we are like people teaching children to begin to walk.
+ - All for the Eucharist; nothing for me.
+ - Cling to God, and leave all the rest to Him: He will not let you perish. Your soul is very dear to Him, He wishes to save it.
+ - It is attachment to creatures and to self-satisfaction that weakens the blessings of love in your heart. You must die to all that, if you wish the pure love of God to reign therein.
+ - Go courageously to God, along the way He has traced out for you, steadfastly embracing the means He offers you.
+ - My greatest happiness is to be before the Blessed Sacrament, where my heart is, as it were, in Its center.
+ - O my Saviour, who am I, that Thou shouldst have so long awaited my repentance!
+ - May faith be the torch which illuminates, animates, and sustains you.
+ - Have recourse trustfully to Gods loving kindness and He will not forsake you, for He longs to bestow His graces. Though you may have had the misfortune to offend Him, He is always ready to receive you, provided you return humbly to Him.
+ - Look upon yourself as a tree planted beside the water, which bears its fruit in due season; the more it is shaken by the wind, the deeper it strikes its roots into the ground.
+ - One just soul can attain pardon for a thousand sinners.
+ - Crosses, contempt, sorrows and afflictions are the real treasures of the lovers of Jesus Christ crucified.
+ - I think He intends to try you like gold in the crucible, so as to number you amongst His most faithful servants. Therefore you must lovingly embrace all occasions of suffering, considering them as precious tokens of His love. To suffer in silence and without complaint is what He asks of you.
+ - The heaviest of my crosses was that I could do nothing to lighten the cross my mother was suffering.
+ - The cross is a precious treasure to be kept secret, lest we be robbed of it.
+ - Do nothing through human respect and, when it assails you, say: I shall do neither more nor less for the eyes of creatures. O my God, since I wish to please Thee alone, it suffices that Thou seest me everywhere.
+
+24 quotes

@@ -1,0 +1,64 @@
+ - A conclusion is simply the place where you got tired of thinking.
+ - Imaginative empathy is one of the great gifts that humans have, and it means that we can live more than one life. We can picture what it would be like from another perspective.
+ - You can go on like this for a very long time, and no one will notice. You keep thinking you’re going to hit some sort of bottom, but I’m here to tell you: There is no bottom.
+ - Even when our death is imminent, we carry the image of ourselves moving forward, alive, into the future.
+ - Writing a short story is a little like walking into a dark room, finding a light and turning it on. The light is the end of the story.
+ - Maybe love, like suffering, is relative.
+ - It is not like a premonition of death. It is as if she died a long time ago, and she just now remembered it.
+ - There are so many people we could become, and we leave such a trail of bodies through our teens and twenties that it’s hard to tell which one is us. How many versions do we abandon over the years?
+ - My main reader was my wife Sheila, and I haven’t written a lot since she died.
+ - So this was what it felt like to lose yourself. Again. To let go of your future and let it rise up and up until finally you couldn’t see it anymore, and you knew that you had to start over.
+ - People write fiction in their minds all the time – every time we read a ‘human interest’ news story, or a true crime tale, we find ourselves fascinated because we’re trying to understand why people behave the way they do, why they make the choices they do, how we become who we become.
+ - The feeling of being an outsider, and the identity theme, are hardwired into me. If there’s anything really autobiographical in my fiction, it’s that feeling. I always feel that way.
+ - The kind of person I find myself interested in is a cross between being very emotionally complex and very immature. That’s what I felt I was like when I was younger.
+ - The danger in writing about a world you don’t know very well is that you can get lost in it, and sometimes I’ll end up with a hundred pages I don’t know what to do with.
+ - It’s not like it ruined my life, I was going to say, but then I didn’t. Because it occurred to me that maybe it had ruined my life, in a kind of quiet way – a little lie, probably not so vital, insidiously separating me from everyone I loved.
+ - I guess I’m curious about how people process grief and how they process loss. And I’m also interested in the ways in which an event can have long-reaching consequences and a life over the course of years.
+ - A novel requires a certain kind of world-building and also a certain kind of closure, ultimately. Whereas with a short story you have this sense that there are hinges that the reader doesn’t see.
+ - The happiest I have ever been is in the life that I led with my wife and kids.
+ - I’ve never been able to sleep very much, even when I was a kid. I used to hate being forced to lay in bed in the darkness, and just shifting in bed and staring at the shadows.
+ - I know a lot of people don’t listen to music when they’re writing because it distracts them, but for me it’s almost a way to get into the self-hypnotic state that I need to be in to write.
+ - If no one knows you, then you are no one.
+ - Writing about women’s sexuality is very scary for me because I’m always afraid I’ll get it wrong.
+ - There’s a lot of effort expended once you begin to completely trash your life. Sometimes, writing feels like this to me.
+ - I would say that all short stories have mystery naturally built into them.
+ - A lot of people work really diligently to maintain a “profile” in the writing world, but that’s so hard, and so boring most of the time. So you just keep doing what you like to do, I guess, and try to enjoy it.
+ - The earliest impetuses for writing, for me, were simply the strange things I happened to notice in my everyday life, stuff I read about in the grocery store tabloids my mom bought, situations that struck me as compelling, anecdotes I’d heard, images, words, metaphors.
+ - It had occurred to him that if the undead don’t realize that they are dead, he might easily be one of them himself.
+ - In the end, there probably isn’t much difference between being in love and acting like you’re in love.
+ - That’s how I work, whether with stories or novels – they start with an image that comes to me in a daydream, and a lot of times I’m walking around with these pictures in my head for awhile before I start writing.
+ - A lot of time, with stories, I’ll start out with a title and try to dream myself into the story that it evokes – a kind of subconscious exercise in which I’m trawling for some kind of entryway into fiction.
+ - You can recognize in your own reading habits what writers are doing that works and what doesn’t. I’m becoming much more aware of that after reading a decade of student stories.
+ - I like to sleep about four or five really solid hours at night, and then sometimes take a nap in the afternoon or early evening after dinner. I love naps.
+ - I keep a daily journal of whatever weird thought comes into my mind, like when I had a dream I was in North Dakota in the middle of a blizzard and for some reason the Egyptian pyramids were there, too – that I was able to shuffle into the book.
+ - Maybe it’s because I grew up during the MTV generation, but to me a perfect song is one I can imagine a music video to, a song that can take you into a dream.
+ - I tend to like order in almost every other aspect of my life, but for me, the process of writing is really chaotic and decadent and indulgent.
+ - I knew I wanted to play around with genre-esque imagery, and the identity theft stuff came in the middle, when I was figuring out how the characters were connected to those images.
+ - I start with an image, then I go from the image toward exploring the situation. Then I write a scene, and from the scene I find the character, from the character I find the larger plot. It’s like deductive reasoning – I start with the smaller stuff and work backward.
+ - You can’t tell people how to feel when they read your work. You can only hope to connect.
+ - I read a lot, but at the same time I’m not a particularly good or diligent or discriminating reader. I go through maybe close to a thousand or more books a year, but a lot of times I’ll only read bits and pieces of any one individual text.
+ - I never could figure out how those people like Bukowski could be both carousers and writers at the same time, because to me writing takes as much destructive energy as it takes to be a really good professional drunk.
+ - Plot was always secondary in my mind.
+ - Fiction is fun because you get to steal an identity and try to make it authentic.
+ - At a certain point, you must be able to slip loose. At a certain point, you found that you had been set free. You could be anyone, he thought. You could be anyone.
+ - I’m certainly very influenced by what you would call ‘contemporary headline horror,’ stuff that is true crime or for one reason or another catches our attention in the media, those strange cases that we end up obsessing about. I’m always influenced by weird anecdotes and news.
+ - I still think about the writers I loved when I was a kid.
+ - I think we’re always in some ways writing to the teachers who gave us early love.
+ - Plot and scene are still the hardest things for me, though I think they’re the building blocks of what makes a story work.
+ - In some ways all of my fiction is like a conversation I’m having with the writers I read when I was first falling in love with books.
+ - I always worry that knowing too much about a novel or a story early on in writing will close it down – it feels fatalistic in some way.
+ - Identity issues are hardwired into the way I think about character – it’s almost as if I can’t get away from them even if I want to.
+ - I usually have more than one thing I’m working on at once – I’ve been working on three different novels. When I get stuck on one, I hop back and forth.
+ - When I was younger I was attracted to people who had that kind of artifice – people who were incredibly polished and had a complex persona that always seemed to be turned on. I was really interested in these kinds of people because I felt so unformed...
+ - Julie Orringer is the real thing, a breathtaking chronicler of the secrets and cruelties underneath the surface of middle-class American life. These are terrific stories-wise, compassionate and haunting.
+ - I have long admired Caroline Leavitt’s probing insight into people, her wit and compassion, her ability to find humor in dark situations, and conversely, her tenderness towards characters.
+ - Our sense of self is a kind of construct. It is in some ways like a novel, and it’s like a fabric of fictions that we patch together from memory.
+ - You can’t count on notoriety lasting very long, and there’s no way to predict whether anyone will care about your books or you in three years, let alone ten or twenty.
+ - Here is the door of my mom’s house, well-remembered childhood portal. Here is the yard, and a set of wires that runs from the house to a wooden pole, and some fat birds sitting together on the wires, five of them lined up like beads on an abacus.
+ - The thing that grounds you, and the thing that really gives you a sense of wholeness, is your family, friends and your community. Those are the things that can mirror back to you what you’re experiencing, and can affirm to you that the stories you are telling are true.
+ - For me, the process of writing a novel happens mostly in your head before you actually start writing.
+ - Fiction is a particular kind of rhetoric, a way of thinking that I think can be useful in your life. It asks you to image the world through someone else’s eyes, and it allows you to try to empathize with situations that you haven’t actually experienced.
+ - There is your car and the open road, the fabled lure of random adventure. You stand at the verge, and you could become anything.
+ - A lot of times in my short fiction there isn’t much dramatized scene – there are a lot of short, interconnected bits, snippets of conversation, continual action, and so on. I frequently rely pretty heavily on voice.
+
+62 quotes

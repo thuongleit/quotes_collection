@@ -1,0 +1,59 @@
+ - In the land of the blind the one eyed man is king. In the darkness the man with a candle is an easy target. ~~Michael Grant
+ - Superpowers, don’t always make you a superhero. – Duck. ~~Michael Grant
+ - One minute the teacher was talking about the Civil War. And the next minute he was gone. There. Gone. No ‘poof.’ No flash of light. No explosion. ~~Michael Grant
+ - But when reality was hopeless, fantasy became more and more necessary. ~~Michael Grant
+ - We didn’t Make this World we’re just the Poor Fools who are living in it. ~~Michael Grant
+ - It’s not about who’s got powers, morons. It’s about who’s not afraid. And who’s going to do what has to be done. ~~Michael Grant
+ - So many things I’m not, and so few things I am. ~~Michael Grant
+ - You are now free to leave the FAYZ. ~~Michael Grant
+ - It’s vital to keep a sense of humour when the world seems to have suddenly become a very strange place. ~~Michael Grant
+ - I had a polynomial once. My doctor removed it. ~~Michael Grant
+ - It was a sphincter at the top of a black bowl. A fitting commentary on the FAYZ, Diana thought. A giant sphincter. ~~Michael Grant
+ - No you sick, stupid creep, I love you. I shouldn’t. I shouldn’t. You’re sick inside, Caine, sick! But I love you. – Diana. ~~Michael Grant
+ - Because that, more than any monster, was what Sam had feared: that he was weak and cowardly. He had a terrible fear of being afraid. ~~Michael Grant
+ - The gaiaphage. That’s the other word they use. ‘Gaia,’ as in world. ‘Phage,’ as in a worm or something that eats something up. I’m going to go way out on a limb here and say I don’t think something that calls itself a ‘world eater’ is a good thing. ~~Michael Grant
+ - God knew our lives would be really bad sometimes. Like maybe we’d be turned into a monster and then our best friend would get killed. So he made up this story about hell, so we could always say, ‘Well it could be worse. It could be hell.’ And then we’d keep going. ~~Michael Grant
+ - And sometimes you lie to me and sometimes I lie to you And there isnt a thing you could possibly do All these half-destroyed lives Arent as bad as they seem but now i see blood and I hear screams then I wake up and its just a bad dream... ~~Michael Grant
+ - But if all they did was kill time, time would end up killing them. ~~Michael Grant
+ - The warrior who had gone out from the lake to save his people by slaying the evil one was now just a boy sitting in the dirt with his fingers in a mane of blond hair. He stared at nothing. Expected nothing. Planned nothing. Just sat. ~~Michael Grant
+ - The light of day showed you the limits of possibility. But walk through the dark, the absolute, total darkness, and the possibilities were limitless. ~~Michael Grant
+ - Ninth graders with machine guns: its hard to make that a happy story. ~~Michael Grant
+ - If God gives you a Quiznos, can I have a bite? No way. You have to pray for your own food. ~~Michael Grant
+ - Welcome to Perdido beach, where our motto is: Radiation, what radiation? ~~Michael Grant
+ - Slice and Dice, Slice and Dice. ~~Michael Grant
+ - Let me guess: you’re secretly a wizard who was raised by muggles. ~~Michael Grant
+ - Caine met Diana’s disbelieving gaze and laughed aloud. “Why so gloomy? Doesn’t every little girl want to grow up to be a queen?” “Princess,” Diana said. “So, you got a promotion,” Caine said. ~~Michael Grant
+ - Sam and Caine were left standing side by side, bruised and battered, to stare over Penny’s sickening corpse, at the face of their mother. ~~Michael Grant
+ - Its the fate of all creators: They fall in love with their creations. ~~Michael Grant
+ - Guilt was a fascinating thing: it seemed not to weaken over time. If anything it grew stronger as the circumstances faded from memory, as the fear and the necessity became abstract. And only her own actions stood out with crystal clarity. ~~Michael Grant
+ - He’s one kind of person, you’re another. When life is going along normally, you’re sort of the same. But when life turns strange and scary, when there’s a crisis, suddenly you’re completely different people. ~~Michael Grant
+ - We’re sitting in the dark willing to sell our souls for another peppermint with enough uranium to give a terrorist a wet dream. – Diana. ~~Michael Grant
+ - She was scared. Scared of dying. ~~Michael Grant
+ - I had a hard childhood. Hard for my parents. Not that bad for me. ~~Michael Grant
+ - Man, don’t ever be sorry you don’t want to kill someone. ~~Michael Grant
+ - An old couple came running from a motorhome, scribbling as they ran. Their sign read, Can you check on our cat, Ariel? No one would answer that, because the cats had all been eaten. ~~Michael Grant
+ - Sam, there comes a time when the world no longer needs heroes. And then the true hero knows to walk away. ~~Michael Grant
+ - He didn’t mind if she hated him. They were never going to be a cute romantic couple like Sam and Astrid. Clean-cut, righteous, all that. The perfect couple. He and Diana were the imperfect couple. ~~Michael Grant
+ - The pain was her whole world now. Pain and fear. ~~Michael Grant
+ - You cant be trapped by other people you can only be trapped by your fear, defy and win! ~~Michael Grant
+ - Fear was about possibilities. Not things that happened. Things that might. ~~Michael Grant
+ - He found a set of encyclopedias – like Wikipedia, but paper and very bulky. ~~Michael Grant
+ - Sometimes, if I really strain my brain, I can do multiplication. ~~Michael Grant
+ - Sam- I didn’t know you had a last name I thought you were like Iman or Madonna or Beyonce. You just needed the one name. Dekka- Yeah sure, me and Beyonce. ~~Michael Grant
+ - Smart stupid. Stupid smart. ~~Michael Grant
+ - The bringer of fear was afraid. ~~Michael Grant
+ - So, Diana thought, that was the bait she had to lay out for Jack. Of course. What else? He might lust for Diana, and long for Brianna, but Jack’s true love was made of silicon. ~~Michael Grant
+ - No one vinces me, baby. ~~Michael Grant
+ - Numbers still gave Astrid pleasure. That was the great thing about numbers: it required no faith to believe that two plus two equaled four. And math never, ever condemned you for your thoughts and desires. ~~Michael Grant
+ - Which was how Britteny ended up nestled next to Mickey, under the shelter of a painter’s drop cloth. She felt no pain. She saw no light. She heard, but barely. Her heart was still and silent. Yet she did not die. ~~Michael Grant
+ - A man without pleasure is a man without any idea what life is about. ~~Michael Grant
+ - And yes, we do have some food. Maybe you’d like to join us? Unless you want to stick with your sheep sushi. ~~Michael Grant
+ - They both smiled at the picture of Albert in his chinos and button-down shirt exhorting kids from atop a bike. ~~Michael Grant
+ - No, I love watching autopsies of disgusting mutant monsters. ~~Michael Grant
+ - San: You all right? Virt: I think i crapped myself a little Sam: Just a little? you’ve got nerves of steel. ~~Michael Grant
+ - Sam, that’s a great concept. And maybe you believe it. But I’m black and I’m a lesbian, so let me tell you: From what I know? Personal experience? There are always lines. ~~Michael Grant
+ - They said a lot of things to each other that night, but nothing that involved words. ~~Michael Grant
+ - She was no longer theirs. She was his. And he was hers. And this was their world. ~~Michael Grant
+ - She placed her palm over his wound, pressing as hard as she dared. She would stop the blood. She would hold him and stop his life from escaping. She would hold life inside him and he wouldn’t die. ~~Michael Grant
+
+57 quotes

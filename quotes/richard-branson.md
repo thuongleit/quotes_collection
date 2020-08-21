@@ -1,0 +1,502 @@
+ - Screw it. Let's do it.
+ - If somebody offers you an amazing opportunity but you are not sure you can do it, say yes – then learn how to do it later!
+ - Train people well enough so they can leave, treat them well enough so they don’t want to.
+ - You don’t learn to walk by following rules. You learn by doing and falling over.
+ - Complexity is your enemy. Any fool can make something complicated. It is hard to keep things simple.
+ - Do not be embarrassed by your failures, learn from them and start again.
+ - Respect is how to treat everyone, not just those you want to impress.
+ - I don’t think of work as work and play as play. It’s all living.
+ - My definition of success? The more you’re actively and practically engaged, the more successful you will be.
+ - A business is simply an idea to make other people’s lives better.
+ - To launch a business means successfully solving problems. Solving problems means listening.
+ - I am prepared to try anything once.
+ - Business opportunities are like buses, there’s always another one coming.
+ - Throwing yourself into a job you enjoy is one of the life’s greatest pleasures.
+ - My interest in life comes from setting myself huge, apparently unachievable challenges and trying to rise above them.
+ - Life is a helluva lot more fun if you say yes rather than no
+ - A business is simply an idea to make other people’s lives better.
+ - The brands that will thrive in the coming years are the ones that have a purpose beyond profit.
+ - To me, business isn't about wearing suits or pleasing stockholders. It's about being true to yourself, your ideas and focusing on the essentials.
+ - Having a personality of caring about people is important. You cant be a good leader unless you generally like people. That is how you bring out the best in them.
+ - A business has to be involving, it has to be fun, and it has to exercise your creative instincts.
+ - Listen more than you talk. Nobody learned anything by hearing themselves speak.
+ - The time to go into a new business is when it’s badly run by others.
+ - There is no planet B. We have to take care of the one we have.
+ - Enjoy life – you only get one.
+ - It is only by being bold that you get anywhere. If you are a risk-taker, then the art is to protect the downside.
+ - Remember it’s OK to be yourself.
+ - Have fun, work hard and money will come. Don’t waste time – grab your chances. Have a positive outlook on life. When it’s not fun, move on.
+ - Every risk is worth taking as long as it’s for a good cause, and contributes to a good life.
+ - The balloons only have one life and the only way of finding out whether they work is to attempt to fly around the world.
+ - A company’s employees are its greatest asset and your people are your product.
+ - As much as you need a strong personality to build a business from scratch, you also must understand the art of delegation. I have to be good at helping people run the individual businesses, and I have to be willing to step back. The company must be set up so it can continue without me.
+ - Never look back in regret – move on to the next thing.
+ - If you look after your staff, they’ll look after your customers. It’s that simple.
+ - If I was a businessman, or saw myself as a businessman, I would have never gone into the airline business.
+ - Screw it, let’s do it – Just get on with it and do it.
+ - You never know with these things when you're trying something new what can happen. This is all experimental.
+ - Your employees are your company’s real competitive advantage. They’re the ones making the magic happen-so long as their needs are being met.
+ - The way you treat your employees is the way they will treat your customers.
+ - Learn to live on the edge.
+ - Right now I'm just delighted to be alive and to have had a nice long bath.
+ - If you aim higher than you expect, you could reach higher than you dreamed.
+ - Don’t become a slave to technology – manage your phone, don’t let it manage you.
+ - As a leader of people, you have to be a great listener, a great motivator, be very good at praising and bringing out the best in people.
+ - Any successful entrepreneur knows that time is more valuable than money itself.
+ - If you don’t make bold moves, the world doesn’t move forward.
+ - The key is to set realistic customer expectations, and then not to just meet them, but to exceed them – preferably in unexpected and helpful ways.
+ - Spend more time smiling than frowning and more time praising than criticizing.
+ - Always think, ‘what’s the worst that can happen’ and have some kind of strategy to deal with it.
+ - I never get the accountants in before I start up a business. It's done on gut feeling, especially if I can see that they are taking the mickey out of the consumer.
+ - I’ve had great fun turning quite a lot of different industries on their head and making sure those industries will never be the same again, because Virgin went in and took them on.
+ - Be the best at what you do.
+ - Some 80% of your life is spent working. You want to have fun at home; why shouldn’t you have fun at work?
+ - Succeeding in business is all about making connections.
+ - Those who achieve great things are the ones willing to be scared but not scared off. If you dream big and take risks, impossible becomes just a word.
+ - Never take your eyes off the cash flow because it’s the life blood of business.
+ - Take a chance – it’s the best way to test yourself, have fund and push boundaries.
+ - Your brand name is only as good as your reputation.
+ - Loyal employees in any company create loyal customers, who in turn create happy shareholders.
+ - Success comes from delegating, risk-taking and having a good TEAM!
+ - If you spot an opportunity and are really excited by it, throw yourself into it with everything you’ve got.
+ - Above all, you want to create something you’re proud of.
+ - If you want milk, don’t sit on a stool in the middle of a field in the hope that a cow will back up to you.
+ - My biggest motivation? Just to keep challenging myself. I see life almost like one long University education that I never had – everyday I’m learning something new.
+ - Have fun do good and the money will come.
+ - Most skills can be learned, but it is difficult to train people on their personality.
+ - Don’t just play the game – change it for good.
+ - If you follow your dreams and spend your life doing what brings you joy, you are more likely to find success.
+ - Success cannot be measured in wealth, fame or power, but by whether you have made a positive difference for others.
+ - Believe in yourself and back yourself to come out on top. A fulfilling career is waiting for those brave enough to find it.
+ - Breaking the rules and challenging convention is in the DNA of every successful entrepreneur. Doing things differently and solving problems with new, innovative and fresh approaches are the very reason many start-ups are able to compete and sometimes outpace the established market leaders.
+ - I’m sure you get the best out of people if you look for the best in them. People don’t need to be told when they’ve done something wrong – they know it without having to be told.
+ - Any idea can be a great idea if you think differently, dream big and commit to seeing it realized.
+ - If you run a business, put on top your employees, then your consumers, and then your shareholders.
+ - There is no point in going into a business unless you can make a radical difference in other people’s lives.
+ - Doing good is good for business.
+ - Build your own business team. Survival in business requires a synergy of skills.
+ - Engage your emotions at work. Your instincts and emotions are there to help you.
+ - Happiness is the secret ingredient for successful businesses. If you have a happy company it will be invincible.
+ - Launching a business is essentially an adventure in problem-solving.
+ - The ability to bounce back after a setback is the single most important trait an entrepreneurial venture can possess.
+ - When I was young, every time I criticized someone, my mother would stand me in front of the mirror and say: ‘The flaws you see in others are actually a reflection of yourself.’ That taught me to pay close attention when I looked at others.
+ - Quality brands never go bankrupt.
+ - Well, I think that there’s a very thin dividing line between success and failure.
+ - I just love life. I mean, you know, I love every second of it. I love people.
+ - I like to set myself a new adventure challenge at least once or twice a year because I love that side of my life. I love getting fit and training for it.
+ - I have always lived my life by thriving on opportunity and adventure. Some of the best ideas come out of the blue, and you have to keep an open mind to see their virtue.
+ - You can never go too far wrong by thinking like a customer who’s new to the business.
+ - To be successful, you have to be out there, you have to hit the ground running, and if you have a good team around you and more than a fair share of luck, you might make something happen. But you certainly can’t guarantee it just by following someone else’s formula.
+ - Every success story is a tale of constant adaption, revision and change. A company that stands still will soon be forgotten. Trying to provoke positive change is a principle we’ve embedded across the Virgin family for more than four decades.
+ - My general attitude to life is to enjoy every minute of every day. I never do anything with a feeling of, ‘Oh God, I’ve got to do this today.’
+ - I just like to enjoy life and push myself. Of course, there is method to my madness. When you are entering into a new industry, for example, it helps to do something to get your name on the front pages.
+ - I think because I have great difficulty saying the word, ‘no,’ almost every day’s a different adventure.
+ - Your brand or your name is simply your reputation, you have to fight in life to protect that as it means everything. Nothing is more important.
+ - I was dyslexic, I had no understanding of schoolwork whatsoever. I certainly would have failed IQ tests. And it was one of the reasons I left school when I was 15 years old. And if I – if I’m not interested in something, I don’t grasp it.
+ - Being an entrepreneur simply means being someone who wants to make a difference to other people’s lives.
+ - Half the art of ballooning is to make your crashes so gentle that you can fool yourself into calling them landings.
+ - Space is hard – but worth it. We will persevere and move forward together.
+ - I know enough to know that no man is an island.
+ - The truth is this: the Earth cannot provide enough food and fresh water for 10 billion people, never mind homes, never mind roads, hospitals and schools.
+ - Lead by listening – to be a good leader you have to be a great listener.
+ - There is no greater thing you can do with your life and your work than follow your passions – in a way that serves the world and you.
+ - Learn to use your brain power. Critical thinking is the key to creative problem solving in business.
+ - Every success story is a tale of constant adaption, revision and change.
+ - If people aren’t calling you crazy, you aren’t thinking big enough.
+ - Colleagues should take care of each other, have fun, celebrate success, learn by failure, look for reasons to praise not to criticize, communicate freely and respect each other.
+ - If you’re looking to become an entrepreneur then don’t waste your time going to university or business school – just get on and do it.
+ - Create the kind of workplace and company culture that will attract great talent. If you hire brilliant people, they will make work feel more like play.
+ - Learn to look after your staff first and the rest will follow.
+ - Chance favors the prepared mind. The more you practice, the luckier you become.
+ - Don’t think what’s the cheapest way to do it or what’s the fastest way to do it. Think what’s the most amazing way to do it.
+ - Listen. Take the best. Leave the rest.
+ - My philosophy in life is that you only live once. Live life to its fullest.
+ - Brave people don’t live forever, but cautious people don’t live at all.
+ - Only a fool never changes his mind.
+ - Entrepreneurship is about turning what excites you in life into capital, so that you can do more of it and move forward with it.
+ - Publicity is absolutely critical. A good PR story is infinitely more effective than a front page ad.
+ - Many assume my business success has brought me happiness. But the way I see it, I am successful because I am happy.
+ - If you don’t have time for the small things, you won’t have time for the big things.
+ - Sometimes miracles come in pairs.
+ - I moved into a nice houseboat in Little Venice when I was 15 years old. I found a girlfriend called Monday and a houseboat called Friday, so I had the week sewn up.
+ - Run lean; avoid unnecessary expenses.
+ - Confidence breeds confidence and negativity breeds negativity. Treat those around you with respect and dignity and they will thrive.
+ - If you take care of your workers they’ll take care of your business.
+ - My biggest motivation? Just to keep challenging myself.
+ - Money is for making things happen.
+ - Smoking marijuana, as long as you leave the nicotine out of it, is certainly no more damaging than having a drink, and I suspect better for you than having a drink.
+ - Two heads are definitely better than one and by brainstorming as a team and sourcing ideas from each other, you have a better chance of coming up with a strategy that will allow your business to overcome a setback or challenge.
+ - Just start. You will learn so many lessons just by doing.
+ - Education doesn’t just take place in stuffy classrooms and university buildings, it can happen everywhere, every day to every person.
+ - You can’t run a business without taking risks. The brave may not live forever – but the cautious do not live at all!
+ - The quickest way to become a millionaire in the airline business is to start out as a billionaire.
+ - Communication: the thing humans forgot when we invented words.
+ - Luck is when determination meets opportunity.
+ - Wine, like life, is meant to be enjoyed.
+ - Money gives you the freedom to do with your time what you want to do with it.
+ - Once a changemaker, always a changemaker but only a few swim against the tide.
+ - Of course an individual can make a huge difference but it is when those individuals come together with like-minded souls that they can change the world for ever and importantly for the better.
+ - Past failures unlock future successes.
+ - A good leader leads from the front. Don’t get stuck in the office. Get out, meet people and listen to their stories.
+ - No matter how big you are, details count!
+ - Set impossible challenges. Then catch up with them.
+ - I personally don’t believe anything is impossible. With enough determination and effort, almost everything is possible.
+ - I’ve been lucky to have survived balloon trips, boating trips, you know, a lot of rather foolish things in my life, so I was definitely born under a lucky star.
+ - We had an electrical fault about 500 miles into the trip and lost more than half our fuel. We had a fire on the roof. And missed Los Angeles by 3,500 miles at the end of the trip and ending up in the arctic in a snowstorm.
+ - Talent comes from experience and failure.
+ - You can’t do a good business with a bad person. Find the right people to work with and you can’t go wrong.
+ - Successful entrepreneurs don’t wait for the perfect moment – they create it.
+ - Unless you dream, you’re not going to achieve anything.
+ - People do not mind people who try things and fail. If you’re a good entrepreneur, you’re not going to succeed in every single thing you try. You’ve got to try to succeed at more things than fail.
+ - Flowers flourish when they’re watered, and shrivel up when they’re not. People are no different. The best leaders are the ones who look for the best in people.
+ - I am convinced that companies should put staff first, customers second and shareholders third – ultimately that’s in the best interest of customers and shareholders.
+ - No failure means no risk, which means nothing new.
+ - There is no point in starting your own business unless you do it out of a sense of frustration.
+ - People flourish if they’re praised.
+ - Commitment is not letting people down. That’s very important in life. If you say you’re going to do something, make sure you do it. Just try never to let people down.
+ - Tough times are inevitable in life and in business. But how you compose yourself during those times defines your spirit and will define your future.
+ - Don’t think about making money, think about making a difference, spot where others are doing it badly and do it better.
+ - Innovation happens when people are given the freedom to ask questions and the resources and power to find the answers.
+ - The best way of learning about anything is by doing.
+ - Listen to the customer’s complaint and act fast.
+ - The best advice I could give anyone is to spend your time working on whatever you are passionate about in life.
+ - Free publicity and word of mouth is probably the best and cheapest form of advertising. Learn to use it to your advantage.
+ - There are no quick wins in business – it takes years to become an overnight success.
+ - Good customer service begins at the top. If your senior people don’t get it, even the strongest links further down the line can become compromised.
+ - You’ve got to take risks if you’re going to succeed. I would much rather ask forgiveness than permission.
+ - It is important to remember that life is not a dress rehearsal and that none of us should waste our time on doing things that don’t spark fires within us. My golden rule for business and life is: We should all enjoy what we do and do what we enjoy.
+ - Two bricklayers work side by side. The first lays bricks. The second builds magnificent cathedrals. Think small vs. think big.
+ - I like to take chances on people, and whenever possible, promote from within – it sends a great message to everyone in the company when someone demonstrates a passion for the job and leadership skills at every step along the way and is rewarded with a leadership role.
+ - Anyone who makes an effort at whatever they hope to accomplish can, and will, seriously improve their chances of succeeding.
+ - Be bold, brave and not afraid to fall on your face and ultimately you will succeed.
+ - The bigger the dream, the greater the opportunity.
+ - I never learned the rules in the first place. To change the game is at the heart of what Virgin stands for, so the company culture has always been: “Don’t sweat it: rules were meant to be broken.”
+ - Branding is everything. A young girl once came up to me and told me I could be famous because I looked just like Richard Branson!
+ - Lavish praise on people and people will flourish; criticize people and they’ll shrivel up.
+ - Explore this next great frontier where the boundaries between work and higher purpose are merging into one, where doing good really is good for business.
+ - If people are crazy enough to dare, impossible things happen.
+ - Screw the competition – focus on good customer service.
+ - There’s nothing like the endorphins from being fit, and the incredible endorphin rush that goes with that. It beats drugs, drink, and almost anything else I know.
+ - Put your passions to work to make this world a better place.
+ - When you’re first thinking through an idea, it’s important not to get bogged down in complexity. Thinking simply and clearly is hard to do.
+ - Success Comes from listening to your customer.
+ - Consider getting smaller in order to get bigger.
+ - If you want to be a Millionaire, start with a billion dollars and launch a new airline.
+ - You only live once, and I just don’t want to waste a minute of my life.
+ - Focus on your business strengths and keep its weaknesses away from the competition or public.
+ - I believe in benevolent dictatorship provided I am the dictator.
+ - Please be polite. Nothing in life should erode the habit of saying thank you to people or praising them.
+ - There isn’t a flight goes by when I don’t stare out of the window and thank my stars for what I’m seeing and feeling.
+ - Play fair, be prepared for others to play dirty, and don’t let them drag you into the mud.
+ - Kite surfing is a great way of keeping fit. Kiting is great because you’re bouncing over the waves and you’re surfing the waves. I do quite long kite surfs-50 miles in a day.
+ - Setting customer expectations at a level that is aligned with consistently deliverable levels of customer service requires that your whole staff, from product development to marketing, works in harmony with your brand image.
+ - It is the satisfaction of doing it for yourself and motivating others to work with you in bringing it about. It is about the fun, innovation, creativity with the rewards being far greater than purely financial.
+ - Building a business is not rocket science, it’s about having a great idea and seeing it through with integrity.
+ - I love eating meat, but I love our planet even more. So I will join this campaign and stop eating meat at least one day each week.
+ - When you are making a decision about how best to serve your customers, your own experience is often a better guide than a more sophisticated analysis of the market.
+ - Smiling can be a competitive advantage. It makes everyone feel better and every situation brighter.
+ - I have enjoyed life a lot more by saying “yes” than by sayings “no”.
+ - One day offices will be a thing of the past.
+ - What matters is working with a few close friends, people you respect, knowing that if times did turn bad these people would hold together.
+ - Never go into business purely to make money. If that’s the motive you’re better off doing nothing.
+ - I learnt from an early age the need to delegate responsibility out to other team members as there is just too much for one person to do themselves. What is the point of hiring talented team members if you don’t give them the freedom to make the most of the chance you have given them?
+ - Your company should act as a springboard for ambitious employees, not a set of shackles.
+ - It always pays off to focus on things that will make you feel proud. Remember this during every difficult decision you face.
+ - Life’s too short. If you’re passionate – stand up.
+ - A setback is never a bad experience, just another one of life’s lessons.
+ - Communicate your passion clearly, concisely and with genuine conviction.
+ - Most “necessary evils” are far more evil than necessary.
+ - Be swift to take advantage of business opportunities. Bigger companies are too cumbersome to move quickly; this can be a competitive advantage for you.
+ - You shouldn’t be looking for people slipping up, you should be looking for all the good things people do and praising those.
+ - Dream big and you will be presented with the opportunity to lead the world on an incredible adventure.
+ - The world is made of words. And if you know the words that the world is made of, you can make of it whatever you wish.
+ - I never wanted to be a businessman, I just wanted to change the world.
+ - One thing is certain in business, you and everyone around you will make mistakes.
+ - In 30 years time, as technology moves forward even further, people are going to look back and wonder why offices ever existed.
+ - When we start a new venture, we base it on hard research and analysis. Typically, we review the industry and put ourselves in our customer’s shoes to see what we could do better.
+ - I was born under a lucky star, and I have nothing whatsoever to regret. I wouldn’t change a thing about my life.
+ - You shouldn’t blindly accept a leader’s advice. You’ve got to question leaders on occasion.
+ - A successful business must have a sound knowledge of its market and work on how its product or service will be different, stand out and improve people’s lives. If you can ensure it responds to a real need in the market place, your business can punch well above its weight.
+ - Red tape will often get in your way. It’s one of the reasons I often carry scissors!
+ - Ideally, since 80 percent of your life is spent working, you should start your business around something that is a passion of yours.
+ - When people are placed in positions slightly above what they expect, they are apt to excel.
+ - I have always lived my life by making lists: lists of people to call, lists of ideas, lists of companies to set up, lists of people who can make things happen. Each day I work through these lists, and that sequence of calls propels me forward.
+ - Good people have always been at the heart of the Virgin business, and that’s largely because we have tried to keep our business small, and our management teams tight-knit. I feel that small, compact companies, are better run. That is partly because people feel more connected in small companies.
+ - We’re going where no one has gone before. There’s no model to follow, nothing to copy. That is what makes this so exciting.
+ - We spend most of our lives working. So why do so few people have a good time doing it?
+ - I’m a great believer that saying yes is a lot more fun than saying no.
+ - Early on in your career, find someone better than yourself to run the business on a day-to-day basis. Remove yourself, maybe even from the building, and from the nitty-gritty. That way, you’re going to be able to see the bigger picture and think of new areas to go into.
+ - Take the competition seriously, but not yourself.
+ - I have always believed that there is no point in having regrets as you learn far more from mistakes than successes. Embrace a mistake and learn from it; don’t regret them.
+ - I want Virgin to be as well-known around the world as Coca-Cola.
+ - For a successful entrepreneur it can mean extreme wealth. But with extreme wealth comes extreme responsibility. And the responsibility for me is to invest in creating new businesses, create jobs, employ people, and to put money aside to tackle issues where we can make a difference.
+ - Purpose is not an add-on, it’s not an initiative. It is a culture change and it never finishes.
+ - If you want swashbuckling action in your life, become an entrepreneur and give it a go.
+ - Life is a series of ups and clowns. Make it worth your wild!
+ - However tight things are, you still need to have the big picture at the forefront of your mind.
+ - I have always been a huge believer in the inestimable value good mentoring can contribute to any nascent business.
+ - Don’t hesitate to seek external help or advice where need be. Sometimes, it takes an external, emotionally unattached individual to detect your business flaws and render unbiased advice.
+ - The amount of time people waste dwelling on failures rather than putting that energy into another project, always amazes me.
+ - You know I think if the people who work for a business are proud of the business they work for, they’ll work that much harder, and therefore, I think turning your business into a real force for good is good business sense as well.
+ - Good brands reflect the histories of the time and the group of people that made them. They can not be copied. They can not be recycled.
+ - Realize that the people who are working with you, this is their life. You know, 80% of their time is spent at work. Make sure that they’re proud of what they’re doing, that they’re enjoying what they’re doing.
+ - One thing is certain in business: you will make mistakes. When you are pushing the boundaries, mistakes are inevitable-how you react is important.
+ - I never went into business to make money, but I have found that if I have fun, the money will come.
+ - Oh God, I’ve got to do this today.
+ - I think it’s quite great to set yourself a big challenge and then you’ve got another reason for keeping fit.
+ - I’m not the sort of person who fears failure.
+ - Customers shouldn’t just think of your business as a place to buy a product or use a service – it should be a fun place to be.
+ - I’d like to see the government back a programme of research into the medical properties of cannabis and I do not object to its responsible use as a recreational relaxant.
+ - A little humour is good for the soul – regardless of how old you may be.
+ - If you want to stand out from the crowd, give people a reason not to forget you.
+ - Drive, determination, passion and hard work are all free and more valuable than a pot of cash.
+ - People are no different from flowers. If you water them, they flourish. If you are not nice to them, they shrivel up.
+ - Too many companies want their brands to reflect some idealised, perfected image of themselves. As a consequence, their brands acquire no texture, no character and no public trust.
+ - Every great movement in the world starts with a tiny group of people who simply refuse to accept a situation.
+ - There is no such thing as a boring person: everyone has stories and insights worth sharing. While on the road, we let our phones or laptops take up our attention. By doing that, we might miss out on the chance to learn and absorb ideas and inspiration from an unexpected source: our fellow travelers.
+ - I have no secret. There are no rules to follow in business. I just work hard and, as I always have done, believe I can do it. Most of all, though, I try to have fun.
+ - If you love what you do and if you believe in what you do, others will share your enthusiasm. Passionate people find their way to the Virgin Group, and when they do, we snap them up and try to keep them within the family.
+ - I love stirring the pot. I love giving big companies a run for their money – especially if they’re offering expensive, poor-quality products.
+ - If you find yourself stuck in the middle there is only one way to go, forward.
+ - My parents brought me up with this philosophy. You must do things. You mustn’t watch what other people are doing. You must not listen to what other people are doing.
+ - In the ’80’s my gut feeling was that airlines were crap. I hated spending time on planes. I thought we could create the kind of airline I’d like. So we got a secondhand 747 and gave it a go.
+ - Well, I think that there’s a very thin dividing line between success and failure. And I think if you start a business without financial backing, you’re likely to go the wrong side of that dividing line.
+ - I rely far more on gut instinct than researching huge amounts of statistics.
+ - The important thing is that you’ve got a strong foundation before you start to try to save the world or help other people.
+ - Every single astronaut who has come back from space comes back determined to do more to protect it.
+ - Whatever you and your team decide your new brand will stand for, deliver on that promise. That’s the only way you’ll ever control your brand. And beware: brands always mean something. If you don’t define what the brand means, your competitors will.
+ - Records are made to be broken. It is in man’s nature to continue to strive to do just that.
+ - To be successful, you have to be out there, you have to hit the ground running.
+ - I’m a great believer in life to saying yes and not saying no, and hopefully making people smile and just having fun in life.
+ - We Experiment Endlessly, With New Products, New Methods, New Companies And New Marketing. A Successful Business The Emphasis Is On Experiment And Development, Ideas Are The Lifeblood Of Business.
+ - Ideas Are The Lifeblood Of Business. Capture Every Fleeting Idea And Drive For Change.
+ - Happiness doesn’t come from making a fortune and owning lots of possessions. ‘Stuff’ doesn’t bring happiness. Family, friends, good health and the satisfaction that comes from making a positive difference are what really matter.
+ - Making the extra effort to say thanks in a genuine, personal manner goes a long way. It is pleasurable to do, and it encourages more of the same good behavior.
+ - If you run your business fairly; if you treat people well; if you try to move your business into areas that are making a real positive difference to other peoples lives; I think you’ll A. have much pleasant life, but B. I think you’ll have a much more successful business.
+ - Entrepreneurial business favours the open mind. It favours people whose optimism drives them to prepare for many possible futures, pretty much purely for the joy of doing so.
+ - Business leaders take things far too seriously, and forget that most of the time people spend in their lives is at work, and it should be fun.
+ - I’m not superstitious. I don’t really believe in star signs, sorry, or superstitions.
+ - I believe that drudgery and clock-watching are a terrible betrayal of that universal, inborn entrepreneurial spirit.
+ - I’m a true believer in working hard and partying hard. I’m fortunate to be one of those people who can have just as much fun partying without alcohol.
+ - At the end, entrepreneurship is not about wearing expensive suits and earning a lot of money. It is all about being true to yourself, to your values in life. Your dreams.
+ - Perhaps my early problems with dyslexia made me more intuitive: when someone sends me a written proposal, rather than dwelling on detailed facts and figures I find that my imagination grasps and expands on what I read.
+ - Give your employees a mission that matches their ambitions. When you challenge people, they surprise you.
+ - The quality of business communications has become poorer in recent years as people avoid phone calls and face-to-face meetings, I can only assume, in some misguided quest for efficiency.
+ - What’s the quickest way to become a millionaire? Borrow fivers off everyone you meet.
+ - Be creative. Innovate consistently on the little things that the big companies ignore. Little things often make big differences in business.
+ - By working hard, by making the right moves, you can create your own luck, I think. But certainly luck plays a part.
+ - Remember the to-do list but don’t forget the to-be list.
+ - When people screw up, give them a second chance.
+ - To get the respect of people, I think you’ve got to roll up your sleeves and lead with your people. The absolute key is treating your people well. Looking for the best in your people. Lots and lots of praise, no criticism.
+ - If you’re bringing up kids, you just want to smother them with love and praise and enthusiasm. So I don’t think you can mollycoddle your kids too much really.
+ - Government and business must come together on the interlinked issues of conservation, economic development and renewable energy. There are literally thousands of businesses, many in the tourism industry, that depend on an intact marine environment for their long-term survival.
+ - I think that you’re going to get so much more out of life if you just say yes at every opportunity.
+ - I have always believed that personal relationships are vital in business and that people should be directly accountable for their actions.
+ - Fantasizing about the future is one of my favorite pastimes.
+ - Everyone needs something to aim for. You can call it a challenge, or you can call it a goal. It is what makes us human. It was challenges that took us from being cavemen to reaching for the stars.
+ - The jet stream is a very strong force and pushing a balloon into it is like pushing up against a brick wall, but once we got into it, we found that, remarkably, the balloon went whatever speed the wind went.
+ - A business can be started with very little money.
+ - Meet regularly with your business team and brainstorm. Intricate business problems are mostly resolved at brainstorming sessions.
+ - An exceptional company is the one that gets all the little details right.
+ - Unless you dream, nothing will happen. If you dream, you might be able to make your dreams come true.
+ - I am a believer in trying to treat people properly and trying to respond and making sure that I find the time to be courteous.
+ - If you can run one company, you can run another. Running companies are about inspiring and driving the best out of people.
+ - Learn to raise capital by any means necessary. That’s your primary job as an entrepreneur. You must continually raise capital from family and friends, banks, suppliers, customers and investors.
+ - Look for the best in people to build a fantastic team.
+ - You can create a business, choose a name, but unless people know about it you’re not going to sell any products.
+ - Bakers bake bread, accountants manage accounts and entrepreneurs turn ideas into reality.
+ - Through the right people focusing on the right things, we can, in time, get on top of a lot if not most of the problems of this world. And that’s what a number of us are trying to do.
+ - Have passion for what you do; believe in yourself and your product and your customer; persevere; delegate; listen. Have fun. Today, I add: “Do good”.
+ - Be authentic and organic. It can’t be forced or it won’t work. And most importantly, have fun.
+ - If people are jumping down people’s throats all the time, in the end, they’ll just shrivel up like a flower shrivels up that’s not watered.
+ - I’m a lad of the ’60s. I started a magazine to try and end the Vietnam war, but it was a number of years before I had the profile, the financial resources and the time to do more.
+ - It’s never easy to set up any business, but it comes back to determination and drive and the love of what you do!
+ - It’s obviously incredibly important to keep the body fit in order to keep the mind fit, and be able to find time for friends.
+ - In the same way that I tend to make up my mind about people within thirty seconds of meeting them, I also make up my mind about whether a business proposal excites me within about thirty seconds of looking at it. I rely far more on gut instinct than researching huge amounts of statistics.
+ - I believe in goals. It’s never a bad thing to have a dream. If something is really what you want to do, just do it. Whatever your goal.
+ - India is an incredibly vibrant market, which Virgin already, through Virgin Atlantic, has the pleasure of working in. I am delighted that Virgin Comics will not only help to launch the Indian comic market and spin it into the West, but will develop new and exciting talent.
+ - I’ve obviously been born fortunate. I love people. I enjoy every single minute of my life.
+ - Choose great people and shine in their shadows.
+ - I love the freedom of movement that my phone gives me. That has definitely transformed my life.
+ - Money is a poor indicator of success.
+ - I am passionate about many things but conserving our planet and its species is a high priority of mine.
+ - There is so much to be learned from listening to people’s hopes, frustrations, and points of view.
+ - Our generation has inherited an incredibly beautiful world from our parents and they from their parents. It is in our hands whether our children and their children inherit the same world. We must not be the generation responsible for irreversibly damaging the environment.
+ - I’m sure if Brawn GP keep plying me with champagne and putting gorgeous Virgin girls either side of me, you never know!
+ - We’re introducing separate rooms with double beds in all of our planes so people can actually go with their partner and have a proper night’s sleep.
+ - We’ll go into orbit. We’ll go to the Moon. This business has no limits.
+ - What does the name Virgin mean? We are a company that likes to take on the giants. In too many businesses, these giants have had things their own way. We are going to have fun competing with them.
+ - There is no real difference between work and play – it’s all living.
+ - Business is what concerns us. If you care about something enough to do something about it, you’re in business.
+ - Growth does not always lead a business to build on success. All too often it converts a highly successful business into a mediocre large business.
+ - Life can seem rather unreal at times. Alive and well and loving one day. No longer there the next.
+ - Protect your reputation. Don’t be afraid of making mistakes.
+ - Whether you are launching a start-up or leading an established company, you should start establishing your social media presence if you haven’t already.
+ - In times of recession there are massive opportunities and fortunes to be made, so for new up and coming entrepreneurs, this is the time to go and start a business.
+ - The music industry is a strange combination of having real and intangible assets: pop bands are brand names in themselves, and at a given stage in their careers their name alone can practically gaurantee hit records.
+ - Nothing else even comes close.
+ - Dreaming is one of humanity’s greatest gifts – it champions aspiration, spurs innovation, leads to change, and propels the world forward.
+ - For a successful entrepreneur it can mean extreme wealth. But with extreme wealth comes extreme responsibility.
+ - We don’t actually plan to launch new businesses over the next few years, but we are planning to take the ones we have into new territories.
+ - My philosophy is that if I have any money I invest it in new ventures and not have it sitting around.
+ - Those people who spend their time working on things they love are usually the ones enjoying life the most. They are also the ones who dared to take a risk and chase their dreams.
+ - My number one rule in business, and in life, is to enjoy what you do. Running a business involves long hours and hard decisions; if you don’t have the passion to keep you going, your business will more than likely fail. If you don’t enjoy what you are doing, then you shouldn’t be doing it.
+ - Remain focused on fulfilling your business mission. Never allow adversity divert your attention and efforts.
+ - The best advice I got from my dad? Wear a condom.
+ - We always enter markets where the leaders are not doing a great job, so we can go in and disrupt them by offering better quality services.
+ - It is important in life to turn adversity to success.
+ - In a sense, when we started Virgin Atlantic, I was trying to create an airline for myself. If you try to build the perfect airline for yourself, it will be appreciated by others.
+ - I think that marijuana should be legalized. I think the only reason it isn’t legal is because politicians who smoked it when they were young men or young women just don’t have the courage when they become politicians to legalize it.
+ - I myself have benefited from many mentors throughout my life.
+ - There’s no better satisfaction than watching the people around you, who have worked day and night to get something right, realising the dream.
+ - Whenever I see people getting a bad deal I want to step in and do something about it. Of course, this is not pure altruism – there’s a profit to be made too.
+ - I may be a businessman in that I set up and run companies for profit, but when I try to plan ahead and dream up new products and new companies, I’m an idealist.
+ - The best way forward is to give more people everywhere greater power to build their own destinies.
+ - A good idea for a new business tends not to occur in isolation, and often the window of opportunity is very small. So speed is of the essence.
+ - I make up my mind about whether I can trust someone within 60 seconds of meeting them.
+ - Because I don’t see Virgin as a company but as a way of life and I fully enjoy it, I don’t think I’ll ever retire.
+ - Capitalism has never stood back and examined itself properly. I think everybody knows that capitalism is the only thing that works, but is the current form of capitalism the best way of it working?
+ - Screwing business as usual fundamentally recognises that doing good is good for business.
+ - We must rapidly wean ourselves off our dependence on coal and fossil fuels.
+ - It’s so graceful to be blown by the wind, to go where the wind takes you. Just drifting over beautiful rivers in a balloon is perfect.
+ - I have learnt more from my failures than my successes.
+ - You need lucky breaks to be successful.
+ - Like getting into a bleeding competition with a blood bank.
+ - I am a great believer that you need passion and energy to create a truly successful business. Remember many new businesses do not make it and running a business will be a tough experience, involving long hours and many hard decisions – it helps to have that passion to keep you going.
+ - Follow your instincts and live with the consequences.
+ - I think that being a business a leader that treads all over people to get to the top is actually not the way I think to become a successful business leader.
+ - New York to Tokyo could be less than an hour. You could be traveling at 19,000 miles per hour orbitally. After we’ve done the space program, we will be producing supersonic planes, which will go far, far, faster than Concorde.
+ - I cannot remember a moment in my life when I have not felt the love of my family. We were a family that would have killed for each other – and we still are.
+ - I truly believe that capitalism was created to help people live better lives, but sadly over the years it has lost its way a bit. The short-term focus on profit has driven most businesses to forget about the important long-term role they have in taking care of people and the planet.
+ - If you go back into military history, the person who’s leading the troops ought to be in with the troops and not just standing on the backline sending them into battle.
+ - I have fun running all the Virgin businesses, so a setback is never a bad experience, just a learning curve.
+ - People have to decide on priorities if they want to get anywhere. The best lessons I learned was to just do it.
+ - If something can’t be explained on the back of an envelope, it’s rubbish.
+ - I felt uneasy about making the rapid decisions I have always made, and wondered whether every decision should be formally ratified and minuted at a board meeting.
+ - When you are ready to make your first hires, look for people who understand your passion, want to add to your ideas and can envision ways to make improvements.
+ - Brands always mean something. If you don’t define what the brand means, your competitors will.
+ - We’ll not be sending anyone into space before it is safe and the vehicle is well and truly tested.
+ - The risk is worth it. Mike would have been the first to say that.
+ - I just wanted to create things that I could be proud of. Money was just an evil byproduct to pay the bills at the end of the year.
+ - I think you should do in life what you think you’ll make a real difference at. And generally, as a businessperson, you do things you don’t really have experience in.
+ - You’re offering a great service. People are tuning in. So continue to find great people, continue to do what you’re doing. And do it better than your rivals. I know that’s easier said than done...
+ - I never set out to be a businessman.
+ - As an entrepreneur, you’ve got to protect against the company going bust. And as an adventurer, you’ve got to protect against losing your life. It’s even more important as an adventurer to get it right.
+ - It’s better to say nothing than spend 1,000 words or an hour speech saying nothing. Get to the point.
+ - It isn’t effective or productive to force your employees to do anything. Choice empowers people and makes for a more content workforce.
+ - Most people assume that a record shop’s success lies in selling records. In fact, Virgin’s success both in mail order and the record shops lay in skill at buying records.
+ - Virgin could never have grown into the group of more than 200 companies it is now, were it not for a steady stream of intrapreneurs who looked for and developed opportunities, often leading efforts that went against the grain.
+ - The Earth cannot wait 60 years. I want a future for my children and my children’s children. The clock is ticking.
+ - As men, we all have something to give. We all have the power to do our own part to stop the global pandemic of violence against women and girls. It is holding us all back.
+ - Nobody’s ever called me Sir Richard. Occasionally in America, I hear people saying Sir Richard and think there’s some Shakespearean play taking place. But nowhere else anyway.
+ - Ridiculous yachts and private planes and big limousines won’t make people enjoy life more, and it sends out terrible messages to the people who work for them. It would be so much better if that money was spent in Africa – and it’s about getting a balance.
+ - If you are a new startup company, try not to arouse the interest or suspicion of your competition; especially if they are a bigger company. They can crush you while you are still in your startup phase. Lie low while still strengthening your bottom line.
+ - To be a real entrepreneur you always have to be looking forward. The moment you rest on your laurels is the moment your competition overtakes you.
+ - Please don’t get hung up on this question of whether you need to have experience in an industry before you launch your startup.
+ - In business, as in life, all that matters is that you do something positive.
+ - I think entrepreneurship is our natural state – a big adult word that probably boils down to something much more obvious like playfulness.
+ - I don’t think so, in that Virgin is already a global brand. Brands like Amazon have had to spend hundreds of millions of pounds you know, building their brands, whereas Virgin is already well-known around the world.
+ - Whether we’re fighting climate change or going to space, everything is moved forward by computers, and we don’t have enough people who can code.
+ - I think I’ve learned that if you have a house, you end up living in the kitchen, so if you have one big kitchen and then enough bedrooms for your family, that’s about all you need for a home.
+ - By nature I am curious about life, and this extends to my business.
+ - About 40 percent of my time is spent on social issues and building new organizations, more for the benefit of the climate or health issues.
+ - If you create something that makes a difference in people’s lives, you are likely to become a business success as well.
+ - If a chairman of a company visits Seattle, that chairman should take all the staff out in the evening and have a few drinks together, talk together and party together and not be embarrassed about the staff seeing the weaker side of you.
+ - Develop the business around the people; build it, don’t buy it; and, then, be the best.
+ - I just kind of dive in if I think I can create something that will make a difference and then try to get the numbers to stack up after the event. So most of the things I’ve done I would not have done if I’d have asked the accountants to look at them before.
+ - What’s the most critical factor in any business decision you’ll ever have to make? Basically, it boils down to this question: If this all crashes, will it bring the whole house tumbling down like a pack of cards? One business matra remains embedded in my brain – protect the downside.
+ - I had no plans to be an entrepreneur. I just wanted to be a journalist and write for a magazine. At 15, I just decided to leave school and launch a national student magazine.
+ - If you’re lucky enough to have a few hundred thousand dollars in the bank account, that should be sufficient for your own personal needs, and anything more than that you’ve got to put to good use.
+ - Having colleagues nearby, whether at the beach or in a crypt, means the ideas are always flowing.
+ - We, we – as I say, we go in and shake up other industries and I think, you know, we do it differently and I think that industries are not quite the same as a result of Virgin attacking the market.
+ - We hope to create thousands of astronauts over the next few years and bring alive their dream of seeing the majestic beauty of our planet from above, the stars in all their glory and the amazing sensations of weightlessness and space flight.
+ - I think business needs to have a heart and to have a heart a company must be more than just a moneymaking machine.
+ - Sometimes the riskiest decision you can make is to do nothing.
+ - If you do something for fun and create the best possible product, then the profit will come.
+ - The best advice I ever received? Simple: Have no regrets.
+ - So I’ve seen life as one long learning process.
+ - If you have an idea that’s going to make a big difference to people’s lives, and other people are not doing it, you know, just say “screw it,” do it and get on with it, and give it a go.
+ - I drink about 30 cups of tea a day. I’m a complete tea addict.
+ - The extraordinary thing about the record industry is how success can take off without warning.
+ - A generation ago, the image was that you had to trample everyone else down to succeed; but I don’t believe that makes good business sense.
+ - We should focus on what people get done, not on how many hours or days worked. Just as we don’t have a nine-to-five policy, we don’t need a vacation policy.
+ - If you get into business solely to make money, you won’t. If you try to make a real difference, you’ll find success.
+ - London is one of the most exciting cities in the world with so many fantastic pubs and restaurants. I would urge people to get out there and see as much as possible.
+ - If we can just get young people to do the same as their fathers did, that is, wear condoms.
+ - Find somebody else to run your business on a day-to-day basis.
+ - It’s really important to find an hour or two to a day to make sure that you keep healthy, keep fit. It’s very easy just to forget that aspect. And if you’re feeling really good and fit, I think you can get two or three extra hours a day of hard work in as well.
+ - So I’ve seen life as one long learning process. And if I see – you know, if I fly on somebody else’s airline and find the experience is not a pleasant one, which it wasn’t in – 21 years ago, then I’d think, well, you know, maybe I can create the kind of airline that I’d like to fly on.
+ - Most entrepreneurs are not doing it for financial motives in the first place. They’re just people who love creating.
+ - I prefer to have a great time and to keep my wits about me.
+ - Fun is at the core of the way I like to do business and it has been key to everything I’ve done from the outset.
+ - I believe in myself. I believe in the hands that work, in the brains that think, and in the hearts that love.
+ - So I became a publisher by mistake – well, not quite by mistake, because I wanted to be an editor but I had to make sure the magazine would survive. The point is this: Most businesses fail, so if you’re going to succeed, it has to be about more than making money.
+ - Well, we know that people in Australia love the idea of both Impulse and Virgin Blue getting up and adding a bit of competition, and it’s fun to be able to deliver it.
+ - Grow internally first. Strengthen your bottom line first before considering external growth.
+ - We believe that within five years, 96 percent of British consumers will have access to the Internet, whether it be through a personal computer, a set-top box or a mobile phone.
+ - If you don’t enjoy it, don’t do it. You must love what you do.
+ - If you can run one business well, you can run any business well.
+ - All of us have just got to find that time to look after our bodies. That helps us make sure that our mind is sharp. I know that when I’m feeling great and really fit, I can get in three or four hours more of really productive work.
+ - One of the best bits of advice I can give is, early on, when you’re building a new business, try to find somebody to run it on a day-to-day basis to free yourself up to look at the bigger picture.
+ - I am no stranger to healthy competition-wor king hard and playing hard.
+ - Making money never was my incentive. I just want to fight big companies.
+ - I think business leaders all over the world should not just think of how we can make lots of money, which is fine, but to take some of the problems in the world and get out there and tackle them using business. I think that if businesses do that we can get on top of these problems.
+ - I’ve never sued anybody, though there have been one or two occasions I’ve wanted to strangle one or two people.
+ - If you get your face and your name out there enough, people will start to recognize you.
+ - Not enough people realize the satisfaction you can get from really pushing yourself to the limits.
+ - Don’t bother doing something unless you’re radically different from the competition.
+ - If you are glass half empty type of person, maybe you just haven’t been holding the right glass.
+ - I can honestly say that I have never gone into any business purely to make money. If that is the sole motive then I believe you are better off not doing it. A business has to be involving, it has to be fun, and it has to exercise your creative instincts.
+ - First and foremost, any business proposal I like must sound fun.
+ - With the casino and the beds, our passengers will have at least two ways to get lucky on one of our flights.
+ - Although my spelling is still sometimes poor, I have managed to overcome the worst of my difficulties through training myself to concentrate.
+ - I always tell other people to protect against the downside, and not risk roughing on new ventures, but I never stuck to that rule myself.
+ - Age isn’t as important so long as you are surrounded by people you love, doing things you passionately believe in.
+ - However small a company, its founders should try to expand people’s opportunities and choices.
+ - Can you afford to ignore China? It’s like saying you can afford to ignore the internet. I don’t think so.
+ - If you look for the best in your employees, they’ll flourish. If you criticize or look for the worst, they’ll shrivel up. We all need lots of watering.
+ - I just love every minute of my life. I love the variety. Every minute of every day I’m meeting fascinating new people, learning and working with wonderful teams of people creating wonderful things.
+ - The most breathtaking thing about being in space is actually looking back at the Earth.
+ - Our model is to develop each business separately with its own shareholder and management – this way we can concentrate on the job in hand, rather than be part of some enormous and faceless conglomerate.
+ - One key to entrepreneurial success is to get a great group of people around you who believe in your idea.
+ - I think that not relying too heavily on one bank and one bank manager is a good rule to learn.
+ - To succeed in business you need to be original, but you also need to understand what your customers want.
+ - People who think and say we more often than I are a lot more likely to succeed.
+ - Avoid litigations. They are expensive and consume loads of time but if you have got a good case and a better chance of winning; then fight it out.
+ - All you have in life is your reputation: you may be very rich, but if you lose your good name, then you’ll never be happy. The thought will always lurk at the back of your mind that people don’t trust you.
+ - Clearly in the eyes of the consumer; the brand has not been diluted, but we must guard against that happening at all costs.
+ - I think you can get happiness through making a real difference in other people’s lives by setting out to make other people’s lives better and setting out to right the wrongs in the world.
+ - First of all, if you’re setting up a new company, you want to try to find a brand that can work on a global basis.
+ - Whatever business you are in, every company can shoot for the start in their own way.
+ - Well, the odds must be against anybody being able to fly around the world in a balloon on the first attempt. All of us who are attempting to go around the world in balloons are effectively flying in experimental craft because these craft cannot be tested.
+ - Fortunately we’re not a public company – we’re a private group of companies, and I can do what I want.
+ - I have always looked on my businesses not just as money-making machines, but as adventures that can, I hope, make people better off.
+ - If you can make peoples lives a lot better, you’ve got a really good business.
+ - It’s incredible to get people to turn out right in the middle of no where.
+ - I’ve always had a soft spot for dreamers – not those who waste their time thinking ‘what if’ but the ones who look to the sky and say ‘why can’t I shoot for the moon?’
+ - Every business, like a painting, operates according to its own rules. There are many ways to run a successful company. What works once may never work again. What everyone tells you never to do may just work, once.
+ - I have always believed that the only way to cope with a cash crisis is not to contract but to try to expand out of it.
+ - I never really felt secure until I was well into my 30s, because anytime I had success, I would invest in new projects.
+ - I wanted to be an editor or a journalist, I wasn’t really interested in being an entrepreneur, but I soon found I had to become an entrepreneur in order to keep my magazine going.
+ - I believe that today’s businesses – regardless of their size – must be prepared to do good in societies around the globe. I am cautiously optimistic that we can make the world a far better, safer and more equitable place – but business and enterprise must sit at the heart of this process.
+ - To have created one of the most respected companies in the world. Not necessarily the biggest.
+ - The funny thing is people won’t let me pay for things. I’ll be in a restaurant and the manager will say, ‘Oh no, it’s on the house.’
+ - I’ve had to create companies that I believe in 100%. These are companies I feel will make a genuine difference. Then I have to be willing to find the time myself to talk about them, promote them and market them. I don’t want to spend my life doing something that I’m not proud of.
+ - The Virgin brand is not a product like Coca-Cola or Famous Grouse whisky; it’s an attitude and a way of life to many. That attitude is about giving customers a better time and better value in a fun way that embraces life and seeks to give the customers something new.
+ - And obviously, from our own personal point of view, the principal challenge is a personal challenge.
+ - Don’t wait till you are big before you begin building your brand. Build a brand from scratch alongside your business.
+ - I think a lot of becoming an entrepreneur is something which people have to learn just from getting out there and giving it a go, and having to learn the art of survival.
+ - I decided there must be room for another airline when I spent two days trying to get through to People Express.
+ - I would not be able to change a sparking plug and I would not be able to fly a spaceship or build a rocket or whatever. But what I am good at doing is finding brilliant people and surrounding myself with brilliant people.
+ - I don’t buy a lot of things. I like to create things. I’ve been lucky enough to be able to build my beautiful island in the Caribbean. I certainly haven’t regretted that.
+ - There are quite a few things I’ve done that even I thought might have been one step too far. But if you are willing to make a fool of yourself and make people smile, as long as you do it with a sense of fun, you can get away with it.
+ - Being dyslexic can actually help in the outside world. I see some things clearer than other people do because I have to simplify things to help me and that has helped others.
+ - I will work day and night to avoid failure, but if I can’t, I’ll pick myself up the next day. The most important thing for entrepreneurs is not to be put off by failure.
+ - My mother was determined to make us independent. When I was four years old, she stopped the car a few miles from our house and made me find my own way home across the fields. I got hopelessly lost.
+ - Money is only interesting for what it lets you do and create.
+ - When people warn me against doing something once my mind is made up, I grow increasingly determined to try it.
+ - The entrepreneurs who succeed usually want to make a difference to people’s lives, not just their own bank balances.
+ - It’s clear that it is in the best interest of business to be part of the conservation, along with governments and civil society.
+ - We’d love to be involved with the creation of something very special, something quite large and something quite exciting.
+
+500 quotes

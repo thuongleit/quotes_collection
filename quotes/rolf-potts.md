@@ -1,0 +1,25 @@
+ - Vagabonding is about refusing to exile travel to some other, seemingly more appropriate, time of your life. Vagabonding is about taking control of your circumstances instead of passively waiting for them to decide your fate.
+ - Vagabonding is about not merely reallotting a portion of your life for travel but rediscovering the entire concept of time.
+ - If in doubt, just walk until your day becomes interesting.
+ - Vagabonding is an attitude – a friendly interest in people, places, and things that makes a person an explorer in the truest, most vivid sense of the word.
+ - In reality long-term travel has nothing to do with demographics, age, ideology, income, and everything to do with personal outlook.
+ - The more we associate experience with cash value, the more we think that money is what we need to live. And the more we associate money with life, the more we convince ourselves that we’re too poor to buy our freedom.
+ - The mind can be a crazy monkey that is always dying to escape from the moment.
+ - Travel, I was coming to realize, was a metaphor not only for the countless options life offers but also for the fact that choosing one option reduces you to the parameters of that choice. Thus, in knowing my possibilities, I also knew my limitations.
+ - Of all the adventures and challenges that wait on the vagabonding road, the most difficult can be the act of coming home.
+ - Begin to look at maps with the narcotic tingle of possibility.
+ - Money, of course, is still needed to survive, but time is what you need to live. So, save what little money you possess to meet basic survival requirements, but spend your time lavishly in order to create the life values that make the fire worth the candle. Dig?
+ - If you wander with open eyes and simple curiosity, you’ll discover a much richer pleasure – the simple feeling of possibility that hums from every direction as you move from place to place.
+ - At times, the biggest challenge in embracing simplicity will be the vague feeling of isolation that comes with it, since private sacrifice doesn’t garner much attention in the frenetic world of mass culture.
+ - The goal of preparation then is not knowing exactly where you’ll go but being confident nonetheless that you’ll get there.
+ - I think your travels get better when you stop showcasing your journey to others and begin to live it, quietly and joyfully.
+ - Work is when you confront the problems you might otherwise be tempted to run away from.
+ - Long-term travel doesn’t require a massive bundle of cash; it requires only that we walk through the world in a more deliberate way.
+ - Indeed, the most vivid travel experiences usually find you by accident, and the qualities that will make you fall in love with a place are rarely the features that took you there.
+ - The act of vagabonding is not an isolated trend so much as it is a spectral connection between people long separated by place and time, but somehow speaking the same language.
+ - Time is the truest form of wealth. And the beauty is, we are all born equally rich in time.
+ - What better way to discover the unknown than to follow your instincts instead of your plans.
+ - The value of your travels does not hinge on how many stamps you have in your passport when you get home – and the slow nuanced experience of a single country is always better than the hurried, superficial experience of forty countries.
+ - The simple willingness to improvise is more vital, in the long run, than research.
+
+23 quotes

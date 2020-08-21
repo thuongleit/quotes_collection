@@ -1,0 +1,148 @@
+ - People who love to eat are always the best people.
+ - The measure of achievement is not winning awards. It’s doing something that you appreciate, something you believe is worthwhile.
+ - The secret of a happy marriage is finding the right person. You know they’re right if you love to be with them all the time.
+ - Romance is the icing but love is the cake.
+ - The only real stumbling block is fear of failure. In cooking you’ve got to have a what-the-hell attitude.
+ - To be a good cook you have to have a love of the good, a love of hard work, and a love of creating.
+ - A party without cake is really just a meeting.
+ - You’ll never know everything about anything, especially something you love.
+ - Dining with one’s friends and beloved family is certainly one of life’s primal and most innocent delights, one that is both soul-satisfying and eternal.
+ - It’s fun to get together and have something good to eat at least once a day. That’s what human life is all about – enjoying things.
+ - Cooking is one failure after another, and that’s how you finally learn.
+ - I think careful cooking is love, don’t you? The loveliest thing you can cook for someone who’s close to you is about as nice a valentine as you can give.
+ - Find something you’re passionate about and keep tremendously interested in it.
+ - We should enjoy food and have fun. It is one of the simplest and nicest pleasures in life.
+ - If you don’t pick your audience, you’re lost because you’re not really talking to anybody.
+ - Any disaster is a learning process.
+ - I always give my bird a generous butter massage before I put it in the oven. Why? Because I think the chicken likes it – and, more important, I like to give it.
+ - This is my invariable advice to people: Learn how to cook- try new recipes, learn from your mistakes, be fearless, and above all have fun!
+ - When you flip anything, you really you just have to have the courage of your convictions.
+ - With enough butter, anything is good.
+ - Never apologize for your cooking.
+ - I think careful cooking is love, don’t you?
+ - Drama is very important in life: You have to come on with a bang. You never want to go out with a whimper. Everything can have drama if it’s done right. Even a pancake.
+ - Of course I made many boo-boos. At first this broke my heart, but then I came to understand that learning how to fix one’s mistakes, or live with them, was an important part of becoming a cook.
+ - Until I discovered cooking, I was never really interested in anything.
+ - I never feel lonely in the kitchen. Food is very friendly.
+ - There are reasons, and then there are excuses.
+ - I was 32 when I started cooking; up until then, I just ate.
+ - Many of the delicious soups you eat in French homes and little restaurants are made just this way, with a leek-and-potato base to which leftover vegetables or sauces and a few fresh items are added.
+ - One of the important requirements for learning how to cook is that you also learn how to eat.
+ - The best way to execute French cooking is to get good and loaded and whack the hell out of a chicken.
+ - You must have discipline to have fun.
+ - I love good, fresh food cooked by someone who knows what he’s doing.
+ - Forget the cheap white wine: go to beef and gin!
+ - I was a Republican until I got to New York and had to live on $18 a week. It was then that I became a Democrat.
+ - Life itself is the proper binge.
+ - Cooking well doesn’t mean cooking fancy.
+ - You don’t have to cook fancy or complicated masterpieces – just good food from fresh ingredients.
+ - Personally, I don’t think pure vegetarianism is a healthy lifestyle. I’ve often wondered to myself: Does a vegetarian look forward to dinner, ever?
+ - I love root vegetables: carrots, parsnips, and turnips.
+ - As you get older, you shouldn’t waste time drinking bad wine.
+ - No one’s more important than people.
+ - The only time to eat diet food is while you’re waiting for the steak to cook.
+ - The egg can be your best friend if you just give it the right break.
+ - You learn to cook so that you don’t have to be a slave to recipes. You get what’s in season and you know what to do with it.
+ - Wine is one of the agreeable and essential ingredients of life.
+ - How lovely life can be if one takes time to be friendly.
+ - It is hard to imagine a civilization without onions.
+ - You have to do it and do it, until you get it right.
+ - Food like love is a deeply emotional matter.
+ - It’s a shame to be caught up in something that doesn’t absolutely make you tremble with joy.
+ - Remember, you are all alone in the kitchen and no one can see you.
+ - Cassoulet, that best of bean feasts, is everyday fare for a peasant but ambrosia for a gastronome, though its ideal consumer is a 300-pound blocking back who has been splitting firewood nonstop for the last twelve hours on a subzero day in Manitoba.
+ - Cooking may be a creative art, but it’s also a wonderful full-time hobby.
+ - There are only four great arts: music, painting, sculpture, and ornamental pastry- architecture being perhaps the least banal derivative of the latter.
+ - I think every woman should have a blowtorch.
+ - The main thing is to have a gutsy approach and use your head.
+ - I enjoy cooking with wine, sometimes I even put it in the food I’m cooking.
+ - I was thirty-seven years old and still discovering who I was.
+ - I was a romantic, messy thinker. I was raised with very conservative beliefs, but that was a long time ago.
+ - People liked to eat veal until they saw pictures of these darling little animals with brown eyes. Veal calves been raised the same way for centuries.
+ - We are so bemused by our own petard, that we are unable to look at things objectively.
+ - My, I get so depressed after a poor meal; that’s why I can never stay in England for more than a week.
+ - There is nothing nicer than a kitchen really made for a cook. Things that are designed to be used always have an innate beauty.
+ - A house without a cat is like a day without sunshine, a pie without fromage, a dinner without wine.
+ - It’s hard to imagine a civilization without onions; in one form or another their flavor blends into almost everything in the meal except the desert.
+ - We had a happy marriage because we were together all the time. We were friends as well as husband and wife. We just had a good time.
+ - Wine is a living liquid containing no preservatives. Its life cycle comprises youth, maturity, old age, and death. When not treated with reasonable respect it will sicken and die.
+ - If you’re afraid of butter, use cream.
+ - Everything can have drama if it’s done right. Even a pancake.
+ - How can a nation be called great if its bread tastes like kleenex?
+ - Always remember: If you’re alone in the kitchen and you drop the lamb, you can always just pick it up. Who’s going to know?
+ - It’s so beautifully arranged on the plate – you know someone’s fingers have been all over it.
+ - The dinner hour is a sacred, happy time when everyone should be together and relaxed.
+ - I don’t think about whether people will remember me or not. I’ve been an ok person. I’ve learned a lot. I’ve taught people a thing or two. That’s what’s important.
+ - Freshness is essential. That makes all the difference.
+ - In France, cooking is a serious art form and a national sport.
+ - I think anyone who is a carnivore needs to understand that meat does not originally come in these neat little packages.
+ - If you’re in a good profession, it’s hard to get bored, because you’re never finished – there will always be work you haven’t done.
+ - I don’t use the word gourmet. The word doesn’t mean anything anymore. ‘Gourmet’ makes it sound like someone is putting sherry wine in the corn-flake casserole.
+ - The sweetness and generosity and politeness and gentleness and humanity of the French had shown me how lovely life can be if one takes time to be friendly.
+ - Being tall is an advantage, especially in business. People will always remember you. And if you’re in a crowd, you’ll always have some clean air to breathe.
+ - If you’re not ready to fail, you’re not going to learn how to cook.
+ - I was never a spy. I was with the OSS organization. We had a number of women, but we were all office help.
+ - I believe in red meat. I often said: red meat and gin.
+ - Pro-choice is the only way to be – because women are human beings, after all, and should be treated as such.
+ - Was it a sign of Creeping Decrepitude?
+ - Without peanuts, it isn’t a cocktail party.
+ - The tomato hides its griefs. Internal damage is hard to spot...
+ - There is nothing worse than grilled vegetables.
+ - We hit it off immediately, especially Helene, who was a ‘swallow-life-in-big-gulps’ kind of person.
+ - It’s simply a very romantic place. Just one look at any of those streets, and you couldn’t be anywhere else – it’s so beautiful, and there’s that location, and the sense of the free spirit. Who couldn’t become ravenous in such a place?
+ - People who are not interested in food always seem rather dry and unloving and don’t have a real gusto for life.
+ - Just like becoming an expert in wine, you learn by drinking it, the best you can afford.
+ - You don’t spring into good cooking naked. You have to have some training. You have to learn how to eat.
+ - Once you have mastered a technique, you barely have to look at a recipe again.
+ - We ought to enjoy our food, we ought to take time and care and prepare it correctly, and we ought to have fun doing it and make it a communal event.
+ - If you’re buying tomatoes pick them up and smell them-they should have a lovely perfume. They need to be kept at fifty degrees or above, particularly during the growing season, because that’s when they develop their flavor.
+ - Wine is meant to be with food – that’s the point of it.
+ - Tears mess up your makeup.
+ - I’d like for people to be able to go to the universities and get a degree in fine arts-gastronomy.
+ - In spite of food fads, fitness programs, and health concerns, we must never lose sight of a beautifully conceived meal.
+ - In department stores, so much kitchen equipment is bought indiscriminately by people who just come in for men’s underwear.
+ - Sooner or later the public will forget you; the memory of you will fade. What’s important are the individuals you’ve influenced along the way.
+ - Cooking hasn’t yet been accepted as the art form it is. It should be on the level with any of the other art forms.
+ - People were hysterical about Communism the way people today are hysterical about flag burning. I’m really against these people who try to show that they’re great patriots, because they’re not thinking, they’re just being hysterical.
+ - But I was a pure romantic, and only operating with half my burners turned on.
+ - I’m a beet freak. I put them in the pressure cooker.
+ - I was kind of an innocent hayseed from a middle-class, utterly nonintellectual background.
+ - I always try to buy just what I need. You get ideas as to what’s in season and what’s best. I think if you have a preconceived idea before shopping, that makes it difficult. You have to have an open mind.
+ - Some people like to paint pictures, or do gardening, or build a boat in the basement. Other people get a tremendous pleasure out of the kitchen, because cooking is just as creative and imaginative an activity as drawing, or wood carving, or music.
+ - I still feel that French cooking is the most important in the world, one of the few that has rules. If you follow the rules, you can do pretty well.
+ - Always start out with a larger pot than what you think you need.
+ - When the war broke out I decided I would be very patriotic. Standing my full height. I presented myself to the Wacs and the to the Waves. And I was rejected – I was an inch too tall.
+ - My father was in real estate, banking, and land management. As family life, it was very conventional, happy, and comfortable. We weren’t wealthy, but we were well-off.
+ - Just speak very loudly and quickly, and state your position with utter conviction, as the French do, and you’ll have a marvelous time!
+ - You have to eat to cook. You can’t be a good cook and be a noneater. I think eating is the secret to good cooking.
+ - Fat gives things flavor.
+ - As we say in the American Institute of Wine and Food, small helpings, no seconds. A little bit of everything. No snacking. And have a good time.
+ - In the 1970s we got nouvelle cuisine, in which a lot of the old rules were kicked over. And then we had cuisine minceur, which people mixed up with nouvelle cuisine but was actually fancy diet cooking.
+ - The more you know, the more you can create. There’s no end to imagination in the kitchen.
+ - Eating is the secret to good cooking.
+ - She was my first cat ever, and I thought she was marvelous.
+ - It is the Americans who have managed to crown minced beef as hamburger, and to send it round the world so that even the fussy French have taken to le boeuf hache, le hambourgaire.
+ - Good french cooking cannot be produced by a zombie cook.
+ - My mother was independent. She had grown up in Dalton and Pittsfield, in western Massachusetts, and she was one of the first women drivers in that area.
+ - The American poultry industry had made it possible to grow a fine-looking fryer in record time and sell it at a reasonable price, but no one mentioned that the result usually tasted like the stuffing inside of a teddy bear.
+ - I’m very much for making everything safe. The more natural the means we use to raise our vegetables and get rid of bugs, the better.
+ - I’m awfully sorry for people who are taken in by all of today’s dietary mumbo jumbo. They are not getting any enjoyment out of their food.
+ - I’m afraid that surprise, shock, and regret is the fate of authors when they finally see themselves on the page.
+ - Fake food – I mean those patented substances chemically flavored and mechanically bulked out to kill the appetite and deceive the gut – is unnatural, almost immoral, a bane to good eating and good cooking.
+ - The shellfish thing is very scary. You have to know the people you buy from and exactly where their wholesalers are getting the fish from.
+ - I love to teach – that’s my role.
+ - I have trouble with toast. Toast is very difficult. You have to watch it all the time or it burns up.
+ - One of the secrets, and pleasures, of cooking is to learn to correct something if it goes awry; and one of the lessons is to grin and bear it if it cannot be fixed.
+ - Cooking was taken with such seriousness in France that even ordinary chefs were proud of their profession. That’s what appealed to me.
+ - I’m not wild about those twenty-four hour marinades.
+ - I fell in love with the public, the public fell in love with me, and I tried to keep it that way.
+ - I wouldn’t keep him around long if I didn’t feed him well.
+ - Because I’ve done a lot of television, I’m sort of a generalist. I’m not a pastry cook, but I’ve had to learn a certain amount about it. I’m not a baker, though I’ve had to learn how to do it. I’m sort of a general cook.
+ - I think one of the terrible things today is that people have this deathly fear of food: fear of eggs, say, or fear of butter. Most doctors feel that you can have a little bit of everything.
+ - Food, like the people who eat it, can be stimulated by wine or spirits. And, as with people, it can also be spoiled.
+ - I was going to be a great woman novelist. Then the war came along and I think it’s hard for young people today, don’t you, to realize that when World War II happened we were dying to go and help our country.
+ - A cookbook is only as good as its poorest recipe.
+ - My father was in charge of managing the farm.
+ - Celebrity has its uses. I can always get a seat in any restaurant.
+
+146 quotes

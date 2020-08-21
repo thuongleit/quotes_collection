@@ -1,0 +1,21 @@
+ - Energy-saving technologies keep improving faster than they’re applied, so efficiency is an ever larger and cheaper resource.
+ - We’ve got 21st century technology and speed colliding head-on with 20th and 19th century institutions, rules and cultures.
+ - Fire made us human, fossil fuels made us modern, but now we need a new fire that makes us safe, secure, healthy and durable.
+ - Nuclear power has died of an incurable attack of market forces and is way beyond any hope of revival, because the competitors are several-fold cheaper and are getting rapidly more so.
+ - If you ask me, it’d be little short of disastrous for us to discover a source of clean, cheap, abundant energy because of what we would do with it.
+ - The markets make a good servant but a bad master, and a worse religion.
+ - Many analysts now regard modest, zero, or negative growth in our rate of energy use as a realistic long-term goal.
+ - Nature does not compromise; a pelican is not a compromise between a crow and otter, it is just a pelican. Nature makes no compromises; any inefficient products are recalled to the manufacturer!
+ - I’m a practitioner of elegant frugality. I don’t feel comfortable telling other people what to do, so I just try and lead by example.
+ - Rely on renewable energy flows that are always there whether we use them or not, such as, sun, wind and vegetation: on energy income, not depletable energy capital.
+ - I am a man without a furnace. My windows are insulated by 19 sheets of glass which cost less than installing a heating system.
+ - I once met an economist who believed that everything was fungible for money, so I suggested he enclose himself in a large bell-jar with as much money as he wanted and see how long he lasted.
+ - What if we could make energy do our work without working our undoing?
+ - I think along the way, as we treat nature as model and mentor, and not as a nuisance to be evaded or manipulated, we will certainly acquire much more reverence for life than we seem to be showing right now.
+ - Many business leaders are asking fundamental questions about what business they’re in, why they are doing it and how it can be used as a means of healing human and natural communities.
+ - Facts are more mundane than fantasies, but a better basis for conclusions.
+ - By skimping on design, the owner gets costlier equipment, higher energy costs, and a less competitive and comfortable building; the tenants get lower productivity and higher rent and operating costs.
+ - The barriers that renewables and efficiency face come less from our living in a capitalist market economy and more from not taking market economics seriously.
+ - Prominent exploration experts have recently predicted that total world production of liquid oil will peak by about the end of this decade-or a few years later if production does not rise much-and will decline thereafter.
+
+19 quotes

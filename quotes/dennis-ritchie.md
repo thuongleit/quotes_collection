@@ -1,0 +1,31 @@
+ - The only way to learn a new programming language is by writing programs in it.
+ - UNIX is basically a simple operating system, but you have to be a genius to understand the simplicity.
+ - C is quirky, flawed, and an enormous success.
+ - Unix has retarded OS research by 10 years and linux has retarded it by 20.
+ - A language that doesn’t have everything is actually easier to program in than some that do.
+ - For infrastructure technology, C will be hard to displace.
+ - I’m still uncertain about the language declaration syntax...
+ - I’m not a person who particularly had heros when growing up.
+ - At least for the people who send me mail about a new language that they’re designing, the general advice is: do it to learn about how to write a compiler.
+ - C was already implemented on several quite different machines and OSs, Unix was already being distributed on the PDP-11, but the portability of the whole system was new.
+ - Steve Jobs has said that Xwindows is brain-damamged and will disappear in two years. He got it half-right.
+ - Sometimes when you fill a vacuum, it still sucks.
+ - The kind of programming that C provides will probably remain similar absolutely or slowly decline in usage, but relatively, JavaScript or its variants, or XML, will continue to become more central.
+ - From an operating system research point of view, Unix is if not dead certainly old stuff, and it’s clear that people should be looking beyond it.
+ - My work was fairly theoretical. It was in recursive function theory. And in particular, hierarchies of functions in terms of computational complexity. I got involved in real computers and programming mainly by being – well, I was interested even as I came to graduate school.
+ - I’ve done a reasonable amount of travelling, which I enjoyed, but not for too long at a time.
+ - A program designed for inputs from people is usually stressed beyond breaking point by computer-generated inputs.
+ - Obviously, the person who had most influence on my career was Ken Thompson.
+ - Any editing, software work, and mail is done in this exported Plan 9.
+ - The number of UNIX installations has grown to 10, with more expected...
+ - I fix things now and then, more often tweak HTML and make scripts to do things.
+ - The notion of a record is an obsolete remnant of the days of the 80-column card.
+ - Twenty percent of all input forms filled out by people contain bad data.
+ - One of the obvious things that went wrong with Multics as a commercial success was just that it was sort of over-engineered in a sense. There was just too much in it.
+ - It seems certain that much of the success of Unix follows from the readability, modifiability, and portability of its software.
+ - When I read commentary about suggestions for where C should go, I often think back and give thanks that it wasn’t developed under the advice of a worldwide crowd.
+ - I can’t recall any difficulty in making the C language definition completely open – any discussion on the matter tended to mention languages whose inventors tried to keep tight control, and consequent ill fate.
+ - C is peculiar in a lot of ways, but it, like many other successful things, has a certain unity of approach that stems from development in a small group.
+ - A new release of Plan 9 happened in June, and at about the same time a new release of the Inferno system, which began here, was announced by Vita Nuova.
+
+29 quotes

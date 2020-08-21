@@ -1,0 +1,42 @@
+ - Carpe diem! Rejoice while you are alive; enjoy the day; live life to the fullest; make the most of what you have. It is later than you think. ~~Horace
+ - If you listen real close, you can hear them whisper their legacy to you. Go on, lean in. Listen, you hear it? Carpe diem, seize the day boys, make your lives extraordinary. ~~Robin Williams
+ - Remember there are no mistakes, only lessons. Love yourself, trust your choices, and everything is possible. ~~Cherie Carter-Scott
+ - One positive thought produces millions of positive vibrations. ~~John Coltrane
+ - Seize the day, take hold of it, and make it whatever you want. ~~Jessica Sorensen
+ - Don’t count the days, make the days count. ~~Muhammad Ali
+ - Her philosophy is carpe diem for herself and laissez faire for others. ~~F. Scott Fitzgerald
+ - We study history not to be clever in another time, but to be wise always. ~~Marcus Tullius Cicero
+ - There is one thing we can do, and the happiest of people are those who do it to the limit of their ability. We can be completely present. ~~Mark Van Doren
+ - To read without reflecting is like eating without digesting. ~~Edmund Burke
+ - Love consists in this, that two solitudes protect and touch and greet each other. ~~Rainer Maria Rilke
+ - All the gold in the world cannot buy a dying man one more breath – so what does that make today worth? ~~Og Mandino
+ - So act that anything you do may become universal law. ~~Immanuel Kant
+ - This music heals people because music is vibration, and the proper vibration heals. ~~Wynton Marsalis
+ - History is a pact between the dead, the living, and the yet unborn. ~~Edmund Burke
+ - Travel is fatal to prejudice, bigotry, and narrow-mindedness, and many of our people need it sorely on these accounts. Broad, wholesome, charitable views of men and things cannot be acquired by vegetating in one little corner of the earth all one’s lifetime. ~~Mark Twain
+ - We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon. ~~Franklin D. Roosevelt
+ - We won’t have a society if we destroy the environment. ~~Margaret Mead
+ - Mr. Keating: Carpe Diem! Sieze the day! ~~Robin Williams
+ - The fool, with all his other faults, has this also, he is always getting ready to live. ~~Epicurus
+ - There are no rules of architecture for a castle in the clouds. ~~Gilbert K. Chesterton
+ - History teaches us the mistakes we are going to make. ~~Jean Bodin
+ - The principle mark of genius is not perfection but originality, the opening of new frontiers. ~~Arthur Koestler
+ - Time is painted with a lock before, and bald behind, signifying thereby that we must take time by the forelock; for, when it is once past, there is no recalling it. ~~Jonathan Swift
+ - There is so much coldness because we do not dare to be as cordial as we are. ~~Albert Schweitzer
+ - What you’ve done becomes the judge of what you’re going to do – especially in other people’s minds. When you’re traveling, you are what you are right there and then. People don’t have your past to hold against you. No yesterdays on the road. ~~William Least Heat-Moon
+ - Some people try to turn back their odometers. Not me, I want people to know “why” I look this way. I’ve traveled a long way and some of the roads weren’t paved. ~~Will Rogers
+ - If you don’t take risks, you’ll have a wasted soul. ~~Drew Barrymore
+ - By plucking her petals, you do not gather the beauty of the flower. ~~Rabindranath Tagore
+ - My alphabet starts with this letter called yuzz. It s the letter I use to spell yuzz a ma tuzz. You ll be sort of surprised what there is to be found once you go beyond Z and start poking around. ~~Dr. Seuss
+ - Thus, though we cannot make our sun Stand still, yet we will make him run. ~~Andrew Marvell
+ - Music exalts each joy, allays each grief, expels diseases, softens every pain. ~~John Armstrong
+ - Your happy songs bring to me the scent of Heaven. Please keep singing! ~~Rumi
+ - Music gives us a language that cuts across the disciplines, helps us to see connections and brings a more coherent meaning to our world. ~~Ernest L. Boyer
+ - When we approach love and creativity with the level of conviction that the powers-that-be in the world today are approaching hatred and destruction, then and only then will we have a chance. ~~Marianne Williamson
+ - Better the occasional faults of a government that lives in a spirit of charity than the consistent omissions of a government frozen in the ice of its own indifference. ~~Franklin D. Roosevelt
+ - Oh, now, now, now, the only now, and above all now, and there is no other now but thou now and now is thy prophet. ~~Ernest Hemingway
+ - Every kind of service necessary to the public good becomes honorable by being necessary. ~~Albert Schweitzer
+ - Beauty of whatever kind, in its supreme development, invariably excites the sensitive soul to tears. ~~Edgar Allan Poe
+ - A diplomat is a man who always remembers a woman's birthday but never remembers her age. ~~Robert Frost
+
+40 quotes

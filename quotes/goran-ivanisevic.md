@@ -1,0 +1,32 @@
+ - The trouble with me is that every match I play against five opponents: umpire, crowd, ball boys, court, and myself.
+ - My sporting hero was Drazen Petrovic, the NBA basketball player, who was killed in a car accident in 1993. He was a good friend, an unbelievable player, and I dedicated my Wimbledon win to him.
+ - Lately, my mind is like an orchestra. If you don’t have the conductor, you don’t know what to do. One guy is playing jazz, one guy is playing rock and roll, another classical. It’s a big mess.
+ - Actually, I tossed it nicely, landed nicely, like airplane. No warning, beautiful. That’s the art of throwing racquets.
+ - The best book I read this year was ‘The Da Vinci Code.’
+ - Every generation has its own Goran. So I was the Goran of this generation.
+ - I think I owe it to myself and my fans in Britain to play one more Wimbledon.
+ - At her birthday, my seven-year-old daughter will say that she wants these big cakes and certain expensive toys as presents, and I can’t say no to her. It would just break my heart. But when I was little, for birthdays we just played outside and we were happy if we got any cake.
+ - Although we didn’t have much when I was growing up in Split, Croatia, my parents always tried to ensure that my sister and I had the things we needed, and it was enough for us.
+ - I don’t care now if I ever win a match in my life again. Whatever I do in my life, wherever I go, I’m going to be always Wimbledon champion.
+ - My tattoo is a cross, a rose and a shark. A cross is a cross, a rose like love and a shark is a pretty tough animal.
+ - I just try to play tennis and don’t find excuses. You know, I just lost because I lost, not because my arm was sore.
+ - Since retiring I have spent a lot of time with my family, on my boat, and playing football.
+ - It’s great, but there is one problem. She doesn’t sleep. At night she seems to turn into a vampire. She wakes up every night five or 10 times, asking for things, singing, calling out.
+ - With me, you never know what is going to happen.
+ - When I won Wimbledon, I said to God: just let me win this one tournament and I won’t play another match. Maybe God’s telling me to go home, but I don’t want to go home. We are negotiating at the moment.
+ - When I started in my career, my sister was very sick so I play for her because we didn’t have money.
+ - If I can’t serve on grass, I can maybe help cut the grass, paint the lines and serve some strawberries.
+ - After I won a match at a tournament I tried to repeat everything I did the day I won. Before my next match, I ate the same food, I went to the same restaurant etc. Sometimes it got very boring.
+ - Its fun to be there with the guys, to practice with them, arrange the balls, do this, do that, but when you play you can get some of this nervousness out of your system.
+ - It’s easier when you play. You get your emotion out. You scream. You yell. You do whatever you want. You play. But it’s tough to sit.
+ - I have so many runner-up cups that I am thinking of starting my own tea shop.
+ - Ivan Lendl’s never going to be a great player on grass. The only time he comes to the net is to shake your hand.
+ - Winning Wimbledon was a great feeling and it is still a great feeling. It has given me so much confidence.
+ - When you are winning too much, sometimes you think you should never lose again. I am learning to lose.
+ - There are not many Irish people playing tennis!
+ - I must be the only player in the world who ever injured himself for a tournament by stepping on a shell on the beach. I don’t know what I’m going to do.
+ - I still break racquets, but now I do it in a positive way.
+ - While I didn’t have everything that I wanted, I was still a happy kid.
+ - If you are given a lot of money without having to work for it, you won’t appreciate it as much as if you made it yourself.
+
+30 quotes

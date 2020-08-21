@@ -1,0 +1,75 @@
+ - She had lived her early years as though she were waiting for something she might, but never did, become.
+ - The solitude of writing is a solitude without which writing could not be produced, or would crumble, drained bloodless by the search for something else to write.
+ - Get rid of things or you’ll spend your whole life tidying up.
+ - Our mothers always remain the strangest, craziest people we’ve ever met.
+ - You have to be very fond of men. Very, very fond. You have to be very fond of them to love them. Otherwise they’re simply unbearable.
+ - Men like women who write. Even though they don’t say so. A writer is a foreign country.
+ - The best way to fill time is to waste it.
+ - I’m still there, watching those possessed children, as far away from the mystery now as I was then. I’ve never written, though I thought I wrote, never loved, though I thought I loved, never done anything but wait outside the closed door.
+ - The house a woman creates is a Utopia. She can’t help it – can’t help trying to interest her nearest and dearest not in happiness itself but in the search for it.
+ - Paradoxically, the freedom of Paris is associated with a persistent belief that nothing ever changes. Paris, they say, is the city that changes least. After an absence of twenty or thirty years, one still recognizes it.
+ - We, her children, are heroic, dersperate.
+ - Life is only lived full-time by women with children.
+ - Alcohol doesn’t console, it doesn’t fill up anyone’s psychological gaps, all it replaces is the lack of God.
+ - We’re in the vanguard of a nameless battle, a battle without arms or bloodshed or glory: we’re in the vanguard of waiting.
+ - People come to Paris, to the capital, to give their lives a sense of belonging, of an almost mythical participation in society.
+ - When the past is recaptured by the imagination, breath is put back into life.
+ - Oh, how good it is to be with someone, sometimes.
+ - I’ve known you for years. Everyone says you were beautiful when you were young, but I want to tell you I think you’re more beautiful now than then. Rather than your face as a young woman, I prefer your face as it is now. Ravaged.
+ - It’s not that you have to achieve anything, it’s that you have to get away from where you are.
+ - I know all one can know when one knows nothing.
+ - A house means a family house, a place specially meant for putting children and men in so as to restrict their waywardness and distract them from the longing for adventure and escape they’ve had since time began.
+ - I acquired that drinker’s face before I drank. Drink only confirmed it. The space for it existed in me.
+ - I believe that always, or almost always, in all childhoods and in all the lives that follow them, the mother represents madness. Our mothers always remain the strangest, craziest people we’ve ever met.
+ - The woman is the home. That’s where she used to be, and that’s where she still is. You might ask me, What if a man tries to be part of the home – will the woman let him? I answer yes. Because the he becomes one of the children.
+ - There are many women who write as they think they should write – to imitate men and make a place for themselves in literature.
+ - Madness is like intelligence, you know. You can’t explain it. Just like intelligence. It comes on you, it fills you, and then you understand it. But when it goes away you can’t understand it at all any longer.
+ - You alone became the outer surface of my life, the side I never see, and you will be that, the unknown part of me, until I die.
+ - Alcohol is barren. The words a man speaks in the night of drunkenness fade like the darkness itself at the coming of day.
+ - I often think of the image only I can see now, and of which I’ve never spoken. It’s always there, in the same silence, amazing. It’s the only image of myself I like, the only one in which I recognize myself, in which I delight.
+ - He says he’s lonely, horribly lonely because of this love he feels for her. She says she’s lonely too. She doesn’t say why.
+ - Very early in my life it was too late.
+ - I am dead. I have no desire for you. My body no longer wants the one who doesn’t love.
+ - Stormy skies, says Ernesto. He grieved for them. Summer rain. Childhood.
+ - No other human being, no woman, no poem or music, book or painting can replace alcohol in its power to give man the illusion of real creation.
+ - Suddenly, all at once, she knows, knows that he doesn’t understand her, that he never will, that he lacks the power to understand such perverseness. And that he can never move fast enough to catch her.
+ - A prolonged silence ensues. The reason for the silence is our growing interest one for the other. No one is aware of it, no one yet; no one? am I quite sure?
+ - War is a generality, so are the inevitabilities of war, including death.
+ - Heterosexuality is dangerous. It tempts you to aim at a perfect duality of desire.
+ - In heterosexual love there’s no solution. Man and woman are irreconcilable, and it’s the doomed attempt to do the impossible, repeated in each new affair, that lends heterosexual love its grandeur.
+ - Journalism without a moral position is impossible. Every journalist is a moralist. It’s absolutely unavoidable.
+ - It’s afterwards you realize that the feeling of happiness you had with a man didn’t necessarily prove that you loved him.
+ - That she had so completely recovered her sanity was a source of sadness to her. One should never be cured of one’s passion.
+ - When a woman drinks it’s as if an animal were drinking, or a child. Alcoholism is scandalous in a woman, and a female alcoholic is rare, a serious matter. It’s a slur on the divine in our nature.
+ - I’ve forgotten the words with which to tell you. I knew them once, but I’ve forgotten them, and now I’m talking to you without them.
+ - The words emerge from her body without her realizing it, as if she were being visited by the memory of a language long forsaken.
+ - I have never waited for anything the way I’ve waited for today, when nothing will happen.
+ - What stops you killing yourself when you’re intoxicated out of your mind is the thought that once you’re dead you won’t be able to drink any more.
+ - For that’s what a woman, a mother wants – to teach her children to take an interest in life. She knows it’s safer for them to be interested in other people’s happiness than to believe in their own.
+ - In a certain state of mind, all trace of feeling is banished. Whenever I remain silent in a certain way, I don’t love you, have you noticed that?
+ - You are what you are and that fascinates me.
+ - The thing that’s between us is fascination, and the fascination resides in our being alike. Whether you’re a man or a woman, the fascination resides in finding out that we’re alike.
+ - Banality is sometimes striking.
+ - To love one child and to love all children, whether living or dead -somewhere these two loves come together. To love a no-good but humble punk and to love an honest man who believes himself to be an honest man -somewhere these, too, come together.
+ - In love there are no vacations. No such thing. Love has to be lived fully with its boredom and all that.
+ - All that remains of that minute is time in all its purity, bone-white time.
+ - Drinking isn’t necessarily the same as wanting to die. But you can’t drink without thinking you’re killing yourself.
+ - She says people ought to learn to live like them, with the body abandoned in a wilderness, and in the mind the memory of a single kiss, a single word, a single look to stand for a whole love.
+ - I know it’s not clothes that make women beautiful or otherwise, nor beauty care, nor expensive creams, nor the distinction of costliness of their finery. I know the problem lies elsewhere. I don’t know where. I only know it isn’t where women think.
+ - It’s only women who are not really quite women at all, frivolous women who have no idea, who neglect repairs.
+ - Fidelity, enforced and unto death, is the price you pay for the kind of love you never want to give up, for someone you want to hold forever, tighter and tighter, whether he’s close or far away, someone who becomes dearer to you the more you’ve sacrificed for his sake.
+ - He wanted to pay her; he thought women ought to be paid for keeping men from dying or going out of their minds.
+ - I seldom read on beaches or in gardens. You can’t read by two lights at once, the light of day and the light of the book. You should read by electric light, the room in shadow, and only the page lit up.
+ - In a thousand years time this day will have existed for a thousand years to the day. And the ignorance of the whole world about what they’ve said today will have a date too.
+ - I suddenly remember something I’ve been told about fear. That amid a hail of machine gun fire you notice the existence of your skin.
+ - I see journalists as the manual workers, the laborers of the word. Journalism can only be literature when it is passionate.
+ - Even so you have managed to live that love in the only way possible for you. Losing it before it happened.
+ - When you wept it was just over yourself and not because of the marvelous impossibility of reaching her through the difference that separates you.
+ - One must talk. That’s how it is. One must.
+ - It was the men I deceived the most that I loved the most.
+ - Their voices reach out into the empty yard, plunge deep into the hills, go right through the heart.
+ - I don’t have general views about anything, except social injustice.
+ - What she said was always strange. It had happened long ago. It seemed insignificant. And yet it was something you remembered forever. The words as well as the story. The voice as much as the words.
+ - Some people are like that – closed – they can’t learn from anyone. Us, for example, we can’t learn anything, neither I from you nor you from me, nor from anyone, nor from anything, nor from what happens.
+
+73 quotes

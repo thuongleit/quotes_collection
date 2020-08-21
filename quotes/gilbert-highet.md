@@ -1,0 +1,34 @@
+ - Wherever there are beginners and experts, old and young, there is some kind of learning going on, some kind of teaching. We are all pupils and we are all teachers.
+ - A good teacher is a determined person.
+ - Know the subject; love the subject; like your students; know your students.
+ - People learn more quickly by doing something or seeing something done.
+ - Many of the twisted minds and crippled characters in the world were made by careless parents who kept their children away from knives and fires, but put permanent scars on their souls.
+ - Many of the snarly bad-tempered teachers whom we remember with hatred were really nice people soured by years of anxiety and penny-pinching.
+ - The wise teacher knows that 55 minutes of work plus 5 minutes laughter are worth twice as much as 60 minutes of unvaried work.
+ - I believe that much of the maladjustment in our societies is caused, not by malevolence and corruption, but simply by ignorance.
+ - Leisure is one of the three greatest rewards of being a teacher. It is, unfortunately, the privilege which teachers most often misuse.
+ - He meant that when people laugh together, they cease to be young and old, master and pupils, jailer and prisoners. They become a single group of human beings enjoying its existence.
+ - Poetry is halfway between prose and music: it is sometimes like an intimate conversation, in words and phrases which need not be fully uttered, and sometimes like dancing and wordless music.
+ - Language is a living thing.
+ - Bad teaching wastes a great deal of effort, and spoils many lives which might have been full of energy and happiness.
+ - Language is a living thing. We can feel it changing. Parts of it become old: they drop off and are forgotten. New pieces bud out, spread into leaves, and become big branches, proliferating.
+ - A teacher must believe in the value and interest of his subject as a doctor believes in health.
+ - History is a strange experience. The world is quite small now; but history is large and deep. Sometimes you can go much farther by sitting in your own home and reading a book of history, than by getting onto a ship or an airplane and traveling a thousand miles.
+ - These are not books, lumps of lifeless paper, but minds alive on the shelves.
+ - The best school in the world will scarcely save a boy who hates the school and the purpose it serves and the society that created it.
+ - The Sonnets of Shakespeare have the fascination of an autobiography, without its clarity. It is like reading an important document in a cave by the light of matches which keep blowing out.
+ - The chief aim of education is to show you, after you make a livelihood, how to enjoy living; and you can live longest and best and most rewardingly by attaining and preserving the happiness of learning.
+ - The relation between parents and children is essentially based on teaching.
+ - Nobody has ever thought himself to death. The chief danger confronting us is not age. It is laziness, sloth, routine, stupidity, – forcing their way in like wind through the shutters, seeping into the cellar like swamp water.
+ - The young do not demand omniscience. They know it is unattainable. They do demand sincerity.
+ - If you do not actually like boys and girls, or young men and young women, give up teaching.
+ - Many people have played themselves to death. Many people have eaten and drunk themselves to death. Nobody ever thought himself to death.
+ - The mind never need stop growing. Indeed, one of the few experiences which never pall is the experience of watching one’s own mind and how it produces new interests, responds to new stimuli, and develops new thoughts, apparently without effort and almost independently of one’s own conscious control.
+ - The real duty of man is not to extend his power or multiply his wealth beyond his needs, but to enrich and enjoy his imperishable possession: his soul.
+ - A period of high civilization is one in which thoughts fly freely from mind to mind, from one country to another-yes, from the past into the present.
+ - Most Americans do not like poetry. We may respect it, but we do not enjoy it.
+ - What is politics but persuading the public to vote for this and support that and endure these for the promise of those?
+ - At certain times and in certain schools it is orthodox to be a rebel; and in general it is a very poor class that does not contain at least three pupils who can be counted on to oppose the teachers authority and loudly and persistently to question everything he says.
+ - A very wise old teacher once said: I consider a day’s teaching wasted if we do not all have one hearty laugh.
+
+32 quotes

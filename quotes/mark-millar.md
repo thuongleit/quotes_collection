@@ -1,0 +1,68 @@
+ - If you want to build a high performance organization, you’ve got to play chess, not checkers.
+ - Decision-making is a skill. Wisdom is a leadership trait.
+ - When you expect the best from people, you will often see more in them than they see in themselves.
+ - Organizations who win, think deeply, choose wisely, and act decisively.
+ - Batman: a force of chaos in my world of perfect order. The dark side of the Soviet dream. Rumored to be a thousand murdered dissidents, they said he was a ghost. A walking dead man. A symbol of rebellion that would never fade as long as the system survived. Anarchy in black.
+ - The highest form of leadership is one in which a leader raises up other leaders – not as an accident, but as a result of conscious effort.
+ - The past is an anchor with suffering written on the rope. I don’t live there now. I am cutting myself free.
+ - Your capacity to grow determines your capacity to lead.
+ - We ordinary people might lack your great speed or your X-Ray vision, Superman, but never underestimate the power of the human mind. We carry the most dangerous weapon on Earth inside these thick skulls of ours.
+ - She was like John Rambo meets Polly Pocket; Dakota Fanning crossed with Death Wish 4.
+ - I offered them Utopia, but they fought for the right to live in Hell.
+ - If you feel the need to make everyone happy, you should be a wedding planner not a leader.
+ - Guess that’s thirty-one pieces of silver you’ve got now, huh? Sleep well, Judas.
+ - The heart is a muscle, and you strengthen muscles by using them. The more I lead with my heart, the stronger it gets.
+ - All my kids love superheroes, but my middle daughter in particular is obsessed with Wonder Woman and Batgirl.
+ - I am as resilient as the steel that was once made here, and I am a fighter, in every sense of the word. We all are.
+ - The glass is always completely full-half air and half liquid.
+ - Comic artists have always been part of my social circle. I just like hanging out with artists, and I always see them at conventions or a store signing or something. “Hey, we should do something together.”
+ - What I do with everything is take things out of real life. You encounter all sorts of stories. It’s a lot of your friends and family, sometimes there’s quite sad episodes in their life and everything. So just little things I’ve picked up along the years always find a way into all of my stories.
+ - Anytime something becomes a success in this way you always get imitators. I’m an imitator of the guys I love. I imitate people like Frank Miller, who is a huge inspiration to me.
+ - Maybe in this Star Wars world maybe subconsciously I was preparing myself. But I’ve just found all of my ideas I’ve been coming up with are big sci-fi things, and I wanted to do a big epic, a big space opera, and this is it. This is mine.
+ - Jesus, man. Why do people want to be Paris Hilton and nobody wants to be Spider-Man?
+ - I was desperate to work with Stuart Immonen, who I have talked with for several years about doing a project together. So just the stars aligned. I knew that Stuart had a little break in his schedule, where he would be willing to do a project with me. So this year I’ve been very lucky.
+ - At the moment, I have it planned as a six or seven year experiment, but the books will only ever appear in bursts like this every couple of years and only with the best quality artists.
+ - You can lead with or without a title. If you wait until you get a title, you may wait forever.
+ - I don’t see one as bring better or more literate than the other and there’s a real buzz to not only writing about a character I love like Superman, but also writing something that kids can enjoy.
+ - When you don’t have time to do your job, that’s a good indication you’re playing the wrong game.
+ - It’s been a very interesting exercise as a writer – writing a little family group, like The Incredibles or The Simpsons or something like that, and setting it in a big Star Wars-type setting. It’s been really fun, definitely different from the kind of thing I normally do.
+ - Artists, no matter how good their intentions, are always slower than they think.
+ - Likewise, I see no shame in writing Captain America or Wolverine.
+ - I just noticed I’ve been writing lots of female-led things. Two of them haven’t been announced yet, but the big Greg Capullo book I’m doing is a female-led story, and I’m doing another series with John Romita which is a female-led story as well.
+ - I’m just running through this list of potential nannies and wondered if we should go for a superhero this time. Do you think Wolverine would be interested? He seems to be on every other team right now...
+ - The one thing we can all relate to is family, and family has its traumas sometimes. Sometimes things don’t go well for people. Sometimes things are tough. So everybody kind of knows someone who’s been in this situation before, and I think that’s what makes it work.
+ - The animated books pay the lowest rates at the Big Two and you can forget about royalties.
+ - Marvel movies, are seeming slightly less exciting now that Star Wars has appeared and everything.
+ - Leaders don’t ever “arrive.” If we ever think we’re done, we are done!
+ - I’ve been doing the Millarworld stuff for decades, and everybody seems really happy that’s working on it.
+ - I always think it’s a mistake when you actually have to set books aside and actually sit down and research something. I always think they’ve got to come from within.
+ - The books are all very, very different so the publishers really had to be different too.
+ - I wanted to portray very, very dark subject matter and a deceptively complex story in the brightest colours and simplest lines possible to leave the readers reeling.
+ - There’s almost a universe as big as the Marvel Universe with X-Men. I mean, Deadpool is something I think everybody was taken surprise by, except for the people who read the comic book.
+ - First, believe in your ability to create the future. That’s what leaders do-that is our job. Understand reality but never be imprisoned by it. Reality is a moment in time. The future has not yet been written-it is written by leaders.
+ - The trick was really finding the appropriate publisher for each of the projects I’d devised.
+ - Ever since 1980, sci-fi has generally been more Bladerunner than Star Wars. People talk about Star Wars being the most influential movie of all time and creating the blockbuster along with Jaws and that sort of thing, but really there’s not been a space opera that anyone can go and see.
+ - One of the things that made Star Wars work was the kids didn’t know who their dad was.
+ - I’m very lucky that I have this other career that runs alongside my comic career, which is a film career, and I’ve been given this really lovely setup where they seem to make the movies very quickly as well.
+ - I didn’t want the headache of having a publisher reviewing everything I wrote in advance.
+ - I didn’t break into comics to write fairytales or crime comics.
+ - Many of our leadership practices have gone from being tried and true to being tired and tarnished.
+ - The breadth of the potential readership is also a factor.
+ - I think most people know the concept of difficult family situations. So I try to just ground a very big concept in something we can all relate to on some level.
+ - I think American audiences are quite interesting in that they can handle almost any amount of violence, but the moment the violence becomes sexual violence it immediately becomes an issue.
+ - For years I’ve wanted to work with this guy, so to actually write at the top of my scripts “Empress, Script by Mark Millar, Art by Stuart Immonen” is an absolute pleasure.
+ - Writers are the most terrible kleptomaniacs.
+ - Cookbooks are almost a substitution for a lost sense of culture. People want some other life than the one they’re living, so they buy a cookbook with pictures and imagine themselves as part of that life.
+ - I don’t know, maybe it’s just timely, or maybe it’s the fact that I live in a house with four women, but I just find my thoughts kind of skewing that direction at the moment.
+ - I’ve done so many superhero comics, and I’ve actually just been really excited about sci-fi, and Chrononauts and Starlight were both sci-fi, which I had a great time doing.
+ - Others control our opportunities, we control our readiness.
+ - I spent as much time writing proposals in ’98 and ’99 as I did writing scripts.
+ - I’m a huge fan of the Rod Serling sci-fi, where they could take the most odd and enormous ideas but ground them in something very human.
+ - I’m honestly as happy writing Superman Adventures as I am writing Wanted.
+ - If you don’t demonstrate leadership character, your skills and your results will be discounted, if not dismissed.
+ - Would you rather see a super soldier battling Nazis or something more serious? Or lesbians down a coal mine? Generally, the films are engaging in the same way as the comics are. It’s no coincidence that the biggest movies are genre-related, whether it’s Lord of the Rings or comic books.
+ - Marvel books also feed into the smaller publishers and the fact that this is happening in the same month we’re launching Ultimate Fantastic Four is no coincidence.
+ - You kind of worry for the characters in a way that you don’t normally in sci-fi, because sci-fi tends to be about the ideas, and this is about people.
+ - Their argument, and I think it’s a correct one, is that they’ll make more money from the trades and the hardcovers if nobody messes with the creative team.
+
+66 quotes

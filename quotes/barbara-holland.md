@@ -1,0 +1,42 @@
+ - True ownership of anything requires time...
+ - Our Revolution was born and raised in taverns.
+ - Gloom we have always with us, a rank and sturdy weed, but joy requires tending.
+ - The larger the ego, the less the need for other egos around. The more modest, humble, and self-effacing we feel, the more we suffer from solitude, feeling ourselves inadequate company.
+ - I was getting sick and tired of being lectured by dear friends with their little bottles of water and their regular visits to the gym. All of a sudden, we’ve got this voluntary prohibition that has to do with health and fitness. I’m not really in favor of health and fitness.
+ - Sometimes, with luck, we find the kind of true friend, male or female, that appears only two or three times in a lucky lifetime, one that will winter us and summer us, grieve, rejoice, and travel with us.
+ - We don’t get enough pampering. If we were once the only child of an adoring mother, we developed a taste for it; if not, we developed a thirst for it.
+ - Hospitality, or flinging wide the door to friends and wayfarers alike, was once important, back in a world without motels or safety nets, where a friend might find his castle burnt down or a wayfarer find bandits on his trail.
+ - New York was where we wanted to live when we were finally grown up, and drink martinis and stay out past bedtime...
+ - Dogwoods are great optimists. Daffodils wait and see, crouching firmly underground just in case spring doesn’t come this year, but dogwoods have faith.
+ - No doubt about it, solitude is improved by being voluntary.
+ - A catless writer is almost inconceivable.
+ - By and large, people who enjoy teaching animals to roll over will find themselves happier with a dog.
+ - A catless writer is almost inconceivable. It’s a perverse taste, really, since it would be easier to write with a herd of buffalo in the room than even one cat; they make nests in the notes and bite the end of the pen and walk on the typewriter keys.
+ - Single life should be experimental in nature and open to accidents. Some accidents are happy ones.
+ - Cats vary so widely that all data is meaningless and the professional classifiers gnash their teeth trying to come up with even a single fact common to all.
+ - Sophistication called for a variety of talents and attitudes, but the minimum requirement was being in New York. Not all New Yorkers achieved it, but nobody elsewhere had a prayer.
+ - Smiting enemies has always been so admired that, unlike medicine or archaeology, it entitled its successful practitioners to become kings, emperors, and presidents...
+ - Perhaps it’s a good time to reconsider pleasure at its roots. Changing out of wet shoes and socks, for instance.
+ - A good-looking piece of scenery anywhere delights the eye and elevates the spirits. Some of us, crude creatures that we are, are merely excited; finer souls draw ethical and spiritual nutrients from the sight.
+ - To extract the fullest flavor of our drinking house, we needed to spend serious evening time there, slowly coming to know the bartender and the regulars, their joys and sorrows.
+ - My friends and I were all deathly afraid of our fathers, which was right and proper and even biblically ordained. Fathers were angry; it was their job.
+ - It’s curious that throughout our history together, with no apparent effort, people have been able to think of the cat simultaneously as the guardian spirit of the hearth and home, and as the emblem of freedom, independence, and rootlessness.
+ - Very few people have no opinions about cats.
+ - Exercise, to qualify at all, must be lonely, painfu, humorless, and boring.
+ - If a quick glance back over world history shows us anything, it shows us that war was one of our most universal joys from our earliest beginnings, savored at every possible opportunity and even some quite incomprehensible ones...
+ - In a proper pub everyone there is potentially, if not a lifelong friend, at least someone to lure into an argument about foreign policy or the Red Sox.
+ - One’s own flowers and some of one’s own vegetables make acceptable, free, self-congratulatory gifts when visiting friends, though giving zucchini – or leaving it on the doorstep, ringing the bell, and running – is a social faux pas.
+ - In the metropolitan haunts of the highly sophisticated, the cocktail is no longer an instrument of friendship but a competitive fashion statement, or one-upmanship.
+ - Life, after we’d had a few millennia to observe it, turned out to be dreadfully unfair, so we invented sports.
+ - The trouble with American History is that you don’t remember it, and why should you? Nobody does.
+ - Almost any dog thinks almost any human is the Great Spirit, the Primal Creator, and the Universal Force Behind the Sun and Tides. What human can resist?
+ - Success in war was the only success that counted; failure was a disgrace to be wiped out only by starting another war and winning it.
+ - In the taverns all was amiable and easy, but the coffeehouses were cauldrons of edgy malcontents.
+ - However long you have a cat and however plainly he lays his life open before you, there is always something hidden, some name he goes by in a place you never heard of.
+ - There is no ‘cat language.’ Painful as it is for us to admit, they don’t need one!
+ - The nostalgic notion of the family orchards is lovely – all that wholesome fruit for our forebears to sit on the back steps biting into – but basically we were growing it to drink.
+ - The only people who still read poetry are poets, and they mostly read their own.
+ - The thousands of possible lives that used to spread out in front of me have snapped shut into one, and all I get is what I’ve got. It’s time to pass on the possibilities, all those deliciously half-open doors, to my children, and drive them to the airports, and wish them bon voyage.
+ - The United States government, in figuring our gross national product, defines ‘durable goods’ as anything that will last three years.
+
+40 quotes

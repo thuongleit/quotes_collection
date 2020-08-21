@@ -1,0 +1,173 @@
+ - The man who can keep a secret may be wise, but he is not half as wise as the man with no secrets to keep.
+ - An honest answer is the sign of true friendship.
+ - A good scare is worth more to a man than good advice.
+ - One has fear in front of a goat, in back of a mule, and on every side of a fool.
+ - When a friend is in trouble, don’t annoy him by asking if there is anything you can do. Think up something appropriate and do it.
+ - Instead of loving your enemies – treat your friends a little better.
+ - If you have sense enough to realize why flies gather around a restaurant, you should be able to appreciate why men run for office.
+ - Most people have seen worse things in private than they pretend to be shocked at in public.
+ - To avoid mistakes and regrets, always consult your wife before engaging in a flirtation.
+ - If there were no schools to take the children away from home part of the time, the insane asylums would be filled with mothers.
+ - Virtue must be valuable, if men and women of all degrees pretend to have it.
+ - We love the Lord, of course, but we often wonder what He finds in us.
+ - A loafer never works except when there is a fire; then he will carry out more furniture than anybody.
+ - When a man diets, he eats oatmeal in addition to everything else he usually eats.
+ - A thief believes everybody steals.
+ - No man would listen to you talk if he didn’t know it was his turn next.
+ - Don’t take up a man’s time talking about the smartness of your children; he wants to talk to you about the smartness of his children.
+ - The greatest humiliation in life, is to work hard on something from which you expect great appreciation, and then fail to get it.
+ - Don’t abuse your friends and expect them to consider it criticism.
+ - Nearly every lawsuit is an insult to the intelligence of both plaintiff and defendant.
+ - There is no get-rich-quick scheme equal to a poor girl marrying a rich man.
+ - If you don’t learn to laugh at troubles, you won’t have anything to laugh at when you grow old.
+ - A man should be taller, older, heavier, uglier, and hoarser than his wife.
+ - If a woman doesn’t chase a man a little, she doesn’t love him.
+ - Half the promises people say were never kept, were never made.
+ - One of the surprising things in this world is the respect a worthless man has for himself.
+ - You needn’t love your enemy, but if you refrain from telling lies about him, you are doing well enough.
+ - No man can smile in the face of adversity and mean it.
+ - Even if a farmer intends to loaf, he gets up in time to get an early start.
+ - Nearly every man is a coward, if confronted by the proper terror.
+ - Express a mean opinion of yourself occasionally; it will show your friends that you know how to tell the truth.
+ - To be an ideal guest, stay at home.
+ - A reasonable probability is the only certainty.
+ - Farmers only worry during the growing season, but townspeople worry all the time.
+ - A young man is a theory, an old man is a fact.
+ - The most destructive criticism is indifference.
+ - A boy doesn’t have to go to war to be a hero; he can say he doesn’t like pie when he sees there isn’t enough to go around.
+ - No man’s credit is ever as good as his money.
+ - When a man tells you what people are saying about you, tell him what people are saying about him; that will immediately take his mind off your troubles.
+ - When a man has no reason to trust himself, he trusts in luck.
+ - Put cream and sugar on a fly and it tastes very much like a raspberry.
+ - The only way to amuse some people is to slip and fall on an icy pavement.
+ - The worst feeling in the world is the homesickness that comes over a man occasionally when he is at home.
+ - Every man is a reformer until reform tramps on his toes.
+ - No scheme pays as well as legitimate business.
+ - The feeling of sleepiness when you are not in bed, and can’t get there, is the meanest feeling in the world.
+ - Families with babies and families without babies are sorry for each other.
+ - Friends are like a pleasant park where you wish to go; while you may enjoy the flowers, you may not eat them.
+ - Nothing pleases a woman quite so well as to look so sweet that a man wants to kiss her, and then abuse him for his impudence.
+ - In thousands of years there has been no advance in public morals, in philosophy, in religion or in politics, but the advance in business has been the greatest miracle the world has ever known.
+ - The only gambling tip which amounts to anything is to keep out of the game.
+ - None of us can boast about the morality of our ancestors. The record does not show that Adam and Eve were ever married.
+ - Abuse a man unjustly, and you will make friends for him.
+ - When a man asks your advice, he usually tells you just how he expects you to decide.
+ - Loving everybody is polygamy. I care for no friend who loves his enemy equally well.
+ - A theory is no more like a fact than a photograph is like a person.
+ - I try to have no plans the failure of which would greatly annoy me. Half the unhappiness in the world is due to the failure of plans which were never reasonable, and often impossible.
+ - No wonder the teacher knows so much; she has the book.
+ - Raising children is like making biscuits: it is as easy to raise a big batch as one, while you have your hands in the dough.
+ - A really busy person never knows how much he weighs.
+ - We must be truthful and fair in the ordinary affairs of life before we can be truthful and fair in patriotism and religion.
+ - Nothing is wonderful when you get used to it.
+ - People tolerate those they fear further than those they love.
+ - Success does not mean happiness: it means an unusual number of industrious enemies.
+ - Americans detest all lies except lies spoken in public or printed lies.
+ - A woman who can’t forgive should never have more than a nodding acquaintance with a man.
+ - People never have confidence in a Big Talker. They know his statements must be cut down, but they can never tell how much.
+ - You can make up a quarrel, but it will always show where it was patched.
+ - A religion that never suffices to govern a man will never suffice to save him; that which does not sufficiently distinguish one from a wicked world will never distinguish him from a perishing world.
+ - There is only one thing for a man to do who is married to a woman who enjoys spending money, and that is to enjoy earning it.
+ - No man has all the wisdom in the world; everyone has some.
+ - The average man’s judgment is so poor, he runs a risk every time he uses it.
+ - A man forgets his good luck next day, but remembers his bad luck until next year.
+ - Never tell a secret to a bride or a groom; wait until they have been married longer.
+ - American freedom consists largely in talking nonsense.
+ - Bravery is knowledge of the cowardice of the enemy.
+ - All of the troubles that some people have in life is that which they married into.
+ - Some men storm imaginary Alps all their lives, and die in the foothills cursing difficulties which do not exist.
+ - Half the time men think they are talking business, they are wasting time.
+ - If a man takes one day off, it takes him about three days to get the harness fitted again.
+ - The sounder your argument, the more satisfaction you get out of it.
+ - A woman might as well propose: her husband will claim she did.
+ - Many a man is saved from being a thief by finding everything locked up.
+ - There is no such thing as a convincing argument, although every man thinks he has one.
+ - One trouble with growing old is that it gets progressively tougher to find a famous historical figure, who didn’t amount to much when he was your age.
+ - You can’t do anything unless you do it yourself. And usually you can’t do it yourself very well.
+ - No man is smart, except by comparison to those who know less.
+ - Men have as exaggerated an idea of their rights as women have of their wrongs.
+ - A man has his clothes made to fit him; a woman makes herself fit her clothes.
+ - There is nothing so well known as that we should not expect something for nothing – but we all do and call it Hope.
+ - A woman is as old as she looks before breakfast.
+ - When you can’t do anything else to a boy, you can make him wash his face.
+ - Love affairs have always greatly interested me, but I do not greatly care for them in books or moving pictures. In a love affair, I wish to be the hero, with no audience present.
+ - There is something in the red of a raspberry pie that looks as good to a man as the red in a sheep looks to a wolf.
+ - At first a woman doesn’t want anything but a husband, but as soon as gets one, she wants everything else in the world.
+ - As a man handles his troubles during the day, so he goes to bed at night a General, Captain, or Private.
+ - Don’t be crazy to do a lot of things you can’t do...
+ - A woman does not spend all her time in buying things; she spends part of it in taking them back.
+ - If the fools do not control the world, it isn’t because they are not in the majority.
+ - There is always a type of man who says he loves his fellow men, and expects to make a living at it.
+ - A women could never be President. A condidate must be over 35, and where are you going to find a woman who will admit she’s over 35?
+ - One of the most difficult things in the world is to convince a woman that even a bargain costs money.
+ - It is your enemies who keep you straight. For real use one active, sneering enemy is worth two ordinary friends.
+ - Some men are alive simply because it is against the law to kill them.
+ - Everyone hates a martyr; it’s no wonder martyrs were burned at the stake.
+ - When a man is trying to sell you something, don’t imagine he is that polite all the time.
+ - When I get hold of a book I particularly admire, I am so enthusiastic that I loan it to someone who never brings it back.
+ - The underdog often starts the fight, and occasionally the upper dog deserves to win.
+ - What is common sense? That which attracts the least opposition that which brings most agreeable and worthy results.
+ - I declare my belief that it is not your duty to do anything that is not to your own interest. Whenever it is unquestionably your duty to do a thing, then it will benefit you to perform that duty.
+ - We are not free, it was not intended we should be. A book of rules is placed in our cradle, and we never get rid of it until we reach our graves. Then we are free, and only then.
+ - The man who insists he as good as anybody, believes he is better.
+ - The only thing some people do is get older.
+ - When a man once gets a start holding office, it is nearly always necessary to finally choke him off.
+ - People are always neglecting something they can do in trying to do something they can’t do.
+ - If your faith is opposed to experience, to human learning and investigation, it is not worth the breath used in giving it expression.
+ - A conquered foe should be watched.
+ - About all some men accomplish in life is to send a son to Harvard.
+ - The government is mainly an expensive organization to regulate evildoers, and tax those who behave: government does little for fairly respectable people except annoy them.
+ - Few men progress, except as they are pushed along by events.
+ - It is hard to convince a high-school student that he will encounter a lot of problems more difficult than those of algebra and geometry.
+ - Fishing seems to be the favorite form of loafing.
+ - Man is still a savage to the extent that he has little respect for anything that cannot hurt him.
+ - There must be some good in the cocktail party to account for its immense vogue among otherwise sane people.
+ - Youth is about the only thing worth having, and that is about the only thing youth has.
+ - The little trouble in the world that is not due to love is due to friendship.
+ - There is only one thing people like that is good for them; a good night’s sleep.
+ - Where the guests at a gathering are well-acquainted, they eat 20 per cent more than they otherwise would.
+ - Most of us are either too think to enjoy eating, or too fat to enjoy walking.
+ - The way to keep a cat is to try to chase it away.
+ - A man who will not get scared on some occasions, lacks good sense.
+ - The way out of trouble is never as simple as the way in.
+ - Some people never have anything except ideals.
+ - A successful man cannot realize how hard an unsuccessful man finds life.
+ - When you are in trouble, people who call to sympathize are really looking for the particulars.
+ - Reading is like permitting a man to talk a long time, and refusing you the right to answer.
+ - If a man has money, it is usually a sign, too, that he knows how to take care of it; don’t imagine his money is easy to get simply because he has plenty of it.
+ - Probably you have noted the resemblance of the critic to the crank.
+ - Everyone suffers wrongs for which there is no remedy.
+ - A man has a right to think lots of things he has no right to say.
+ - A man will do more for his stubbornness than for his religion or his country.
+ - The greatest thing in the world is for a man to be able to do something well, and say nothing about it.
+ - Honesty is largely a matter of information, of knowing that dishonesty is a mistake. Principle is not as powerful in keeping people straight as a policeman.
+ - So long as we do not blow our brains out, we have decided life is worth living.
+ - Men are virtuous because women are; women are virtuous from necessity.
+ - I believe in grumbling; it is the politest form of fighting known.
+ - Common sense is compelled to make its way without the enthusiasm of anyone.
+ - When a man dies, and his kin are glad of it, they say, “He is better off.”
+ - The more wealth a man has, the louder his children talk.
+ - No really sensible person ever remembers enough poetry to recite it.
+ - A poem is no place for an idea.
+ - If you go to church, and like the singing better than the preaching, that’s not orthodox.
+ - Every successful person I have heard of has done the best he could with the conditions as he found them, and not waited until next year for better.
+ - Faith may have removed mountains way off somewhere, a long time ago, but it won’t remove a wart at home this week.
+ - For every quarrel a man and wife have before others, they have a hundred when alone.
+ - Indignation does no good unless it is backed with a club of sufficient size to awe the opposition.
+ - Most people eat as if they were fattening themselves for market.
+ - I have long been disposed to judge men by their average. If it is reasonably high, I am charitable with faults that look pretty black.
+ - Probably no man ever had a friend that he did not dislike a little.
+ - How good we all are, in theory, to the old; and how in fact we wish them to wander off like old dogs, die without bothering us, and bury themselves.
+ - Somehow, everyone hates to see an unusually pretty girl get married. It is like taking a bite out of a very fine-looking peach.
+ - It may be a cold, clammy thing to say, but those that treat friendship the same as any other selfishness seem to get the most out of it.
+ - Most people put off till tomorrow that which they should have done yesterday.
+ - Financial sense is knowing that certain men will promise to do certain things, and fail.
+ - Marriage is a good deal like a circus: there is not as much in it as is represented in the advertising.
+ - It is a matter of regret that many low, mean suspicions turn out to be well founded.
+ - As soon as the people fix one Shame of the World, another turns up.
+ - Men are a good deal better collectively than they are individually. Many a man will do that privately which he will denounce in a crowd.
+ - Nothing tires a man more than to be grateful all the time.
+ - Many people would be more truthful were it not for their uncontrollable desire to talk.
+ - The modest person is usually admired, if people ever hear of them.
+
+171 quotes

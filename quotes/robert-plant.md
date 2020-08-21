@@ -1,0 +1,143 @@
+ - There’s still time to change the road you’re on.
+ - You know sometimes words have two meanings.
+ - Does anyone remember laughter?
+ - Music means communication to me. I say ‘listen you people out there, listen to my music, let’s be one.’ Music is a friend to me when I am lonely, when I am blue. You can’t define music ’cause music is cosmos and it knows no barrier or definition. You have to feel music to dig it.
+ - As we wind on down the road, our shadows taller than our souls.
+ - There’s nothing new under the sun – you just get a can of paint out.
+ - I think I surprise myself.
+ - I want to play tennis and fornicate.
+ - The whole idea of music, from the beginning of time, was for people to be happy.
+ - I think The Song Remains The Same is such a load of old bollocks.
+ - The past is a stepping stone, not a millstone.
+ - I’m a grandfather now.
+ - Who wants to see 3 aging old racists on stage, anyway?
+ - It’s OK to quote from your past. But I’m more interested in quoting from my present and pointing towards the future.
+ - Life isn’t moving quickly – time moves very quickly.
+ - Six months go by very quickly when you’re a genius.
+ - I don’t want to scream ‘Immigrant Song’ every night for the rest of my life, and I’m not sure I could.
+ - I have to try and change the landscape, whatever it is.
+ - I don’t know how much more expressive you can get than being a rock and roll singer.
+ - Ten minutes in the music scene is the equal of one hundred years outside of it.
+ - When you’re 20 years old and you’re making points with volume and dynamism, it’s a fantastic thing to do.
+ - I absolutely adore and idolise women. All women. I think they are all amazing. The female musicians I’ve met have been far more inspiring than the male ones. Women tend to be much more creative and ambitious. I think I may have been a woman in a past life.
+ - Kashmir is my last resort. I think, if I truly deserve it one day, I should go there and stay there for quite a while. Or if I really need it at any point, it should be my haven, my Shangri-la.
+ - My mother was a gypsy, and she had a lot of dark blood in her, and her hair was very, very thick – she couldn’t even get a brush through it. So I have been very fortunate. And every time I go to cut it off, hairdressers refuse to do it.
+ - Life is life. You do a lot of different things and you have great adventures but there’s not a lot to talk about unless you’re in the middle of an adventure at the time. Circumspection is not one of my better, favorite conditions, really.
+ - How much do people really want to learn? I mean, some people get into a groove and they stay with it indefinitely. And what starts off as a great moment of explosive passion can end up as cabaret 25, 30 years later. It just depends on whether you go and find the right habitat to extend yourself.
+ - You can’t give up something you really believe in for financial reasons. If you die by the roadside – so be it. But at least you know you’ve tried. Ten minutes in the music scene was the equal of one hundred years outside of it.
+ - I’m so aware of the fact that if I hadn’t taken the chances that I’ve taken along the line, I probably wouldn’t be getting the best out of my voice anymore, I might have messed it up in that awful, predictable place.
+ - I’ve stopped apologizing to myself for having this great period of success and financial acceptance.
+ - You have to ask these questions: who pays the piper, and what is valuable in this life?
+ - I daresay one good concert justifies a week of satisfaction at home.
+ - Old men do it better. We’re not so sensitive in certain areas.
+ - People run away, pull their hair, go off in different directions, nodding their heads and going, “Oh, God.” I am slightly disheveled, I think. I’m really pleased that I am, because otherwise I could be in a really, really dull and boring place now, as a musician, at least.
+ - I’m not a sad old hippie – I’m a joyous old hippie.
+ - Don’t be hard on yourself. And take as many chances, risks, as you can.
+ - You can’t even imagine how it felt to have a cassette that you could take with you with a microphone so you could put down an idea and not have to hum it a million times to remember what it was.
+ - I like the idea of being alone. I like the idea of often being alone in all aspects of my life. I like to feel lonely. I like to need things.
+ - I’m not saving lives. I’m singing and I should go placidly and joyously through the whole thing and work hard and not take it for granted. It’s great to have this gift.
+ - Yeah, I think the point has well and truly sunk in by now, and I can just carry on. I don’t even know what I’m looking for except a bit of hilarity and mild insanity musically, and I can get none of that by just delving into the history.
+ - I can’t moan about any of it. I had a great time in the goldfish bowl.
+ - I love the feeling of letting fly, of pushing as far as I could go with my voice. The only way you can really graduate how you do it is by doing it regularly to people who don’t have to be super impressed. You can do it in the studio all day long but you don’t get the flashback that you get onstage.
+ - Don’t be hard on yourself. And take as many chances, risks, as you can. You’ve got to be out there adventuring with the voice. Because if you’re just a singer for the sake of it, it’s not quite enough.
+ - I’ve still got a twinkle in me.
+ - Life isn’t moving quickly; time moves very quickly. But I don’t really have a schedule now that’s very challenging. I make the calls and I call the shots, so I feel reasonably centered. Sometimes, I wonder whether or not it’s even necessary to do concerts and stuff.
+ - All I can say is that it’s amazing what you can accomplish when you’re young and foolish.
+ - Music is for every single person that walks the planet.
+ - I think I could sing and shear a few sheep at the same time.
+ - When I was a kid, I was following black soul music.
+ - I think I’m prone to panic.
+ - I can’t regret until the end. And I won’t regret then, either.
+ - We are trying to communicate a fulfilled ideal. Does anybody remember laughter?
+ - Back in my day, we called it rock ‘n’ roll, but then we always reminded listeners that it was no big deal if they didn’t like it.
+ - I don’t see what the point is in growing up.
+ - There’s no comparison between the most precious parts of one’s personal life and success and wealth. If you lost someone near and dear to you, you can’t relate it to any amount of fame, fortune and luxury. You just have to go on living.
+ - It’s funny, you know, time does travel pretty quickly and I do have good friends, and the further away I go from them in location, it matters that I keep on the same line and the same groove that I had and preserve that groove with people who I see seldom.
+ - Led Zeppelin has been there through three generations of teenage angst. And there’s a generation of kids now who won’t know it, post-Linkin Park.
+ - Dolly Parton’s done ‘Stairway to Heaven.’ Anything’s possible.
+ - I am a reflection of what I sing. Sometimes I have to get serious because the things Ive been through are serious.
+ - I don’t think that you can rehash music that was born in the Fillmore East and came from a whole different set of social and emotional circumstances. The situation has changed. Let’s get real about this.
+ - If I didn’t do what I do, I wouldn’t be as young as I am.
+ - I’m tipping the hat and looking back.
+ - Lately, I’m spending more and more time working with non-rock musicians and leaving the mainstream – almost dissolving into another world, musically.
+ - I kind of disguise my limitations by hanging out with very talented people. The excitement of the collision between the microphone-twirling guy from 1966 to now is just a fantastic adventure. There aren’t many of us left and I’ve managed to kind of cover my tracks pretty good.
+ - You feel quite distant by playing at huge stadiums year after year, where you only can see a great darkness in front of you.
+ - The trouble is now, with rock’n’roll and stuff, it gets so big that it loses what once upon a time was a magnificent thing, where it was special and quite elusive and occasionally a little sinister and it had its own world nobody could get in.
+ - So for a long time I closed my eyes to the possibility of America having a white voice.
+ - I’m not interested in being known as the singer from Led Zeppelin.
+ - My vocal style I haven’t tried to copy from anyone. It just developed until it became the girlish whine it is today.
+ - Since I was a kid, I’ve had an absolute obsession with particular kinds of American music. Mississippi Delta blues of the Thirties, Chicago blues of the Fifties, West Coast music of the mid-Sixties – but I’d never really touched on dark Americana.
+ - The essence of Bonham is what he didn’t play rather than what he did play – what he left out.
+ - I’ve lived a life which has been pretty much full up with ambition, ideas, stimulus, creativity, some negativity which I try and avoid.
+ - I really had to think and learn about musical intervals.
+ - I’m a total soccer freak. I total soccer freak. Absolute total.
+ - It’s crucial that I kind of keep up, without drifting into the backslapping land of cliche and lifetime achievement awards.
+ - There’s a similarity between European and North African folk musics.
+ - I’m too old for Led Zeppelin.
+ - Now I’m a blithering oaf hanging on to the coatsleeves of commerciality.
+ - I like to comprehend more or less everything around me – apart from the creation of my music. It’s an obsessive character trait that’s getting worse. I don’t switch the light on and off 15 times before I leave the room yet, but something’s going wrong.
+ - It’s not some great work of beauty and love to be a rock-and-roll singer.
+ - The events between 1968 and 1980 were the kind of cornerstone for everything I’ve been able to do, they gave me the springboard.
+ - The calendar and the mirror – they’re bastards.
+ - I think we’re in a disposable world and ‘Stairway to Heaven’ is one of the things that hasn’t quite been thrown away yet.
+ - I wanted my voice to be a tenor sax, really.
+ - How can you consider flower power outdated? The essence of my lyrics is the desire for peace and harmony. That’s all anyone has ever wanted. How could it become outdated?
+ - There’s not a lot of towns that I can go to and take family – too many incongruous knocks on doors – “Hello, honey. Have you missed me?”
+ - I met Jason Donovan at RAK studios. He had jodphurs on and small riding boots as he jumped out of the cab. He looked just like me!
+ - Whenever I have bid a hasty goodbye to a loved one, I’ve always made sure that my record collection was safely stored away in the boot of the car.
+ - I’m not trying to be cosmic, it’s just that everything’s on a roll and that’s how it is. The songs within the album discuss that very condition.
+ - People have got to let their bodies breathe a little bit more. That’s the great thing about being a pompous, jumped-up rock god. There’s plenty of air around you.
+ - I treat everywhere as being a center from which I can enjoy the surroundings. And so Austin is very stimulating. I’m familiar with a lot of very charming people who have brought a lot of color to my life and a lot of love.
+ - There have been people I’ve warmed to over the years but, as the situation I’m in is so fleeting and transient, I’ve always known it’s going to be over kind of real quick.
+ - Theatres are built because they were the boards for entertainment.
+ - Look, Salvador Dali did not paint because he needed the money. No conversation about materialism and music makes sense. You make music and that’s that, it doesn’t matter why.
+ - You have nothing. One should never allow themselves to think that they have, one can just touch – to have is to lack appreciation, to touch is to want to touch again.
+ - I’ve been scared and I’ve liked not hanging on to stuff where I know that I’m in my comfort zone.
+ - I met some people who help in an archeological project in the South Pacific, between sailing to the Marquesas, which is an island group not too far from Tahiti, and I think, Wouldn’t that be great? I have such a fascination with history and especially history in my own country.
+ - The music beckons to those who are listening.
+ - To rock isn’t necessarily to cavort.
+ - The kind of vocal exaggeration that I developed was based on what key songs were in.
+ - Finding another way to do what I know I can do pretty well. A way that stimulates me. I’m always on some sort of learning curve. If I can continually be surprised then I’m alert.
+ - Being good isn’t just about being dextrous and being flash. Being good is about being an all-round contributor in the great world of music.
+ - Possibly the whole creative whirlwind of any musician’s life is based on garnering and developing and absorbing more and more experience.
+ - You know, people can’t fall in love with me just because I’m good at what I do.
+ - I’ve got the big name, but I’ve always wanted to be in a band, one of a band.
+ - I don’t think I’ve aged gracefully.
+ - I have no story. My story goes from day to day.
+ - You would find in a lot of Zep stuff that the riff was the juggernaut that careered through and I worked the lyrics around this.
+ - I’m pleased with how ridiculous I am. I like me. Though I’m not a huge fan. I know when to switch me off.
+ - I’m British – ostensibly British – but I don’t know where I really belong, you know?
+ - When you’re singing we all phrase each other in the most remarkable ways. I might hit some sort of thing I’ve never done before – some vocal pattern. Bonzo will pick it up – he’ll phrase with me instantly and then Pagey may join in or start some other phrase – it’s like a quadrant.
+ - Circumspection is not one of my better, favorite conditions, really.
+ - I treat everywhere as being a center from which I can enjoy the surroundings.
+ - There’s no point stepping up to the golden platform if you’re going to repeat yourself.
+ - My sort of stability as a character – it’s never been one of my strongest attributes. I’m a bit of a clusterf – k. I get so many great ideas that I kind of mesmerize people with another plan before the previous plan is hatched out.
+ - A daily blog would just about finish me off completely.
+ - Entertainment isn’t just based on the very structured syndrome of European popular music, and it’s great that there are so many thousands of people who are of the same opinion.
+ - All over the world, the idea of creating an melange of international musics, it’s a very healthy thing.
+ - There’s nothing worse than a bunch of jaded old farts, and that’s a fact.
+ - I use the music almost as a compass in some kind of quasi-romantic way. I try and go to places that I’m intrigued by, and I take this music with me, using my name at the front.
+ - What I want to do, I do! I’m pretty fortunate.
+ - Everybody’s got something to tell you. And most people have told me to do the obvious thing as far as my career goes. Which would have sent me tottering into the abyss.
+ - People say that I’m a millionaire, but that’s not true – I only spend millions.
+ - I won’t do a reunion tour unless my solo career fails miserably.
+ - Come into my life, here where nothing matters. Come into my life, roll away the gloom.
+ - I couldn’t imagine anything more horrifying than three middle aged men trying to pretend that ‘Black Dog’ is still significant. It’s inappropriate.
+ - And there are certain songs that are really timepieces and shouldn’t be touched. But some of them are a celebration of good humour and sensibility and I think that’s okay. I don’t care about the past, I’m a musician with ambition.
+ - The 50s were great because I collected stamps.
+ - I’m like one of those firecrackers that goes off in your pocket occasionally. I’m not really struggling with it as much as the people around me. But at least I’m not doing too much damage to anybody or to myself. It’s just the condition I’m aware of.
+ - Alice Cooper’s weirdnesses must really make the kids feel violent. These kids are like my sister, young people of 14 or so who’ve come to enjoy themselves. So you put things like that in front of them, and I don’t think it’s right.
+ - Well, I suppose I could do a solo album, but my god, it would be terrible!
+ - It’s a two-dimensional gig being a singer, and you can get lost in your own tedium and repetition.
+ - I know that bands that haven’t put out a record for 10 years are playing to 20,000 people a night. But that’s not the achievement.
+ - I owe everything to the musicians I work with.
+ - Soon, I’m going to need help crossing the street.
+ - No matter what we say, entertainers are usually quite insecure, wobbly characters underneath, and maybe that bit of glory or that bit of expression or whatever it is compensates in some area.
+ - Some audiences can shake and bang their heads on the stage to riffs all night long, but subtlety is an art that must be mastered if you’re going to be remembered.
+ - There’s so many parts of your life, you know? People say that you don’t get any better after the age of about forty or something like that, as a performer. I find all that to be a misconception. I don’t feel bad about the way I present stuff. The calendar and the mirror – they’re bastards.
+ - I think that passion and love and pain are all bearable, and they go to make love beautiful.
+ - Led Zeppelin was a very sensitive and beautiful animal beast.
+ - I think Led Zeppelin must have worn some of the most peculiar clothing that men had ever been seen to wear without cracking a smile.
+ - I’m just lucky because my kids are grown-up – I love them, very proud of them, and we are in close contact as big-time friends, but they don’t need me that much now and I can actually enjoy this wonderful world of music.
+
+141 quotes

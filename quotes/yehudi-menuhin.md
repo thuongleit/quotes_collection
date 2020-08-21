@@ -1,0 +1,34 @@
+ - Homeopathy is one of the few medical specialties which carries no penalties – only benefits.
+ - Homeopathy is the safest and more reliable approach to ailments and has withstood the assaults of established medical practice for over 100 years.
+ - To play great music, you must keep your eyes on a distant star.
+ - The practice of yoga induces a primary sense of measure and proportion. Reduced to our own body, our first instrument, we learn to play it, drawing from it maximum resonance and harmony.
+ - Peace may sound simple – one beautiful word – but it requires everything we have, every quality, every strength, every dream, every high ideal.
+ - Music creates order out of chaos: for rhythm imposes unanimity upon the divergent, melody imposes continuity upon the disjointed, and harmony imposes compatibility upon the incongruous.
+ - The ultimate aim in life should be to fulfill to the utmost all that within our ability and to share that which is good and beautiful.
+ - Music creates order out of chaos.
+ - In all teaching there must be a fusion of authority as an adult providing a stable framework for the children in one’s care, and humility as another human being ready to educate an equal who may turn out to be a superior.
+ - A society without its dreamers can never be free.
+ - Improvisation is the expression of the accumulated yearnings, dreams, and wisdom of the soul.
+ - In reality, infinity is merely the distance to the heart of a stranger. Eternity is the moment of cognition.
+ - If I wanted to play the violin, I had to work. Because anything that one wants to do really, and one loves doing, one must do everyday. It should be as easy to the artist and as natural as flying is to a bird. And you can’t imagine a bird saying well, I’m tired today, I’m not going to fly!
+ - Life is not a finished product, it is only what we make of it, and if we make nothing of it, someone else will, and we will be his slave.
+ - I would hate to think I am not an amature. An amateur is one who loves what he is doing. Very often, I’m afraid, the professional hates what he is doing. So, I’d rather be an amateur.
+ - It is perhaps life’s greatest accomplishment to live to old age, maintaining one’s wits, one’s sense of humor, one’s health, and one’s charm.
+ - Do we not find freedom along the guiding lines of discipline?
+ - There are no rules in the service of God, and this itself is no rule.
+ - The violinist must possess the poets gift of piercing the protective hide which grows on propagandists, stockbrokers and slave traders, to penetrate the deeper truth which lies within.
+ - A dream is unrehearsed.
+ - I can only think of music as something inherent in every human being – a birthright. Music coordinates mind, body and spirit.
+ - Music lives and breathes to tell us who we are and what we face. It is a path between ourselves and the infinite.
+ - Mozart resolved his emotions on a level that transformed them into moods uncontaminated by mortal anguish, enabling him to express the angelic anguish that is so peculiarly his own.
+ - Searching and the route we take are more important than making a find.
+ - Everyone should in some way be creative, irrespective of the quality of that which he creates.
+ - It is music that welds spiritual and sensual, that can convey ecstasy free of guilt, faith without dogma, love as homage, and a person at home with nature and the infinite.
+ - We embark unhesitatingly on the path, in a direction that is absolutely right and urgent, supported by everyone, in the knowledge that this path is but a learning process.
+ - It is a technique ideally suited to prevent physical and mental illness and to protect the body generally, developing an inevitable sense of self-reliance and assurance.
+ - Our life must have an aim, but we must also ensure that the direction we take is a good one.
+ - A way of life which excludes the realm of the unknown and the mysterious is simply not in harmony with life itself.
+ - To be an outstanding musician, you have to be very attentive to the smallest detail and willing to have infinite patience in the pursuit of your ideal. You require absolute control and professionalism.
+ - I still look to music to heal and bind; I still think the musician can be a trusted object offering his fellow-man solace but also a reminder of human excellence.
+
+32 quotes

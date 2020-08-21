@@ -1,0 +1,89 @@
+ - Beauty is terror. Whatever we call beautiful, we quiver before it.
+ - Stay away from the ones you love too much. Those are the ones who will kill you.
+ - All those layers of silence upon silence.
+ - It is is better to know one book intimately than a hundred superficially.
+ - The first duty of the novelist is to entertain. It is a moral duty. People who read your books are sick, sad, traveling, in the hospital waiting room while someone is dying. Books are written by the alone for the alone.
+ - I had the epiphany that laughter was light, and light was laughter, and that this was the secret of the universe.
+ - Sometimes we want what we want even if we know it’s going to kill us.
+ - There is nothing wrong with the love of Beauty. But Beauty-unless she is wed to something more meaningful-is always superficial.
+ - Caring too much for objects can destroy you. Only – if you care for a thing enough, it takes on a life of its own, doesn’t it? And isn’t the whole point of things – beautiful things – that they connect you to some larger beauty?
+ - You can look at a picture for a week and never think of it again. You can also look at a picture for a second and think of it all your life.
+ - Beauty is rarely soft or consolatory. Quite the contrary. Genuine beauty is always quite alarming.
+ - The books I loved in childhood – the first loves – I’ve read so often that I’ve internalized them in some really essential way: they are more inside me now than out.
+ - But romantic vision can also lead one away from certain very hard, ugly truths about life that are important to know.
+ - I suppose at one time in my life I might have had any number of stories, but now there is no other. This is the only story I will ever be able to tell.
+ - And as we leave Donne and Walton on the shores of Metahemeralism, we wave a fond farewell to those famous chums of yore.
+ - Any action, in the fullness of time, sinks to nothingness.
+ - Sometimes it’s about playing a poor hand well.
+ - The snow in the mountains was melting and Bunny had been dead for several weeks before we came to understand the gravity of our situation.
+ - Even if it meant that she had failed, she was glad. And if what she’d wanted had been impossible from the start, still there was a certain lonely comfort in the fact that she’d known it was impossible and had gone ahead and done it anyway.
+ - I guess that anything we manage to save from history is a miracle.
+ - Love doesn’t conquer everything. And whoever thinks it does is a fool.
+ - Children love secret club houses. They love secrecy even when there’s no need for secrecy.
+ - But it’s for every writer to decide his own pace, and the pace varies with the writer and the work.
+ - Well, I think storytellers have always found murder a fascinating device.
+ - I really do work in solitude.
+ - She closed her eyes, dark-lidded, dark shadows beneath them; she really was older, not the glancing-eyed girl I had fallen in love with but no less beautiful for that; beautiful now in a way that less excited my senses than tore at my very heart.
+ - A great sorrow, and one that I am only beginning to understand: we don’t get to choose our own hearts. We can’t make ourselves want what’s good for us or what’s good for other people. We don’t get to choose the people we are.
+ - Does such a thing as ‘the fatal flaw,’ that showy dark crack running down the middle of a life, exist outside literature? I used to think it didn’t. Now I think it does. And I think that mine is this: a morbid longing for the picturesque at all costs.
+ - As much fun as it is to read a book, writing a book is one level deeper than that.
+ - One likes to think there’s something in it, that old platitude amor vincit omnia. But if I’ve learned one thing in my short sad life, it is that that particular platitude is a lie. Love doesn’t conquer everything. And whoever thinks it does is a fool.
+ - In short: I felt my existence was tainted, in some subtle but essential way.
+ - For if the modern mind is whimsical and discursive, the classical mind is narrow, unhesitating, relentless. It is not a quality of intelligence that one encounters frequently these days. But though I can digress with the best of them, I am nothing in my soul if not obsessive.
+ - I hope we’re all ready to leave the phenomenal world, and enter into the sublime?
+ - If I’m not working, I’m not happy. That’s it. That’s the prerequisite for me for happiness.
+ - Storytelling and elegant style don’t always go hand in hand.
+ - When I’m writing, I am concentrating almost wholly on concrete detail: the color a room is painted, the way a drop of water rolls off a wet leaf after a rain.
+ - The job of the novelist is to invent: to embroider, to color, to embellish, to entertain, to make things up. The art of what I do lies not in research or even recollection but primarily in invention.
+ - Children have very sharp powers of observation – probably sharper than adults – yet at the same time their emotional reactions are murky and much more primitive.
+ - I’d rather write one good book than ten mediocre ones.
+ - Not quite what one expected, but once it happened one realized it couldn’t be any other way.
+ - I think it’s hard to write about children and to have an idea of innocence.
+ - The novel is about five students of classics who are studying with a classics professor, and they take the ideas of the things that they’re learning from him a bit too seriously, with terrible consequences.
+ - I love the tradition of Dickens, where even the most minor walk-on characters are twitching and particular and alive.
+ - No money, holes in my socks, living off oatmeal.
+ - Even if you need, and want, a second opinion, it can be dangerous to have people telling you what they think you ought to add, or cut, before you’ve even finished telling your story. One loses heart; one loses energy and interest. Or at least I do.
+ - Sometimes you can do all the right things and not succeed. And that’s a hard lesson of reality.
+ - What’s mysterious, ambiguous, inexplicable. What doesn’t fit into a story, what doesn’t have a story. Glint of brightness on a barely-there chain. Patch of sunlight on a yellow wall. The loneliness that separates every living creature from every other living creature. Sorrow inseparable from joy.
+ - And the flavor of Pippa’s kiss – bittersweet and strange – stayed with me all the way back uptown, swaying and sleepy as I sailed home on the bus, melting with sorrow and loveliness, a starry ache that lifted me up above the windswept city like a kite: my head in the rainclouds, my heart in the sky.
+ - After all, the appeal to stop being yourself, even for a little while, is very great.
+ - I’ve written only two novels, but they’re both long ones, and they each took a decade to write.
+ - There’s an expectation these days that novels – like any other consumer product – should be made on a production line, with one dropping from the conveyor belt every couple of years.
+ - To understand the world at all, sometimes you could only focus on a tiny bit of it, look very hard at what was close to hand and make it stand in for the whole;.
+ - Every new event – everything I did for the rest of my life – would only separate us more and more: days she was no longer a part of, an ever-growing distance between us. Every single day for the rest of my life, she would only be further away.
+ - If he had his wits about him Bunny would surely keep his mouth shut; but now, with his subconscious mind knocked loose from its perch and flapping in the hollow corridors of his skull as erratically as a bat, there was no way to be sure of anything he might do.
+ - I’d always rather stand or fall on my own mistakes. There’s nothing worse than looking back, in a published book, at a line edit or a copy edit that you felt queasy about and didn’t want to take, but took anyway.
+ - They were playing old Bob Dylan, more than perfect for narrow Village streets close to Christmas and the snow whirling down in big feathery flakes, the kind of winter where you want to be walking down a city street with your arm around a girl like on the old record cover.
+ - Everything takes me longer than I expect. It’s the sad truth about life.
+ - Anything is grand if it’s done on a large enough scale.
+ - I’d been assured, at age 21 or so, by a well-known editor who saw the first part of The Secret History in what was basically its final form, that it would never be published because “no woman has ever written a successful novel from a male point of view.”
+ - Always remember, the person we’re really working for is the person who’s restoring the piece a hundred years from now. He’s the one we want to impress.
+ - I began to see new buildings, too, which were connected by futuristic walkways lit from beneath. Long, cool perspectives of modern architecture, rising phosphorescent and eerie from the rubble.
+ - Who cares? If he is good to you? None of us ever find enough kindness in the world, do we?
+ - Clearly something had gone wrong, badly, only I wasn’t quite sure what – apart from knowing that I was responsible somehow, in the generalized miasma of shame and unworthiness and being-a-burden that never quite left me.
+ - I suppose the shock of recognition is one of the nastiest shocks of all.
+ - There’s a big anti-intellectual strain in the American south, and there always has been. We’re not big on thought.
+ - The storytelling gift is innate: one has it or one doesn’t. But style is at least partly a learned thing: one refines it by looking and listening and reading and practice – by work.
+ - I just finished writing an essay about William Maxwell, an American writer whose work I admire very much.
+ - In order for a long piece of work to engage a novelist over an extended period of time, it has to deal with questions that you find very important, that you’re trying to work out.
+ - So I’m not a Southern writer in the commonly held sense of the term, like Faulkner or Eudora Welty, who took the South for their entire literary environment and subject matter.
+ - There’s nothing like having a sympathetic reader who asks the right questions, who understands what you’re trying to achieve and only wants to make it better.
+ - Character, to me, is the life’s blood of fiction.
+ - Who was it said that coincidence was just God’s way of remaining anonymous?
+ - I think innocence is something that adults project upon children that’s not really there.
+ - Criticism at the wrong time, even if it’s legitimate criticism, can be seriously damaging and make the writer lose faith in what he’s doing. It’s the timing that’s all-important.
+ - You are – all your experience just kind of accumulates, and the novel takes a richness of its own simply because it has the weight of all those years that one’s put into it.
+ - The Little Friend is a long book. It’s also completely different from my first novel: different landscape, different characters, different use of language and diction, different approach to story.
+ - Taking on challenging projects is the way that one grows and extends one’s range as a writer, one’s technical command, so I consider the time well-spent.
+ - To really be centered and to really work well and to think about the kinds of things that I need to think about, I need to spend large amounts of time alone.
+ - Children – if you think back really what it was like to be a child and what it was like to know other children – children lie all the time.
+ - It happened in New York, April 10th, nineteen years ago. Even my hand balks at the date. I had to push to write it down, just to keep the pen moving on the paper. It used to be a perfectly ordinary day, but now it sticks up on the calendar like a rusty nail.
+ - My novels aren’t really generated by a single conceptual spark; it’s more a process of many different elements that come together unexpectedly over a long period of time.
+ - I’m not sure whay I’ve been drawn to this subject, except that murder is a subject that has always drawn people for as long as people have been telling stories.
+ - Well, I do have some maiden aunts that are not quite like the aunts in the book, but I definitely do have a couple of them, and a couple of old aunties.
+ - On the other hand, I mean, that is what writers have always been supposed to do, was to rely on their own devices and to – I mean, writing is a lonely business.
+ - I believe, in a funny way, the job of the novelist is to be out there on the fringes and speaking for an experience that has not really been spoken for.
+ - It’s hard for me to show work while I’m writing, because other people’s comments will influence what happens.
+ - Actually, I enjoy the process of writing a big long novel.
+
+87 quotes

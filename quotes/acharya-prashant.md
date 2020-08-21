@@ -1,0 +1,101 @@
+ - Spirituality is not the renunciation of life; it is the art of living fully.
+ - An action that arises from fear will only lead to more fear.
+ - The quality of this moment decides the quality of life. If this is life, then the worthiness of this moment is the worthiness of life.
+ - All spirituality is the discipline to eliminate the unnecessary.
+ - The mark of a good word is that it takes one to silence.
+ - Meditation is that which arises from peace and brings you back to peace.
+ - Don’t be so serious; nothing is too important.
+ - To be full of love, one must first be Full.
+ - Observe your own life, and you will know the Truth.
+ - With all your imperfections, you are Perfect.
+ - Living well, living fully is the purpose of life. Why ask for another purpose?
+ - Any search for life must begin by going very close to death. To understand death is to understand life. To die once is to come alive forever.
+ - Emptiness means to be free of yourself. And where there is emptiness, there is God.
+ - When you’re not bothered whether you’re peaceful or not then it’s peace.
+ - Life is a role-play; only in attention are the roles chosen wisely.
+ - As soon as the idea that life must have certain specific goals is dropped, everything becomes its own goal. Now nothing remains unimportant.
+ - When you see it, you become free from it. Seeing is the realization of freedom.
+ - Learn from kids before you teach them.
+ - Our faces look like they are produced in an assembly line. All look exactly the same. There is no depth in them. All appear very shallow and very alike. Real beauty lies in a face that has fought battles. A face which is raw. A face that has scars of life. A beauty that is untouched by all the battles and all the scars.
+ - How will it feel to know that you have wasted your one precious life, and now it is too late? Wake up!
+ - Fight the game, not the players.
+ - Meetings, events are by chance. But the motive is not by chance. The events are sporadic, episodic! But the motive is a continuity, a permanent presence.
+ - What is liberation? Joy of life- simple, direct, ordinary. Any search for a special is futile and deceptive. Be liberated from your search.
+ - Life is either a religious festival, or continuous boredom.
+ - Nobody is a misfit. In existence, everything is where it should be. Allow things to happen. Do not choose; allow.
+ - Know a man not by the loudness of his voice, but by the depth of his Silence.
+ - The more I am afraid of life, the more I will be afraid of death. I do not fear life, how can I fear death? Fear of death is fear of life.
+ - Beauty is not a work of mind; it is not a place, person – heard or read. When the ugliness within ceases for a while, beauty is what remains.
+ - There is no need to give detailed accounts of your life. All your stories are just ego. Just admit “I failed”, and you are home.
+ - What to do when its freezing cold and life is throwing rocks at you? Tear away your armours. Meet life bare-chested. Like a lion. Like a lover.
+ - Find out all your reasons in life. See whether they’re big or small. Whether yours or borrowed. Then get rid of them all. Live unreasonably.
+ - In the exam of life, no question is ever repeated.
+ - Life is the sacred silence of a raucous laughter or a raucous laughter of the sacred silence. A holy verse. A vulgar joke. Live both. Fully.
+ - Right action is its own reward.
+ - Your efforts to control the flow of life are sure to fail, for you have defined yourself to be small and separate. Why not just re-define?
+ - How will you realise your vastness if you are so caught in your petty affairs? Why must so much of my life and energy go into the trivial?
+ - If you can exploit others, you will exploit yourself.
+ - Awareness is a part of life, meditation is a part of routine, love is a part of relationships. Sure, just as waking up is a part of the dream.
+ - Life is the sacred silence of a raucous laughter, or a raucous laughter of the sacred silence. A holy verse, a vulgar joke. Live. Both. Fully.
+ - Prayer cannot be an activity. Prayer is your very being.
+ - I am not spiritual. I am a destroyer of all spirituality. I am the spirit.
+ - Nothing ever dies. It just shifts to another mode of life. Death is a lie. There IS only life. Every grain of sand is as alive as I am.
+ - Life can be transcended only by living. Living is transcending. Forget transcending, just live!
+ - To want fulfillment is to be unfulfilled. Fulfillment is an infinite cup, from which you can drink as much as you want to. Then one sip more...
+ - Honesty is not a policy. Honesty is your uncorrupted way of living. Where there is a direct beautiful movement from the Self to the mind, from the mind to the thoughts, and from thoughts to action, that is honesty.
+ - Mind immersed in its source, is the mind in its calm witnessing nature. Such a mind is just one with its object. Immersion, the way of life.
+ - Spend a lifetime filling ‘real’ stuff into yourself. Finally find that all’s still unreal – the self, the stuff, the lifetime, and the finder.
+ - Desire is fear. A life of desires is a life of fear. Impossible for the go-getter to be fearless. Achievement is insecurity trying to smile.
+ - Stop thinking that you are alive. You are not the one who lives. Life lives. Not you. Just life.
+ - To say something, speak. To say a lot of things, speak eloquently. To say everything, be in silence.
+ - The quality of this moment decides the quality of life. If this is life, then the worthiness of this moment is the worthiness of life.
+ - I resist life, fight, and want to win. Stop resisting, just accept defeat, and step down. Relax. Life will embrace you and act on your behalf.
+ - What is ego? The idea that I am more alive or more intelligent than anybody or anything else. Temporalisation or localisation of life is ego.
+ - I run around desperately to improve my life. And what is this ‘life’ that I want to improve? Difficult to know that while running around!
+ - Love gives, and demands no returns.
+ - I am a character in my own dream. There are many other characters as well. The interplay of my character with the others is called my life.
+ - Only a spiritual mind can know the smallest right decision. That is our tragedy: an irreligious mind cannot take even the smallest decision rightly. His life is just a melancholy tale of an uninterrupted series of tragedies. Only a spiritual mind can take a right decision – big or small.
+ - There is no ‘my life’ or ‘your life’. There is just Life, total. ‘My life’ is ego, separation and ends in death. Life is oneness and immortal.
+ - Witnessing isn’t detachment, rather it is immersion in life. When the subject immerses in its object, subject and object merge into nothing.
+ - What is joy? The celebration of mind on being free from itself.
+ - The hope of an answer sustains the question. The sustenance of questions appears to make life purposeful, but is actually a trap. No answers.
+ - Fight so hard, play so hard, that the result stops mattering.
+ - The mind thinks about thoughtlessness, desires desirelessness and hopes to live in the present moment. It even plans a free-flowing life.
+ - The spontaneous energy of life, when denied expression, shows up in the form of desire. Desire: Spontaneity stifled and relegated to future.
+ - Purpose of life? To come to a point where I can see the stupidity of this question.
+ - Seek Light. See Light. Be Light.
+ - Enlightenment is to feel free of the obligation to be enlightened.
+ - Mind and body crave to express their already Perfect Source. And that is the purpose of life: Just expression, not achievement. Live the Self.
+ - I think of life in terms of a time-duration. But time itself makes my definition of life insubstantial. Time means death. Life can’t be time.
+ - All my accumulations will be of no use after death. They will just be the life lost in gathering them. I can die any time. Saving is losing.
+ - When God answers your prayers, he rejects your desires.
+ - Life is not torturing you, deceiving you, or defeating you. Beloved life is just wildly playing with you. Learn to play the great game.
+ - Life: Just desires manifested.
+ - Too many life-experts claim expertise on the base that they have never really lived! There is no way to know life than by being in it fully.
+ - For life to be timeless, you will have to live in the changeless.
+ - Live fully, die fully, and then come alive, again, and again….
+ - Let God be the baby in your arms.
+ - Self-preservation is an escape from life.
+ - What is depression? Only He is High. The one whose mind is not in contact with That alone, whose life is not centered around that High peak, will always find himself down. This is depression: an outcome of the ego’s refusal to surrender to the High. Depression means that the Highest is unknown to you.
+ - Life is dear. But we call life as life only because death is there. And death is a scare. Is it any wonder our life is a nightmare!
+ - The only thing real about this unreal life is that its an opportunity to move into the Real. If that opportunity is wasted, life is wasted.
+ - God, Love, Truth – they are not experiences. They are freedom from experiences.
+ - A person is a friend, a person is a worthwhile companion, only if in that person’s company you can feel alone, you can feel relaxed and peaceful, only if the person’s company does not make itself felt.
+ - Anger cannot be right in isolation. If everything else about you is wrong and petty, then anger too is bound to be wrong and petty. Do not be too bothered with the problem of anger. Do not try to look at the one fragment of mind and quarantine it. Whatever is the quality of your life, that is also the quality of your anger. When life is genuine, then anger is also genuine. When life is fake, then all you have is fake anger. When life has depth, then anger too has depth. When life is shallow, then anger is mere poking and pinching.
+ - Life: Rest, not quest.
+ - All movement in nature, including the movement of life, moves to stop. It wants to reach, get a climax, which will be the end of movement.
+ - When man refuses to live in the essence, he lives in the periphery, in the inessential. See how you have filled your life with the inessentials. See how you suffer. See how you long for the Essential.
+ - To look for God in material is lust.
+ - If life does not allow you to come, then die and come. If life makes way for you to come, then come and die. Come you must. Die you must.
+ - Aatman is the essence. World is the skin of the aatman. Look at your life and find out how much do you value the essence, and how much do you value the skin.
+ - I may think or not think, I AM!
+ - Life lives itself. Till I claim ownership over it. And then, I live and life is gone.
+ - Small is big. Big is imaginary. Now is forever. Forever is never. In daily events, life is lost and won. Grand moments, well, there’re none.
+ - Instead of asking where did it all go wrong, simply set it right.
+ - Every meaningful work that I do is based on my concepts, and hence on my ego. Let me dance a meaningless dance and live a meaningless life.
+ - Life is sacred when you can see the True in the false.
+ - Those who do not have God, do not even miss God.
+ - Why exists time? To search for its source. Why exists life? To search for its source. Why continues mind? As it has not found the source.
+ - With the eyes, you see something; with the I, nothing.
+
+99 quotes

@@ -1,0 +1,56 @@
+ - My whole mantra is, “Go big or go home.” I don’t want to just play a guy who dresses up. I want to play the person who threw down.
+ - Living off the grid and being kind of an outlaw brings a dangerous reality.
+ - I’m not religious, but I am spiritual. I have my own relationship with a being that I consider to be everywhere. All and everything. I don’t need a church or a synagogue or a mosque. I don’t need to kneel down, I don’t need to stand up, I don’t need to be hanging from a thread.
+ - Working at a job that you hate. Having a career and a life that you have no passion for. That’s hell.
+ - I’ve done millions of mediocre movies. I’ve done way more than my fair share. You do what you gotta do. This is not heart surgery. I’m not curing cancer. I’m just trying to put my kids through school.
+ - My self-confidence didn’t come from my appearance, it came from other things that I did. But certainly not my appearance.
+ - I’m thankful to be breathing, on this side of the grass. Whatever comes, comes.
+ - I’ve certainly been very blessed with opportunity.
+ - Fearless people are interesting to watch.
+ - I live in a bubble. I don’t read the blogs, or go on the internet, and I really just don’t know what people are saying because, well I guess I’m afraid to.
+ - I’ll walk through fire to do what I do because the movie business, when it’s right, is the coolest art form ever invented.
+ - I’m just trying to make up for lost times, and I have total awareness that when the work is coming it doesn’t mean it’s going to continue to come, so I’m taking advantage of this phenomenal period that I’m in now, to its fullest.
+ - I’m not a social rider. Strictly professional.
+ - I like playing interesting people, I like playing slightly twisted people. I like playing people who have large appetites who are kind of a bit larger than life.
+ - As an actor or anybody as a human being, I feel more and more like I want to spend time doing something significant. Because what’s the alternative? Spend your life wasting your time.
+ - I will not do a role that I don’t think I can do, that I’m not interested in, where there’s no humanity, that doesn’t have any kind of handle for me at all because I know I’ll just stink the joint up.
+ - I like to believe that everyone is born with the same skill set, and that it is the influences that one comes upon. What he hungers for is definitely going to be affected by what he got or didn’t get in those years when he was forming his psyche and his values. So I think villains are made.
+ - I love great animation.
+ - I love to continue to challenge myself and put myself in situations that are slightly uncomfortable.
+ - You start talking about God and a lot of people are going to become very defensive.
+ - I like to believe that everyone is born with the same skill set, and that it is the influences that one comes upon.
+ - I’m fully aware that things that resonate and become real hits are the exception to the rule, so much so that I’ve wired myself for failure.
+ - I’ve never worked with a tail, that I can remember. But there’s so much I can’t remember.
+ - Look at the people who are coming to television Ridley Scott, Ang Lee or Guillermo del Toro – all these great filmmakers – actively put themselves back into TV. That’s because the environment is very encouraging for bold storytelling, storytelling that you’ve never seen before.
+ - I’ve been busy and not busy, and busy is better. I’ve been busy, but I went through a lot of periods where it was lean for a lot of times.
+ - I don’t think that I’ve had a career like anyone else’s, but there are hosts and hosts of actors whose careers I admire.
+ - I love showing up and giving a performance without the benefit of a lot of rehearsal or dissection. It’s fun to me to act on a kind of instinctual level and go straight for the performance.
+ - Independent film is almost nonexistent right now, because all the distributers that used to love to put out these little art films are all out of business right now, because it costs so much to open a movie.
+ - That’s always been Guillermo’s preference, is to have as much there practically as is humanly possible, and that digital graphic images are more a punctuation mark than they are a replacement.
+ - I’ve been a professional actor for almost 40 years.
+ - The great thing about arriving at this age is that I don’t even care about my career anymore.
+ - The only way to grab the attention of the audience is originality. We feed ourselves with franchises that’s the opposite of what makes our culture multidimensional and interesting.
+ - I don’t ever want to be comfortable with anything I’m doing.
+ - Distortions control my self-image, like they do for a lot of us. It’s irrational.
+ - People are doing sitcoms on stage rather than theater. You go to the theater, and it’s as if you were watching a sitcom at 8:30 on Channel 4.
+ - I do voicework all the time.
+ - A lot of people have been bent one way or the other on that. I’m not going to weigh in on that; I’m happy to still be at large, I’ll just put it that way.
+ - I say yes to almost anything that comes my way.
+ - The luxury of television is that you get more than one shot at who you think the guy is that you’re playing.
+ - It’s nice to get paid for therapy rather than having to pay $240 an hour for it.
+ - I’m continuing to do research into biker culture.
+ - Cinema to me is like a religion. If I was going to have a religion it would be cinema.
+ - I’m real comfortable around people, and it took a long time for me to evolve to that point.
+ - I never direct myself, because I don’t like working with me. I would punch me in the mouth if I had to take my direction.
+ - I expect that everything I do will be not watched or not seen. That way, I’m never disappointed when I become flooded with that reality.
+ - I just think that there are those people that their resolve is strengthened by what it is that’s keeping them down, and there are some people that will buckle under it. You never know which one is which until you get into the eighth or ninth round of the fight.
+ - Every job has a unique situational circumstance.
+ - I’ve always wanted to have my own studio because this is a way for me to finally take all things that I’ve always dreamt about and actually put them into action.
+ - I was working more on a primal, instinctive level. And it just seemed to suit me; it seemed to suit my concentration span, it seemed to suit my personal style of performance, and I have fallen in love with film acting.
+ - I lost 90 pounds and my blood pressure went down to a normal level and the salt in my urine disappeared. And that was when I had to make the transition from fat character actor to thin character actor.
+ - 1% of the population has all the money and the other 99% have nothing.
+ - I, for one, am not nearly as engaged when I’m looking at something that’s been completely drawn up on a computer that replaces anything that’s in real time and real space. It just engages me all the less, rather than all the more.
+ - I’m kind of one of these guys who wants to play everything once before it’s all over.
+ - You draw on your own childhood every time you tee it up as an actor.
+
+54 quotes

@@ -1,0 +1,42 @@
+ - A long December and there’s reason to believe, maybe this year will be better than the last.
+ - If you wrap yourself in daffodils I will wrap myself in pain.
+ - People ask me if I have stage fright. I say, “God, no, I’m completely comfortable there. I have rest-of-the-day fright.”
+ - Your misery is everyone else’s entertainment.
+ - If you’ve never stared off in the distance, then your life is a shame.
+ - Sometimes the world seems like a big hole. You spend all your life shouting down it and all you hear are echoes of some idiot yelling nonsense down a hole.
+ - I think the biggest, saddest thing that happens in our lives is that we just don’t embrace the things that could make it better because they don’t seem to make it better at any given moment or we can’t decide how to get across the aisle to that person.
+ - I can’t remember all the times I’ve tried to tell myself to hold on to these moments as they pass.
+ - Step out the front door like a ghost into the fog where noone notices the contrast of white on white.
+ - When everybody loves me, I will never be lonely.
+ - I’m not a spiritual person at all, but I do think that the world doesn’t have to be as lonely as it is.
+ - There’s people who think what they need and what they deserve in their lives is a lot worse than what they actually do, so they get themselves involved in things that are needlessly painful: brutal relationships, abusive relationships.
+ - It’s impossible having five, six, seven people in a room being creative together and not fight, because you want to fight. It’s the only way creativity works, if you all put your ideas in.
+ - We waste a lot of our lives sometimes. There are people sitting across from us who would make the whole world better if we spent more time with them in it, but we can’t get across that gully.
+ - You have to kind of shift the way you look at life when you’re in a group of people that you work with. It’s not so much, do they make you feel good when you’re around them all the time; it’s how can you make everyone feel comfortable together.
+ - Time and time again I can’t please myself.
+ - Truth is, you make albums, and some of those songs are hits, and some of the greatest hits albums have songs that weren’t hits. You have a career, the reason why we’re still around 10 years is that we do have successful songs.
+ - For me, songwriting is something like breathing: I just do it. But that doesn’t mean you’re fantastic.
+ - For all the things I’m losing I might aswell resign myself to try and make a change.
+ - That’s where the songs come from: that’s what I’d most want people to understand. What sounds good or looks good, that’s nothing. The only worthwhile thing in art is seeing someone else’s heart.
+ - There is nothing more important you can ever do for this world than to wake up and be a part of it.
+ - It’s always music first, or melody and words together, but never words first.
+ - I find that truly heartbreaking that, like, it’s such a common, constant thing in people’s lives – a brutal abuse of people by other people, and it’s just accepted.
+ - I think that, often, the people who can make you happy are right there, and having them in your life would make your life better, but you can’t see how to do it.
+ - My life isn’t necessarily more important than anyone else’s: I’m just better in talking about it.
+ - All my songs are where I am.
+ - But what you realise after you’ve been in the business for a while is that people develop opinions about you that don’t have anything to do with your music, they like or dislike you for a million reasons, they like or dislike you for your last record.
+ - Being in a band is about making the band the priority.
+ - When so much money is involved in these movies, someone somewhere is going to try to screw you.
+ - Over and over again in my life, I find closeness to other people and proximity to other people really painful; that’s part of my mental illness, social anxiety. Closeness to other people is really hard, but it’s also a shame because it’s all you want too. But it doesn’t always work.
+ - You live through stuff, and it affects the way you feel about the world, and you write about it.
+ - I’ve been playing music most of my life.
+ - When you’re young and you play music, you have a peer group, you come out of a scene. There’s a lot of people you know, and then you have some success, and it all goes away.
+ - There just is exponentially more money in the movie business than in the music business. As a result there are more people involved in the creative process.
+ - Losing fights, or even winning fights, can be heartbreaking, and you can throw that away, but the truth is that it does make our lives better.
+ - I have a lot of problems understanding connections between people and how to negotiate that. It makes everything hard offstage.
+ - People really need to show up early to hear Hollis Brown. They are just an unbelievable live band.
+ - You aren’t really writing about what you did; you’re writing about how you feel.
+ - The nice thing about being on stage is it’s not that I know what to do, but I have a very clear feeling that anything I do is OK. All I’m up there to do is express how I feel. Any way I choose to do that is fine.
+ - You don’t understand what makes you understand what makes your life better until you take something that makes it so much worse and you embrace that.
+
+40 quotes

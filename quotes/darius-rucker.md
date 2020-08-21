@@ -1,0 +1,25 @@
+ - There’s two times of year for me: Football season, and waiting for football season.
+ - Find something that makes you want to give and give and give ’til it hurts.
+ - You gotta laugh and love and take all life has to give. You gotta live and learn so you can learn to live.
+ - I don’t think I get the respect as a singer. With this record, I wanted to bring respect to my band.
+ - You gotta love and learn and learn to live.
+ - I’m lucky my wife is a strong woman. She’s one of the stronger people I’ve ever met. It’s hard for me to be away, but I know my home life is fine because my wife is there.
+ - I work hard to let my wife know how much I love her. I try to do that every day.
+ - I think people who go out and tell you how much they’re gonna change things are the people who end up being just another whatever. I’m never trying to change anything. That’s not for me.
+ - I expect to make a career out of country music.
+ - We went to church every Sunday. When I was a kid, the only time I sang was around my family.
+ - Ray Charles has always been a big part of my life.
+ - Rock and roll was something to fall back on. If I had my choice, I’d be Jerry Rice and I’d be playing until I was forty-five.
+ - I just wanted to go out and make a record that Ive always wanted to make since I was a kid.
+ - When I was growing up, I always knew that if I ever got anything, I was going to give back as much as I can. I learned that all you have to be willing to do is give your time.
+ - Remember the Stax label and how if you liked one record, you liked all the others as well? You don’t talk to a lot of people who tell you how much they love their record label. I don’t care how many records they sell.
+ - I am honored that they would include me in the Cabinet as a member and contributor.
+ - I’m a kid who grew up in an all African-American neighborhood and got into schools and aspired to just be me, and didn’t worry about labels or anything. Just wanted to be a success at what I did.
+ - One of the things that I’m dying to do is to sing the hook on a big rap song. No one’s ever called me to do that.
+ - My family lives a pretty normal life.
+ - It’s hard to be married to me, and it was a lot harder when I was younger!
+ - It was important to me to find a label that wouldn’t back out after a first single. Everyone’s so used to hearing me with Hootie, they’re going to be skeptical.
+ - When I was in high school, I read all of Neil Simon’s plays.
+ - I have major respect for Kenny Chesney and Carrie Underwood and Sugarland. They are wonderful. They’re superstars in the music business.
+
+23 quotes

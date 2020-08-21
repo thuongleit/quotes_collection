@@ -1,0 +1,88 @@
+ - Life is beautiful in all it’s colors, even the darker ones, they’re here for a reason.
+ - Coldplay fans are the best in the world. If you like Coldplay then you’re obviously very intelligent and good looking and all-around brilliant.
+ - I’d rather be a comma than a full stop.
+ - Everything that’s happening to you, is what’s suppose to be happening to you. So just relax.
+ - Nothing matters except life and the love you make.
+ - Life is miraculous, even when it’s disastrous, it’s still incredible, I’m fascinated with everything, life is fascinating, I’m fascinated by trees and dogs, but no one wants to hear me talk about it.
+ - I’ve never been cool and I don’t really care about being cool. It’s just an awful lot of time and hair gel wasted.
+ - Cool to me is following what you believe in.
+ - I don’t mind not being cool.
+ - Those who are dead are not dead, they’re just living in my head.
+ - I’m just a public-schoolboy. I’ve got a degree. I’m from a middle-class family in Devon. I’ve got no story.
+ - I don’t drink, I don’t take drugs, I don’t smoke.
+ - The goal is to try and make the perfect song. Which of course will never happen.
+ - Everything in my life is a fragile decision that somebody else made.
+ - Sometimes we have criticism that is very constructive.
+ - You can sometimes get your own feelings across more strongly if you pretend that you’re singing it from someone else’s angle. But it’s always from me. It’s just a new way of framing it.
+ - A band’s only unique thing is its chemistry, especially if none of you are prodigious players or particularly handsome. The one thing you have is your uniqueness, so we hold on to that.
+ - In my mind, when God made women, he did an amazing job. I think girls are just perfect.
+ - Music comes from a place we don’t know.
+ - I’ve either got an acute case of hypochondria or I’m falling apart at the age of twenty-three.
+ - When I’m 40, too old to be a rock star, I plan to go back to college to study classical music.
+ - Looking after your ears is unfortunately something you don’t think about until there’s a problem.
+ - Abstract painting is dead. That’s why it has become so interesting again.
+ - Anyone who criticises me for talking about fair trade is a few pebbles short of a beach. Because everyone should care about it, just like everyone should care about the environment, because we all live here.
+ - Anything where we’re the butt of the joke, no one tells us about it.
+ - It’s difficult when you’re successful, to admit that you need help.
+ - Rihanna is mysterious and fascinating.
+ - There is something glamorous to me in taking a bit of a beating and keeping on going.
+ - When you’re on your fifth album, you are going to be judged against all your previous work and expectations.
+ - I’ve had tinnitus for about ten years, and since I started protecting my ears it hasn’t got any worse – touch wood.
+ - I would still give my left ball to write anything as good as OK Computer.
+ - So what Ghost Stories means to me is like, you’ve got to open yourself up to love and if you really do, of course it will be painful at times, but then it will be great at some point.
+ - Celebrity culture has gone crazy, and I think the reason is that real news is just not bearable, and it also seems impossible to change anything.
+ - When the lights go down, that’s 30,000 peoples lives colliding. Everyone there working is working for that moment, everyone watching is watching for that moment. It’s when you’re all in agreement about what you’re all doing so it’s a wonderful feeling of togetherness and possibility.
+ - I have to brush my teeth before I go on stage otherwise I don’t feel smart enough.
+ - I get more people approaching me about how good I was in ‘Napoleon Dynamite’ than being in Coldplay.
+ - I don’t mean to sound like a cheap prostitute, but you can call me what you like.
+ - Well, I don’t like the word ‘rock star,’ the two words, ‘rock star.’ Not even ’soft rock star. Not even limestone star. I don’t like those words.
+ - Men should always change diapers. It’s a very rewarding experience. It’s mentally cleansing. It’s like washing dishes, but imagine if the dishes were your kids, so you really love the dishes.
+ - The word mystical is an even worse word than spirituality – that artists take drugs, and then they add some crazy extra thing to what we all know is real. But our job as artists or as human beings is to investigate what we really think is real.
+ - The idea of Ghost Stories is how to turn something bad into something that gives you an uplift.
+ - You gotta wear the right trousers if you’re gonna be a rock star.
+ - I do an hour’s yoga and go running every day. Then I see a picture of myself and I still look like a skinny, potbellied idiot – and I thought I had turned into this superhunk!
+ - I can’t believe we’ve got away with becoming this huge band. And we still haven’t done anything I think is that good yet.
+ - You can never say you’re big – I don’t think you can ever take anything like that for granted.
+ - I think that the fact that a relationship becomes public is a bit of a bummer. Because it can distract from the real reason why you’re together, which is that you just like each other.
+ - More idiots should just shut their mouths.
+ - There’s a reason why people who’ve had bad relationships with their parents listen to angry stuff.
+ - I just want to make the best music of all time with my best friends.
+ - Everyone asks me about being so worried or thinking about existence as if I’m the only person who can’t understand why a tree grows the way it does or why a person is in power when they’re not that great. These are questions everyone has.
+ - I don’t speak particularly well. That’s one of the consequences of being extremely ugly.
+ - You know, it’s possible for two humans to be in a relationship without there needing to be some public reason for that relationship.
+ - Being such a big band is never a problem but it can be distracting.
+ - All the children of America, up to age seven or eight or nine or ten – they’re really great artists. So here we’ve got this amazing work that very few people pay any attention to, and it’s not valued by the culture.
+ - I think shareholders are the great evil of this modern world.
+ - It’s very hard to find things that rhyme with North American Free Trade Agreement.
+ - Even though the album is an endangered species, can we try and make a coherent and good one, even if it’s like making a horse and cart at a Nascar conference?
+ - The physical thing of having a man following you around all day trying to take your photograph – it’s eerie. There is a pure physical response. If you go up and kick a dog, it will bite you. But with photographers, you can’t do that.
+ - Economically, unfair trade will benefit nobody in the long run, as poorer countries will be bled totally dry and will become unable to produce anything.
+ - There comes a point where it doesn’t matter how many zeroes are at the end of your bank account.
+ - I don’t think you can be a mysterious rock star the same way you could in 1965 because there’s too much information. Everything you do is available all the time. So the only thing you can rely on is not being false.
+ - I could be walking down the street one minute and get a handshake and then get spat on the next. I’m never sure whether to wear gloves or a helmet.
+ - So I have probably 1,200 little bits of paper with notes, which when the Ambien really starts to kick in, don’t really make much sense. Say what you like about prescription drugs, but they do help when you’re sequencing a record.
+ - The most extravagant thing I’ve ever bought is 95 tops all the same.
+ - Music is split up now into little pockets.
+ - It’s more egalitarian on the Internet – anyone can put anything up. But in terms of the money it takes to allow a band to get good, there’s less of it to invest.
+ - Record sales don’t really mean anything. For us, the pressure is imagining some 15-year-old kid in Cincinnati who buys our album and doesn’t feel like he wasted his pocket money.
+ - Anything that we think is incredible and beautiful and wonderful, we ascribe to something that we don’t know what it is.
+ - I have my moments – usually twice every album – when I basically lose it.
+ - What makes us a bit nervous is, in this instant age, to release something that might take more than one listen. Where everything is instantly judged on YouTube or something! It’s a bit like releasing a horse and cart on a racetrack.
+ - Although it’s painful at the time, most of the things that people have said about us negatively – some of them are true and you can work on them, and the ones that you don’t agree with, you don’t work on.
+ - Before our albums are released I feel like we still own it, that we have control over our music. But once it’s out there in the world it’s no longer ours.
+ - I’m competitive with anyone who writes a good song – I don’t care if it’s a band or solo artist or whoever.
+ - I think it’s part of being English, particularly if you are middle-class – you’re always looking to be reminded that you are no good and you are always actually embarrassed about being successful.
+ - I never talk about my wife: we’re both in public professions but we try to keep our private life private.
+ - He helped John Cusak get his girlfriend back.
+ - As an artist, one doesn’t know what is real. And so there’s a search and a process of trying to locate something that feels or appears or somehow resonates with us on a deeper level. This is why art is such an interesting business to be in.
+ - If a few companies were less greedy, the people at the bottom woud have a lot more.
+ - If your wife went out with Brad Pitt, you’d want to prove yourself, you know what I mean?
+ - Coldplay frontman Chris Martin has found his niche in making the sound of solitude a triumphant experience, like Good Will Hunting: The Musical.
+ - In America idea of freedom isn’t actually about freedom. That’s about power. The point of an artist is to find out what are the flavors that I must work with. Finding one’s freedom is about surrendering to your helplessness.
+ - I don’t actually own a car.
+ - I personally really like getting a proper album with artwork and everything.
+ - I’d get sent home from the first audition of So You Think You Can Dance. My dancing is sort of controlled spasms. I fully accept it might appear ridiculous. But it’s passionate!
+ - Those have been the two biggest challenges of my life: trying to follow Radiohead, and trying to follow Brad Pitt.
+ - I know being on a major label is meant to be antiquated, but we’re fine with it.
+
+86 quotes

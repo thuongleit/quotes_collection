@@ -1,0 +1,54 @@
+ - Do you know what a foreign accent is? It’s a sign of bravery.
+ - Nothing is fun until you’re good at it.
+ - Never complain or make excuses. If something seems unfair, just prove yourself by working twice as hard and being twice as good.
+ - As a purely mathematical fact, people who sleep less live more.
+ - There’s nothing better for building confidence than learning you can do something you thought you couldn’t.
+ - Every day that you don’t practice is a day you’re getting worse.
+ - Parenting cannot just be one size fits all.
+ - Instilling a sense of self-discipline and focus when the kids are younger makes it so much easier by the time they get into high school.
+ - Some parents let their kids sleep at other people’s houses, where they drink alcohol, watch TV for hours and God knows what else. But if you say you have to get all A’s and practice the violin for two hours, then they consider that abusive. That upsets me.
+ - The Chinese mom is not the helicopter mom. I would never do their homework for them. It’s all about: Take responsibility, don’t blame others. Be self-reliant. Never blame the teacher.
+ - My goal as a parent is to prepare you for the future, not to make you like me.
+ - Kids raised to be pampered and spoiled don’t really end up being good leaders. Leaders need to be independent minded and confident.
+ - You can’t invent Google, Facebook or the iPod unless you’ve mastered the basics, are willing to put in long hours and can pick yourself up from the floor when life knocks you down the first 10 times.
+ - Everything I’ve ever done that’s valuable is something I was afraid to try.
+ - Everything I do as a mother builds on a foundation of love and compassion.
+ - The truth is I’m not good at enjoying life.
+ - Western parents worry a lot about their children’s self-esteem. But as a parent, one of the worst things you can do for your child’s self-esteem is to let them give up. On the flip side, there’s nothing better for building confidence than learning you can do something you thought you couldn’t.
+ - All decent parents want to do what’s best for their children. The Chinese just have a totally different idea of how to do that.
+ - Don’t assume your child is weak. If you, the parent, assume that they can’t take anymore, what kind of signal are you sending them?
+ - When my kids wanted to give up on things, I wouldn’t let them, and those are lifelong lessons.
+ - Tiger parenting is all about raising independent, creative, courageous kids. In America today, there’s a dangerous tendency to romanticize creativity in a way that may undermine it.
+ - Unlike Western parents, reminding my child of Lord Voldemort didn’t bother me.
+ - We all want to do the right thing for our children. We all don’t know what that is and we all – you know, you won’t know until the future.
+ - I say ‘I love you’ to my daughters every day.
+ - I see my upbringing as a great success story. By disciplining me, my parents inculcated self-discipline. And by restricting my choices as a child, they gave me so many choices in my life as an adult. Because of what they did then, I get to do the work I love now.
+ - But just because you love something, I added to myself, doesn’t mean you’ll ever be great. Not if you don’t work. Most people stink at the things they love.
+ - I’m a proud strict mom and, you know, I’m really proud of the two daughters I’ve raised. And I’m especially proud of my relationship with them. We’re very close. I think we’re good friends.
+ - I think if you’re a ‘tiger parent’ early on, you don’t need to be a ‘helicopter parent’ in high school.
+ - Tenacious practice, practice, practice is crucial for excellence; rote repetition is underrated in America.
+ - Chinese parents believe that their kids owe them everything.
+ - Real self-esteem has to be earned. I also believe in virtuous circles, like, nothing is fun until you are good at it. It is great if you can instill in children the ability to not give up, to have a work ethic.
+ - Oddly enough, I’m not a particularly judgmental person. I just don’t have a lot of filtering when I’m in ‘tiger mother’ mode. I say what comes into my head.
+ - I worry that by losing my temper so much and being so harsh and yelling so much that, by example, I will have taught my daughters to be that way, and I’m now constantly telling them not to do that.
+ - Once you get to the Enlightenment, the way that powers get to be hyperpowers isn’t just by conquest. It’s through commerce and innovation. Societies like the Dutch Republic and the United States used tolerance to become a magnet for enterprising immigrants.
+ - There are all kinds of psychological disorders in the West that don’t exist in Asia.
+ - You know, parenting is so personal. And we’re all afraid that we didn’t quite get it right. And it feels like the stakes are so high. By we – what if we made a mistake?
+ - Happiness is not always through success. Equally, the constant pursuit of success is sure unhappiness. But we have to find the balance. My own thoughts are that parenting is very personal. And we all feel enormous insecurity about parenting. What are they going to think of us 20 years down the line?
+ - I do believe that when your child does poorly on a test, your first step should not necessarily be to attack the teacher or the school’s curriculum. It should be to look at the idea that, maybe, the child didn’t work hard enough.
+ - Both of my girls have very high self-esteem because they were both able to master certain things; I should think that’s good for their confidence.
+ - I do play tennis, but I don’t really like competition. I’m supposed to be so intense, but I hate competition.
+ - A Western upbringing tends to stress questioning authority, which is always asking why, why, why.
+ - The Chinese model calls for giving your kids very little choice – and I’ve come to see that you can go too far with that. On the other hand, I also believe that Western parents sometimes give their young kids too much choice.
+ - Most things are difficult at the beginning and they become fun, something you love, only after you’ve worked at them.
+ - I think there are many ways to raise great kids. From what I can tell, Ayelet Waldman’s kids are interesting, strong, and happy, and if that’s the case, that’s good parenting.
+ - To be honest, I know that a lot of Asian parents are secretly shocked and horrified by many aspects of Western parenting.
+ - I think the biggest difference is that I’ve noticed Western parents seem much more concerned about their children’s psyches, their self-esteem, whereas tough immigrant parents assume strength rather than fragility in their children and therefore behave completely differently.
+ - I’m a slave to my dogs and go out with them almost every day. They are poorly behaved if they don’t run. They really act up.
+ - I’m suggesting that, ironically, the secret to becoming a world ‘hyperpower’ is tolerance. If you look at history, you see great powers being very tolerant in their rise to global dominance.
+ - I do think that maybe, even subconsciously, a lot of parents in the West are wondering, have we gone too far in the direction of coddling and protecting – you know, you see kids, sometimes that seem very rude and disrespectful. And the more important thing is they don’t seem that happy.
+ - Questioning authority is, I think, a great thing to instill in children. I just didn’t have enough of that when I was little.
+ - The Romans thought of themselves as the chosen people, yet they built the greatest army on Earth by recruiting warriors from any background.
+ - I sort of feel like people are not that honest about their own parenting. Take any teenage household; tell me there is not yelling and conflict.
+
+52 quotes

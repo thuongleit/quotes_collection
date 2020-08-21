@@ -1,0 +1,177 @@
+ - Education, education, education.
+ - I am not sure that we would always want 16-year-olds to do all the things they can do. I am afraid that I do not agree with the hon. Gentleman on the voting age. I think that it should remain as it is.
+ - The emphasis placed by more and more companies on corporate social responsibility symbolises the recognition that prosperity is best achieved in an inclusive society.
+ - There can be no freedom for Africa without justice; and no justice without declaring war on Africa’s poverty, disease and famine with as much vehemence as we remove the tyrant and the terrorist.
+ - I have absolutely no doubt at all that we will find evidence of weapons of mass destruction programmes.
+ - You get these insurgent movements of populism, left and right. An insurgent movement of populism took my political party over in the UK for example.
+ - Ask me my three main priorities for Government, and I tell you: education, education, and education.
+ - A simple way to take measure of a country is to look at how many want in and how many want out.
+ - I think it is vitally important to study History. If we are going to lead Britain safely into the future, it is essential that we understand our country’s historical roots. If we can learn the lessons of the past, we will be able to avoid making mistakes in the future.
+ - The kaleidoscope has been shaken. The pieces are in flux. Soon they will settle again. Before they do, let us re-order this world around us.
+ - If you are trying to take a difficult decision and you’re weighing up the pros and cons, you have frank conversations. Everybody knows this in their walk of life.
+ - This mass terrorism is the new evil in our world today. It is perpetrated by fanatics who are utterly indifferent to the sanctity of human life, and we the democracies of this world are going to have to come together and fight it together.
+ - This mass terrorism is the new evil in our world today.
+ - My teachers used to call me a failure.
+ - The class war is over.
+ - Our party: New Labour. Our mission: new Britain. New Labour new Britain.
+ - No one is to blame for the breakdown in trust between politics, media and the public.
+ - Ideals survive through change. They die through inertia in the face of challenge.
+ - Climate change is probably the greatest long-term challenge facing the human race.
+ - Nothing is more important to England’s arrangements for the World Cup than the state of David Beckham’s foot.
+ - Fifteen years ago, if you said business will help save the environment people would have laughed at you. Today, I believe this is a serious proposition.
+ - So much of politics is about the daily grind of political business: the people to see, the myriad different facets of government, the remorseless agenda of this part of the media or that.
+ - Real progress cannot be measured by money alone. We must ensure that economic growth contributes to our quality of life, rather than degrading it.
+ - We are all internationalists now, whether we like it or not.
+ - I want my son to grow up in a place where the people are more powerful than the government and not the other way around.
+ - I do not seek unpopularity as a badge of honour, but sometimes it is the price of leadership and the cost of conviction.
+ - Times are tough but they are tough because the government is trying to do the right thing, whether on public service reform, education, health, anti-social behaviour and welfare, or in counter-terrorism.
+ - That’s the art of leadership. To make sure that what shouldn’t happen, doesn’t happen.
+ - If you don’t see the Internet as an opportunity, it will become a threat. In two or three year’s time, the Internet will become as commonplace in the office as the telephone.
+ - The spread of freedom is the best security for the free.
+ - Yes, I feel I’ve got something to say. If people want to listen, that’s great, and if they don’t, that’s their choice.
+ - The 21st century will not be about the battle between capitalism and socialism but between the forces of progress and the forces of conservatism.
+ - Global warming is too serious for the world any longer to ignore its danger or split into opposing factions on it.
+ - If there are further steps to European integration, the people should have their say at a general election or in a referendum.
+ - We need to develop the new green industrial revolution that develops the new technologies that can confront and overcome the challenge of climate change; and that above all can show us not that we can avoid changing our behaviour but we can change it in a way that is environmentally sustainable.
+ - Ah yes, liberal democrats unified as ever in opportunism and in error.
+ - There is good evidence that last year’s European heat wave was influenced by global warming. It resulted in 26,000 premature deaths and cost $13.5 billion.
+ - The money from Iraqi oil will be yours – it will no longer be used by Saddam Hussein for his own benefit.
+ - There is no meeting of minds, no point of understanding with such terror. Just a choice: Defeat it or be defeated by it. And defeat it we must.
+ - Bill Clinton has been a true leader of the western world. He has been a friend and a counsel to me and other leaders right around the world.
+ - I happen to think it’s the politics that makes you electable, but the reason for that is politicians sometimes talk about electability as if it’s just a matter of conning the public. Actually, it’s a matter of persuading the public, and in my experience, usually, the public gets it right.
+ - I am a pretty straight sort of guy.
+ - There’s a great frustration with the system. There’s a lot of anger out there. But in the end, you need answers and not just anger. But anyway, let me not trespass too much into your politics. I’ve got enough problems in my own politics.
+ - The British are special. The world knows it. In our innermost thoughts we know it. This is the greatest nation on earth.
+ - My dad was a militant atheist, or is a militant atheist. My mum was sort of bought up in a religious family because she was a Protestant from Ireland but wasn’t especially religious.
+ - We can debate this or that aspect of climate change, but the reality is that most people now accept our climate is indeed subject to change as a result of greenhouse gas emissions.
+ - Our tolerance is part of what makes Britain Britain. So conform to it, or don’t come here.
+ - Deportation is a decision taken by the home secretary under statute, The new grounds will include fostering hatred, advocating violence to further a person’s beliefs, or justifying or validating such violence.
+ - If there is one thing Britain should learn from the last 50 years, it is this: Europe can only get more important for us.
+ - If people in the end think that you can’t do something in a way which is acceptable then it won’t fly. The only way you get anything like this done is if people think, ‘I understand why it is being done.’
+ - Retreat might give us a moment of respite but years of repentance at our weakness would, I believe, follow.
+ - Whatever the short term clashes between protecting the environment and eradicating poverty, medium term and long term it is clear. Unless we grow sustainably, at some point we face catastrophe.
+ - Those who wish to cause religious conflict are small in number but often manage to dominate the headline.
+ - There is nothing like waking up at six in the morning and changing a baby’s nappy to bring you face to face with life’s reality.
+ - If we are going to carry on growing, and we will, because no country is going to forfeit its right to economic growth, we have to find a way of doing it sustainably.
+ - I am absolutely delighted to give my full support to Gordon as the next leader of the Labour Party and as prime minister and to endorse him fully.
+ - Look, I am very competitive.
+ - I hope that people know me well enough and realise that I would never do anything to harm the country or anything improper. I never have. I think most people who have dealt with me think I am a pretty straight sort of a guy.
+ - I haven’t got the time to sit here arguing with someone whose idea of a coherent foreign policy is what comes up in Google when you type in peace!
+ - I think most people who have dealt with me, think I’m a pretty straight sort of guy, and I am.
+ - She was the people’s princess and that is how she will stay, how she will remain in our hearts and our memories for ever.
+ - The free enterprise system has not failed; the financial system has failed.
+ - Make the wrong choices now and future generations will live with a changed climate, depleted resources and without the green space and biodiversity that contribute both to our standard of living and our quality of life.
+ - Enough of talking. It is time now to do.
+ - Mine is the first generation able to contemplate the possibility that we may live our entire lives without going to war or sending our children to war.
+ - When my parents were growing up the world’s population was under three billion. During my children’s lifetime, it is likely to exceed nine billion. You don’t need to be an expert to realise that sustainable development is going to become the greatest challenge we face this century.
+ - Any parent wants what is best for their children. I am not going to make a choice for my child on the basis of what is the politically correct thing to do.
+ - The first rule in politics is that there are no rules, at least not in the sense of inevitable defeats or inevitable victories. If you have the right policy and the right strategy, you always have a chance of winning. Without them, you can lose no matter how certain the victory seems.
+ - We’ve seen the reality of Saddam’s regime: his thugs prepared to kill their own people, the parading of prisoners of war and now the release of those pictures of executed British soldiers.
+ - The understanding which has driven New Labour’s reform is to put the individual citizen – the patient, the parent, the pupil, the law abiding citizen – at the centre of each public service, with the service reformed to meet their individual requirements.
+ - It’s not a burning ambition for me to make sure that David Beckham earns less money.
+ - The world is a better place with Saddam in prison not in power.
+ - The biological agents we believe Iraq can produce include anthrax, botulinum, toxin, aflatoxin and ricin. All eventually result in excruciatingly painful death.
+ - The fear of missing out means today’s media, more than ever before, hunts in a pack. In these modes it is like a feral beast, just tearing people and reputations to bits. But no-one dares miss out.
+ - I want to see a publicly-owned railway, publicly accountable.
+ - Before people crow about the absence of weapons of mass destruction, I suggest they wait a bit.
+ - After the terrible events of last week, there is still the shock and disbelief; there is anger; there is fear; but there is also, throughout the world, a profound sense of solidarity; there is courage; there is a surging of the human spirit.
+ - There are millions of young children being educated to a very narrow-minded view of religion. And it’s out of that education of large numbers of young people that you then get this extremism.
+ - The first big choice: a government with the strength to deliver stability, or a government that takes the country back to boom and bust.
+ - I think I made the wrong career choice.
+ - Their barbarism will stand as their shame for all eternity.
+ - And the problem is, I can apologise for the information that turned out to be wrong, but I can’t, sincerely at least, apologise for removing Saddam.
+ - There will be no peace in our world without an understanding of the place of religion within it.
+ - The threat today is not that of the 1930s. It’s not big powers going to war with each other. The ravages which fundamentalist political ideology inflicted on the 20th century are memories. The Cold war is over. Europe is at peace, if not always diplomatically.
+ - There are solutions that are proper, but they require the painstaking and difficult work of building alliances and also being prepared to analyze the problem realistically. And exactly the same thing is going on my side of the Atlantic as is going on your side of the Atlantic.
+ - Saddam Hussein’s regime is despicable, he is developing weapons of mass destruction, and we cannot leave him doing so unchecked. He is a threat to his own people and to the region and, if allowed to develop these weapons, a threat to us also.
+ - When Europe and America stand together the world is a better and more prosperous place.
+ - It is not a sensible or intelligent response for us in Europe to ridicule American argument or parody their political leadership.
+ - The British people are the boss.
+ - There is no doubt that the time to act is now. It is now that timely action can avert disaster. It is now that with foresight and will such action can be taken without disturbing the essence of our way of life, by adjusting behaviour, but not altering it entirely.
+ - All the way through, we have been willing to take risks, provided at the end of it we can get a decent lasting settlement in Northern Ireland.
+ - It’s not that tens of millions of people all want to be violent. But they share the worldview that then, at its extreme, gives rise to the violence. And in my view, this is why this is such a global problem.
+ - The only society that works today is also one founded on mutual respect, on a recognition that we have a responsibility collectively and individually, to help each other on the basis of each other’s equal worth. A selfish society is a contradiction in terms.
+ - There is no doubt as to what needs to happen. There has to be a complete rejection of the type of terrorist attacks carried out in India.
+ - Understand the causes of terror? Yes, we should try, but let there be no moral ambiguity about this: nothing could ever justify the events of September 11 and it is to turn justice on its head to pretend it could.
+ - It is absurd to say in respect of any intelligence that it is infallible, but if you ask me what I believe, I believe the intelligence was correct, and I think in the end we will have an explanation.
+ - In this day and age if you’ve got the technology then it’s vital to use that technology to track people down. The number on the database should be the maximum number you can get.
+ - Examine the legacy that we inherited and what we did. We had boom-and-bust economics and a doubled national debt.
+ - The Iraqi elections struck a blow to the heart of global terrorism.
+ - I also, as I think most people do, have a healthy instinct that if we upset the balance of nature, we are in all probability going to suffer a reaction. With world growth, and population as it is, this reaction must increase.
+ - I had discovered long ago the first lesson of political courage: to think anew. I had then learned the second: to be prepared to lead and to decide. I was now studying the third: how to take the calculated risk. I was going to alienate some people, like it or not. The moment you decide, you divide.
+ - I think people think their incomes have been flat lining for a long period of time. They feel that the next generation’s opportunities are not going to be improvement. So and I also think that social media then allows insurgent movements to gain scale at speed.
+ - I have never pretended to be a great House of Commons man, but I pay the House the greatest compliment I can by saying that, from first to last, I never stopped fearing it.
+ - Terrorist threats are not happening just in this country, but in every European country and every country across the globe. As a result of that, we do sometimes have to take measures we would rather not take in order to give us the security we need.
+ - We are asked now seriously to accept that in the last few years-contrary to all history, contrary to all intelligence-Saddam decided unilaterally to destroy those weapons. I say that such a claim is palpably absurd.
+ - We can only protect liberty by making it relevant to the modern world.
+ - I don’t concede it at all that the intelligence at the time was wrong.
+ - What we have got to do now is use this event, the resignation of the whole commission, to drive through root and branch reform.
+ - We know British Muslims in general abhor the actions of the extremists.
+ - There are unquestionably links between al Qaida and Iraq.
+ - What the commission that myself and Leon Panetta is trying to do is analyze this in two respects. First of all, what’s the right military response and security response?
+ - What we want to see is the development of human rights and greater democracy, not just because it is our system but because we think that’s the best way that economic and political development go hand in hand.
+ - If I’d proposed solving the pension problem by compulsory euthanasia for every fifth pensioner I’d have got less trouble for it.
+ - The Iraq Survey Group has already found massive evidence of a huge system of clandestine laboratories, workings by scientists, plans to develop long range ballistic missiles.
+ - If we take all this actions and if it turns out not be true, we have reduced pollution and have better ways to live, the downside is very small. The other way around, and we don’t act, and it turns out to be true, then we have betrayed future generations and we don’t have the right to do that.
+ - I abhor Saddam’s regime, but the basis has to be disarmament.
+ - Politics may be the art of the possible, but at least in life, give the impossible a go.
+ - Today the impulse towards interdependence is immeasurably greater. We are witnessing the beginnings of a new doctrine of international community.
+ - I shall not rest until, once again, the destinies of our people and our party are joined together again in victory at the next general election Labour in its rightful place in government again.
+ - The big issue of our time is trying to deal with extremism based on a perversion of religion and how you get peaceful coexistence between people of different faiths and cultures.
+ - They could have been removed. They could have been hidden. They could have been destroyed.
+ - Fanaticism is not a state of religion but a state of mind.
+ - I don’t like it, to be honest, when politicians make a big thing of their religious beliefs, so I don’t make a big thing of it.
+ - The problem is some of the populism on both the far left and the far right, it can make a Tweet but not make a policy. And, you know, when you are dealing with issues that are as important and serious as this, I understand why people search for simple solutions.
+ - When I started out as Prime Minister I wanted to please all the people all the time. By the end I was wondering if I pleased any of the people any of the time.
+ - Personally, I have already turned down the Downing St thermostat by 1 degree.
+ - We promise that the events of 1991 will not happen again – we have pledged to remove Saddam and we will deliver.
+ - I don’t think it’s surprising we will have to look for them. I’m confident that when the Iraq Survey Group has done its work we will find what’s happened to those weapons because he had them.
+ - Sovereignty rests with me as an English MP and that’s the way it will stay.
+ - We expected, I expected to find actual usable, chemical or biological weapons after we entered Iraq.
+ - I just want to say this. I want to say it gently but I want to say it firmly: There is a tendency for the world to say to America, ‘the big problems of the world are yours, you go and sort them out,’ and then to worry when America wants to sort them out.
+ - I think everyone’s had their pound of flesh and now it’s time to move on.
+ - The jolt that Tony Blair received 35,000ft above the Pacific Ocean was not normal turbulence.
+ - But in terms of how people live together, how we minimize the prospects of conflict and maximize the prospects of peace, the place of religion in our society today is essential.
+ - The problem with the old ideology was that it suppressed the individual by starting with society. But it is from a sense of individual duty that we connect the greater good and the interests of the community.
+ - We have no plans to increase tax at all.
+ - People should go about their daily lives, to work, to live, to travel, to shop, to do the things people did in the same way as they did them before 11 September.
+ - The appalling details of the campaign of intimidation – which include grave-robbing – show the depths to which the animal extremists are prepared to stoop.
+ - Surely we have the wit and will to develop economically without despoiling the very environment we depend upon.
+ - The relationship between Britain and the US is fantastically important when confronting terrorism.
+ - Most of the problems of government come from people being overwhelmed by the size and scale of what they have to do.
+ - I actually did trouble to read Marx first hand. I found it illuminating in so many ways; in particular, my perception of the relationship between people and the society in which they live was irreversibly altered.
+ - The public think the politicians don’t know or care about their lives; and the politicians feel misunderstood.
+ - I couldn’t live with myself if I thought that these big strategic choices for my generation were there, and I wasn’t even making them – or I was making them according to what was expedient rather than what I actually thought was right.
+ - As so often before on the courage and determination of British men and women serving our country the fate of many nations rest.
+ - Repressive states are developing weapons that could cause destruction on a massive scale.
+ - Sometimes, and in particular dealing with a dictator, the only chance of peace is a readiness for war.
+ - We in a sense went for the Bernie Sanders model OK? Now we’re also in turmoil as a result of this result.
+ - Terrorism brings the reprisal; the reprisal brings the additional hatred; the additional hatred breeds the additional terrorism, and so on.
+ - The blunt truth about the politics of climate change is that no country will want to sacrifice its economy in order to meet this challenge, but all economies know that the only sensible long term way of developing is to do it on a sustainable basis.
+ - Do I know I’m right? Judgments aren’t the same as facts. Instinct is not science. I’m like any other human being, as fallible and as capable of being wrong. I only know what I believe.
+ - The great advantage of the Lib Dems is precisely that no-one knows what they stand for.
+ - King Fahd was a man of great vision and leadership who inspired his countrymen for a quarter of a century as king. He led Saudi Arabia through a period of unparalleled progress and development.
+ - Values unrelated to modern reality are not just electorally hopeless, the values themselves become devalued. They have no purchase on the real world.
+ - Our task is not to fight old battles, but to show that there is a third way, a way of marrying together an open competitive society and successful economy with a just and decent society.
+ - My view is that you still, in order to win from the Labour perspective, have to have a strong alliance with business as well as the unions. You have got to be very much in the centre ground on things like public sector reform.
+ - I don’t think there Is a way politically to beat “Insurgent Movement Of Populism”.
+ - I can’t stand politicians who wear God on their sleeves.
+ - Lord Cranborne told the leader of the opposition to ‘back me or sack me’ – he succeeded in doing both.
+ - If what the science tells us about climate change is correct, then unabated it will result in catastrophic consequences for our world.
+ - As for those that carried out these attacks there are no adequate words of condemnation. Their barbarism will stand as their shame for all eternity.
+ - I have absolutely no doubt in my mind that the intelligence was genuine.
+ - Society works by putting opportunity and responsibility together.
+ - I think the center ground have got to become the people of change again and not the guardians of the status quo. And that is the weakness it comes to in our campaign. You can see it in your politics, you can see it everywhere.
+ - There should not be a party within a party.
+ - I mean, I went to a church school when I was younger and imbibed a certain amount of religion then but it was really in university that I got interested in religion and politics at the same time. I don’t think as if it were one moment of conversion but my spiritual journey really began then.
+ - The Spanish PM rang me to say: ‘I have the support of only 4 per cent of the people.’ I said, ‘Crikey, that’s even less than think Elvis Presley is still alive.’
+ - We expected, I expected to find actual usable, chemical or biological weapons after we entered Iraq. But I have to accept, as the months have passed, it seems increasingly clear that at the time of invasion, Saddam did not have stockpiles of chemical or biological weapons ready to deploy.
+ - Our aim is not just an educated nation but an intelligent one.
+ - The best philanthropy is not just about giving money but giving leadership. The best philanthropists bring the gifts that made them successful-the drive, the determination, the refusal to accept that something can’t be done if it needs to be into their philanthropy.
+ - I will do what it takes to help Ed Miliband win general election.
+ - If we are wrong, we will have destroyed a threat that, at its least is responsible for inhuman carnage and suffering. That is something I am confident history will forgive.
+ - I’m not prepared to have someone tell me there is only one view of what Europe is. Europe isn’t owned by any of them, Europe is owned by all of us.
+ - Your loss we count as our loss. Your struggle we take as our struggle.
+ - If we want to contrast what we have done in the past few years on delivery with what the right hon. and learned Gentleman delivered, let us remember the interest rates at 10 per cent. to 15 per cent., the 1.5 million fewer people in work, the boom and the bust and the borrowing at 8 per cent.
+
+175 quotes

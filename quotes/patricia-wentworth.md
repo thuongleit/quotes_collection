@@ -1,0 +1,33 @@
+ - Too much information can be as disconcerting as too little.
+ - Most of the things one worries about never happen.
+ - Take things as they come. Take things as they are. What does it matter? There’s one end to everything.
+ - It is always better to say too little than too much.
+ - Things you can’t understand are always the hardest to bear. To know why is the first step to consolation.
+ - When there is too much to say it is easier to say nothing at all.
+ - The fact is, for most of us, what happens to ourselves is so much more important than what happens to other people that the smallest mote in our own eye will prevent us from being unduly harrowed by someone else’s beam.
+ - It is the man who is sure of himself who disregards the opinion of the world. To be sure is to have power.
+ - When you’ve just made the most complete fool of yourself, you feel the need of a specially high horse to ride.
+ - You cannot divide minds into sexes. Each human being presents an individual problem.
+ - Love and a cold cannot be hid. It is, I believe, a Spanish proverb.
+ - Children want one thing at a time, and want that one thing passionately.
+ - The most trying moments in human experience were those in which there was nothing to be done except to wait.
+ - Nobody likes to be accused of a virtue.
+ - My dear father always said that when everybody had a telephone nobody would have any manners, because there wouldn’t be time for them. And of course he was perfectly right...
+ - Emotion which you do not share can become intolerable.
+ - There’s a general consensus of opinion that people in love are apt to look silly – except to each other.
+ - You can’t do such a lot and do it all so well and have much time left for the ordinary human feelings.
+ - Anger was both a disfiguring and a revealing passion.
+ - Money’s a very serious thing – especially when you haven’t got any.
+ - A lie that is half a truth is ever the hardest to fight.
+ - Being in a rage was rather like being out in a thunderstorm – you couldn’t hear yourself think.
+ - It’s surprising how soon you can get used to having money. It’s much easier than getting used to not having it.
+ - A good many established writers seem to have the feeling that some day they are going to be found out, revealed as frauds.
+ - Mary Stuart wrote, ‘My end is in my beginning.’ It is easier to agree with her than to decide what is the beginning, and what is the end.
+ - Once a suggestion has entered the general atmosphere of human thought, it is very difficult to neutralise it.
+ - Any road is bound to arrive somewhere if you follow it far enough.
+ - Anyone who pretends not to be interested in money is either a fool or a knave.
+ - One cannot withdraw from the life of the community. Injury to one member of it cannot fail to be the concern of all.
+ - I do not approve of children being beaten. It is always a confession of failure.
+ - The fact is, people who don’t have any misfortunes are very irritating to their neighbours. No opportunities for popping in with condolences and new-laid eggs. No visits to the afflicted. No opportunities for the milk of human kindness to flow. Naturally it doesn’t.
+
+31 quotes

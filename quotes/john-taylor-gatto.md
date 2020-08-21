@@ -1,0 +1,53 @@
+ - You either learn your way towards writing your own script in life, or you unwittingly become an actor in someone else’s script.
+ - When you take the free will out of education, that turns it into schooling.
+ - The truth is that schools don’t really teach anything except how to obey orders.
+ - School is a twelve-year jail sentence where bad habits are the only curriculum truly learned.
+ - Whatever an education is, it should make you a unique individual, not a conformist.
+ - I teach how to fit into a world I don’t want to live in. I just can’t do it anymore.
+ - Teaching is a function, not a profession. Anything with something to offer can teach.
+ - Self-knowledge is the only basis of true knowledge.
+ - Grades don’t measure anything other than your relevant obedience to a manager.
+ - You need experience, adventure, and explorations more than you need algebra!
+ - You can make your own son or daughter one of a kind if you have the time and will to do so; school can only make them part of a hive, herd or anthill.
+ - Anyone who is more interested in human beings than in the rules is a threat to the system.
+ - The old system where every child was locked away and set into nonstop, daily cut throat competition with every other child for silly prizes called grades is broken beyond repair. If it could be fixed it could have been fixed by now. Good riddance.
+ - I’ve concluded that genius is as common as dirt. We suppress genius because we haven’t yet figured out how to manage a population of educated men and women. The solution, I think, is simple and glorious. Let them manage themselves.
+ - It is absurd and anti-life to be a part of a system that compels you to listen to a stranger reading poetry when you want to learn to construct buildings, or to sit with a stranger discussing the construction of buildings when you want to read poetry.
+ - Schools teach exactly what they are intended to teach and they do it well: how to be a good Egyptian and remain in your place in the pyramid.
+ - Our cultural dilemma has nothing to do with children who don’t read very well. It lies instead in the difficulty of finding a way to restore meaning and purpose to modern life.
+ - School is the first impression children get of organized society. Like most first impressions it is the lasting one. Life is dull and stupid, only Coke provides relief. And other products, too, of course.
+ - Nobody gives you an education. If you want one, you have to take it.
+ - Curiosity has no important place in my work, only conformity.
+ - There isn’t a right way to become educated; there are as many ways as there are fingerprints.
+ - Why are you so docile when you give up your child to a government agent called a schoolteacher?
+ - School is about learning to wait your turn, however long it takes to come, if ever. And how to submit with a show of enthusiasm to the judgment of strangers, even if they are wrong, even if your enthusiasm is phony.
+ - Genius is an exceedingly common human quality, probably natural to most of us.
+ - In our secular society, school has become the replacement for church, and like church it requires that its teachings must be taken on faith.
+ - It’s been a horrifying academic secret for decades that the children who walk away with the highest formal honors, the valedictorians and National Merit Scholars, have a horrendous performance record in later life.
+ - In a home school, the kid does 95% of the work. But in a school system, since it’s an indoctrination system, a teacher has to do 95% of the work.
+ - Children do not learn in school; they are babysat. It takes maybe 50 hours to teach reading, writing, and arithmetic. After that, students can teach themselves. Mainly what school does is to keep the children off the streets and out of the job market.
+ - I feel ashamed that so many of us cannot imagine a better way to do things than locking children up all day in cells instead of letting them grow up knowing their families, mingling with the world, assuming real obligations, striving to be independent and self-reliant and free.
+ - The economy schoolchildren currently expect to live under and serve would not survive a generation of young people trained to think critically.
+ - Child labor becomes a label of condemnation in spite of its ancient function as the quickest, most reliable way to human independence.
+ - People are less than whole unless they gather themselves voluntarily into groups of souls in harmony. Gathering themselves to pursue individual, family, and community dreams consistent with their private humanity is what makes them whole; only slaves are gathered by others.
+ - This was once a land where every sane person knew how to build a shelter, grow food, and entertain one another. Now we have been rendered permanent children. It’s the architects of forced schooling who are responsible for that.
+ - I urge you to examine in your own mind the assumptions which must lay behind using the police power to insist that once-sovereign spirits have no choice but to submit to being schooled by strangers.
+ - Schools stifle family originality by appropriating the critical time needed for any sound idea of family to develop – then they blame the family for its failure to be a family.
+ - One of the first things a family tries to teach its children is the difference between good and evil, right and wrong. One of the first things our schools do is destroy that distinction.
+ - If you live in a material universe where acquiring things is very important to you, then family is an absolute deterrent to maintaining that sort of a world, because family involves values like affection, and sympathy, and passion, and types of pleasure that lead nowhere in a material sense.
+ - Is it any wonder that Socrates was outraged at the accusation he took money to teach? Even then, philosophers saw clearly the inevitable direction the professionalization of teaching would take, that of pre-empting the teaching function, which, in a healthy community, belongs to everyone.
+ - The primary goal of real education is not to deliver facts but to guide students to the truths that will allow them to take responsibility for their lives.
+ - Shouldn’t we also ask ourselves what the consequences are of scrambling to provide the “most” of everything to our children in a world of fast dwindling resources?
+ - Government schooling is the most radical adventure in history. It kills the family by monopolizing the best times of childhood and by teaching disrespect for home and parents.
+ - It was never factually true that young people learn to read or do arithmetic primarily by being taught these things. These things are learned, but not really taught at all. Over-teaching interferes with learning, although the few who survive it may well come to imagine it was by an act of teaching.
+ - The shocking possibility that dumb people don’t exist in sufficient numbers to warrant the millions of careers devoted to tending them will seem incredible to you. Yet that is my central proposition: the mass dumbness which justifies official schooling first had to be dreamed of; it isn’t real.
+ - Children allowed to take responsibility and given a serious part in the larger world are always superior to those merely permitted to play and be passive.
+ - School presents daily exercises in dis-association. It forces unwelcome associations on most of its prisoners. It sets petty, meaningless competitions in motion on a daily basis, pitting potential associates against one another in contests for praise and other worthless prizes.
+ - The premise upon which mass compulsion schooling is based is dead wrong. It tries to shoehorn every style, culture, and personality into one ugly boot that fits nobody.
+ - The obligation to amuse and instruct myself was entirely my own, and people who didn’t know that were childish people, to be avoided if possible. Certainly not to be trusted.
+ - Growth and mastery come only to those who vigorously self-direct. Initiating, creating, doing, reflecting, freely associating, enjoying privacy-these are precisely what the structures of schooling are set up to prevent, on one pretext or another.
+ - The truth is that schools don’t really teach anything except how to obey orders. This is a great mystery to me because thousands of humane, caring people work in schools as teachers and aides and administrators, but the abstract logic of the institution overwhelms their individual contributions.
+ - Creative work and critical thought, which produces new knowledge, can’t be conditioned; indeed, conditioning prevents these things from ever happening.
+ - Who besides a degraded rabble would voluntarily present itself to be graded and classified like meat? No wonder school is compulsory.
+
+51 quotes

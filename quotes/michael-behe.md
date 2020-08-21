@@ -1,0 +1,29 @@
+ - Skin is made in large measure of a protein called collagen.
+ - As the number of unexplained, irreducibly complex biological systems increases, our confidence that Darwin’s criterion of failure has been met skyrockets toward the maximum that science allows.
+ - The basic structure of proteins is quite simple: they are formed by hooking together in a chain discrete subunits called amino acids.
+ - Proteins are the machinery of living tissue that builds the structures and carries out the chemical reactions necessary for life.
+ - There is no publication in the scientific literature – in prestigious journals, specialty journals, or books – that describes how molecular evolution of any real, complex biochemical system either did occur or even might have occurred.
+ - The theory of undirected evolution is already dead, but the work of science continues.
+ - Biology has progressed tremendously due to the model that Darwin put forth. But the black boxes Darwin accepted are now being opened, and our view of the world is again being shaken.
+ - Since natural selection requires a function to select, an irreducibly complex biological system, if there is such a thing, would have to arise as an integrated unit for natural selection to have anything to act on.
+ - It is a shock to us in the twentieth century to discover, from observations science has made, that the fundamental mechanisms of life cannot be ascribed to natural selection, and therefore were designed. But we must deal with our shock as best we can and go on.
+ - It was only about sixty years ago that the expansion of the universe was first observed.
+ - Although Darwin was able to persuade much of the world that a modern eye could be produced gradually from a much simpler structure, he did not even attempt to explain how the simple light sensitive spot that was his starting point actually worked.
+ - In many biological structures proteins are simply components of larger molecular machines.
+ - It is often said that science must avoid any conclusions which smack of the supernatural.
+ - The conclusion of design flows naturally from the data; we should not shrink from it; we should embrace it and build on it.
+ - A man from a primitive culture who sees an automobile might guess that it was powered by the wind or by an antelope hidden under the car, but when he opens up the hood and sees the engine he immediately realizes that it was designed.
+ - I believe the evidence strongly supports common descent. But the root question remains unanswered: What has caused complex systems to form?
+ - We are not inferring design to account for a black box, but to account for an open box.
+ - Despite some remaining puzzles, there’s no reason to doubt that Darwin had this point right, that all creatures on earth are biological relatives.
+ - Throughout history there have been many other examples, similar to that of Haeckel, Huxley and the cell, where a key piece of a particular scientific puzzle was beyond the understanding of the age.
+ - Thus it seemed to Haeckel that such simple life could easily be produced from inanimate material.
+ - We can look high or we can look low in books or in journals, but the result is the same. The scientific literature has no answers to the question of the origin of the immune system.
+ - As can be seen even by this limited number of examples proteins carry out amazingly diverse functions.
+ - In the 19th century the anatomy of the eye was known in great detail and the sophisticated mechanisms it employs to deliver an accurate picture of the outside world astounded everyone who was familiar with them.
+ - Science is not a game in which arbitrary rules are used to decide what explanations are to be permitted.
+ - In order to say that some function is understood, every relevant step in the process must be elucidated.
+ - It was a shock to people of the nineteenth century when they discovered, from observations science had made, that many features of the biological world could be ascribed to the elegant principle of natural selection.
+ - Many people, including many important and well-respected scientists, just don’t want there to be anything beyond nature. They don’t want a supernatural being to affect nature.
+
+27 quotes

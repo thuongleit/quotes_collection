@@ -1,0 +1,41 @@
+ - I don’t have a problem with Werner Herzog.
+ - The last day of your life is still going to be a day.
+ - The world is constantly changing. You’re constantly learning and you have to be willing to get off your mark, and get off your spot and take that knowledge you have not to fix yourself into a place but to keep going.
+ - My life is proof that I don’t need you to do what I do. If there’s no one to see it, I’ll watch it.
+ - No one can stop me from talking about my movie.
+ - There’s a difference between the world ending tomorrow and just drinking and drugging yourself to death.
+ - With ‘New Rose Hotel,’ I knew that I was getting paid a $100,000 fee to write, produce, and direct, and that’s all I was going to get.
+ - I don’t need to push myself. I don’t need to sharpen my own knife and slit my throat. I’m trying to chill it and find an equilibrium and a balance to my work.
+ - I don’t know what DVD commentaries are about. I’d like to strangle the person who came up with that concept.
+ - The more you get into any religion, it becomes the same. It really becomes how you treat other people and how you get outside yourself. How you look to help other people, and how you get out of this ‘I, me, mine’ type of thing.
+ - As barbaric is we are, it’s a miracle we haven’t blown ourselves off the face of the earth so far.
+ - Mulberry Street was the beating heart of the Italian-American experience, but you don’t find those gangsters now. I live with a bunch of yuppies and models.
+ - Most filmmaking is about shaking hands and just starting.
+ - I was raised a Catholic and when you’re raised a Catholic they don’t teach you to think for yourself. You’re taught not to think too deeply about things.
+ - It’s funny, the hardest thing to do is to make something look like it’s fast, loose and improvised, and get somebody to laugh.
+ - I come from a world where you get the film done, that’s a success.
+ - I don’t care if I get $50 million to do a film.
+ - I’m not a big fan of talking about dying. And then I make a movie where I kill everybody.
+ - The actors that I love to work with, they’re hard on me. They’re pushing me.
+ - That’s the thing about making a movie: You never finish editing. They just take it away from you.
+ - I was born in the Bronx, and then my father moved us to the country at an early age.
+ - I’m a lapsed Buddhist like I’m a lapsed Catholic. I take it to a point.
+ - My existence is about making movies, so I’ve just got to rock and roll with the punches. You want to make movies on telephones, I’m there.
+ - Making money is not gonna change anything about what I am, except I won’t answer the door.
+ - Movies are only the result of where we are as human beings.
+ - My job is going to be to direct the film – I’m going to do it. And that’s where my job ends.
+ - A script is not a piece of literature it’s a process.
+ - But I’m never gonna get to a point in my life where what it costs to shoot a movie is going to determine what it is. The limits of my imagination is the only thing that’s gonna stop me.
+ - Certain actors wanna get paid, they think working in a low-budget movie is being ripped off. But for others it’s like, ‘Yes, let’s do it.’
+ - I direct, and I make movies I can’t finance. I can’t raise money. I can’t sell anything. I make things.
+ - I live with a bunch of yuppies and models.
+ - I grew up in the ’60s, which was a creative time, so it wasn’t that big of a stretch to go from a baseball bat to a guitar to a film camera.
+ - I’m about my characters.
+ - Listen, anybody who has a film festival has the right to show what they want.
+ - Life is what happens when you’re doing other things, right?
+ - In the film business, it’s basically honor among thieves.
+ - A lifetime isn’t long enough to learn how to make films.
+ - I grew up in the Bronx. I’m into rap music.
+ - I’m in a house where if the washing machine shuts off, it sings a song. If iPad gets a message, it sings a song. I’m living in a real postmodern time – every single thing sings to you to tell you it’s started, it’s stopped, you’ve got a message, you didn’t get a message...
+
+39 quotes

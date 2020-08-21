@@ -1,0 +1,82 @@
+ - A pretty face can capture my attention but only a beautiful mind can hold it.
+ - A man who walks with God, can walk anywhere. Hence, I fear nothing.
+ - True wealth is having your health, and knowledge of self.
+ - Universal truth is not measured in mass appeal.
+ - I won’t trade humanity for patriotism.
+ - Those people who kill women, children, and defenseless civilians are about as Muslim as mass murderer Christopher Columbus was a Christian.
+ - I Freestyle my Destiny, It’s not written in Pages.
+ - Pessimism is an emotion not a philosophy.
+ - The purpose of life is a life with a purpose. So I’d rather die for a cause, than live a life that is worthless.
+ - I feel my body weakening but my spirit is fine, ready to go to war with devils at the drop of a dime.
+ - If you don’t have self-respect, if you don’t have dignity, if you don’t have some true knowledge of self and who you are, and where you’re coming from, then you’re absolutely lost.
+ - Your mind is your weapon. Load your weapon.
+ - Hell is not a place you go if you’re not a Christian, it’s the failure of your life’s greatest ambition.
+ - I’d rather be proud of what I am, rather than desperatly try to be something I’m really not; just to fit in.
+ - You can make the future, but it starts with leaving the past.
+ - Ignorance is venomous and it murders the soul, spreading like a virus, running rampant, out of control.
+ - I’m not trying to sell pipe dreams to people. I’m not giving them some fake utopia. I’m not telling them it’s easy. If it was easy, everyone would do it. But you don’t fight the fights you can win, you fight the fights that need fighting. That’s the most important part.
+ - As much as racism bleeds America, we need to understand that classism is the real issue.
+ - Attempts to extinguish me don’t even bother me none. Like retarded kids throwing ice cubes at the sun, a victory against Immortal Technique will never be done.
+ - Read between the lines and free your mind.
+ - In a world of regret, sacrifice and hardship, laughter and music are medicine.
+ - Working your whole life wondering where the day went, the subway stays packed like a multicultural slaveship.
+ - You can not change the past but you can change the future.
+ - The ‘king of hip hop’ is always the poster child for capitalism, no matter who it is.
+ - If your religion hasn’t made you a better person, then it has failed you as a religion.
+ - Using some economic issues to make one group of people, regardless of race or religion, the scapegoat for all the problems of the country is just the stupidest, and yet, the most creative propaganda scheme that you can come up with.
+ - It isn’t me making money as much as it is me spending my money in a way that I feel is effective. My methodology is to say I’m not just going to throw money at a problem but rather personally invest myself in it.
+ - When you talk about revolution, it’s very easy to romanticize picking up a gun or marching in the street, but I think before we take any of those actions, violence of course being the last one, we first have to have a revolution of the mind.
+ - I think that as much as any leader is marketed we have to learn that unless we inject ourselves specifically and link our revolution to the economic struggle of our people and address those specific issues then we’re never really going to have control of what happens.
+ - The kingdoms of Africa and Mesopotamia, machine gunning your body with depleted uranium, this is the age of microchips and titanium, the dark side of the moon, and contact with aliens.
+ - Devils used to be God’s angels that fell from the top. There is no diversity cos we’re burnin in the melting pot.
+ - The problem with always being a conformist is that when you try to change the system from within, it’s not you who changes the system; it’s the system that will eventually change you.
+ - When we look at these types of things it echoes to lessons we haven’t learned from the past. We still don’t see Rome as a negative thing; we glorify the Roman Empire. It was a fascist state under the control of an incredibly authoritarian militant pre-emptive striking genocidal regime.
+ - My revolution is born out of love for my people, not out of hatred for others.
+ - I hope one of my fans has one of your kids shot: and blames it on acid, prozac, and slipknot.
+ - Write it down and remember that we never gave in, the mind of a child is where the revolution begins, so if the solution has never been to look in yourself, how is it that you expect to find it anywhere else.
+ - I love the place that I live, but I hate the people in charge.
+ - I try to take people at face value and then beyond, taking them out of face value and out of the category of being Black, Latino, Asian, White, Jewish, Muslim or Christian or Atheist, none of that matters to me.
+ - Traditionally people are on the side of the government all the time.
+ - I’m baptized by America and covered in leeches.
+ - Universal truth is not measured in mass appeal, this is the last time I kneel and pray to the sky, cause almost everything I was ever told was a lie.
+ - I jerk off inside books, and give life to words, leaving concepts stuck together you’ve probably never heard.
+ - Just because I choose to question religion doesn’t mean that I’m spitting in God’s face; it’s the opposite. I’m tired of people spitting in God’s face. I’m tired of seeing these divisions over a different type of Christianity, over a different type of Islam.
+ - I just want to be remembered as someone who wanted people to think free and wanted people to be free, whether it’s at the end of the day, or at the end of the mortal coil.
+ - You don’t have to either choose to save the world or become a sellout. I say to people, “Listen dude, how can you save the world if you can’t even save yourself? Why don’t you try to affect one person’s life who’s in your life, and that would be historic.”
+ - I just had to get this stress off my chest like breast reductions.
+ - My first Hip Hop concert was at the Apollo at the age of 12. Southpaw’s father was interviewing Queen Latifah and Treach as well as many others. The place was so packed no one could move but I got to be backstage with the video equipment and so I saw the show from a great place.
+ - Rich people, they stay out of jail not just because they have more money but because they grew up in a culture where they’re educated by people to say, “I don’t have to talk to the cops. If I get arrested, I’m not going to say a word to them. I’m just going to wait until my family lawyer gets here”.
+ - Art has to be, you know, trade itself, conform to the old strict guidelines set forth by how it was going to act in the future.
+ - I wasn’t always a revolutionary, I used to live life like a criminal even though I was going through high school or college, or the fact that I was smart, had no bearing on that. People can have intelligence all the way but have no direction. Not all criminals are idiots.
+ - My enemy is not the average white guy, its not the kid down the block or the kids I see on the streets. My enemy is the white I don’t see: the people in The white House, the corporate monoply owners. Fake liberal politicians-those are my enemies.
+ - I think that some people from other regions expect us to be like that so I think they overcompensate for that sometimes and they’re victims to their own insecurity.
+ - The perfect world for me is to find some sort of inner peace. I believe that a man that walks with God can walk anywhere.
+ - It doesn’t matter what race you are. It doesn’t matter what religion you are. I always tell people: If you want to be a part of hip-hop, you just need to have a heart. You need to have the courage to tell the truth.
+ - I hate it when they tell us how far we’ve came to be; as if our people’s history started with slavery.
+ - I’ll throw ya gang-sign up, and then I’ll spit on my hand.
+ - Plastic metaphors and carbon copy similes that aren’t going to do anything for anybody and it doesn’t showcase creativity; it showcases the fact that the soul of the music has been compromised to control the industry.
+ - I can’t imagine Revolution being quiet, unassuming, or bashful.
+ - King Abdullah has died. A divisive figure in the Middle East. The sad irony is that the USA preached democracy in the face of absolute rule.
+ - You will learn a lesson repeated through history, that no matter what you think, occupation is not victory!
+ - You can’t stop a revolution from breathin’, so to beat ’em they offer people the illusion of freedom.
+ - People are educated into the fact that as a people we stand a better chance of knowing how to work the law if we know the history of the law and the history of our people’s relationship with it.
+ - I think that learning to read between the lines of traditional media is one way to stay informed, and also realizing that eventually you’re going to have to cross-reference all sorts of different information coming from different sources.
+ - It’s not like America’s view of the Israeli-Palestinian struggle is going to change. There are some things that are going to change and some things that are not going to change.
+ - Some artists think every woman is a groupie, and that every dude is a sucker, and I never looked at people like that.
+ - Read about the history of the place that we live in and stop letting corporate news tell lies to your children.
+ - We’re rhyming; we’re carrying the banner representing hardcore hip-hop to the death.
+ - I spend a lot of time out there. I’ve got a lot of family that lives in Inglewood and surrounding areas. So I’m right in the hood, every time I go there I go see my peoples. I rep real hard for the people that I see that are the counterparts of what I’m trying to do out here, out there.
+ - People who have a conservative viewpoint both religiously and politically and they fear that the world is going to be thrown into perpetual communism.
+ - I put the truth out there, I put the historical facts into Hip Hop to show us how much history repeats itself and that if we truly want to evolve as a human race, we need to stop sticking each other in ridiculous categories.
+ - Changing the course of destiny, so I’m strapped with weaponry cause the government don’t give a f-k about protecting me.
+ - Only a f-kin imbecile would think they un-correctable, cause you’re susceptible to becoming more than a spectacle.
+ - I have favourite songs for different things. The diversity of it is the strength.
+ - I see the world for what it is, beyond the white and the black.
+ - We have to create the ability to police our own communities instead of leaving it in the hands of a system that has never understood us, tried to marginalize and politically assassinate all of our leaders whenever they came to challenge the status quo.
+ - I’ve had some confrontations after I got out of prison and I’m proud of the fact that I dealt with them differently.
+ - Your fans can’t just pop in whenever they want. I’m not gonna allow someone to just drop over my house whenever they want like, “Hey what’s up? I bought your album so what’s for dinner?”
+ - I think that when you look at history and when you look at these facts that shape nations and shape countries and give us present examples of how we’re supposed to live, we find more and more often that we’re not paying attention to what’s actually happening.
+ - There was a lot of rebelliousness, without focus, in my younger years. And even when people ask me, “Oh you went to prison and you went to college for a couple years?” I’m like “Yeah, I learned more in prison than I think I ever learned in college.” That’s the sad truth.
+ - Hip-hop is about the human condition; it’s about people’s lives.
+
+80 quotes

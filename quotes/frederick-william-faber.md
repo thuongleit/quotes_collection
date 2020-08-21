@@ -1,0 +1,38 @@
+ - Every moment of resistance to temptation is a victory.
+ - Kind words are the music of the world.
+ - Holiness is an unselfing of ourselves.
+ - If our love were but more simple, We should take Him at His word; And our lives would be all sunshine In the sweetness of the Lord.
+ - Kindness has converted more sinners than zeal, eloquence, or learning.
+ - They always win who side with God.
+ - God always fills in all hearts all the room which is left Him there.
+ - Exactness in little things is a wonderful source of cheerfulness.
+ - There are no disappointments to those whose wills are buried in the will of God.
+ - Small things are best: Grief and unrest To rank and wealth are given; But little things On little wings Bear little souls to Heaven.
+ - There’s a wideness in God’s mercy Like the wideness of the sea Oratory Hymns.
+ - The music of the Gospel leads us home.
+ - The buried talent is the sunken rock on which most lives strike and founder.
+ - Kind words are the music of the world. They have a power which seems to be beyond natural causes, as if they were some angel’s song which had lost its way and come to earth.
+ - Kind thoughts are rarer than either kind words or deeds. They imply a great deal of thinking about others. This in itself is rare. But they also imply a great deal of thinking about others without the thoughts being criticisms. This is rarer still.
+ - Deep theology is the best fuel of devotion; it readily catches fire, and once kindled it burns long.
+ - Every hour comes with some little fagot of God’s will fastened upon its back.
+ - Remember that if the opportunities for great deeds should never come, the opportunities for good deeds are renewed day by day. The thing for us to long for is the goodness, not the glory.
+ - There is a grace of kind listening, as well as a grace of kind speaking.
+ - Eternity will not be long enough to learn all he is, or to praise him for all he has done, but then, that matters not; for we shall be always with him, and we desire nothing more.
+ - It has always seemed to me that a love of natural objects, and the depth, as well as exuberance and refinement of mind, produced by an intelligent delight in scenery, are elements of the first importance in the education of the young.
+ - For right is right, since God is God and right the day must win. To doubt would be disloyalty, to falter would be sin.
+ - Is the scrupulous attention I am paying to the government of my tongue at all proportioned to that tremendous truth revealed through St. James, that if I do not bridle my tongue, all my religion is vain?
+ - For children is there any happiness which is not also noise?
+ - We can exaggerate about many things; but we can never exaggerate our obligation to Jesus, or the compassionate abundance of the love of Jesus to us. All our lives long we might talk of Jesus, and yet we should never come to an end of the sweet things that might be said of Him.
+ - Kind words produce happiness. How often have we ourselves been made happy by kind words, in a manner and to an extent which we are unable to explain!
+ - We must have passed through life unobservantly, if we have never perceived that a man is very much himself what he thinks of others.
+ - Happiness is a great power of holiness. Thus, kind words, by their power of producing happiness, have also a power of producing holiness, and so of winning men to God.
+ - There is a great deal of self-will in the world, but very little genuine independence of character.
+ - We cannot resist the conviction that this world is for us only the porch of another and more magnificent temple of the Creator’s majesty.
+ - For right is right, since God is God.
+ - Many there are who, while they bear the name of Christians, are totally unacquainted with the power of their divine religion. But for their crimes the Gospel is in no wise answerable. Christianity is with them a geographical, not a descriptive, appellation.
+ - Many a friendship – long, loyal, and self-sacrificing – rested at first upon no thicker a foundation than a kind word.
+ - We strain hardest for things which are almost, but now quite within reach.
+ - Nobody is kind to only one person at once, but to many persons in one.
+ - Love’s secret is always to be doing things for God, and not to mind because they are such very little ones.
+
+36 quotes

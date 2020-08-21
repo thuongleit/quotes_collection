@@ -1,0 +1,76 @@
+ - In america, there are two tax systems: one for the informed and one for the uninformed. Both are legal.
+ - A self-made man may prefer a self-made name.
+ - Words are chameleons, which reflect the color of their environment.
+ - Justice is the tolerable accommodation of the conflicting interests of society, and I don’t believe there is any royal road to attain such accommodation concretely.
+ - The art of publicity is a black art.
+ - Our common law is the stock instance of a combination of custom and its successive adaptations.
+ - There is nothing sinister in so arranging one’s affairs as to keep taxes as low as possible.
+ - We all have our prayer-wheels which we set up on the steppes. The indifferent winds come and carry most of them away to gasp out their little lives in the desert, for few reach heaven.
+ - Liberty lies in the hearts of men and women; when it dies there, no constitution, no law, no court can save it; no constitution, no law, no court can even do much to help it.
+ - If we are to keep our democracy, there must be one commandment: thou shalt not ration justice.
+ - Life is made up of a series of judgments on insufficient data, and if we waited to run down all our doubts, it would flow past us.
+ - We accept the verdict of the past until the need for change cries out loudly enough to force upon us a choice between the comforts of inertia and the irksomeness of action.
+ - Words are not pebbles in alien juxtaposition.
+ - No doubt one may quote history to support any cause, as the devil quotes the scripture.
+ - The successful competitor, having been urged to compete, must not be turned on when he wins.
+ - Right knows no boundaries, and justice no frontiers; the brotherhood of man is not a domestic institution.
+ - We lose the forest for the trees, forgetting, even so far as we think at all, that we are trustees for those who come after us, squandering the patrimony which we have received.
+ - The mutual confidence on which all else depends can be maintained only by an open mind and a brave reliance upon free discussion.
+ - The spirit of liberty is the spirit which is not too sure that it is right; the spirit of liberty is the spirit which seeks to understands the minds of other men and women.
+ - We shall succeed only so far as we continue that most distasteful of all activity, the intolerable labor of thought.
+ - For myself it would be most irksome to be ruled by a bevy of Platonic Guardians, even if I knew how to choose them, which I assuredly do not.
+ - The language of the law must not be foreign to the ears of those who are to obey it.
+ - Tyranny is tyranny, no matter what its form; the free man will resist it if his courage serves.
+ - A society in which men recognize no check upon their freedom soon becomes a society where freedom is the possession of only a savage few.
+ - I had rather take my chance that some traitors will escape detection than spread abroad a spirit of general suspicion and distrust, which accepts rumor and gossip in place of undismayed and unintimidated inquiry.
+ - For, when all is said, as my friend George Rublee likes to put it, the only success is to be a success as a person; and it is still not too late for that.
+ - The lawyer must either learn to live more capaciously or be content to find himself continuously less trusted, more circumscribed, till he becomes hardly more important than a minor administrator, confined to a monotonous round of record and routine, without dignity, inspiration, or respect.
+ - There is no surer way to misread any document than to read it literally.
+ - You cannot raise the standard against oppression, or leap into the breach to relieve injustice, and still keep an open mind to every disconcerting fact, or an open ear to the cold voice of doubt.
+ - Life is not a thing of knowing only – nay, mere knowledge has properly no place at all save as it becomes the handmaiden of feeling and emotions.
+ - We may win when we lose, if we have done what we can; for by so doing we have made real at least some part of that finished product in whose fabrication we are most concerned: ourselves.
+ - It is enough that we set out to mold the motley stuff of life into some form of our own choosing; when we do, the performance is itself the wage.
+ - Life in a great society, or for that matter in a small, is a web of tangled relations of all sorts, whose adjustment so that it may be endurable is an extraordinarily troublesome matter.
+ - I shall ask no more than that you agree with Dean Inge that even though counting heads is not an ideal way to govern, at least it is better than breaking them.
+ - What seems fair enough against a squalid huckster of bad liquor may take on a different face, if used by a government determined to suppress political opposition under the guise of sedition.
+ - Convention is like the shell to the chick, a protection till he is strong enough to break it through.
+ - The aim of law is the maximum gratification of the nervous system of man.
+ - There is no fury like that against one who, we fear, may succeed in making us disloyal to beliefs we hold with passion, but have not really won.
+ - The use of history is to tell us what we are, for at our birth we are nearly empty vessels and we become what our tradition pours into us.
+ - Those of us who have come to years of discretion and more, must often take to retrospect, and seek to appraise the outcome of our lives.
+ - Skepticism is my only gospel, but I don’t want to make a dogma out of it.
+ - In the end it is worse to suppress dissent than to run the risk of heresy.
+ - We recently had a referendum in New York about extending the forest preserve. The city voted for it by a large majority; yet as I walk the streets I do not see afforestation written with conviction on the harried faces of my fellow citizens.
+ - The condition of our survival in any but the meagerest existence is our willingness to accommodate ourselves to the conflicting interests of others, to learn to live in a social world.
+ - The legal relations between the individual and the community which arise out of the production and distribution of property, comprise by far the greater, and more important, part of the law; subtract these and very little content would be left.
+ - Today in America vast concourses of youth are flocking to our colleges, eager for something, just what they do not know.
+ - It is still in the lap of the gods whether a society can succeed which is based on “civil liberties and human rights” conceived as I have tried to describe them; but of one thing at least we may be sure: the alternatives that have so far appeared have been immeasurably worse.
+ - The hand that rules the press, the radio, the screen and the far-spread magazine, rules the country.
+ - Life is made up of constant calls to action, and we seldom have time for more than hastily contrived answers.
+ - Any one may so arrange his affairs that his taxes shall be as low as possible; he is not bound to choose that pattern which will best pay the Treasury; there is not even a patriotic duty to increase ones taxes.
+ - It is of course true that any kind of judicial legislation is objectionable on the score of the limited interests which a Court can represent, yet there are wrongs which in fact legislatures cannot be brought to take an interest in, at least not until the Courts have acted.
+ - There is something monstrous in commands couched in invented and unfamiliar language; an alien master is the worst of all. The language of the law must not be foreign to the ears of those who are to obey it.
+ - The spirit of liberty is the spirit that is not quite sure it is right.
+ - Reputation, like a face, is the symbol of its possessor and creator, and another can use it only as a mask.
+ - Heretics have been hated from the beginning of recorded time; they have been ostracized, exiled, tortured, maimed, and butchered; but it has generally proved impossible to smother them; and when it has not, the society that has succeeded has always declined.
+ - Bipartisan democracy presupposes the individual, whose welfare is identical with that of the community in which he lives, the absence of coherent social classes, a basic uniformity of interest throughout.
+ - The fathers who contrived and passed the Consititution were wise in their generation; as time passes, we come more and more to realize their powers of divination.
+ - Liberty is so much latitude as the powerful choose to accord to the weak.
+ - Every smallest step of modern industry depends upon a cooperation whose maintenance and regulation is the very stuff of law.
+ - A government of laws without men is as visionary as a government of men without laws.
+ - If the prosecution of crime is to be conducted with so little regard for that protection which centuries of English law have given to the individual, we are indeed at the dawn of a new era; and much that we have deemed vital to our liberties, is a delusion.
+ - Would we hold liberty, we must have charity- charity to others, charity to ourselves, crawling up from the moist ovens of a steaming world, still carrying the passional equipment of our ferocious ancestors, emerging from black superstition amid carnage and atrocity to our perilous present.
+ - The public needs the equivalent of Chevrolets as well as Cadillacs.
+ - We prate of freedom; we are in deadly fear of life, as much of our own American scene betrays.
+ - Since we are men, we will play the part of Man.
+ - The apathy of the modern voter is the confusion of the modern reformer.
+ - Conservative political opinion in America cleaves to the tradition of the judge as passive interpreter, believing that his absolute loyalty to authoritative law is the price of his immunity from political pressure and of the security of his tenure.
+ - The public official must pick his way nicely, must learn to placate though not to yield too much, to have the art of honeyed words but not to seem neutral, and above all to keep constantly audible, visible, likable, even kissable.
+ - All discussion, all debate, all dissidence tends to question and in consequence, to upset existing convictions; that is precisely its purpose and its justification.
+ - Here I am an old man in a long nightgown making muffled noises at people who may be no worse than I am.
+ - The mid-day sun is too much for most eyes; one is dazzled even with its reflection. Be careful that too broad and high an aim does not paralyze your effort and clog your springs of action.
+ - If a community decides that some conduct is prejudicial to itself, and so decides by numbers sufficient to impose its will upon dissenters, I know of no principle which can stay its hand.
+ - What to an outsider will be no more than the vigorous presentation of a conviction, to an employee may be the manifestation of a determination which it is not safe to thwart.
+ - How long shall we blunder along without the aid of unpartisan and authoritative scientific assistance in the administration of justice, no one knows; but all fair persons not conventionalized by provincial legal habits of mind ought, I should think, unite to effect some change.
+
+74 quotes

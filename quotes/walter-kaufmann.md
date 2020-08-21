@@ -1,0 +1,30 @@
+ - Rabbi Zusya said that on the Day of Judgment, God would ask him, not why he had not been Moses, but why he had not been Zusya.
+ - Philosophy means liberation from the – routine, soaring above the well known, seeing it in new perspectives, arousing wonder and the wish to fly.
+ - The Greeks had considered hope the final evil in Pandora’s box. They also gave us an image of perfect nobility: a human being lovingly doing her duty to another human being despite all threats, and going to her death with pride and courage, not deterred by any hope – Antigone.
+ - Man stands alone in the universe, responsible for his condition, likely to remain in a lowly state, but free to reach above the stars.
+ - Writing is thinking in slow motion.
+ - Words signify man’s refusal to accept the world as it is.
+ - For atheism and polytheism there is no special problem of suffering, nor need there be for every kind of monotheism.
+ - The only theism worthy of our respect believes in God not because of the way the world is made but in spite of that. The only theism that is no less profound than the Buddha’s atheism is that represented in the Bible by Job and Jeremiah.
+ - It does not follow that the meaning must be given from above; that life and suffering must come neatly labeled; that nothing is worth while if the world is not governed by a purpose.
+ - No other German writer of comparable stature has been a more extreme critic of German nationalism than Nietzsche.
+ - Life ceases to be so oppressive: we are free to give our own lives meaning and purpose, free to redeem our suffering by making something of it.
+ - The deepest difference between religions is not that between polytheism and monotheism.
+ - To try to fashion something from suffering, to relish our triumphs, and to endure defeats without resentment: all that is compatible with the faith of a heretic.
+ - Thirdly, even if we assume that the world is governed by purpose, we need only add that this purpose – or, if there are several, at least one of them – is not especially intent on preventing suffering, whether it is indifferent to suffering or actually rejoices in it.
+ - The great artist is the man who most obviously succeeds in turning his pains to advantage, in letting suffering deepen his understanding and sensibility, in growing through his pains.
+ - There is thus a certain plausibility to Nietzsche’s doctrine, though it is dynamite. He maintains in effect that the gulf separating Plato from the average man is greater than the cleft between the average man and a chimpanzee.
+ - The problem of suffering is: why is there the suffering we know?
+ - Success is no proof of virtue. In the case of a book, quick acclaim is presumptive evidence of a lack of substance and originality.
+ - The first function of a book review should be, I believe, to give some idea of the contents and character of the book.
+ - Reason may not always tell us what to believe, but it can help us on what we shouldn’t believe.
+ - Faith means intense, usually confident, belief that is not based on evidence sufficient to command assent from every reasonable person.
+ - The doctrine of original sin claims that all men sinned in Adam; but whether they did or whether it is merely a fact that all men sin does not basically affect the problem of suffering.
+ - Job’s forthright indictment of the injustice of this world is surely right. The ways of the world are weird and much more unpredictable than either scientists or theologians generally make things look.
+ - It was also Hegel who established the view that the different philosophic systems that we find in history are to be comprehended in terms of development and that they are generally one-sided because they owe their origins to a reaction against what has gone before.
+ - It is widely assumed, contrary to fact, that theism necessarily involves the two assumptions which cannot be squared with the existence of so much suffering, and that therefore, per impossibile, they simply have to be squared with the existence of all this suffering, somehow.
+ - Here an attempt is made to explain suffering: the outcaste of traditional Hinduism is held to deserve his fetched fate; it is a punishment for the wrongs he did in a previous life.
+ - Paul substituted faith in Christ for the Christlike life.
+ - The refusal to belong to any school of thought, the repudiation of the adequacy of any body of beliefs whatever, and especially of systems, and a marked dissatisfaction with traditional philosophy as superficial, academic, and remote from life-that is the heart of existentialism.
+
+28 quotes

@@ -1,0 +1,80 @@
+ - Art is not what you see, but what you make others see.
+ - The true traveler never arrives.
+ - You must aim high, not in what you are going to do at some future date, but in what you are going to make yourself do to-day. Otherwise, working is just a waste of time.
+ - Make a drawing. Start it all over again, trace it. Start it and trace it again.
+ - Everyone has talent at twenty-five. The difficulty is to have it at fifty.
+ - A painting requires a little mystery, some vagueness, and some fantasy. When you always make your meaning perfectly plain you end up boring people.
+ - Painting is easy when you don’t know how, but very difficult when you do.
+ - The Dance instills in you something that sets you apart. Something heroic and remote.
+ - Instantaneity is photography.
+ - It is all very well to copy what one sees, but it is far better to draw what one now only sees in one’s memory. That is a transformation in which imagination collaborates with memory.
+ - The secret is to follow the advice the masters give you in their works while doing something different from them.
+ - There is a kind of success that is indistinguishable from panic.
+ - No art is less spontaneous than mine. What I do is the result of reflection and the study of the great masters.
+ - Only two of my personalities are schizophrenic, but one of them is paranoid and the other one is out to get him. Only when he no longer knows what he is doing does the painter do good things.
+ - Your pictures would have been finished a long time ago if I were not forced every day to do something to earn money.
+ - There are some women who should barely be spoken to; they should only be caressed.
+ - Taste! It doesn’t exist. An artist makes beautiful things without being aware of it.
+ - There is no such thing as Intelligence; one has intelligence of this or that. One must have intelligence only for what one is doing.
+ - There is love, and there is work; and we have only one heart.
+ - The museums are here to teach the history of art and something more as well, for, if they stimulate in the weak a desire to imitate, they furnish the strong with the means of their emancipation.
+ - An artist must approach his work in the spirit of the criminal about to commit a crime.
+ - People call me the painter of dancing girls. It has never occurred to them that my chief interest in dancers lies in rendering movement and painting pretty clothes.
+ - Only when he no longer knows what he is doing does the painter do good things.
+ - People call me the painter of dancers, but I really wish to capture movement itself.
+ - I always urged my contemporaries to look for interest and inspiration to the development and study of drawing, but they would not listen. They thought the road to salvation lay by the way of colour.
+ - What a horrible thing yellow is.
+ - It requires courage to make a frontal attack on nature through the broad planes and the large lines and it is cowardly to do it by the facets and details. It is a battle.
+ - You have to have a high conception, not of what you are doing, but of what you may do one day: without that, there’s no point in working.
+ - If I could have had my own way, I would have confined myself to black and white.
+ - I want to be famous but unknown!
+ - It is people’s movement that consoles us. If the leaves of a tree did not move, how sad would be the tree – and so should we.
+ - And even this heart of mine has something artificial. The dancers have sewn it into a bag of pink satin, pink satin slightly faded, like their dancing shoes.
+ - Conversation in real life is full of half-finished sentences and overlapping talk. Why shouldn’t painting be too?
+ - If I were in the government I would have a brigade of policemen assigned to keeping an eye on people who paint landscapes outdoors. Oh, I wouldn’t want anyone killed. I’d be satisfied with just a little buckshot to begin with.
+ - So that’s the telephone? They ring, and you run.
+ - I feel as a horse must feel when the beautiful cup is given to the jockey.
+ - The frame is the pimp of painting; it enhances it, but it must never shine at the painting’s expense.
+ - Drawing is the artist’s most direct and spontaneous expression, a species of writing: it reveals, better than does painting, his true personality.
+ - In painting you must give the idea of the true by means of the false.
+ - If painting weren’t so difficult, it wouldn’t be fun.
+ - Women can never forgive me; they hate me, they feel that I am disarming them. I show them without their coquetry.
+ - Realism is more important than the sentiment of the picture.
+ - Boredom soon overcomes me when I am contemplating nature.
+ - Muses work all day long and then at night get together and dance.
+ - What use is my mind? Granted that it enables me to hail a bus and to pay my fare. But once I am inside my studio, what use is my mind? I have my model, my pencil, my paints. My mind doesn’t interest me.
+ - I really have a lot of stuff in my head; if only there were insurance companies for that as there are for so many things.
+ - A man is an artist only at certain moments, by an effort of will. Objects have the same appearance for everybody.
+ - Even in front of nature one must compose.
+ - Drawing is your understanding of form.
+ - We were created to look at one another, weren’t we?
+ - One must do the same subject over again ten times, a hundred times. In art nothing must resemble an accident, not even movement.
+ - A painting is above all a product of the artist’s imagination, it must never be a copy. If, at a later stage, he wants to add two or three touches from nature, of course it doesn’t spoil anything.
+ - Art is really a battle.
+ - Nothing in art should seem accidental, not even movement.
+ - One reproduces only that which is striking; that is to say, the necessary. Thus, one’s recollections and inventions are liberated from the tyranny which nature exerts.
+ - Make portraits of people in typical, familiar poses, being sure above all to give their faces the same kind of expression as their bodies.
+ - A picture is an artificial work, outside nature. It calls for as much cunning as the commission of a crime.
+ - I would have been in mortal misery all my life for fear my wife might say, ‘That’s a pretty little thing,’ after I had finished a picture.
+ - I felt so insufficiently equipped, so unprepared, so weak, and at the same time it seemed to me that my reflections on art were correct. I quarreled with all the world and with myself.
+ - Daylight is too easy. What I want is difficult – the atmosphere of lamps and moonlight.
+ - The air you breathe in a picture is not necessarily the same as the air out of doors.
+ - Truth is never ugly when one can find in it what one needs.
+ - Art critic! Is that a profession? When I think we are stupid enough, we painters, to solicit those people’s compliments and to put ourselves into their hands! What shame! Should we even accept that they talk about our work?
+ - Be sure to give the same expression to a person’s face that you give to his body.
+ - The fascinating thing, is not to show the source of light, but the effect of light.
+ - I’m glad I haven’t found my style yet. I’d be bored to death.
+ - The air we see in the paintings of the old masters is never the air we breathe.
+ - One must have a high opinion of a work of art – not the work one is creating at the moment, but of that which one desires to achieve one day. Without this it is not worthwhile working.
+ - What a delightful thing is the conversation of specialists! One understands absolutely nothing and it’s charming.
+ - For those who don’t know what they are doing, painting is easy. For those who do know what they are doing, painting is difficult.
+ - Art is vice. One does not wed it, one rapes it.
+ - I’ll buy a bottle for anyone who can tell me what makes a picture beautiful!
+ - A picture is first of all a product of the imagination of the artist; it must never be a copy.
+ - A picture is a thing which requires as much knavery, as much malice, and as much vice as the perpetration of a crime. Make it untrue and add an accent of truth.
+ - Once they witnessed one of his painting sold at auction for $100,000. And asked how you do it, he said, ‘I feel as a horse must feel when the beautiful cup is given to the jockey.’
+ - Make people’s portraits in familiar and typical attitudes.
+ - What is certain is that setting a piece of nature in place and drawing it are two very different things.
+ - The frame is the reward of the artist.
+
+78 quotes

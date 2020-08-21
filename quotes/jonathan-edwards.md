@@ -1,0 +1,140 @@
+ - Resolution One: I will live for God. Resolution Two: If no one else does, I still will.
+ - Lord, stamp eternity on my eyeballs.
+ - You contribute nothing to your salvation except the sin that made it necessary.
+ - I resolve to live with all my might while I do live. I resolve never to lose one moment of time and to improve my use of time in the most profitable way I possibly can. I resolve never to do anything I wouldn’t do, if it were the last hour of my life.
+ - How can you expect to dwell with God forever, if you so neglect and forsake him here?
+ - God’s purpose for my life was that I have a passion for God’s glory and that I have a passion for my joy in that glory, and that these two are one passion.
+ - The smallest sin is an act of Cosmic Treason against a Holy God.
+ - He who does not know Him, knows nothing else as it truly is.
+ - The seeking of the kingdom of God is the chief business of the Christian life.
+ - He who has Christ has all he needs and needs no more.
+ - Seek not to grow in knowledge chiefly for the sake of applause, and to enable you to dispute with others; but seek it for the benefit of your souls.
+ - Of all the knowledge that we can ever obtain, the knowledge of God, and the knowledge of ourselves, are the most important.
+ - Nothing sets a person so much out of the devil’s reach as humility.
+ - A true and faithful Christian does not make holy living an accidental thing. It is his great concern. As the business of the soldier is to fight, so the business of the Christian is to be like Christ.
+ - If you long to be more like Christ, then act like Him, and walk as He walked.
+ - Prayer is as natural an expression of faith as breathing is of life.
+ - There is no way that Christians, in a private capacity, can do so much to promote the work of God and advance the kingdom of Christ as by prayer.
+ - True salvation always produces an abiding change of nature in a true convert. Therefore, whenever holiness of life does not accompany a confession of conversion, it must be understood that this individual is not a Christian.
+ - We are dependent on God’s power through every step of our redemption.
+ - Resolved, that I will live so, as I shall wish I had done when I come to die.
+ - Intend to live in continual mortification, and never to expect or desire any worldly ease or pleasure.
+ - Nature is God’s greatest evangelist.
+ - Resolved, never to speak evil of anyone, so that it shall tend to his dishonor, more or less, upon no account except for some real good.
+ - We must view humility as one of the most essential things that characterizes true Christianity.
+ - Almost every natural man that hears of hell, flatters himself that he shall escape it.
+ - Resolved, never henceforward, till I die, to act as if I were any way my own, but entirely and altogether God’s.
+ - The way to Heaven is ascending; we must be content to travel uphill, though it be hard and tiresome, and contrary to the natural bias of our flesh.
+ - From love arises hatred of those things which are contrary to what we love, or which oppose and thwart us in those things that we delight in.
+ - Resolved, never to suffer the least motions of anger to irrational beings.
+ - When God is about to do a mighty new thing He always sets His people praying.
+ - God is glorified not only by His glory being seen, but by its being rejoiced in.
+ - Envy is a spirit of dissatisfaction or opposition to the prosperity or happiness of other people.
+ - To go to heaven, fully to enjoy God, is infinitely better than the most pleasant accommodations here.
+ - I assert that nothing ever comes to pass without a cause.
+ - Love is no ingredient in a merely speculative faith, but it is the life and soul of a practical faith.
+ - It is not by telling people about ourselves that we demonstrate our Christianity. Words are cheap. It is by costly, self-denying Christian practice that we show the reality of our faith.
+ - Truth is the agreement of our ideas with the ideas of God.
+ - Grace is but glory begun, and glory is but grace perfected.
+ - Spiritual delight in God arises chiefly from his beauty and perfection, not from the blessings he gives us.
+ - The pleasures of humility are really the most refined, inward, and exquisite delights in the world.
+ - There are people who love those who agree with them and admire them, but have no time for those who oppose and dislike them. A Christian’s love must be universal!
+ - Wicked people will on the day of judgment see all there is to see of Jesus Christ, except His beauty and loveliness.
+ - Love is the sum of all virtue, and love disposes us to good.
+ - The enjoyment of God is the only happiness with which our souls can be satisfied.
+ - Those who are in a state of salvation are to attribute it to sovereign grace alone, and to give all the praise to Him who maketh them to differ from others.
+ - A true love for God must begin with a delight in His holiness, and not with a delight in any other attribute; for no other attribute is truly lovely without this.
+ - The godly are designed for unknown and inconceivable happiness.
+ - There is a difference between having a rational judgment that honey is sweet, and having a sense of its sweetness.
+ - Men will trust in God no further than they know Him; and they cannot be in the exercise of faith in Him one ace further than they have a sight of His fulness and faithfulness in exercise.
+ - By Christ’s purchasing redemption, two things are intended: his satisfaction and his merit; the one pays our debt, and so satisfies; the other procures our title, and so merits. The satisfaction of Christ is to free us from misery; the merit of Christ is to purchase happiness for us.
+ - Real pain can alone cure us of imaginary ills.
+ - You all have by you a large treasure of divine knowledge, in that you have the Bible in your hands; therefore be not contented in possessing but little of this treasure.
+ - And I say unto you, my friends, Be not afraid of them that kill the body, and after that, have no more that they can do. But I will forewarn you whom you shall fear: fear him, which after he hath killed, hath power to cast into hell: yea, I say unto you, Fear him.
+ - If we make a great show of respect and love to God, in the outward actions, while there is no sincerity in the heart, it is but hypocrisy and practical lying unto the Holy One.
+ - You have reason to wonder that you are not already in hell.
+ - Resolved, never to count that a prayer, nor to let that pass as a prayer, nor that as a petition of a prayer, which is so made, that I cannot hope that God will answer it; nor that as a confession, which I cannot hope God will accept.
+ - True liberty consists only in the power of doing what we ought to will, and in not being constrained to do what we ought not to will.
+ - Resolved, never to do anything out of revenge.
+ - Resolved, when I feel pain, to think of the pains of martyrdom, and of hell.
+ - Christ gives peace to the most sinful and miserable that come to Him. He heals the broken in heart and binds up their wounds.
+ - Resolved, never to do anything which I should be afraid to do if it were the last hour of my life.
+ - Grace is the seed of glory, the dawning of glory in the heart, and therefore grace is the earnest of the future inheritance.
+ - Nothing is more certain than that there must be an unmade and unlimited being.
+ - Every Christian that goes before us from this world is a ransomed spirit waiting to welcome us in heaven.
+ - Resolved, never to lose one moment of time; but improve it the most profitable way I possibly can.
+ - Resolved, to endeavor to obtain for myself as much happiness, in the other world, as I possibly can.
+ - I frequently hear persons in old age say how they would live, if they were to live their lives over again: Resolved, That I will live just so as I can think I shall wish I had done, supposing I live to old age.
+ - Resolved, to confess frankly to myself all that which I find in myself, either infirmity or sin; and, if it be what concerns religion, also to confess the whole case to God, and implore needed help.
+ - Haste and escape for your lives, look not behind you, escape to the mountain, lest you be consumed.
+ - The door of God’s mercy is thrown wide open, and Christ stands in the door and says to sinners ‘Come.’
+ - Can the believing husband in Heaven be happy with his unbelieving wife in Hell? Can the believing father in Heaven be happy with his unbelieving children in Hell? Can the loving wife in Heaven be happy with her unbelieving husband in Hell? I tell.
+ - He that has doctrinal knowledge and speculation only, without affection, never is engaged in the business of religion.
+ - Among the many acts of gratitude we owe to God, it may be accounted one to study and contemplate the perfections and beauties of His work of creation. Every new discovery must necessarily raise in us a fresh sense of the greatness, wisdom, and power of God.
+ - Christ is the true light of the world; it is through him alone that true wisdom is imparted to the mind.
+ - Godliness is more easily feigned in words than in actions.
+ - The devil can counterfeit all the saving operations and graces of the Spirit of God.
+ - Being sensible that I am unable to do any thing without God’s help, I do humbly entreat Him, by His grace, to enable me to keep these Resolutions, so far as they are agreeable to His will, for Christ’s sake.
+ - Temples have their images; and we see what influence they have always had over a great part of mankind. But, in truth, the ideas and images in men’s minds are the invisible powers that constantly govern them; and to these they all pay universally a ready submission.
+ - If there be ground for you to trust in your own righteousness, then, all that Christ did to purchase salvation, and all that God did to prepare the way for it is in vain.
+ - One of these grand defects, as I humbly conceive, is this, that children are habituated to learning without understanding.
+ - Salvation is so great a thing, so glorious an attainment, that ’tis worth the while for a man to do his utmost every day during his whole life in the use of all proper means that he may attain.
+ - They who truly come to God for mercy, come as beggars, and not as creditors: they come for mere mercy, for sovereign grace, and not for anything that is due.
+ - Christian practice is that evidence which confirms every other indication of true godliness.
+ - A greater absurdity cannot be thought of than a morose, hardhearted, covetous, proud, malicious Christian.
+ - It’s all about training and rhythm and getting it right on the day.
+ - He can’t even run his own life, I’ll be damned if he’ll run mine.
+ - The material universe exists only in the mind.
+ - The bodies of those that made such a noise and tumult when alive, when dead, lie as quietly among the graves of their neighbors as any others.
+ - Every Christian family ought to be as it were a little church.
+ - The beauty of the world consists wholly of sweet mutual consents, either within itself or with the supreme being.
+ - When God is about to do a great work, He pours out a spirit of supplication.
+ - There is nothing that keeps wicked men at any one moment out of hell, but the mere pleasure of God.
+ - Religion, in its purity, is not so much a pursuit as a temper; or rather it is a temper, leading to the pursuit of all that is high and holy. Its foundation is faith; its action, works; its temper, holiness; its aim, obedience to God in improvement of self, and benevolence to men.
+ - Holiness appeared to me to be of a sweet, pleasant, charming, serene, calm nature; which brought an inexpressible purity, brightness, peacefulness and ravishment to the soul.
+ - Surely there is something in the unruffled calm of nature that overawes our little anxieties and doubts; the sight of the deep-blue sky and the clustering stars above seems to impart a quiet to the mind.
+ - Find preachers of David Brainerd’s spirit, and nothing can stand before them. Let us be followers of him, as he was of Christ, in absolute self-devotion, in total deadness to the world, and in fervent love to God and man.
+ - The view of the misery of the damned will double the ardour of the love and gratitude of the saints of heaven.
+ - We cannot believe that the church of God is already possessed of all that light which God intends to give it; nor that all Satan’s lurking places have already been found out.
+ - On his world record triple jump – It’s only jumping into a sandpit.
+ - Unconverted men walk over the pit of hell on a rotten covering.
+ - If get a jump right, there’s a feeling of flying.
+ - Trust in God and ye need not fear.
+ - Sunshine go away today, I don’t feel much like dancing.
+ - Assurance is not to be obtained so much by self-examination as by action.
+ - Consider that as a principle of love is the main principle in the heart of a real Christian, so the labor of love, is the main business of the Christian life.
+ - The Spirit of God is given to the true saints to dwell in them as his proper lasting abode to dwell in them and to influence their hearts as a principle of new nature or as a divine supernatural spring of life and action.
+ - Resolved, to study the Scriptures so steadily, constantly and frequently, as that I may find, and plainly perceive myself to grow in the knowledge of the same.
+ - I claim no right to myself, no right to this understanding, this will, these affections that are in me. Neither do I have any right to this body or its members, no right to this tongue, to these hands, feet, ears or eyes. I have given myself clear away and not retained anything of my own.
+ - Resolved to live with all my might while I do live, and as I shall wish I had done ten thousand years hence.
+ - By the grace of God we will never pluck unripe fruit. We will never press people to decision, because we’ll lead them to damnation and not salvation.
+ - When God is about to bestow some great blessing on His church, it is often His manner, in the first place, so to order things in His providence as to show His church their great need of it, and to bring them into distress for want of it, and so put them upon crying earnestly to Him for it.
+ - The best, most beautiful, and most perfect way that we have of expressing a sweet concord of mind to each other is by music.
+ - He that lives a prayerless life, lives without God in the world.
+ - He, whose heart is fixed, trusting in Christ, need not be afraid.
+ - Family education and order are some of the chief means of grace; if these are duly maintained, all the means of grace are likely to prosper and become effectual.
+ - There are two sorts of hypocrites: ones that are deceived with their outward morality and external religion; and the others are those that are deceived with false discoveries and elevation; which often cry down works, and men’s own righteousness, and.
+ - When I am giving the relation of a thing, remember to abstain from altering either in the matter or manner of speaking, so much, as that, if every one, afterwards, should alter as much, it would at last come to be properly false.
+ - That there should absolutely be nothing at all is utterly impossible. The mind, let it stretch its conceptions ever so far, can never so much as bring itself to conceive of a state of perfect nothing.
+ - A man who knows that he lives in sin against God will not be inclined to come daily into the presence of God.
+ - Why should not He had made all things, still having something immediately to do with the things that He has made? Where lies the great difficulty, if we own the being of a God, that He created all things out of nothing, I’ll be allowing something immediate influence of God on creation still?
+ - All truth is given by revelation, either general or special, and it must be received by reason. Reason is the God-given means for discovering the truth that God discloses, whether in his world or his Word. While God wants to reach the heart with truth, he does not bypass the mind.
+ - Teachers and learners are correlates, one of which was never intended to be without the other.
+ - No degree of speculative knowledge of religion is any certain sign of true piety.
+ - Resolved, never to do any manner of thing, whether in soul or body, less or more, but what tends to the glory of God; nor be, nor suffer it, if I can avoid it.
+ - To mark all that I say in conversation, merely to beget in others, a good opinion of myself, and examine it.
+ - One requirement to be used as a leader in a movement of revival: They must have the Spirit of God upon them.
+ - Resolved, to examine carefully, and constantly, what that one thing in me is, which causes me in the least to doubt the love of God; and to direct all my forces against it.
+ - Sincere friendship towards God, in all who believe him to be properly an intelligent, willing being, does most apparently, directly, and strongly incline to prayer; and it no less disposes the heart strongly to desire to have our infinitely glorious.
+ - The happiness of the creature consists in rejoicing in God, by which also God is magnified and exalted.
+ - Whatever in Christ had the nature of satisfaction, was by virtue of His suffering or humiliation; whatever had the nature of merit, was by virtue of His obedience or righteousness.
+ - I make it my rule, to lay hold of light and embrace it, wherever I see it, though held forth by a child or an enemy.
+ - Jesus Christ is both the only price and sacrifice by which eternal redemption is obtained for believers.
+ - I go out to preach with two propositions in mind. First, every person ought to give his life to Christ. Second, whether or not anyone else gives him his life, I will give him mine.
+ - True boldness for Christ transcends all, it is indifference to the displeasure of either friends or foes. Boldness enables Christians to forsake all rather than Christ, and to prefer to offend all rather than to offend Him.
+ - If you seek in the spirit of selfishness, to grasp all as your own, you shall lose all, and be driven out of the world, at last, naked and forlorn, to everlasting poverty and contempt.
+ - We are dependent on the power of God to convert us and give faith in Jesus Christ and the new nature.
+ - Resolved, to ask myself at the end of every day, week, month and year, wherein I could possibly in any respect have done better.
+ - To live with all my might, while I do live.
+
+138 quotes

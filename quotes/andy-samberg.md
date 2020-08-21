@@ -1,0 +1,34 @@
+ - My mom let me kind of run free and be rowdy. She encouraged it. I’m a youngest child. So I was spazzy and trying to be funny to my older sisters. It’s kind of my role in the family – tension reliever. I was funny or annoying, depending on your perspective.
+ - I like things that are immature and offbeat and bizarre. Random jokes. Weird stuff. And stupid. Stupid is the highest compliment a person can pay to me.
+ - That is a strange phenomenon, people pretending to be other people.
+ - I do a lot of laughing at my own self in life, so I think I come at things with a pretty easygoing view.
+ - I too turned to Webster’s Dictionary and it defined Harvard University as a season for gathering crops.
+ - I’ve always felt that if something is polarizing, that’s usually the stuff I like the most. If something is taking a chance and is willing to be weird, that’s my favorite thing. I know there’s somebody out there who hates it.
+ - Comedy always works better when you’re tracking the story and you care about the characters. That’s why there’s a lot of movies where there’s not a ton of jokes, but you get huge laughs because there’s a moment of relief.
+ - You are graduating from college. That means that this is the first day of the last day of your life. No, that’s wrong. This is the last day of the first day of school. Nope, that’s worse. This is a day.
+ - If I was any more on edge, I’d be Bono...
+ - It’s weird to have people so interested in your personal life. It’s a part of the business that grosses me out. I’m always bummed out for people who just happen to be dating a celebrity, and they’re also famous, and they can’t live their life.
+ - If had a penny for every strange look I’ve gotten from strangers on the street I’d have about 10 to 15 dollars, which is a lot when you’re dealing with pennies.
+ - I used to stay up at night and sneak into the TV room, past my parents, who were asleep, to watch Saturday Night’s ‘Main Event.’ That’s how I started watching SNL. On accident.
+ - Sometimes it is difficult to remember, but other times it is very easy to remember. Sleep deprivation is the killer.
+ - Marketing is always a tricky thing with a rated R movie. Sometimes people just get what it is and they want to come see it, and sometimes you have to explain it more.
+ - Class Day is a terrible name for a day when you don’t have to go to any class.
+ - I’m a tearless clown. If I were to get a tattoo, it would be the two masks, and they would be both smiling.
+ - If I watch an episode of SNL, and there’s one thing that I liked, then that’s a good episode.
+ - I remember my dad turning to me – my dad loves to turn to me and explain why things are funny. He used to do that with Seinfeld all the time. He did it with Colombo, too, set the scene.
+ - No matter how much it’s growing, the Internet still is a pretty specific demographic. It doesn’t necessarily represent the general populace.
+ - I do really like doing animated movies. I like watching animated movies, and I always have. That’s something I didn’t let go of, from when I was a kid. It’s always exciting for me to get to do that. Animated movies are so rarely bad.
+ - As long as I get to be doing what I love, which is making comedy and that kind of thing, I feel lucky that I get to.
+ - Obviously, SNL has a lot of viewers, but the potential for a movie is through the roof.
+ - It’s just cool to be involved in something that’s that big and joyous and meant to make people feel happy.
+ - It’s cool to know that you’re doing something that people of all ages can watch and enjoy, even though my bread and butter is a little dirtier. It’s cool to just be involved in something that’s that big and joyous and meant to make people feel happy.
+ - Well, basically, when you get SNL, everyone wants to take a meeting, just in case you end up being good.
+ - If you’re someone who’s making film or TV or music, or any kind of art form now, there’s a billion outlets and they all have an opinion.
+ - I’ve been lucky enough to be part of some great ensembles in theater – I’d been doing theater since college.
+ - I didn’t realize how much people liked to bash SNL until I was on. I’ve always just liked it, and I’ve always watched it and been into it.
+ - I’m a comedian, and I decided I wanted to be a comedian when I was eight years old watching old Saturday Night Live episodes. I never decided to be a rapper because I’m not a rapper.
+ - I’m a big Letterman fan.
+ - People will tell me, “Oh, my kid watches your show on their iPad, over and over again until they memorize.” And I’m like, “Wow, I was that kid watching other shows. That’s the coolest!”
+ - A sign now of success with a certain audience when you do a short comedy piece, anywhere, is that it gets on YouTube and gets around. It’s always something you’re thinking about unconsciously.
+
+32 quotes

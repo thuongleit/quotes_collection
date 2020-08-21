@@ -1,0 +1,33 @@
+ - Silence is the potential from which music can arise.
+ - When you’re on stage you have a very strange knowledge of what the audience is. It isn’t exactly a sound – it’s a hum, like the streets.
+ - Once we’re inside a tune, we can do anything with it.
+ - Ideally, I’d like to be the eternal novice, for then only the surprises would be endless.
+ - I think you have to be completely merciless with yourself.
+ - If you already have a piece of music ingrained in your body, why would you not play it?
+ - I believe that a truly valuable artist must be an artist who realizes the impossibility of his task -and then continues to do it.
+ - I cannot say what I think is right about Music. I only know the rightness of it.
+ - When I joined the band I didn’t know any of the tunes, and when I left the band I didn’t know any of the tunes!
+ - Wynton Marsalis is jazzy the same way someone who drives a BMW is sporty.
+ - Creativity is what makes humanity move. We were created to participate.
+ - If sound is music and came from silence, then silence is potentially greater than sound. If the sound is effective, it should actually have a chemical – some sort of physiological – effect on the listener, so he doesn’t have to hear that sound again.
+ - Jazz is one of the least learnable art forms.
+ - I actually get a metallic taste in my mouth when I think about electric music.
+ - You know, when people look at a tree, they look at the leaves; they don’t look at the spaces between the leaves. They’re focused on the tree. I think there’s an awareness of spaces or it wouldn’t look like a tree to them.
+ - I realized that improvisers should probably always have time off. But musicians are always gigging and never have a chance to stop for a minute – unless something drastic occurs.
+ - It is the individual voice, present to itself, that needs to be heard. We need to hear the process of the musician working on himself. We don’t need to hear who is more clever with synthesizers. Our cleverness has created the world we live in, which in many ways, we’re sorry about.
+ - I’m not talking ideas, or even presentation. It’s like in politics: You have to sell something to become an electric player – like your skin or your heart.
+ - I grew up with the piano. I learned its language as I learned to speak.
+ - The way I think about the practicing, it is my undercover work.
+ - When you’re up against an electric band like that, it’s like you’re on two separate planets.
+ - If a person plays dissonance long enough, it will sound like consonance. It’s a language that was alien and then it’s less and less alien as it continues to live.
+ - Your own music comes out of your head and emotions, but it’s not etched in your system.
+ - One thing you learn: if you want to reveal yourself, you also have to know where to stop.
+ - I am a romantic, I admit it.
+ - If I’m not a jazz player all the time, I’ve at least been cued in to what I do by jazz.
+ - I’m my own most merciless critic onstage.
+ - We accept so many things that come through the media; we get used to them, however vigilant we are. But for any creative art, you have to remain 110% conscious, and in a world that’s losing consciousness, that’s getting harder.
+ - Musicians are always gigging and never have a chance to stop for a minute.
+ - I can’t even tolerate my own playing on electric keyboards. It’s not about the musical ideas – the sound itself is toxic. It’s like eating plastic broccoli.
+ - Music always turns into music. As soon as I play a key, push a key down, there’s no theory any more. When I go and I hear a sound on the keyboard, all theories go out the window.
+
+31 quotes

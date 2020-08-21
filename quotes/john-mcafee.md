@@ -1,0 +1,30 @@
+ - Making money is easy. It is. The difficult thing in life is not making it, it’s keeping it.
+ - True love has no object. It is a state of being.
+ - Bitcoin, generally, is a great idea. Keeping wallets on smartphones is the worst idea of the decade.
+ - Disobedience is the vehicle of progress.
+ - More than one of my girlfriends tried to kill me a few times.
+ - History is sympathetic to its authors.
+ - To say what your disguise is would be foolish.
+ - Living with one woman is horrific.
+ - My most heartfelt thank you goes to Impact Future Media and Cartoon Monkey Studio. Their dedication to the truth is very uncommon in the world we live in today. I am now, and will always be, grateful to their organizations.
+ - We are aware of yoga only as a technique to gain physical strength, flexibility, or increased health. And indeed these are potent side effects of the practice. But that is what they are: side effects. To focus on these largely insignificant manifestations is to miss the point entirely.
+ - Ignorance and confidence are constant companions.
+ - A good example is more irritating than a bad one.
+ - The world chooses to think what the world thinks.
+ - The problem of viruses is temporary and will be solved in two years.
+ - If you have the winning cards, why cheat?
+ - I would be very happy to go to America. America is where I was raised and that’s exactly what I want.
+ - I have dual citizenship; I would be happy to go to England. I would be very happy to go to America.
+ - You’ll see a movie about someone you hate or someone you love. Will you see a movie about grandma making apple pies? No, you won’t. Only if grandma has poisoned the neighbor or is suspected of poisoning the neighbor through her apple pies.
+ - I am looking at opening a school of social engineering. The McAfee School of Social Engineering has a nice ring to it. Beyond that, it is hard to say what life will bring my way.
+ - If operating in a network environment, do not place public domain or shareware programs in a common file-server directory that could be accessible to any other PC on the network.
+ - Any idiot can make money. Keeping money, very few can do.
+ - I would describe myself as quite sane and lucid, which is why I’m still alive.
+ - Software production is like any other production the preceded it, no raw materials are required, no time is required and no effort is required, you can make a million Copies of Software instantaneously for free and its very unique about that.
+ - Opinions need a willing ear.
+ - I do know that the world knows or thinks that I have money and lots of it. They perceive me as an old weak man and an easy target.
+ - If you own the facts, you may distort them as you like.
+ - I simply would like to live comfortably day by day, fish, swim, enjoy my declining years.
+ - If the majority holds some thing of value, you can be certain it has none.
+
+28 quotes

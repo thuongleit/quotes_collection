@@ -1,0 +1,176 @@
+ - If you fall behind, run faster. Never give up, never surrender, and rise up against the odds.
+ - Never look down on anybody unless you’re helping them up.
+ - Leaders must be tough enough to fight, tender enough to cry, human enough to make mistakes, humble enough to admit them, strong enough to absorb the pain, and resilient enough to bounce back and keep on moving.
+ - The only time you should look down at someone, is when you are helping them up.
+ - Both tears and sweat are salty, but they render a different result. Tears will get you sympathy; sweat will get you change.
+ - When everyone is included, everyone wins.
+ - I am – Somebody. I may be poor, but I am – Somebody! I may be on welfare, but I am – Somebody! I may be uneducated, but I am – Somebody! I must be, I’m God’s child. I must be respected and protected. I am black and I am beautiful! I am – Somebody! Soul Power!
+ - I am not a perfect servant. I am a public servant doing my best against the odds. As I develop and serve, be patient. God is not finished with me yet.
+ - Inclusion is not a matter of political correctness. It is the key to growth.
+ - No one should negotiate their dreams. Dreams must be free to fly high.
+ - Hold your head high, stick your chest out. You can make it. It gets dark sometimes, but morning comes. Keep hope alive.
+ - You can’t plant a seed and pick the fruit the next morning.
+ - You must never stop dreaming. Face reality, yes. But don’t stop with the way things are; dream of things as they ought to be. Dream of peace. Peace is rational and reasonable. War is irrational in this age and unwinnable.
+ - Luck is a crossroad where preparation and opportunity meet.
+ - Time is neutral and does not change things. With courage and initiative, leaders change things.
+ - America is not like a blanket- one piece of unbroken cloth. America is more like a quilt- many patches, many pieces, many colors, many sizes, all woven together by a common thread.
+ - No lie can live forever.
+ - We live on the dash between our birth date and our death date.
+ - If you run, you might lose. If you don’t run, you’re guaranteed to lose.
+ - We must know the difference between sweat and tears. Sweat is wet. Tears are wet. Sweat is salty. Tears are salty. But progress comes through sweat. Progress never came through tears.
+ - I do not deny the allegation, I deny the allegator.
+ - Our dreams must be stronger than our memories. We must be pulled by our dreams, rater than pushed by our memories.
+ - America is not a blanket woven from one thread, one color, one cloth.
+ - Our premise is that inclusion leads to growth. So for those who are locked out, they lose development, and those who are in power lose market and growth.
+ - Capitalism without capital is just an ism.
+ - So many bright stars, bright in life, burn out quickly.
+ - God doesn’t make orange juice, God makes oranges.
+ - At the end of the day, we must go forward with hope and not backward by fear and division.
+ - So much talent comes from the base of poverty and those in the margins. You limit the base, you miss too much talent.
+ - In politics, an organized minority is a political majority.
+ - We’ve removed the ceiling above our dreams. There are no more impossible dreams.
+ - We must never surrender. America will get better and better. Keep hope alive. Keep hope alive.
+ - A man must be willing to die for justice. Death is an inescapable reality and men die daily, but good deeds live forever.
+ - Our dreams must be stronger than our memories.
+ - Choose the human race over the nuclear race. Bury the weapons and don’t burn the people.
+ - The crisis is not an opportunity to change the character of Louisiana’s political order. We must not use the crisis to turn Louisiana into a red state – this is a rainbow state.
+ - America needs young people to be inspired to choose sacrifice over greed.
+ - We reveal our joys and successes, we conceal our pain.
+ - There is no power in cynicism. There is no forward thrust in cynicism.
+ - People always grow and mature.
+ - The ground is no place for a champion. The ground is no place that I will wallow on.
+ - I was born in a slum, but the slum wasn’t born in me.
+ - Leadership cannot just go along to get along. Leadership must meet the moral challenge of the day.
+ - Leadership has a harder job to do than just choose sides. It must bring sides together.
+ - Gangs are a group reaction to helplessness.
+ - You cannot teach what you don’t know. You cannot give energy if you’re not on fire on the inside.
+ - People like to say don’t abort, adopt. But I’m saying don’t strip, scholarship.
+ - If you don’t feel apologetic for slavery, if you don’t feel apologetic for colonialism, if you feel proud of it then say that.
+ - Your children need your presence more than your presents.
+ - A new leadership. A choice. A chance. Don’t cry about what you don’t have. Use what you got.
+ - Today’s students can put dope in their veins or hope in their brains. If they can conceive it and believe it, they can achieve it. They must know it is not their aptitude but their attitude that will determine their altitude.
+ - Life has its dimensions in the mysterious.
+ - That’s all Hymie wants to talk about is Israel. Every time you go to Hymietown that’s all they want to talk about.
+ - Deliberation and debate is the way you stir the soul of our democracy.
+ - Iraq will drive American agenda for a long time because Iraq policy has so damaged America in the Middle East region, left us isolated. We are there now by brute strength, we are not there because we are desired.
+ - Nobody will save us from us but us.
+ - We must not measure greatness from the mansion down, but from the manger up. Jesus said that we should not be judged by the bark we wear but by the fruit that we bear. Jesus said that we must measure greatness by how we treat the least of these.
+ - Workers, black and white, need some kind of international affirmative action to protect them from unfair competition with unorganized or slave labor abroad and unfair competition with robots at home.
+ - If you wear a hoodie but aren’t registered to vote, you got the symbolism but missed the substance.
+ - Everywhere I go, kids walk around not with books under their arms, but with radios up against their heads. Children can’t read or write, but they can memorize whole albums.
+ - You may choose your mate, but you cannot deny someone else the right to choose their mate.
+ - Let nothing and nobody break your spirit. Let the unity in the community remain intact.
+ - We must all learn a good lesson – how to live together.
+ - When the doors of opportunity swing open, we must make sure that we are not too drunk or too indifferent to walk through.
+ - Our flag is read, white and blue, but our nation is a rainbown-red, yellow, brown, black and white – and we’re all precious in God’s sight.
+ - Many kids come out of college, they have a credit card and a diploma. They don’t know how to buy a house or a car or health insurance or life insurance. They do not know basic microeconomics.
+ - I want to cut his nuts off.
+ - If you think black people have a motivation problem, open up a Wal-Mart and advertise a thousand jobs. Watch 5,000 people show up.
+ - It’s not enough to be quiet. Quietness is the absence of noise. We need peace, the presence of justice and to be – and so people here can coexist and live together.
+ - When we’re unemployed, we’re called lazy; when the whites are unemployed it’s called a depression.
+ - Conservatives and liberals can find common ground.
+ - My constituency is the desperate, the damned, the disinherited, the disrespected and the despised.
+ - When they wrote the Constitution, only white male landowners had the right to vote.
+ - I cast my bread on the waters long ago. Now it’s time for you to send it back to me – toasted and buttered on both sides.
+ - My very first recollection of life on earth was waking up in bed with my mother, and she was showing me a picture of my father, Charles Jackson, with a group of soldiers.
+ - What we have to be judged by is the work we try to do. It’s public service, not perfect service.
+ - I’m too mature to be angry.
+ - When I came here, I put my hand on the Bible and swore to uphold the Constitution. I didn’t put my hand on the Constitution and swear to uphold the Bible.
+ - Unfortunate. Unfortunate. Sometimes people struggling for freedom lose their way.
+ - I know they are all environmentalists. I heard a lot of my speeches recycled.
+ - We went across the South on Super Tuesday without a single catcall or boo, without a single ugly sign. Not until we got to New York and the North did the litmus test of race and religion spout from the mouths of public officials.
+ - Black men of integrity cannot make a deal with a politician and leave out the poor of the nation, all God’s children.
+ - When we do in Grenada what the Soviet Union did in Czechoslovakia and Afghanistan, we lose moral authority and credibility.
+ - What is the American dream? The American dream is one big tent. One big tent. And on that big tent you have four basic promises: equal protection under the law, equal opportunity, equal access, and fair share.
+ - Our goal was not freedom. Freedom was the necessary prerequisite to get to equality.
+ - Statehood for the District of Columbia is the most important civil rights and social justice issue in America today.
+ - In Afghanistan, there is a plan to build democracy; hundreds of thousands of troops are protecting it. There is a plan to rebuild and reconstruct there. But many thousands of Americans die from violence and poverty every year and we don’t have a plan for reconstruction at home.
+ - Those who write the editorials and those who write the columns, they simply are unaccountable. They’re free to impose their cultural politics in the name of freedom of the press.
+ - Black and Jewish leaders have been a coalition of conscience.
+ - Peace is the alternative to war, and nonviolence should be seen as the antidote to violence, not simply as its opposite. Nonviolence is more concerned with saving life than with saving face.
+ - If whites would vote their economic interests, not their racial fears, we the people who have the most need for change have the power to bring about that change nonviolently.
+ - We blacks were the first people embracing Obama, long before the people at expensive fundraisers were supporting him. We gave him his first love, 96 percent of blacks voted for him in 2008. Yet today we are the number one in unemployment, with 16 percent of American blacks out of work.
+ - Humanitarian appeals always help. They penetrate deeper than political tradeoffs.
+ - You know, people’d always ask ‘Why is Jesse Jackson running for the White House?’ They never seen the house I’m running from.
+ - I came to the conclusion that in order to end racial barriers, I needed to run for the office of the president and put forth an agenda of social justice and world peace. In addition, I concluded that someone needed to run and challenge the liberal orthodoxy.
+ - No one wants to see self-destructive riots because there’s no future in riots.
+ - I had to steal to survive.
+ - In order for an ideal to become a reality, there must be a person, a personality to translate it.
+ - When you create more small businesses, you create small entrepreneurship. Out of that comes self-determination and employment.
+ - I mean, the fight for a health care bill to cover all Americans and leave none behind is attacked as being a race appeal, which is not true, but then it’s put out in the media as true.
+ - In many ways Africa subsidised America and Europe’s development.
+ - I take my role seriously as a pastor.
+ - For me, Barack Obama’s election was a milestone of the most extraordinary kind. On the day he was elected I felt such hope in my heart. I thought we were seeing the beginning of a new era of equal opportunity across race and gender such as America had never known before.
+ - Those in blue suits who use thinly veiled race symbols – when they say welfare and crime and three strikes and anti- affirmative action – they are sending messages more profound their language.
+ - Those who have the most wealth and the most property, their children have the first, the best, and the most.
+ - Obama used to be a community organizer. He knows how to build communities.
+ - There’s great disparity between who goes to college and who goes to jail. Who lives long and who dies prematurely, is the defining issue of our time. And I submit to you, there’s a significant race dimension, it is basically class-driven.
+ - We must give the American worker the first option of ownership.
+ - Many have fought for and even lost their lives to end segregation, to win the right to vote. It disappoints me to now have to cajole people to register and to vote.
+ - Most blacks will argue that they excel because of hard work, because of intellect, determination, sweat, blood, tears and risk.
+ - The relationship between the prophet and the President, the priest and the President, is a sacred one.
+ - If I were a white candidate, I’d have won the Democratic nomination.
+ - Semi-automatic weapons are not just about gun control, they’re about national security. You know that these weapons can shoot down airplanes, they can blow up railroads. This is really a whole national security issue.
+ - It is time for us to turn to each other, not on each other.
+ - At least the politicians are accountable to the voters.
+ - I know how to run a nationally paced campaign.
+ - I’m not wasting my time with any more non-straight-talking candidates.
+ - So here we are today with a new conversation. When University of Georgia plays Georgia Tech, it’s uniform color versus skin color. We have – we’ve overcome that level of racial fear.
+ - I want to make America better!
+ - I hear that melting pot stuff a lot, and all I can say is that we haven’t melted.
+ - The charges that I am anti-Semitic are simply erroneous, felonious, and unceremonious. In fact, when I need a doctor, I always look for one with a Jewish name.
+ - Great things happen in small places. Jesus was born in Bethlehem. Jesse Jackson was born in Greenville.
+ - I think reconciliation is Obama’s goal – but the fight with the Republicans is like a fight with pit bulls, they never let go. Even worse, now the Republicans feel they can keep pushing and he will keep giving. They have not seen a stiff resistance on his part.
+ - It is a historical error for those who were not there to just refer to August 28th as ‘I Have a Dream’ speech day. That is a real disservice to those who were there. It was a sad day. It was not a celebration environment.
+ - To bring up a child in the way he should go, travel that way yourself once in a while. Your children need your presence more than your presents.
+ - A check or credit card, a Gucci bag strap, anything of value will do. Give as you live.
+ - Sometimes arrogance makes us overreach. George Bush Jr. often tries to suggest the leaders of other countries, and it is just not good diplomacy.
+ - If a black doctor discovers a cure for cancer, ain’t no hospital going to lock him out.
+ - Each time a barrier falls for one person, the doors of opportunity open wider for every other American.
+ - Surrender had played out for good with me.
+ - We picked their cotton. We cooked their food. We nursed their babies. Now we can run their cities. We can run their states. We will run the country.
+ - The white Christian church never raised to the heights of Christ. It stayed within the limit of culture.
+ - The invasion only made matters worse. The occupation will not work, Iraq is unoccupiable, that will not work.
+ - I was extended secret service protection during my presidential run in 1984, when I received the most death threats ever made toward a candidate.
+ - People internalize, from the jail to student loan debt, to credit card debt, to unemployment to the whole collective. It manifests itself in many ways, in people’s home lives, domestic stuff.
+ - We have to judge politicians by their cumulative score. In one innings they make a great catch, in another they drop the ball. In one they score a home run, in another they strike out. But it is their cumulative batting average that we are interested in.
+ - The burden of being black is that you have to be superior just to be equal. But the glory of it is that, once you achieve, you have achieved, indeed.
+ - No one should negotiate their dreams. Dreams must be free to fly high. No government, no legislature, has a right to limit your dreams. You should never agree to surrender your dreams.
+ - I’ve paid my dues. I’ve earned your votes. Send me.
+ - If I can make it, you can make it.
+ - I have worked hard to build relationships between Jewish people and black people.
+ - At the end of the day, we’re defined by our predicament, not by the sides of town.
+ - It is in struggle and service with our brothers and sisters, individually and collectively, that we find the meaning of life.
+ - Just because a chicken was born in the oven doesn’t make it a biscuit.
+ - We must not measure greatness from the mansion down, but from the manger up.
+ - We’ve been so preoccupied with getting the government to behave in a fair and democratic way, we were not able to focus on the private sector where most of the jobs are, where most of the wealth and opportunities are.
+ - The great responsibility that we have today is to put the poor and the near poor back on front of the American agenda.
+ - Race designation is a political designation.
+ - From seeds of his body blossomed the flower that liberated a people and touched the soul of a nation.
+ - A man must be willing to die for...
+ - If the states had to vote on slavery, we would have lost the vote.
+ - I had gained a greater appreciation of hearing the concerns of woman, doctors, and so many others.
+ - Ronald Reagan was older than I was when he ran for president.
+ - In many ways, history is marked as ‘before’ and ‘after’ Rosa Parks. She sat down in order that we all might stand up, and the walls of segregation came down.
+ - Success needs no explanation. Failure does not have one that matters.
+ - Look at the coded language the Right is using against President Barack Obama. Openly calling him a liar in Congress, saying he is ‘not a Christian, he was not born here, he is not one of us.’ That makes addressing such issues trickier for the first African-American in the White House.
+ - The American people on the ground need a clearer, stronger, Lyndon B. Johnson-type voice from their president.
+ - It’ll be a great day when the seniors have all the baseball caps they need and the Pentagon bombs Gilligan’s Island.
+ - I preach nonviolence because it’s the better alternative.
+ - Fighting disparities is very significant.
+ - Music of all arts should be expansive and inclusive.
+ - You can’t vote against healthcare and call yourself a black man.
+ - I must oppose the use of federal funds for a policy of killing infants.
+ - If the American people in a matter of months can love the people of Kuwait, whom they have not seen, they can love the people of our nation’s capital just as well.
+ - While I’ve spent a lot of quality time with my children, perhaps it’s not been enough.
+ - If you don’t know what tomorrow holds, you need to know who holds tomorrow!
+ - A man who cannot be enticed by money or intimidated by the threat of jail or death has two of the strongest weapons that anyone has to offer.
+ - The laws are stacked for the wealthy.
+ - Pictures can live in one’s memory. That’s why they are important.
+ - Few would deny that blacks have become very dominant in athletics: football, basketball, track, now dominant in tennis and dominant in golf.
+ - When God rang the bell that ended the fight, the world cried out for one more round.
+ - George Bush has met more foreign heads of state than I have. But a substantial number of them were dead.
+ - The law protects you from being abused. It doesn’t threaten your lifestyle for someone else to have the right to exhibit their lifestyle.
+ - There have been more people disenfranchised in Washington than there have been in Kuwait.
+
+174 quotes

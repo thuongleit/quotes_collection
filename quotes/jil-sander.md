@@ -1,0 +1,24 @@
+ - Life is full of challenges and surprises.
+ - I sometimes feel that a pattern is almost a fashion statement in itself.
+ - I am convinced that there can be luxury in simplicity.
+ - I think there is always a need for pure design. With pure design, you don’t need so much decoration.
+ - One glass of water doesn’t equal another. One may just appease the thirst, the other you may enjoy thoroughly. In Japan, people know about this difference.
+ - I like femininity, not of the devout, but of the self-assured, cool and sophisticated kind.
+ - Initially, it was the unpractical in fashion that brought me to design my own line. I felt that it was much more attractive to cut clothes with respect for the living, three-dimensional body rather than to cover the body with decorative ideas.
+ - The ’90s were extremely diverse, almost like a laboratory of the new century. There was much experimenting around, in politics, economics, gender and family structures, and also in fashion. There was a cloud of possibilities which kept us all dizzy.
+ - We look our best in subdued colors, sophisticated cuts, and a general air of sleek understatement.
+ - If I had the power, I would ban leggings.
+ - My approach has always been rather sensual.
+ - I have a lot of fantasy.
+ - If you cut a painter’s hands off, he’d still feel the urge to pick up a brush.
+ - I feel very strongly that clothes that fit well make a person feel better. It’s maybe half the value of the merchandise.
+ - The market is like a language, and you have to be able to understand what they’re saying.
+ - It may sound ambitious, but I really hope that modern design will spread all around the globe.
+ - Even as a child, I told my whole family how to improve their looks.
+ - The apparent pointlessness of fashion may be just what makes it so strong as a zeitgeist sensor. Even I, a designer, do not know why a certain proportion feels dated or why another one feels exciting at a given moment. I leave that to the cultural historians and theorists.
+ - I try as much as possible to give you a great basic product and what comes out, I feel, is really amazing.
+ - I am convinced that you don’t need to spend a fortune to look like a million.
+ - It is not easy to dress well.
+ - I feel that things happen for a reason and open up new opportunities.
+
+22 quotes

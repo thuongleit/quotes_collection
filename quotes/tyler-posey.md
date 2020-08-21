@@ -1,0 +1,24 @@
+ - It’s hard to fall in love with somebody, and then break up and not have feelings for that same person.
+ - I love playing music, I love my dog, and I love my family.
+ - Teen Wolf has more heart then Buffy.
+ - I’m very active on Twitter and Instagram. I’m always posting pictures from set, and little clues and teasing people with fun things. It’s awesome!
+ - Growing up, I realized that fame is not what you think it is. It’s a little bizarre. You have to learn how to cope with that and figure out who you are.
+ - I tell a lot of fart and poop jokes. I can’t help it. I have no filter, and it just comes out.
+ - Life can’t always be good, and life can’t always be bad. That just holds true. I’ve learned a lot from that statement, and I think about it, all the time.
+ - I mean, people don’t know what race I am. They never know if I’m Hawaiian or Italian or Mexican or Spanish or white. I could play Jewish, I could play anything.
+ - I’m a big fan of zombies, and I have a zombie tattoo on my leg.
+ - I’m meeting a lot of musicians and people in the music business, and am constantly trying to figure out what I want to do with music. We’ll see. I want to do everything.
+ - On my mom’s side I’m Mexican, and my dad is a white dude.
+ - I was never NOT confident about doing scenes without my shirt – and now I’ll find any excuse to take my shirt off!
+ - I eat whatever I want. I can get away with it. There are some strict regiment eatings, but I don’t follow them.
+ - I was never really unpopular in high school.
+ - You know I don’t care about what I eat. I love food so much, I can’t affect the way I eat.
+ - Acting is all I know; being on a set is all I know.
+ - I like girls with a good sense of humor.
+ - I took Spanish in high school and I didn’t do too well in it. My Spanish teacher told me not to go on with Spanish anymore, so I was discouraged a little bit.
+ - Whenever something good comes up that sounds like I could be part of the project, my manager and my agents send me in on it.
+ - As an actor, you need that constant change, or things will get stale.
+ - I’d love to be a rockstar.
+ - I believe when actors say they can go crazy playing the same role, over and over again.
+
+22 quotes

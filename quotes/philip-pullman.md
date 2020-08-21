@@ -1,0 +1,126 @@
+ - After nourishment, shelter and companionship, stories are the thing we need most in the world.
+ - Iorek Byrnison: Can is not the same as must. Lyra Silvertongue: But if you must and you can, then there’s no excuse.
+ - Stories are the most important thing in the world. Without stories, we wouldn’t be human beings at all.
+ - There are some themes, some subjects, too large for adult fiction; they can only be dealt with adequately in a children’s book.
+ - We have to build the Republic of Heaven where we are, because for us, there is no elsewhere.
+ - Everything has a meaning, if only we could read it.
+ - You cannot change what you are, only what you do.
+ - People are too complicated to have simple labels.
+ - Tell them stories.
+ - It takes long practice, yes. You have to work. Did you think you could snap your fingers, and have it as a gift? What is worth having is worth working for.
+ - We don’t need lists of rights and wrongs, tables of do’s and don’ts: we need books, time, and silence. Thou shalt not is soon forgotten, but Once upon a time lasts forever.
+ - The book is second only to the wheel as the best piece of technology human beings have ever invented. A book symbolises the whole intellectual history of mankind; it’s the greatest weapon ever devised in the war against stupidity.
+ - So Lyra and her daemon turned away from the world they were born in, and looked toward the sun, and walked into the sky.
+ - Make this the golden rule, the equivalent of the Hippocratic oath: Everything we ask a child to do should be worth doing.
+ - We have to learn everything we do.
+ - You speak of destiny as if it was fixed.
+ - True education flowers at the point when delight falls in love with responsibility.
+ - What is worth having is worth working for.
+ - If you want something you can have it, but only if you want everything that goes with it, including all the hard work and the despair, and only if you’re willing to risk failure.
+ - The Christian religion is a very powerful and convincing mistake.
+ - Every little increase in human freedom has been fought over ferociously between those who want us to know more and be wiser and stronger, and those who want us to obey and be humble and submit.
+ - Children are not less intelligent than adults; what they are is less informed.
+ - Tolkien seems to me reactionary, conservative, fearful of a modern world. Fearful of anything that isn’t sanctioned by the passage of long eons of time. I think what I’m doing in His Dark Materials is politically the reverse of that.
+ - You’ll drift apart, it’s true, but you’ll be out in the open, part of everything alive again.
+ - It’s only through honesty and courage that science can work at all. The Ptolemaic understanding of the solar system was undermined and corrected by the constant pressure of more and more honest reporting.
+ - Just sort of relax your mind and say yes, it does hurt, I know. Don’t try and shut it out.
+ - Everything means something.
+ - I thought physics could be done to the glory of God, till I saw there wasn’t any God at all and that physics was more interesting anyway. The Christian religion is a very powerful and convincing mistake, that’s all.
+ - A professional writer is someone who writes just as well when they’re not inspired as when they are.
+ - There is another consequence of any belief in a single god, and that is that it is a very good excuse for people to behave very badly.
+ - Human beings can’t see anything without wanting to destroy it. That’s original sin. And I’m going to destroy it. Death is going to die.
+ - You don’t win races by wishing, you win them by running faster than everyone else does.
+ - I don’t know where my ideas come from, but I know where they come to. They come to my desk, and if I’m not there, they go away again.
+ - Lonely? I don’t know. They tell me this is cold. I don’t know what cold is, because I don’t freeze. So I don’t know what lonely means either. Bears are made to be solitary.
+ - Once upon a time lasts forever.
+ - I stopped believing there was a power of good and a power of evil that were outside us. And I came to believe that good and evil are names for what people do, not for what they are.
+ - We are all subject to the fates. But we must act as if we are not, or die of despair.
+ - Tell them stories. They need the truth you must tell them true stories, and everything will be well, just tell them stories.
+ - I practiced on the greatest model of storytelling we’ve got, which is “The Iliad” and “The Odyssey.” I told those stories many, many times.
+ - Argue with anything else, but don’t argue with your own nature.
+ - It’s like having to make a choice: a blessing or a curse. The one thing you can’t do is choose neither.
+ - The justice of it seems to children correct and right – I mean, we laugh at it! We underestimate children’s ability to know what is a story and what isn’t.
+ - Religion grants its adherents malign, intoxicating and morally corrosive sensations. Destroying intellectual freedom is always evil, but only religion makes doing evil feel quite so good.
+ - My books are about killing God.
+ - I’m for open-mindedness and tolerance. I’m against any form of fanaticism, fundamentalism or zealotry, and this certainty of ‘We have the truth.’ The truth is far too large and complex. Nobody has the truth.
+ - Sticks and stones, I’ll break yer bones, but names ain’t worth a quarrel.
+ - When it comes to telling children stories, they don’t need simple language. They need beautiful language.
+ - All the history of human life has been a struggle between wisdom and stupidity.
+ - Do not lie to the Scholar.
+ - Thou Shalt Not is soon forgotten, but Once Upon a Time is forever.
+ - Because the great thing about fairy tales and folk tales is that there is no authentic text. It’s not like the text of Paradise Lost or James Joyce’s Ulysses, and you have to adhere to that exact text.
+ - She was riding a bear! And the Aurora was swaying above them in golden arcs and loops, and all around was the bitter Arctic cold and the immense silence of the North.
+ - We need to ensure that children are not forced to waste their time on barren rubbish.
+ - Teachers often make the mistake of thinking they’re the boss of the class; they’re not. The boss of the class is sitting down there somewhere.
+ - And think what worrying does: has anyone ever added a single hour to the length of his life by worrying about it?
+ - There’s a hunger for stories in all of us, adults too. We need stories so much that we’re even willing to read bad books to get them, if the good books won’t supply them.
+ - If there is a war to be fought, we don’t consider cost one of the factors in deciding whether or not to fight.
+ - Tell him, we are not devils but we have friends who are.
+ - But I know that all the things I do know are very small compared with the things that I don’t know.
+ - If you can’t think of what to write, tough luck; write anyway.
+ - Imagination is a form of seeing.
+ - Maybe sometimes we don’t do the right thing because the wrong thing looks more dangerous, and we don’t want to look scared, so we go and do the wrong thing just because it’s dangerous. We’re more concerned with not looking scared than with judging right.
+ - Then she was pressing her little proud broken self against his face, as close as she could get, and then they died.
+ - When you choose one way out of many, all the ways you don’t take are snuffed out like candles, as if they’d never existed.
+ - Men and women are moved by tides much fiercer than you can imagine, and they sweep us all up into the current.
+ - I write almost always in the third person, and I don’t think the narrator is male or female anyway. They’re both, and young and old, and wise and silly, and sceptical and credulous, and innocent and experienced, all at once. Narrators are not even human – they’re sprites.
+ - He dared to do what men and women don’t even dare to think. And look what he’s done already: he’s torn open the sky, he’s opened the way to another world. Who else has ever done that? Who else could think of it?
+ - She longed for cutlasses, pistols, and brandy; she had to make do with coffee, and pencils, and verbs.
+ - All good things pass away.
+ - Being a practiced liar doesn’t mean you have a powerful imagination. Many good liars have no imagination at all; it’s that which gives their lies such wide-eyed conviction.
+ - When he’d sworn at her and been sworn at in return, they became great friends.
+ - That’s the duty of the old, to be anxious on behalf of the young. And the duty of the young is to scorn the anxiety of the old.
+ - No,? he said, ’memory’s a poor thing to have. It’s your own real hair and mouth and arms and eyes and hands I want. I didn’t know I could ever love anything so much...
+ - I was born in Norwich in 1946, and educated in England, Zimbabwe, and Australia, before my family settled in North Wales.
+ - Men pass in front of our eyes like butterflies, creatures of a brief season. We love them; they are brave, proud, beautiful, and clever.
+ - The fairy tale is in a perpetual state of becoming and alteration. To keep to one version or one translation alone is to put robin redbreast in a cage.
+ - It does not make sense. It cannot exist. It’s impossible, and if it isn’t impossible, it’s irrelevant, and if it isn’t either of those things, it’s embarrassing.
+ - As Jane Austen might have put it: It is a truth universally acknowledged that young protagonists in search of adventure must ditch their parents.
+ - What I do say is that I can write verse, and that the writing of verse in strict form is the best possible training for writing good prose.
+ - For every once upon a time there must be a story to follow, because if a story doesn’t, something else will, and it might not be as harmless as a story.
+ - I’m superstitious about the paper that I use, for example. I’ve written all my novels on a paper of a particular size with lines of a particular distance apart and with two holes in the paper for the folder clip.
+ - The idea hovered and shimmered delicately, like a soap bubble, and she dared not even look at it directly in case it burst. But she was familiar with the way of ideas, and she let it shimmer, looking away, thinking about something else.
+ - There’s been terrible things we seen, en’t there? And more a coming, more’n likely. So I think I’d rather not know what’s in the future. I’ll stick to the present.
+ - All things from the north are devilish.
+ - A murderer was a worthy companion.
+ - You are dead- what am I speaking to?
+ - I wanted the chance to look again at very famous stories and see what made them work well, whether there were any ways in which they could be improved. Because the great thing about fairy tales and folk tales is that there is no authentic text.
+ - All stories teach, whether the storyteller intends them to or not. They teach the world we create. They teach the morality we live by. They teach it much more effectively than moral precepts and instructions.
+ - Long before writing, people were telling each other stories and the audiobook goes all the way back to that tradition.
+ - You don’t read it in the sense of reading a message; it doesn’t work like that. What’s happening is that the Shadows are responding to the attention you pay them.
+ - From what we are, spirit; from what we do, matter. Matter and spirit are one.
+ - Lee was too cool by nature to rage at fate; his manner was to raise an eyebrow and greet it laconically.
+ - What I couldn’t help noticing was that I learned more about the novel in a morning by trying to write a page of one than I’d learned in seven years or so of trying to write criticism.
+ - For a long time I thought I was a poet, but that’s a high title to claim.
+ - I had passed through the entire British education system studying literature, culminating in three years of reading English at Oxford, and they’d never told me about something as basic as the importance of point of view in fiction!
+ - This is the value for me of writing books that children read. Children aren’t interested in your appalling self-consciousness. They want to know what happens next. They force you to tell a story.
+ - Well, I have an idea, usually a visual image of some sort. A setting. A particular, I don’t know, urban scene, a particular time of day. Something that grips my imagination for some reason.
+ - A lot of modernism does seem to come out of a fear of being thought an ordinary storyteller. So they tell it backwards and they tell it in the present tense and they cut loose the pages and shuffle them around – all that kind of stuff.
+ - No one has the right to live without being shocked.
+ - One moment several things are possible, the next moment only one happens, and the rest don’t exist. Except that other worlds have sprung into being, on which the did happen.
+ - There will be days when the stuff is not flowing freely. What you do then is MAKE IT UP!
+ - And I came to believe that good and evil are names for what people do, not for what they are. All we can say is that this is a good deed, because it helps someone or that’s an evil one because it hurts them. People are too complicated to have simple labels.
+ - I have stolen ideas from every book I have ever read.
+ - When you live for many hundreds of years, you know that every opportunity will come again.
+ - I am a strong believer in the tyranny, the dictatorship, the absolute authority of the writer.
+ - As for what it’s against – the story is against those who pervert and misuse religion, or any other kind of doctrine with a holy book and a priesthood and an apparatus of power that wields unchallengeable authority, in order to dominate and suppress human freedoms.
+ - I am a religious person, although I am not a believer.
+ - Literary modernism kind of grew out of a sense that, “Oh my god! I’m telling a story! Oh, that can’t be the case, because I’m a clever person. I’m a literary person! What am I going to do to distinguish myself? I know! I’ll write Ulysses.”
+ - I’m perfectly happy about being superstitious and atheistic.
+ - Was there only one world after all which spent its time dreaming of others?
+ - And among academicians, and among spirits. I found folly everywhere, but there were grains of wisdom in every stream of it. No doubt there was much more wisdom that I failed to recognize. Life is hard, Mr. Scoresby, but we cling to it all the same.
+ - For that reason you can’t write with music playing, and anyone who says he can is either writing badly, or not listening to the music, or lying. You need to hear what you’re writing, and for that you need silence.
+ - I am a story teller. If I wanted to send a message I would have written a sermon.
+ - If you can’t think of what to write, tough luck; write anyway. If you can think of lots more when you’ve finished the three pages, don’t write it; it’ll be that much easier to get going next day.
+ - A story, to me, has a particular sprite, like the angel of the spirit of that story – and it’s my job to attend to what it wants to do.
+ - If a coin comes down heads, that means that the possibility of its coming down tails has collapsed. Until that moment the two possibilities were equal. But on another world, it does come down tails. And when that happens, the two worlds split apart.
+ - The fact was that where Will is concerned, she was developing a new kind of sense, as if he were simply more in focus than anyone she’d known before. Everything about him was clear and close and immediate.
+ - There is time, and there is beyond time. History belongs to time, but truth belongs to what is beyond time. In writing of things as they should have been, you are letting truth into history. You are the word of God.
+ - My only real claim to anyone’s attention lies in my writing.
+ - Just finished ‘Secrecy’ – truly enthralling both as a love story and as a tale of suspense – but much more than both.
+ - I’m with the Grimms on this: stories for young and old. You can’t characterize them any better than that.
+ - The state of mind which I put myself when I tell a story is one in which superstition flourishes very easily. And I welcome that because it helps me.
+ - The e-book revolution has made it very easy to pay writers a good deal less than what their work is worth. I do strongly believe that we writers ought to hold out for much better royalties.
+ - D’you know how embarrassing it is to mention good and evil in a scientific laboratory? Have you any idea? One of the reasons I became a scientist was not to have to think about that kind of thing.
+
+124 quotes

@@ -1,0 +1,28 @@
+ - It’s the children the world almost breaks who grow up to save it.
+ - The children almost broken by the world become the adults most likely to change it.
+ - Be wise enough not to be reckless, but brave enough to take great risks.
+ - Dear soulmate, I don’t know who you are, where you live, or what you look like. But I pray for you every nite and I ask God to point you in my direction.
+ - Every single person has at least one secret that would break your heart. If we could just remember this, I think there would be a lot more compassion and tolerance in the world.
+ - Secrets are the currency of intimacy.
+ - Religious people fear hell – Spiritual people have walked thru it.
+ - Someday I will have nothing left to lose. I can’t wait.
+ - There are two kinds of secrets: those we keep from others and those we hide from ourselves.
+ - Stop lying. There isn’t enough time left.
+ - Secrets can remind us of the countless human dramas, of frailty and heroism playing out silently in the lives of people all around us.
+ - Every single person has at least one secret that would break your heart...
+ - The more I look back on my life, the more I see miracles.
+ - Sometimes when we think we are keeping a secret, the secret is actually keeping us.
+ - Sometimes I think we keep secrets for the wrong reasons. If we could instead find that right person to talk to we might find that talking about an embarrassing story or admitting our frailty might lead to a more authentic relationship with others or ourselves.
+ - Sometimes you don’t realize you’ve crossed a line until you’re on the other side and can’t go back.
+ - Secrets can take many forms. They can be shocking or silly or soulful. They can connect us with our deepest humanity, or with people we’ll never meet.
+ - The confessions can touch on every human emotion. They can be laugh-out-loud funny, for sure, they can be heart-breaking, they can be sexual or hidden acts of kindness, they can be romantic...
+ - Trade your secrets and become who you are.
+ - I needed to recognize those secrets I was keeping from myself- secrets I had buried long ago. I needed Post Secret just as much as the other people who were mailing me their secrets.
+ - The best way to hear somebody else’s secret is actually to share one of your true secrets.
+ - The secrets I receive reflect the full spectrum of complicated issues that many of us struggle with every day: Intimacy, trust, meaning, humor, and desire.
+ - You keep a secret inside of you and it feels like a wall that separates you from others.
+ - I read your secrets to escape from my own.
+ - I just invite people to share a secret with me. It’s not like I’m a psychiatrist who’s going to react to it or a priest who’s going to give you something to do. When you let it go, there’s kind of this void and I think people like that.
+ - Gary Shaw says a lot of things without engaging his brain sometimes and it’s a great shame, because he’s not a bad chap actually.
+
+26 quotes

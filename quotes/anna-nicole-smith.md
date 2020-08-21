@@ -1,0 +1,29 @@
+ - It’s very expensive to be me.
+ - It’s very expensive to be me. It’s terrible the things I have to do to be me.
+ - I didn’t know what Guess jeans were. I just shopped at Wal-Mart and Kmart and stuff like that.
+ - I can’t eat more than six hundred dollars worth of food.
+ - I have been alone since my husband died. I stay in my home. I don’t date. It’s hard to date when you’re at home. Nobody knows you.
+ - Men don’t even ask me out. I can’t remember the last time I was asked out on a date, and I’m talking years here. I spend my life more and more alone.
+ - I’m sick of being accused of gold-digging. It just so happens I get turned on by liver spots.
+ - People are just so stupid.
+ - I don’t understand why God took him and didn’t take me.
+ - I was 23, and he was 86. I saw a very sick man. I just wanted to just talk with him. There was no physical attraction at all. He was very much attracted to me.
+ - Living in a small town, I knew everybody and everybody knew me.
+ - I am just so happy and thrilled and I am so glad Mr. Hefner chose me.
+ - I’ve been craving peanut butter-and-mayonnaise fried cheese sandwiches.
+ - I did Playboy. There was an ad in the paper for playmates. Playboy called me and flew me to Los Angeles, and I was on the March cover of 1992.
+ - Vickie Lynn Hogan is my birth certificate’s name.
+ - I grew up poor. I had no money. My family was poor. There’s things I wanted to do and couldn’t. I was an abused wife. Just – there’s tons of things that I couldn’t even mention. And for me to come up and to have all of this fame and fortune, it’s just.
+ - For some reason, people think I am this terrible person and it really hurts me to hear that. I am just doing the best I know how to.
+ - I just know I’m going to be an actress. I want it so bad.
+ - I don’t have a boyfriend right now. I’m looking for anyone with a job that I don’t have to support.
+ - I finally feel like I’m becoming somebody. I really think like I can do something. I just know I’m going to be an actress. I want it so bad.
+ - I want to be the new Marilyn Monroe and find my own Clark Gable.
+ - Marrying into money was not a good thing for me.
+ - I just feel a connection with Marilyn Monroe. I just love her. I just completely feel what she went through.
+ - I couldn’t make ends meet. I tried Red Lobster. I tried Wal-Mart. I tried all these places and I couldn’t make it. I couldn’t. So, I tried this gentlemen’s club, and, you know, I worked there, and it was just awful in those places. It was terrible.
+ - If I have another child, I doubt I’ll get married again. I don’t think men particularly want to be with me.
+ - I never thought to ever ask for money. I was so stupid.
+ - I wanted to become a model and an actress.
+
+27 quotes

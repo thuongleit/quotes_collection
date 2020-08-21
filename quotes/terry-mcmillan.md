@@ -1,0 +1,60 @@
+ - You’ve been killing me inside and I don’t want to die like this.
+ - Write from your heart, and God will take care of the rest.
+ - If you jump to conclusions, you make terrible landings.
+ - I used to get a lot of letters from prisoners. It used to get on my nerves. Especially family members. Everybody’s innocent.
+ - Back then I confused passions and orgasms with love. It look me years to realize the two weren’t synonymous.
+ - Parents can ruin children, and sometimes that’s a learned behavior. Sometimes you can’t blame your parents for it, sometimes you can. I think to me, that’s what the whole paradox is, is people that have children that don’t even know how to raise them.
+ - People always have something to say about what you do and how you do it.
+ - I want to push the fast-forward button until I get back to happy.
+ - Can’t nothing make your life work if you ain’t the architect.
+ - Writing is my shelter. I don’t hide behind the words; I use them to dig inside my heart to find the truth.
+ - Too many of us are hung up on what we don’t have, can’t have, or won’t ever have. We spend too much energy being down, when we could use that same energy – if not less of it – doing, or at least trying to do, some of the things we really want to do.
+ - I’m not an angry woman. I’m not bitter.
+ - My mama taught me that anything worth doing in life should be a little scary.
+ - We get divorce, we get conned, someone we love dies, or we can’t find anybody to love us or somebody breaks our heart and we realize this fairy tale ain’t fair. So we suffer.
+ - I can’t stand that – those women in ‘Waiting to Exhale’ now. I can’t stand them. But that’s because I’m 53 and not 33. But what they were experiencing at 33, I identified with it.
+ - As far as young kids go, my primary interest is to get parents to read to their kids. That’s about the most you can do, I think.
+ - I just believe that young people need to be able to learn how to write in their own voice. Just like a musician, you pride yourself on having your own distinct sound.
+ - People like to run their mouths.
+ - It goes without saying that your friends are usually the first to discuss your personal business behind your back.
+ - I was tired of chasing ghosts, hollow men who were outside my comfort zone, men who had nothing to give me except a rush. It was all I asked for, and all I ever got.
+ - Wherever there’s a prison, for the most part, especially where there’s Black people, it’s overcrowded. I don’t know who really gets out.
+ - You know, one of my fears about living alone so long is that you get used to doing everything your own way.
+ - I love writing in first person more than third. I have to basically suspend my own world. I don’t exist. I’m just a conduit. So I can be eight years old. I can be the mother of a kid that you find out certain things I’m not going to say.
+ - What I do know is sometimes we love the wrong people and sometimes we marry them.
+ - I’m not trying to be a middle aged centerfold, I just want to look at myself naked and not be disgusted.
+ - Writing is the only place I can be myself and not feel judged.
+ - I would like to think that as a result of not just my own experiences, but at least being empathetic and compassionate about other people’s experiences and plights and tragedies, that I am affected by it and learn from it.
+ - Pay attention to the things that agitate you. It will tell you a lot about yourself.
+ - At least be a nice lesbian or you’re going to give the rest a bad rap.
+ - It’s not that marriage itself is bad; it’s the people we marry who give it a bad name.
+ - I have a big mouth, and over the years, as the eldest of five, I have had a tendency to speak when no one really cared.
+ - I’d crack up without my music. It’s the best company you can have, really. It don’t say ‘no’ or ‘maybe,’ or ask no questions.
+ - I been saying it for years: church is full of sneaky men posing as honest souls, and they are perpetuators our here looking for women just like you, with giant holes in your hearts, and they can smell when you got a good job and when you lonely as hell.
+ - People need to be re – sometimes we need to reinvent ourselves and then get reacquainted with our better selves.
+ - We never thought some guy would deliberately fill our hearts with brown sugar and then pour hot water all over it.
+ - I would be content being a housewife if I could find the kind of man who wouldn’t treat me like one.
+ - Good parents have children who do terrible things and vice-versa.
+ - Sometimes I cheat and buy things I used to make from scratch and just doctor them up.
+ - Why is it that if you happen to be black and over six feet tall, everybody thinks you supposed to play basketball or football?
+ - Few writers are willing to admit writing is autobiographical.
+ - It should be obvious that I wasn’t no honor roll student in high school. My favorite class was boys.
+ - There is a price for popularity. Critics look for your weaknesses, your flaws, anything that makes the work seem like a fluke and not seem worthy of all the attention it’s getting.
+ - I also discovered that you can get used to a man, much like you do a household pet!
+ - My stories are character driven.
+ - The best rush in the world is getting something at 80 percent off.
+ - It’s sad to think that we’ve gotten to this that we actually have to think about how to go about finding a man. But what’s even sadder is that some men make you feel guilty for looking.
+ - I like doing the readings and the autographing, but the interviewing gets a little tedious because you get asked the same questions every day and sometimes three or four times a day.
+ - I don’t let negative criticism, for the most part, bother me.
+ - Folks want to glow, to leave their worries and dead skin behind.
+ - Let me put it this way: when I read, I learned the world was not as small as my house. And that everybody in my home town was not representative of the way people in the world were raised. And that was what saved me.
+ - I let my characters do the talking, simple as that.
+ - I try to create characters that I am fascinated by on some level or intrigued by or can’t stand.
+ - Now, I’ve been known to be attractive on special occasions, and I do my best to project as much beauty as I can muster from deep inside, though I often fail.
+ - As a writer, you get to bring attention to something without preaching. I don’t believe in being didactic. So if you dramatize something, you automatically bring attention to it if people read it.
+ - I’ve got tons of irreplaceable information inside the soul of this computer.
+ - It’s amazing how we can make ourselves believe what we want to.
+ - I’m more interested in interpersonal relationships – between lovers families, siblings. That’s why I write about how we treat each other.
+ - I take what people feel and think, especially when it’s different from, very seriously, and I find it liberating.
+
+58 quotes

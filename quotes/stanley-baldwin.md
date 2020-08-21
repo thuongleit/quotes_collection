@@ -1,0 +1,25 @@
+ - War would end if the dead could return.
+ - The attainment of an ideal is often the beginning of a disillusion.
+ - The world was never more unsafe for democracy then it is today.
+ - I would rather trust a woman’s instinct than a man’s reason.
+ - I would rather be an opportunist and float than go to the bottom with my principles around my neck.
+ - Power without responsibility – the prerogative of the harlot throughout the ages.
+ - A lot of hard-faced men who look as if they had done very well out of the war.
+ - I wish Stanley Baldwin no ill, but it would have been much better if he had never lived.
+ - When I was a little boy in Worcestershire reading history books I never thought I should have to interfere between a king and his mistress.
+ - Once I leave I leave. I am not going to speak to the man on the bridge and I am not going to spit on the deck.
+ - The work of a Prime Minister is the loneliest job in the world.
+ - Just as the results of inebriety are most painful to the habitually sober, and just as the greatest saints have often been the greatest sinners, so, when the first class brain does something stupid, the stupidity of that occasion is colossal.
+ - Dictatorship is like a giant beech-tree-very magnificent to look at in its prime, but nothing grows underneath it.
+ - The intelligent are to the intelligentsia what a gentleman is to a gent.
+ - There is a wind of nationalism and freedom blowing round the world, and blowing as strongly in Asia as elsewhere.
+ - No British Prime Minister of the last seventy years has been more harshly stereotyped than Stanley Baldwin. No one has been so much ignored, after the initial judgements of contemporaries had been made.
+ - Do not fear or misunderstand when the Government say they are looking to our defences. I give you my word that there will be no great armaments.
+ - Had the employers of past generations all of them dealt fairly with their men there would have been no unions.
+ - The die-hard opinions of George III couched in the language of Edmund Burke.
+ - I wish for many reasons flying had never been invented.
+ - If I did not believe that our work was done in the faith and hope that at some day, it may be a million years hence, the Kingdom of God will spread over the whole world, I would have no hope, I could do no work, and I would give my office over this morning to anyone who would take it.
+ - Whatever failures may have come to parliamentary government in countries which have not those traditions, and where it is not a natural growth, that is no proof that parliamentary government has failed.
+ - Whether we like it or not we are consideably bound to Europe.
+
+23 quotes

@@ -1,0 +1,28 @@
+ - No expectations mean there is no risk of disappointment.
+ - It is our feelings that guide us and they can never lead us wrong.
+ - Really, I protest-what is left for the satirical mind to invent when reality so surpasses it?
+ - It is painful to see someone suffering what you must be suffering- watching someone you love be so cruelly hurt.
+ - I love you more than I can express, or can ever hope to express.
+ - But we disposable women have to be realistic in this life, you know. Else we get itchy and discontented and start contemplating the kitchen knife and wondering whether it wouldn’t look nicer between someone’s shoulder-blades.
+ - Society can only hurt if you care for its opinion.
+ - That’s the way girls are isn’t it? They swear eternal friendship, and then as soon as a man’s in the case it’s all forgotten.
+ - It is presumptuous to draw conclusions about a person from what one has heard.
+ - Everything about everybody was very soon known by everybody else.
+ - You cannot believe everything you hear.
+ - We always think we know what we want: when in truth there is nothing we are less likely to know.
+ - It is not always easy, for a woman alone.
+ - One hesitates to open a new chapter when the old one is not resolved.
+ - Love is the hardest thing to grasp. You have to seize it at once, else it may be too late.
+ - A girl should set her sights on a man who has money; or if not, who can expect to come into money; or if not, who has moneyed connections.
+ - When you are in love- everything is romantic.
+ - Grown people with rational minds somehow do not know what’s best for them.
+ - I am afraid I shall disappoint people’s expectations dreadfully.
+ - I can always forgive where I understand.
+ - I have never understood why a woman must have a man to take her into dinner.
+ - I am no faint-heart when it comes to the unpleasant truth. Indeed I have always taken a bracing sort of pleasure in facing it.
+ - If someone tries to use you as a tool, you shouldn’t mind it, because it is their choice and folly, not yours.
+ - People argue themselves out of their pleasures.
+ - To marry is to narrow one’s possibilities horribly.
+ - None of us like to think we are silly. But all must acknowledge that they are capable of silliness, from time to time.
+
+26 quotes

@@ -1,0 +1,89 @@
+ - We’re all travelers in this world. From the sweet grass to the packing house. Birth ’til death. We travel between the eternities.
+ - You smell that? Do you smell that? Napalm, son. Nothing else in the world smells like that. I love the smell of napalm in the morning.
+ - Not every successful man is a good father. But every good father is a successful man.
+ - Never use money to measure wealth, son.
+ - What drives me is I love my profession. I love to do it.
+ - I love the smell of juice boxes in the morning.
+ - There’s no smoking section in heaven.
+ - We all have a cradle-to-the-grave journey to make and, in between, what do you do? There’s got to be something hereafter.
+ - It’s no big thing, but you make big things out of little things sometimes.
+ - The greatest king of Israel, King David, the author of the Psalms, sent a man out to die in battle so that he could sleep with his wife.
+ - I take a vitamin every day; it’s called a steak.
+ - If you don’t daydream and kind of plan things out in your imagination, you never get there. So you have to start someplace.
+ - We either accept weaknesses in good people or we have to tear pages out of the Bible.
+ - When I knew nothing, I thought I could do anything.
+ - I always figure from the cradle to the grave, we all have our individual journeys, and maybe my journey was a positive one and I accomplished certain things without stepping on too many toes.
+ - To this day, I still think Lonesome Dove is my best part.
+ - When you shift the gear and that little needle on the tach goes into the red and reads 9,000 rpm, that’s bad.
+ - Sometimes you don’t prepare much. I mean, when I did ‘Lonesome Dove’ way back I rode horses day and night for like three or four months, and that got me ready for that.
+ - I like the smell of toast. Coffee is okay, but I don’t drink much coffee. But toast is a nice smell. You smell some toast coming from your kitchen in the morning, you know that you’re involved in a domestic situation and the operation that’s going on is pleasant.
+ - What people don’t understand about Sarah Palin is that she is a rancher’s wife. From Alberta down to Texas I’ve known women like that: good common sense, bright and vilified by city people.
+ - The only thing that might make me stay in bed would be fear. Once I get rest, then I can overcome the fear of a given day and then I’m ready. I’m ready to go. Not that I always have that fear, but sometimes that’s the only thing that would keep me in bed more than just the laziness.
+ - Well, it’s like my movie, ‘The Apostle.’ Some people in the North don’t get that movie. They think that, in the South, if you don’t shout, you can’t play one of those guys.
+ - It’s like kids playing house: ‘You play the father, I’ll play the mother.’ You know, you dress up, you play, they pay, you go home. It’s a game – acting’s a game.
+ - You gotta be careful with message movies. People say “What do you want people to take away from it?” I always say its totally individual.
+ - Spending two years on my uncle’s ranch in Montana as a young man gave me the wisdom and the thrust to do westerns.
+ - The beginning and the end of the tango is the walk.
+ - There’s no right or wrong just truthful or untruthful.
+ - Sometimes directors will hire you and say, ‘Oh, we love your work.’ And then they start to tell you how to do it. I say, ‘Hey, man, back off. You hired me to do it. Let me do it.’
+ - When I’m at home in Virginia, I become more hermit-like. I like my own home.
+ - I hope I left behind a legacy that people will enjoy. But whatever they want to say, I can’t predict.
+ - I’ve always remembered something Sanford Meisner, my acting teacher, told us. When you create a character, it’s like making a chair, except instead of making someting out of wood, you make it out of yourself. That’s the actor’s craft – using yourself to create a character.
+ - I wanted to show that crime doesn’t pay. If you are saved and accept the Lord, you cannot use that as an excuse to avoid punishment.
+ - The tango is a very interior dance. It’s not an exterior – it’s not flashy and all over the floor. It’s a very interior dance when you see the old guys dance in the clubs. I learned everything from the old guys in the clubs.
+ - You get below the Mason-Dixon line and you have some of the best music, culture, the two races, the literature, and it’s so rich.
+ - Cows is one thing. But one man telling another man where he can go in this country is something else.
+ - There was nothing wrong with shouting at God.
+ - Being a star is an agent’s dream, not an actor’s.
+ - High Noon is a pretty corny movie.
+ - You know, Hollywood sometimes tends to patronize the interior of the United States. As Horton Foote used to say, the great Texas playwright, that a lot of people from New York don’t know what goes on beyond the South Jersey Shore.
+ - I think there are more good young actors now than ever. It’s a medium that everyone wants to be connected with – it is such a hip medium going into the 21st century.
+ - Everybody likes to win.
+ - I was fortunate in the last century to be in the two biggest hits film-wise, ‘Godfather I’ and ‘Godfather II,’ and ‘Lonesome Dove.’
+ - Today, everything has to be made by committee, and has to have special effects, but there’s always room for good films.
+ - One thing I like about Argentina, they only cook with salt; that’s it.
+ - Some people say, ‘Do you have any theories on acting?’ And I say, well maybe: I think you can start with zero and end with zero. You don’t have to go anywhere, you don’t have to go for the result.
+ - I don’t have many people showing up at my door. Very few people come out. When they do, I get a little suspicious. I live way up on a hill, way, way back in the country.
+ - It’s a cyclical thing. When they make one, everyone loves them. Different genres come around in succession. People always welcome the western. It’s America’s genre.
+ - I like to do things that I develop from the ground up.
+ - I love going to black churches, and I love some of these black preachers. The best preacher I ever saw in my life was a 93-year-old in a black church in Hamilton, Virginia. What a preacher!
+ - You have a little bit of feeling for everyone you play.
+ - Around my own friends, I like to mess around.
+ - Stripping away artifice – it’s the constant standard I aim for in acting, to approximate life. People talk about being bigger than life – but there’s nothing bigger than life.
+ - I always thought of myself as a later bloomer, so I like some of my work more later than earlier.
+ - A young actor once asked me, What do you do between jobs? I said, Hobbies, hobbies, and more hobbies.
+ - Some Russian ballet master woman said there’s no culture in America, but if you look you can find interesting stuff in this country, don’t you think?
+ - The idea is that one’s temperament improves with age; that you learn to deal better with people and become more benevolent and loving. That’s not necessarily true. I try to stay loose but sometimes the best thing to do is get yourself away and take a good nap.
+ - When you dance tango fast, you have to think slow.
+ - I am getting some good offers still. Some nice things are coming my way just as they always have, so unless I lose my inspiration or there is too much drool to wipe, I will keep going.
+ - If I ended my career, I wouldn’t mind doing a TV series if it was a western and I played a mute gunfighter so I wouldn’t have to remember lines every week.
+ - I’ve always liked country music. It’s a certain aspect of America that goes back to the British Isles and the influence is very native to America.
+ - You just can’t take a crash course to be a tango dancer in a movie.
+ - My uncle always said that I could have been a rancher.
+ - If you don’t have heroes in the beginning, you don’t grow.
+ - The most solitary I ever felt was when I was living in New York. I used to live in Enrico Caruso’s old apartment, and I had a special staircase that took me up to the roof. There was nobody up there.
+ - As long as they keep offering me some good parts and so forth – there are some parts out there that fit me pretty well – I’ll keep going for a while.
+ - I’m a man without a corporation.
+ - You obviously don’t have to be a murderer to play a murderer or you don’t have to be a dictator to play a dictator. So, you’re an actor. You come up with whatever you come up with to play that part.
+ - Listening to critics is like letting Muhammad Ali decide which astronaut goes to the moon.
+ - I’m getting good offers, as good as ever sometimes. I just finished a thing with Billy Bob Thornton that was the most unique part I’ve ever played in my life, in the most unique project.
+ - I try not to look for messages in films.
+ - I love working in Texas anywhere.
+ - Very often some of the religious miracle plays you see on television can be very corny, I find. And so simplistic.
+ - Too many people think that economics is this subject that should wait until the university level. But it can’t wait that long.
+ - God does guide the lives of individuals and does fill them with the Holy Ghost.
+ - Hollywood is still the mecca for good or bad, but it isn’t the beginning or end for filmmaking.
+ - Way, way, way back I played a little bit, but I am definitely not a golfer. You know, it just takes too much time anyway during the course of the day.
+ - I wouldn’t mind starting to ride some more if I had a really good horse to just work a little bit with every day.
+ - I always considered myself as a character actor. I always try to be versatile to show different sides of human experience.
+ - I’ll keep on acting ’til they wipe the drool. I like the business. I like to do different parts and diverse characters. I haven’t lost my enthusiasm yet!
+ - Look, Hollywood’s a mecca, but it’s not the final answer. You pick up a camera anyplace in the world, you can make a movie.
+ - Although it wasn’t that easy to do, it was wonderful working with John Wayne.
+ - I can always grow a little bit, and try to do something different. So I’m always looking for what’s out there – the potential.
+ - To me, real comedy comes out of behavior. It’s the choices you make as an actor. It’s never about, “I want to do a comedy script.” I can’t think of it that way. And besides, some of those movies, those comedy movies, I can’t even watch them.
+ - You really have to soak up the culture of the people to get it right. If you’re making a fiction film, it’s entertainment, but you want it to be as real as possible.
+ - Seeing your name on the list for KP or guard duty when you’re in the Army is like reading a bad review.
+ - I like the good feeling movies.
+ - The one you fight with the most is always the one who’s most like you.
+
+87 quotes

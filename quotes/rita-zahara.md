@@ -1,0 +1,53 @@
+ - Don’t find a reason to smile. Find a way.
+ - Live simply. Give more. Expect less.
+ - Success is not an accident. It is sheer hard work. There is no short-cuts. You have to take the stairs and you have to start from the bottom.
+ - How they treat you defines them. How you treat others defines you.
+ - One of the greatest things you can do to help others is not just to share and give what you have, but to help them discover what they have within themselves to help themselves.
+ - Never take anyone for granted. Never take anyone’s kindness for their weakness. What’s once yours could easily turn into a memory.
+ - Believe that when something is meant to be, it will happen. In God’s time. At the right moment. For the best reason. With the right person.
+ - When you do things for others; don’t expect your good deeds to be returned. Do it because you enjoy making someone’s day.
+ - If you have a dream. Believe it. Work on it. Have faith in your heart and feel it explode within you. Be sincere about your dream. Mean what you say and do what you dream.
+ - Be nice until it becomes a habit. Give thanks like it is second nature.
+ - A lot of things in life seem impossible until it’s done. Don’t be afraid to attempt the impossible.
+ - When you love someone very much, you’d have to go through every tear, every heartache, every pain. Cause in the end, it’s not how much you suffered but how you loved.
+ - Don’t ever let anyone turn your sky into a ceiling.
+ - When your world is in pieces, you can choose to see it as crumbling or building. Your attitude, resilience and determination mark the difference.
+ - If you ever have to sacrifice something good, have faith that God will reward you with something GREAT.
+ - So remember what others think of you depends a lot on what you believe about yourself, what you think you are, what you think about, what you say and what you have proven you can do.
+ - When you change your thoughts and perception, you change the way you live.
+ - A good nail does not fear being hammered.
+ - Don’t be afraid to show your feelings. Wear your heart on your sleeves. The right one will see.
+ - Don’t be disheartened when you didn’t get to be with the one you love. Sometimes you just have to accept the reality that the one you asked God for, asked God for somebody else. God is All-Knowing. He knows what you need. Trust His master plan.
+ - Once in awhile, you do encounter bad acquaintance, mean people, toxic aura. Don’t let them rent space in your heart and mind. Don’t let anyone make you so upset that you become someone you don’t even recognise.
+ - When you love, love with with all your heart; don’t have any expectations. You love because that’s the only way you know how. It justifies your life.
+ - Give as much as you can at every possible opportunity. If you can’t afford to give money, give your time. If you can’t afford the time, give your heart. Blessings come back to you in unpredictable ways.
+ - Being hurt is a pesky part of being human. You are bound to meet people who will hurt you again and again. Instead of asking them why again and again, ask yourself why you let them again and again. As Mahatma Gandhi once said, “Nobody can hurt you without your permission.”
+ - When you face challenges, ask yourself what is the lesson here? Focus on the lesson and don’t complain about the test. Everything happens for a reason. Every person you meet, may teach you something – good or bad.
+ - There will always be real friends and fake friends. It is difficult to distinguish the two because both will appear the same in the beginning but so different at the end.
+ - A woman should not hold on to her man so tight, afraid to let him out of sight. A woman should give her man his space but hold on to his heart.
+ - Life is full of all sorts of people. You just need to know which hands to shake, which hands to hold and which hands to let go.
+ - When someone comes to you with big dreams, don’t be too quick to belittle their ambition and dreams. Inspire and help them in any way you can. Even the beautiful butterfly was once a caterpillar.
+ - When you are not sure on what to do, choose a life that is most meaningful to you and make it a habit.
+ - The ones who keep giving you reasons why you won’t succeed, are probably the ones who wish that you won’t. Listen to your heart. Follow your dream. It is not a question whether your dream is impossible. It is a question of how badly you want it.
+ - You can love many people. But the truth is you can only be IN LOVE with just ONE.
+ - When people are mean to you, win them over with kindness. If it doesn’t work, you still win.
+ - You may not plan for some things in life but your destiny will take you there.
+ - You can never be perfect. But you can always do a million good things, for yourself and for others. Start and end your day with good things and whatever challenges you face in between only make you stronger.
+ - Love does not come on schedule or on time. It comes unexpected, it comes unplanned. Do not shut your doors on love just because you’ve been hurt before. Let go of the need to be loved. Just be loving. Others will be able to see how loving and lovable you are when you express it.
+ - So, change lanes. Get your stride back. Don’t stay on a road that can only lead you to further devastation.
+ - Love is when you come home all tired but the love and passion in your heart make you strong.
+ - Follow your passion. Help people along the way. Work very very hard and always come prepared.
+ - Love cannot be measured over time and space. It is not how long you know each other, it is how well you know each other.
+ - The presence of many does not and cannot replace the absence of one. That is love.
+ - Sometimes you need to be terrified to your bones, in order for you to find your way to safety. Pain somewhat has this ability to push you beyond your comfort zone so that you can come back even stronger. To me, obstacles are not a hindrance but as stepping stones to success.
+ - But no matter what the outcome, how the friends turn out in the end, it should not stop you from making new friends. Once bitten, twice shy should not be applied to friendship.
+ - To lead happy, contented, peaceful lives, remember all the good times you share with others, forget all the good you do for others.
+ - The good nail will do its job regardless what kind of hammer comes its way and what kind of surface it sits on.
+ - Those who give up on their dreams shouldn’t influence you to give up on yours.
+ - A lot of things depend on your attitude. If it is good that you seek, it is good that you will find.
+ - When you work; don’t expect your talent to be discovered. Work hard because it makes you happy.
+ - I feel that we should always be a real friend, always, even to those who chose to be fake. Not because they are nice but because you are.
+ - You have to first believe in what you are, in what you can do, in what you say before you can make anybody believe in you.
+ - Purify your heart. Cleanse it. Make it a wake-up routine. Your environment may be harsh, difficult and tumultuous but if you work on your heart, you can be calm amidst all those challenges.
+
+51 quotes

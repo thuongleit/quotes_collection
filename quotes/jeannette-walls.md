@@ -1,0 +1,81 @@
+ - Optimism is a self-fulfilling prophecy.
+ - When God closes a door, he opens a window, but it’s up to you to find it.
+ - Teaching is a calling too. And I’ve always thought that teachers in their way are holy – angels leading their flocks out of the darkness.
+ - I’m a big believer in luck – the harder you work, the luckier you become.
+ - One benefit of Summer was that each day we had more light to read by.
+ - Life is a drama full of tragedy and comedy. You should learn to enjoy the comic episodes a little more.
+ - Life’s too short to care about what other people think. Besides, they should accept us for who we are.
+ - A lady’s hair is her crowning glory.
+ - Most important thing in life is learning how to fall.
+ - Books are my very favorite gift to give. If you give a book to someone and they really respond to it, you feel you’ve actually changed their life in some way.
+ - If you don’t want to sink, you better figure out how to swim.
+ - Memoir is about handing over you life to someone and saying, This is what I went through, this is who I am, and maybe you can learn something from it.
+ - We’re stronger than we realize.
+ - I believe that everyone has some huge talent in them; the really lucky ones discover what it is.
+ - It’s the Joshua tree’s struggle that gives it its beauty.
+ - Years from now, when all the junk they got is broken and long forgotten, you’ll still have your stars.
+ - You’re in a horse race but you’re thinking like a sheep. Sheep don’t win horse races.
+ - When people kill themselves, they think they’re ending the pain, but all they’re doing is passing it on to those they leave behind.
+ - Mom always said people worried too much about their children. Suffering when you are young is good for you, she said. It immunized your body and your soul.
+ - Nobody’s perfect. We’re all just one step up from the beasts and one step down from the angels.
+ - But no matter how much planning you do, one tiny miscalculation, one moment of distraction, can end it all in an instant.
+ - That was the thing to remember about all monsters, They love to frighten people, but the minute you stare them down, they turn tail and run.
+ - I became known as Lily Casey, the mustang-breaking, poker-playing, horse-race-winning schoolmarm of Coconino County, and it wasn’t half bad to be in place where no one had a problem with a woman having a moniker like that.
+ - Sometimes you have to get sicker before you can get better.
+ - I wanted to let the world know that no one had a perfect life, that even the people who seemed to have it all had their secrets.
+ - You should never hate anyone, even your worst enemies. Everyone has something good about them. You have to find the redeeming quality and love the person for that.
+ - Sometimes you need a little crisis to get your adrenaline flowing and help you realize your potential.
+ - All seasons have something to offer.
+ - If you want to be reminded of the love of the Lord, just watch the sunrise.
+ - Too much hard luck can create a permanent meanness of spirit in any creature.
+ - Once you’d resolved to go, there was nothing to it at all.
+ - If you had weak eyes, they needed exercise to get strong. Glasses were like crutches. They prevented people with feeble eyes from seeing the world on their own.
+ - You can’t prepare for everything life’s going to throw at you. And you can’t avoid danger. It’s there. The world is a dangerous place, and if you sit around wringing your hands about it, you’ll out on all the adventure.
+ - Sometimes something catastrophic can occur in a split second that changes a person’s life forever; other times one minor incident can lead to another and then another and another, eventually setting off just as big a change in a body’s life.
+ - You’ll never make a fortune working for the boss man.
+ - People are like animals. Some are happiest penned in, some need to roam free. You go to recognize what’s in her nature and accept it.
+ - Unlike diamonds, watches were practical. They were for people on the run, people with appointments to keep and schedules to meet.
+ - One of the most challenging aspects of writing a memoir is finding your own voice, and you should be very careful about being influenced by someone else’s voice.
+ - If you don’t think you’re hurt, then you aren’t.
+ - Life there was hard and it made people hard.
+ - I lived in a world that at any moment could erupt into fire. It was the sort of knowledge that kept you on your toes.
+ - Fussing over children who cry only encourages them. That’s positive reinforcement for negative behavior.
+ - Don’t you make fun of me or my children! Some babies are premature. Mine were all postmature. That’s why they’re so smart. Their brains had longer to develop.
+ - Maybe I should have cut him some slack. With his broken wing and lifetime of eating roadkill, he probably had a lot to be ungrateful about. Too much hard luck can create a permanent meanness of spirit in any creature.
+ - No child is born a delinquent. They only became that way if nobody loved them when they were kids. Unloved children grow up to be serial murderers or alcoholics.
+ - The fact is, you don’t love me, and you haven’t destroyed me. You don’t have what it takes to do that.
+ - In this world, it’s not enough to have a fine education. You need a piece of paper to prove you got it.
+ - When I got a little older, I started writing for the high school newspaper, ‘The Maroon Wave,’ and that’s when I fell in love with journalism.
+ - New Yorkers, I figured, just pretended to be unfriendly.
+ - God deals us all different hands. How we play ’em is up to us.
+ - Horses were never wrong. They always did what they did for a reason, and it was up to you to figure it out.
+ - What I do know is that wondering why you survived don’t help you survive.
+ - If you want to be treated like a mother, act like one.
+ - Confidence doesn’t come from thinking you’re perfect or flawless. That’s arrogance. Confidence comes from appreciating the beauty of your texture.
+ - Anyone who thinks he’s too small to make a difference has never been bit by a mosquito.
+ - When someone’s wounded, the first order of business is to stop the bleeding. You can figure out later how best to help them heal.
+ - I find books that have a moral and spiritual center, that speak to what is really important and lasting, hugely appealing.
+ - My older sister achieved her dream of being an artist. She’s an illustrator living in Manhattan.
+ - Dad was a philosopher and had what he called his Theory of Purpose, which held that everything in life had a purpose, and unless it achieved that purpose, it was just taking up space on the planet and wasting everybody’s time.
+ - I always wanted to be a serious journalist.
+ - You didn’t need a college degree to become one of the people who knew what was really going on. If you paid attention, you could pick things up on your own.
+ - The dangerous falls were the ones that happened so fast you didn’t have time to react.
+ - I never had any question that my parents loved me. I had a real sense of self confidence.
+ - My life is not just about the past.
+ - It’s so much of what art and creativity are, being able to confront your own demons. If you can do that, you can get through just about everything.
+ - I’m a fairly fast, but sloppy writer, so I’m a big fan of re-writing, and re-writing again.
+ - She was developing what Mom called a bit of a sarcastic streak.
+ - It’s really not that hard to put food on the table if that’s what you decide to do.
+ - My advice to anyone is to figure out what you’re good at – what it is that you love doing the most in life – and figure out a way to make a living from it.
+ - She never felt sorry for herself, and that was something I decided I admired most in people.
+ - Everything in life is gray, you know.
+ - Interesting people always have a past.
+ - I found out that people are incredibly compassionate and kind. It really changed my view of the world.
+ - It was good work, the kind of work that let you sleep soundly at night and, when you awoke, look forward to the day.
+ - Mom could say that in hindsight, but it seemed to me that when you were in the middle of something, it was awful hard to figure out what part of it was God’s will and what wasn’t.
+ - Whenever I’m reading a book I enjoy, I always develop a mental list of the people I want to share it with.
+ - I was so worried that people wouldn’t like me or my story.
+ - Horses are a mirror of who you are. They’re emotionally dependent on you.
+ - She had her addictions and one of them was reading.
+
+79 quotes

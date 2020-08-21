@@ -1,0 +1,42 @@
+ - Non-democratic regimes always need to mobilize their people against external enemies in order to maintain internal stability.
+ - In dictatorships you need courage to fight evil; in the free world you need courage to see evil.
+ - Free societies are societies in which the right of dissent is protected.
+ - They tried their best to find a place where I was isolated. But all the resources of a superpower cannot isolate the man who hears a voice of freedom, a voice I heard from the very chamber of my soul.
+ - Believe me, the drug of freedom is universally potent.
+ - When we are unwilling to draw clear moral lines between free societies and fear societies, when we are unwilling to call the former good and the latter evil, we will not be able to advance the cause of peace because peace cannot be disconnected from freedom.
+ - If you have to fight an enemy at a critical point in time, and you have an ally who happens to be a dictator, you don’t say: Let’s stop fighting right now, because you’re not a democrat. That would be ridiculous.
+ - The central premise behind Oslo was that if Arafat were given enough legitimacy, territory, weapons and money, he would use his power to fight terror and make peace with Israel.
+ - Will dissent be permitted? The answer to that question will determine whether the society is a free society or a fear society.
+ - The only peace that can be made with a dictator is once that must be based on deterrence. For today, the dictator may be your friend, but tomorrow he will need you as an enemy.
+ - I am optimistic that peace can be achieved in the region because I believe that every society on earth can be free and that if freedom comes to the Middle East, there can be peace.
+ - When did America forget that it’s America?
+ - It is not surprising, then, that in the decade since Oslo began, Arafat used all the resources placed at his disposal to fan the flames of hatred against Israel.
+ - Imagine if the United States, in its war against Hitler, had said to Stalin: we don’t want your support until you make your country democratic.
+ - My optimism is not based primarily on the successful march of democracy in recent times but rather is based on the experience of having lived in a fear society and studied the mechanics of tyranny that sustain such a society.
+ - The two most important things that can be done to promote democracy in the world is first, to bring moral clarity back to world affairs and second, to link international policies to the advance of democracy around the globe.
+ - Can someone within that society walk into the town square and say what they want without fear of being punished for his or her views? If so, then that society is a free society. If not, it is a fear society.
+ - Japan is not a Western democracy. The Japanese have kept their traditions, culture and heritage, but they have joined the community of free nations.
+ - Free nations generally look for ways to deal with dictators amicably.
+ - Arafat rejected the deal because, as a dictator who had directed all his energies toward strengthening the Palestinians hatred toward Israel, Arafat could not afford to make peace.
+ - When a man is afraid and accedes to fear, he will always find arguments to justify his own surrender.
+ - Unfortunately, little attention was paid to how Arafat ruled. In fact, some saw the harsh and repressive nature of Arafat’s regime as actually bolstering the prospects for peace.
+ - Bush explained his fundamental concept to me, that freedom is not an American invention, but rather a gift from God to all people.
+ - By focusing once and for all on helping the Palestinians build a free society, I have no doubt that an historic compromise between Israelis and Palestinians can be reached and that peace can prevail.
+ - Democratic leaders, whose power is ultimately dependent on popular support, are held accountable for failing to improve the lives of their citizens. Therefore, they have a powerful incentive to keep their societies peaceful and prosperous.
+ - People may believe that there can be a society where dissent is not permitted, but which is nonetheless not a fear society because everyone agrees with one another and therefore no one wants to dissent.
+ - To understand why dictators have a problem with making peace – or at least a genuine peace – the link between the nature of a regime and its external behavior must be understood.
+ - On the other hand, if the free world is concerned with how a new Palestinian leader governs, then the peace process will have a real chance to succeed.
+ - It is important to remember that some of the most serious thinkers once thought that democracy was not compatible with the cultures of Germany, Italy, Japan, Latin America and Russia.
+ - I have no doubt that given a real choice, the vast majority of Muslims and Arabs, like everyone else will choose a free society over a fear society.
+ - Of course, there can be serious injustices within free societies.
+ - Those who warned that Gorbachev was being put under too much pressure were wrong.
+ - Just as the 99% of Soviet citizens who supported the Soviet regime in 1985 was no indication of what the people inside the USSR really thought, the army of true believers that we think we see in the Arab world is an illusion.
+ - This scepticism is the same scepticism I heard a generation ago in the USSR when few thought that a democratic transformation behind the iron curtain was possible.
+ - My theory is that security – also against terror – can only be accomplished through global democratization.
+ - As soon as people become a little less fearful, they will also begin demanding more freedom.
+ - The three main sources of scepticism are first, that not every people desires freedom second, that democracy in certain parts of the world would be dangerous and third, that there is little the world’s democracies can do to advance freedom outside their countries.
+ - The message of the free world to any potential Palestinian leadership should be a simple one: Embrace democratic reform and we will embrace you.
+ - I was inspired to write this book by those who are sceptical of the power of freedom to change the world.
+ - Only weeks after Oslo began, when nearly all the world and most of Israel was drunk with the idea of peace, I argued that a Palestinian society not constrained by democratic norms would be a fear society that would pose a grave threat to Israel.
+
+40 quotes

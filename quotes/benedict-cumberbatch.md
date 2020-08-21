@@ -1,0 +1,132 @@
+ - Live a life less ordinary.
+ - I’m a high-functioning sociopath, do your research.
+ - I keep myself amused and others confused.
+ - The further you get away from yourself, the more challenging it is. Not to be in your comfort zone is great fun.
+ - Enjoy the journey of life and not just the endgame. I’m also a great believer in treating others as you would like to be treated.
+ - Because reading is one of the joys of life, and once you begin, you can’t stop, and you’ve got so many stories to look forward to.
+ - Looking for happiness is a sure way to sadness, I think. You have to take each moment as it comes.
+ - Enjoy the journey of life and not just the endgame.
+ - The world of ‘Sherlock Holmes’ and the world that we live in now is big enough to take more than one interpretation.
+ - I’ve been reading the books. It’s the origination, it’s the primary source. You should always go back to the books.
+ - You come into this world as you leave it, on your own. It’s made me want to live a life slightly less ordinary.
+ - You’re wrong, you know. You do count. You’ve always counted and I’ve always trusted you. But you were right. I’m not okay.
+ - My mum and dad had worked incredibly hard to afford me an education.
+ - I can feel infinitely alive curled up on the sofa reading a book.
+ - I’m really not Sherlock Holmes. I look a little bit like him and sound like him.
+ - I’ll always do ‘Sherlock’ – it’s something I’m not going to give up on.
+ - I’m not loyal to one genre. I want to mix it up.
+ - A woman who knows that she doesn’t have to get all decked out to look good is sexy. A woman who can make you feel smart with her conversation skills is also sexy. I believe the sense of humor is important.
+ - I drag a lot of stuff round with me that I don’t need.
+ - New York City is crazy and beautiful and really close to my heart, and I’ve always had dear friends here – family, actually, I would say.
+ - Mystique is rare now, isn’t it? There aren’t that many enigmas in this modern world.
+ - I remember very clearly someone saying, ‘Don’t shake hands with the cactus,’ and I thought, ‘Well, why not? What could possibly go wrong?’ Shaking hands is a friendly gesture.
+ - Fame is a weird one. You need to distance yourself from it. People see a value in you that you don’t see yourself.
+ - Look at you lot, you’re all so vacant, is it nice not being me it must be so relaxing.
+ - I’m sort of focused on my long-term goal of carving out a career that’s for life, rather than being a flash in the pan.
+ - If you have an over-preoccupation with perception and trying to please people’s expectations, then you can go mad.
+ - I love theatre, and you learn too much as an actor and enjoy too much of it not to want to go back a lot.
+ - I try to work hard. I’m really proud of what I get to do as a living. I still pinch myself. But I also know it’s a craft, and I can get better at it and learn every time I do it. So I try to work hard no matter what the task is.
+ - I’m quite sensitive to people noticing me. There are times when I’m relaxed, then others when it does make me self-conscious.
+ - I ate healthily, but there was no snacking, no drinking, no bread, no sugar, no smoking. Afterwards I had a pork belly roast.
+ - We have a lot more unlikely heroes now. It’s not just the guy with guns – it’s the guy with brains.
+ - I drive a motorbike, so there is the whiff of the grim reaper round every corner, especially in London.
+ - I have actual acting scars.
+ - I’ve been quite a late developer on the clothes front, but I’ve suddenly realised it is one of life’s joys.
+ - I actually do mind having a photo taken because it’s one o’clock in the morning and I’m off my face.
+ - Maybe it’s because I was an only child, but I’ve always wanted kids.
+ - I am a PR disaster because I talk too much.
+ - It is a wonderful thing to get married young and become a father.
+ - I am very flattered. I have also become a verb as in “I have cumberbatched the UK audience” apparently. Who knows, by the end of the year I might become a swear word too! It’s crazy and fun and very flattering.
+ - Conan Doyle is amazing in the way he has Watson describe Sherlock’s posture, mood swings, his hand gestures, and so forth in the novels.
+ - When you’re a kid, ‘Star Trek’ is a slower burn. It’s funny, it’s entertaining, but it also has a maturity about it – which is its universal appeal, I think.
+ - Do I like being thought of as attractive? I don’t know anyone on Earth who doesn’t, but I do find it funny.
+ - Do I like being thought of as attractive? I don’t know anyone on Earth who doesn’t, but I do find it funny. I look in a mirror and I see all the faults I’ve lived with for 35 years and yet people go kind of nuts for certain things about me. It’s not me being humble. I just think it’s weird.
+ - Having your adolescence at an all-male boarding school is just crap.
+ - Our daily lives are so mundane, we get taken over by what is immediately in front of us and we don’t see beyond that.
+ - When you freefall for 7,000 feet it doesn’t feel like you’re falling: it feels like you’re floating, a bit like scuba diving.
+ - I just increasingly enjoy the quiet moments when I can be on my own with my friends and family, or with a book, having a live experience. That’s really what I crave, and I always have done.
+ - I’m still very sensitive and wary of people recognising me The only thing that really annoys me is people trying to surreptitiously take a photo on their phone without asking. I feel it’s cowardly and a bit pathetic. Just ask me if you really want me to have a photograph with you.
+ - I don’t live beyond my means. I enjoy luxury and I enjoy the privilege of it, when I can afford it, and I’m in the situation where it’s been given to me, but I’m very conscious of what is wasteful.
+ - I realised quite early on that, although I wasn’t trying to make a career speciality of it, I was playing slightly asexual, sociopathic intellectuals.
+ - Being in front of an audience makes me feel alive. Being with friends makes me feel alive. I’ve done some crazy stuff in my time and yet I can feel infinitely alive curled up on a sofa reading a book. So, what makes me feel alive? I guess it’s realizing I am part of the world around me.
+ - Lines are very difficult to learn.
+ - I had a real yearning to make use of the opportunities I had at school. When I heard about the gap year of teaching English at a Tibetan monastery, I knew I had to do something about it really quickly, otherwise it was going to get allocated.
+ - Do awards change careers? Well, I haven’t heard of many stories where that’s the case. It’s a fun excuse to meet colleagues and celebrate people who’ve done well that year in certain people’s eyes, and it’s nothing more than that.
+ - There’s no shame in stealing – any actor who says he doesn’t is lying. You steal from everything.
+ - I did a lot of acting at school and university, then I went to drama school. It was quite a normal route.
+ - Upper class to me means you are either born into wealth or you’re Royalty.
+ - There’s still nearly the same amount of slavery, if not more, in the world today, as there was at the height of the slave trade.
+ - Cumberbatch – it sounds like a fart in a bath, doesn’t it? What a fluffy old name. I can never say it on a Monday morning. When I became an actor, Mum wasn’t keen on me keeping it.
+ - We all want to escape our circumstances, don’t we? Especially if you are an actor.
+ - I had the privilege of being able to choose, or at least have the opportunity to work at, being anything but an actor.
+ - If I’m playing someone who’s smart, suddenly every character I’ve played is smart. If I’m playing a bad guy, every character is a bad guy. I suppose it’s that thing where people want to see a through-line to understand you. I mean, you know, I have played pretty ordinary people too.
+ - People’s hands fascinate me. It’s tempting to look at a businessman’s left hand and see if there’s an indentation from a missing wedding ring. Or maybe there’s a tan line and the skin is pressed down where’s he’s worked a ring off his finger.
+ - If I’d had fame early on, I’d have been able to abuse it in the way that a young man should.
+ - I’m a Prince of Wales Trust ambassador, so I’m all about giving youth an education, a voice and a chance to not take the wrong road.
+ - You have to sometimes just run with the problem rather than trying to solve it with hi-tech wizardry and lots of planning.
+ - One of the fears of having too much work is not having time to observe. And once you get recognised, there is nowhere for you to look any more. You can’t sit on a night bus and watch it all happen.
+ - I’ve always wanted to play a spy, because it is the ultimate acting exercise. You are never what you seem.
+ - One of the best things about being an actor is that it’s a meritocracy.
+ - Being a posh actor in England you cannot escape the class-typing from whatever side you look at it.
+ - I thought, well, why am I giving up on my primary dream to work doubly hard, to do something as an alternative to what it really still want to?
+ - People always want to knock you when you’re up.
+ - Any privacy in public is a hard thing to negotiate.
+ - I like to think that we’re revolving on this planet and revolving through the galaxy. I love having context that’s so much bigger than I can fathom. It’s fantastic to realise how insignificant you are.
+ - My own grandfathers were a submarine commander and a ‘desert rats’ tank operator in the Second World War.
+ - I want to be able to play trailer-bound fatties in a Judd Apatow comedy.
+ - Metaphorically speaking, it’s easy to bump into one another on the journey from A to B and not even notice. People should take time to notice, enjoy and help each other.
+ - I never was obsessive about anything I watched when I was a kid, except maybe ‘The A-Team’ and ‘Airwolf’ And I loved ‘Knight Rider’ and then later ‘Baywatch.’
+ - It’s difficult because nothing’s preordained by plan and you can’t control it. That’s one of those joys and thrills and nerve-racking realities of being an actor. A lot has to do with luck, no matter what your talent or contribution can be.
+ - I was brought up in a world of privilege.
+ - When you see a good horseman, you’re unable to tell where the instruction is coming from. It’s like telepathy.
+ - I’m not an overnight success. I’ve been doing it for 12 years. It’s been lovely and varied so far.
+ - I’m always playing characters with intellects profoundly superior to mine. That’s great fun, even though it’s as much a fantasy for me as for the people watching me.
+ - It’s always important to have the blessing.
+ - I’ve turned up to costume parties in the wrong costume. I’ve made social faux pas a plenty. I’ve put one foot in front of the other and fallen over.
+ - I struggle to learn by rote. I’ve had meltdowns on set. Which is embarrassing and shameful.
+ - Landing the role of Stephen Hawking was the most positively surprising thing that has happened to me.
+ - When are you ever settled enough to have kids?
+ - I haven’t done period dramas back-to-back, or really anything back-to-back. You get asked to do what you’re most recently famed for, so I’m careful of not repeating myself.
+ - I was thrilled with how the first series of ‘Sherlock’ was received. It was such great fun to film, which makes it so rewarding when something you enjoy is so well received.
+ - It’d be really nice to wake up looking like, I don’t know, Jake Gyllenhaal and think, ‘Let’s try this on for a day and see how it feels.’
+ - I have an appetite for the normal in my life, as well as the abnormal.
+ - There are moments when, like all of us, you get a bit self-conscious and you’d rather not be living any of your day in public. Those are the awkward times, but you’ve got to have fun with it.
+ - Every job is incredibly different, and I love it because you’re picking up skill sets and experiences. It’s the university of life.
+ - It’s great for the people who supported me early on to see the success I’m enjoying.
+ - I think with any characterization there’s a point where you empathize, no matter how much of a deviance his or her actions may be from your understanding of humanity.
+ - I’m interested in art for all. I don’t want it to be only the sons and daughters of Tory MPs who get to see my plays.
+ - I wasn’t born into land or titles, or new money, or an oil rig.
+ - It still makes me giggle that I’m paid to act.
+ - Animations are really powerful – it’s not just entertainment, it’s a very cunning way to get good ideas across.
+ - Pull the hair on my head the wrong way, and I would be on my knees begging for mercy. I have very sensitive follicles.
+ - I always get self-conscious about what I look like in a film, but less so if I’m a character very far removed from who I am. Then I just worry about the performance, and that’s equally an odd experience.
+ - I’m not confident in social situations; just going up to someone in a bar and saying ‘Hi’ is going to be even more difficult because they won’t know the real me. They will just know me as a fictional person I play on the screen.
+ - Someone will always hate what I say. There’s always going to be somebody spitting blood about my wooden-faced, toffee-named, crappy acting.
+ - I was the boy that turned a girlfriend into the most celebrated lesbian on television. I got so much stick for that.
+ - I think now with fundamentalists, people who treat belief with a total lack of humor or empathy for any other viewpoint than their own – they, to me, are the enemy. And those people are born out of desperate extremes.
+ - Being on set is quite difficult, because it’s so big and you’ve got to try and relax, which isn’t easy when you know you’re in a massive film. I was terrified for quite a long time.
+ - We’re living through a time where we are fighting wars fostered by politics, admittedly not on the same scale as the First World War, but with equally tragic realities for our soldiers and their families.
+ - It does get strange when you realize people will hang around for hours to get a glimpse of you doing scenes outside.
+ - I can’t stop traffic on Fifth Avenue, not unless I walk in front of an oncoming cab.
+ - I love doing impersonations of people.
+ - There’s so much in the 21st century that is stymied by bureaucracy and mediocrity and committee.
+ - What makes a good animated movie is being able to balance adult and knowing in-jokes and also just out and out funny things that make all people laugh. The idea that it’s actually something that will appeal to a family, that’s the trick.
+ - To get a horse to hit a mark without a rider, to get it to stand up, to get it to rear, to get it to pick up a bucket and bring it over is amazing. It’s hard work and very rewarding but can be dangerous.
+ - I want to do it all. I want to climb mountains, go through jungles, fight wars in space, get the girl, shoot the bad-guy full of lead, have all the zippy one liners, bulge muscles out of a singlet, drip sweat and blood on screen, all of that.
+ - I’ve realised now that the reality of children is you have to be in the right place with the right person.
+ - All the backstories are there but not talked about.
+ - Talking about class terrifies me. There is no way of winning.
+ - I’ve seen and swam and climbed and lived and driven and filmed. Should it all end tomorrow, I can definitely say there would be no regrets. I am very lucky, and I know it. I really have lived 5,000 times over.
+ - As an actor, you are aware of how a role can seep into your real life.
+ - I was always performing, doing silly voices. The teachers realized I could go one of two ways: be creative or destructive.
+ - I play enough other mad people, as well and some sane people, to vary the palette of what’s scrabbling around in my head and soul to bring to the floor, as a storyteller.
+ - The more charming person is the person who admits the other person is more charming.
+ - There’s a huge raft of roles that actors in our culture perform, and you can see any one of about three Hamlets in a year. It’s not something to be completely daunted by.
+ - Mum did a lot of commercial theatre and farces in the 1980s and ’90s to make sure the school bills were paid.
+ - When you start getting jobs, and see your mates from drama school, you don’t really want to talk about it, because you have this innate sense of guilt that it’s not fair that others aren’t doing exactly what you’re doing. I do have that.
+ - I’m not very geeky. I’m quite homespun. I would say I’m more modern rustic than gadget-orientated. I like woollen things and log fires and whiskey.
+ - The number of people my age, younger now, a whole generation younger, who are fiercely bright, over-educated, under-employed and who are politicised and purposeless really upsets me. It’s soul-destroying.
+ - The armoury of having any academic education does not necessarily set you up for being a good or better actor.
+ - I’ve been broody since I was 12, but I can’t just get anyone pregnant. It has got to be the right person.
+
+130 quotes

@@ -1,0 +1,34 @@
+ - A key factor is to do training that is fun.
+ - It is always possible to improve.
+ - Behind every good decathlete, there’s a good doctor.
+ - The Olympic Games of the Modern Era began in 1896 in the city of Athens.
+ - Nutrition is also a valuable component that can help athletes both protect themselves and improve performance.
+ - Anabolic steroids were not banned until after the 72 Olympics.
+ - Realize that from the start, every activity that comprises the journey has value and the ability to teach you something.
+ - As I mentioned previously, the tools that allow for optimum health are diet and exercise.
+ - People need to know that by donating, coaching, and just lending support, anyone can become part of the wonderful global family.
+ - The East Germans first used biomechanics. This meant that rather than guessing about technique and form, they could apply changes to athletic performance based on science.
+ - The greatest feeling of accomplishment for me is the fact that I was an athlete who was somewhat disabled.
+ - Whatever pursuit you undertake, the requirements should start with a love of what it is that you are pursuing.
+ - There is no magic move or secret that creates victory but lots of little items that, when added together, can make you victorious.
+ - We have made drugs an Olympic event. It receives most of the coverage at the Games and even the suspicion of guilt can ruin a reputation for life.
+ - The Ancient Games are relatively obscure to most Olympians, but to understand just what the Games are about, it is really necessary to investigate the roots and the meaning that has transformed culture and society for so many years.
+ - I have competed before empty stadiums a lot in my career.
+ - Athens will again be the host of the Games in 2004, but there are rumors that they might be switched if the Greeks don’t begin to construct the sites faster.
+ - Once you have selected a sport or a creative activity, the rules are pretty much the same.
+ - Too many athletes don’t have the ability to set a goal and then carefully go towards it.
+ - One of the key elements is the ability to be honest with yourself.
+ - The ability to mingle with so many countries and cultures is extremely valuable for men and women.
+ - Actually, the moment of victory is wonderful, but also sad. It means that your trip is ended.
+ - My family knew, but most of the sporting world did not realize that my right hand been some 75% paralyzed.
+ - I have read many studies out of the Karolinska Institute in Sweden and they demonstrated that Vitamin E, Co-Q-10, and Fish Oil could protect the immune system of athletes and prevent disease.
+ - Understand from top to bottom what the effort requires.
+ - A buddy will keep you honest and add a dimension of fun to your workout.
+ - Olympians are the product of the Movement, and to get them to the stadiums, pools and playing fields, it takes the actions of legions of people who might not be Olympians.
+ - I think that money has changed my sport.
+ - Past Olympians have a continuing role within the Olympic family.
+ - My Olympic voyage has continued because it is so rewarding.
+ - Too many athletes do not admit their weaknesses.
+ - The fans and supporters are also part of the Olympic family.
+
+32 quotes

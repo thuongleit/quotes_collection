@@ -1,0 +1,93 @@
+ - Life is a verb, not a noun.
+ - The home is the center and circumference, the start and the finish, of most of our lives.
+ - I have preferred chloroform to cancer.
+ - In a sick society, women who have difficulty fitting in are not ill but demonstrating a healthy and positive response.
+ - To be surrounded by beautiful things has much influence upon the human creature; to make beautiful things has more.
+ - A man’s honor always seems to want to kill a woman to satisfy it.
+ - So when the great word “Mother!” rang once more, I saw at last its meaning and its place; Not the blind passion of the brooding past, But Mother – the World’s Mother – come at last, To love as she had never loved before – To feed and guard and teach the human race.
+ - Love grows by service.
+ - It is dull enough to confuse the eye in following, pronounced enough to constantly irritate and provoke study, and when you follow the lame uncertain curves for a little distance they suddenly commit suicide – plunge off at outrageous angles, destroy themselves in unheard of contradictions.
+ - At any given period in history the ideas of the common mind are found to antedate the facts. The facts of the twentieth century are approached with the ideas, feelings, prejudices of the tenth.
+ - Concepts antedate facts.
+ - Only as we live, think, feel, and work outside the home, do we become humanly developed, civilized, socialized.
+ - The mother- poor invaded soul- finds even the bathroom door no bar to hammering little hands.
+ - What we do modifies us more than what is done to us.
+ - It is not that women are really smaller-minded, weaker-minded, more timid and vacillating, but that whosoever, man or woman, lives always in a small, dark place, is always guarded, protected, directed and restrained, will become inevitably narrowed and weakened by it.
+ - To swallow and follow, whether old doctrine or new propaganda, is a weakness still dominating the human mind.
+ - There is no female mind. The brain is not an organ of sex. As well speak of a female liver.
+ - A house does not need a wife any more than it needs a husband.
+ - I was climbing up a mountain-path With many things to do, Important business of my own, And other people’s too, When I ran against a Prejudice That quite cut off the view.
+ - The time is approaching when we shall consider it abhorrent to our civilization to allow a human being to die in prolonged agony which we should mercifully end in any other creature.
+ - It is the duty of youth to bring fresh new powers to bear on Social progress. Each generation of young people should be to the world like a vast reserve force to a tired army. They should life the world forward. That is what they are for.
+ - In New York City, everyone is an exile, none more so than the Americans.
+ - Let us inquire what glory there was in an omnipotent being torturing forever a puny little creature who could in no way defend himself? Would it be to the glory of a man to fry ants?
+ - Where young boys plan for what they will achieve and attain, young girls plan for whom they will achieve and attain.
+ - The labor of women in the house, certainly, enables men to produce more wealth than they otherwise could; and in this way women are economic factors in society. But so are horses.
+ - Death is the essential condition of life, not an evil.
+ - It is told that Buddha, going out to look on life, was greatly daunted by death. “They all eat one another!” he cried, and called it evil. This process I examined, changed the verb and said, “They all feed one another,” and called it good.
+ - I cry at nothing, and cry most of the time.
+ - Architecture might be more sportive and varied if every man built his own house, but it would not be the art and science that we have made it; and while every woman prepares food for her own family, cooking can never rise beyond the level of the amateur’s work.
+ - Until we see what we are, we cannot take steps to become what we should be.
+ - As for mother Eve – I wasn’t there and can’t deny the story, but I will say this. If she brought evil into the world, we men have had the lion’s share of keeping it going ever since.
+ - For men obsessed with women’s underwear, a course in washing, ironing and mending is recommended.
+ - The most familiar facts are often hardest to understand.
+ - While we flatter ourselves that things remain the same, they are changing under our very eyes from year to year, from day to day.
+ - To speak broadly, the troubles of life as we find them are mainly traceable to the heart or the purse.
+ - I used to lie awake as a child and get more entertainment and terror out of blank walls and plain furniture than most children could find in a toy-store.
+ - One religion after another has accepted and perpetuated man’s original mistake in making a private servant of the mother of the race.
+ - To attain happiness in another world we need only to believe something, while to secure it in this world we must do something.
+ - Specialization and organization are the basis of human progress.
+ - Grateful return for happiness conferred is not the method of exchange in a partnership. The comfort a man takes with his wife is not in the nature of a business partnership, nor are her frugality and industry.
+ - Death? Why this fuss about death? Use your imagination, try to visualize a world without death! Death is the essential condition of life, not an evil.
+ - It is the same woman, I know, for she is always creeping, and most women do not creep by daylight.
+ - But reason has no power against feeling, and feeling older than history is no light matter.
+ - The best proof of man’s dissatisfaction with the home is found in his universal absence from it.
+ - The home is a human institution. All human institutions are open to improvement.
+ - But we were made to believe and not allowed to think. We were told to obey, rather than to experiment and investigate.
+ - However, one cannot put a quart in a pint cup.
+ - Never in all her life had she imagined that this idolized millinery could look, to those who paid for it, like the decorations of an insane monkey.
+ - I ran against a Prejudice that quite cut off the view.
+ - Maternal instinct, merely as an instinct, is unworthy of our superstitious reverence.
+ - A family unity which is only bound together with a table-cloth is of questionable value.
+ - The first duty of a human being is to assume the right functional relationship to society – more briefly, to find your real job, and do it.
+ - The child learns more of the virtues needed in modern life-of fairness, of justice, of comradeship, of collective interest and action-in a common school than can be taught in the most perfect family circle.
+ - There’s heaven. There it is. What more do we mean? People, free to come together, and in beauty – for growth.
+ - When the mother of the race is free, we shall have a better world, by the easy right of birth and by the calm, slow, friendly forces of evolution.
+ - The children in this country are the one center and focus of all our thoughts. Every step of our advance is always considered in its effect on them-on the race. You see, we are MOTHERS, she repeated, as if in that she had said it all.
+ - The stony-minded orthodox were right in fearing the first movement of new knowledge and free thought. It has gone on, and will go on, irresistibly, until some day we shall have no respect for an alleged “truth” which cannot stand the full blaze of knowledge, the full force of active thought.
+ - Exciting literature after supper is not the best digestive.
+ - The women who do the most work get the least money, and the women who have the most money do the least work.
+ - We grovel and “worship” and pray to God to do what we ourselves ought to have done a thousand years ago, and can do now, as soon as we choose.
+ - It is not for nothing that a man’s best friends sigh when he marries, especially if he is a man of genius.
+ - The mother as a social servant instead of a home servant will not lack in true mother duty. From her work, loved and honored though it is, she will return to her home life, the child life, with an eager, ceaseless pleasure, cleansed of all the fret and fraction and weariness that so mar it now.
+ - The world is quite right. It does not have to be consistent.
+ - But I MUST say what I feel and think in some way – it is such a relief! But the effort is getting to be greater than the relief.
+ - When all usefulness is over, when one is assured of an unavoidable and imminent death, it is the simplest of human rights to choose a quick and easy death in place of a slow and horrible one.
+ - A man does not have to stay at home all day, in order to love it; why should a woman?
+ - A normal feminine influence in recasting our religious assumptions will do more than any other one thing to improve the world.
+ - To work is not only a right, it is a duty. To work to the full capacity of one’s powers is necessary for human development – the full use of one’s best faculties – this is the health and happiness for both man and woman.
+ - California is a state peculiarly addicted to swift enthusiasms. It is a seed-bed of all manner of cults and theories, taken up, and dropped, with equal speed.
+ - It would have saved trouble had I remained Perkins from the first, this changing of women’s names is a nuisance we are now happily outgrowing.
+ - If a woman is really injured by her marriage, she should sue under the employer liability act. She should claim damages – not alimony.
+ - A concept is stronger than a fact.
+ - There was a time when Patience ceased to be a virtue. It was long ago.
+ - The difference is great between one’s outside “life,” the things which happen to one, incidents, pains and pleasures, and one’s “living.”
+ - We have built into the constitution of the human race the habit and desire of taking, as divorced from its natural precursor and concomitant of making.
+ - There are things in that paper that nobody knows but me, or ever will.
+ - Patriotism, red hot, is compatible with the existence of a neglect of national interests, a dishonesty, a cold indifference to the suffering of millions. Patriotism is largely pride, and very largely combativeness. Patriotism generally has a chip on its shoulder.
+ - I’m sure I never used to be so sensitive. I think it is due to this nervous condition.
+ - Shall you complain who feed the world? Who clothe the world? Who house the world? Shall you complain who are the world, Of what the world may do? As from this hour You use your power, The world must follow you!
+ - What would have been the effect upon religion if it had come to us through the minds of women?
+ - Habits of thought persist through the centuries; and while a healthy brain may reject the doctrine it no longer believes, it will continue to feel the same sentiments formerly associated with that doctrine.
+ - Eternity is not something that begins after you are dead. It is going on all the time.
+ - It will be a great thing for the human soul when it finally stops worshipping backwards.
+ - The peculiarity of all death-based religions is that their subject-matter is entirely outside of facts. Men could think and think, talk and argue, advance, deny, assert, and controversy, and write innumerable books, without being hampered at any time by any fact.
+ - Not woman, but the condition of woman, has always been a doorway of evil.
+ - Audiences are always better pleased with a smart retort, some joke or epigram, than with any amount of reasoning.
+ - In great cities where people of ability abound, there is always a feverish urge to keep ahead, to set the pace, to adopt each new fashion in thought and theory as well as in dress – or undress.
+ - Fine blunderers in ethics we are, so generally conveying to children the basic impression that pleasantness must be wrong, and right doing unpleasant!
+ - There should be an end to the bitterness of feeling which has arisen between the sexes in this century.
+ - Until mothers earn their livings, women will not.
+ - In business life, that is, in its material processes, we eagerly accept the new. In social life, in all our social processes, we piously, valiantly, obdurately, maintain the old.
+
+91 quotes

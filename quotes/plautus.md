@@ -1,0 +1,184 @@
+ - Man proposes, God disposes.
+ - Practice yourself what you preach.
+ - A word to the wise is sufficient.
+ - You must spend money to make money.
+ - The man who masters his own soul will forever be called conqueror of conquerors.
+ - No man is wise enough by himself.
+ - Courage in danger is half the battle.
+ - Nothing but heaven itself is better than a friend who is really a friend.
+ - Patience is the best remedy for every trouble.
+ - Where there are friends there is wealth.
+ - Spice a dish with love and it pleases every palate.
+ - One eye-witness weighs more than ten hearsays – Seeing is believing all the world over.
+ - Courage is its own reward.
+ - A woman without paint is like food without salt.
+ - Your wealth is where your friends are.
+ - Consider the little mouse, how sagacious an animal it is which never entrusts its life to one hole only.
+ - What is yours is mine, and all mine is yours.
+ - He whom the Gods love dies young.
+ - Nothing is more wretched than the mind of a man conscious of guilt.
+ - Things we do not expect, happen more frequently than we wish.
+ - Unexpected results are the rule rather than the exception.
+ - A well-balanced mind is the best remedy against affliction.
+ - To love is human, it is also human to forgive.
+ - The woman who has the best perfume is she who has none.
+ - It is wisdom to think upon anything before we execute it.
+ - If you have overcome your inclination and not been overcome by it, you have reason to rejoice.
+ - You love a nothing when you love an ingrate.
+ - One eye witness is better than ten hear sayers.
+ - Let us celebrate the occasion with wine and sweet words.
+ - In everything the middle road is best.
+ - Flying without feathers is not easy; my wings have no feathers.
+ - Fortitude is a great help in distress.
+ - Where there are sheep, the wolves are never very far away.
+ - The day, water, sun, moon, night – I do not have to purchase these things with money.
+ - There are occasions when it is undoubtedly better to incur loss than to make gain.
+ - As long as she is wise and good, a girl has sufficient dowry.
+ - When you fly from temptation, don’t leave a forwarding address. Where there’s smoke there’s fire.
+ - To a well deserving person God will show favor. To an ill deserving person He will simply be just.
+ - The Bell never rings of itself; unless some one handles or moves it it is dumb.
+ - He is a friend indeed who proves himself a friend in need.
+ - Women have many faults, but the worst of them all is that they are too pleased with themselves and take too little pains to please the men.
+ - How often the highest talent lurks in obscurity.
+ - The gods confound the man who first found out How to distinguish hours! Confound him, too, Who in this place set up a sun-dial, To cut and hack my days so wretchedly Into small portions.
+ - It well becomes a young man to be modest.
+ - The greatest talents often lie buried out of sight.
+ - Let deeds match words.
+ - Arrogance is the outgrowth of prosperity.
+ - Never speak ill of an absent friend.
+ - It is a bitter disappointment when you have sown benefits, to reap injuries.
+ - It is good to love in a moderate degree; but it is not good to love to distraction.
+ - Not by age but by capacity is wisdom acquired.
+ - Vulgarity of manners defiles fine garments more than mud.
+ - He that would eat the nut must crack the shell.
+ - In grasping at uncertainties we lost that which is certain.
+ - Slander-mongers and those who listen to slander, if I had my way, would all be strung up, the talkers by the tongue, the listeners by the ears.
+ - A man with courage has every blessing.
+ - He whom the gods love dies young, while he is in health, has his senses and his judgments sound.
+ - Courage is what preserves our liberty, safety, life, and our homes and parents, our country and children. Courage comprises all things.
+ - All men love themselves.
+ - That wife is an enemy to her husband who is given in marriage against her will.
+ - He is happy in his wisdom who has learned at another’s expense.
+ - Property is unstable, and youth perishes in a moment. Life itself is held in the grinning fangs of Death, Yet men delay to obtain release from the world. Alas, the conduct of mankind is surprising.
+ - That man is worthless who knows how to receive a favor, but not how to return one.
+ - If you are content, you have enough to live comfortably.
+ - No blessing lasts forever.
+ - Because those, who twit others with their faults, should look at home.
+ - It is difficult to fly without wings.
+ - That’s a miserable and cursed word, to say I had, when what I have is nothing.
+ - Things unhoped for happen oftener than things we desire.
+ - Let not your expenditure exceed your income.
+ - Good things soon find a purchaser.
+ - The man who would be fully employed should procure a ship or a woman, for no two things produce more trouble.
+ - Man is no man, but a wolf.
+ - All good men and women should be on their guard to avoid guilt, and even the suspicion of it.
+ - It is wretched business to be digging a well just as thirst is mastering you.
+ - For I know that many good things have happened to many, when least expected; and that many hopes have been disappointed.
+ - It wasn’t for nothing that the raven was just now croaking on my left hand.
+ - If you want to do something, do it!
+ - To snatch the worm from the trap.
+ - Whatever disgrace we may have deserved, it is almost always in our power to re-establish our character.
+ - Men understand the worth of blessings only when they have lost them.
+ - For enemies carry about slander not in the form in which it took its rise. The scandal of men is everlasting; even then does it survive when you would suppose it to be dead.
+ - It is the nature of the unfortunate to be spiteful, and to envy those who are well to do.
+ - Let a man who wants to find abundance of employment procure a woman and a ship: for no two things do produce more trouble if you begin to equip them; neither are these two things ever equipped enough.
+ - A mouse relies not solely on one hole.
+ - I count him lost, who is lost to shame.
+ - I much prefer a compliment, even if insincere, to sincere criticism.
+ - The prudent man really frames his own fortunes for himself.
+ - Love has both its gall and honey in abundance: it has sweetness to the taste, but it presents bitterness also to satiety.
+ - To an honest man, it is an honor to have remembered his duty.
+ - He who tries to protect himself from deception is often cheated, even when most on his guard.
+ - Give assistance, and receive thanks lighter than a feather: injure a man, and his wrath will be like lead.
+ - Drink, live like the Greeks, eat, gorge.
+ - Disgrace is immortal, and living even when one thinks it dead.
+ - There’s no such thing, you know, as picking out the best woman: it’s only a question of comparative badness, brother.
+ - It is common to forget a man and slight him if his good will cannot help you.
+ - I seek the utmost pleasure and the least pain.
+ - To waste one’s breath; to pump into a sieve.
+ - No man will be respected by others who is despised by his own relatives.
+ - It is not fair to treat as serious that which is only said in joke.
+ - Bad conduct soils the finest ornament more than filth.
+ - It is sheer folly to take unwilling hounds to the chase.
+ - Feast to-day makes fast to-morrow. Lat.
+ - Ah yes, the gods use us mortals as footballs!
+ - It is not without a purpose when a rich man greets a poor one with kindness.
+ - Not every age is fit for childish sports.
+ - The fool too late, his substance eaten up, reckons the cost.
+ - In misfortune if you cultivate a cheerful disposition you will reap the advantage of it.
+ - Good courage in a bad affair is half of the evil overcome.
+ - You drown him by your talk.
+ - He who has in due season become rich, unless he saves in due season, will in due season starve.
+ - Do you never look at yourself when you abuse another person?
+ - Remind a man of what he remembers, and you will make him forget it.
+ - He who seeks for gain, must be at some expense.
+ - The stronger always succeeds.
+ - Conquered, we conquer.
+ - It is only when we have lost them that we fully appreciate our blessings.
+ - Always bring money along with your complaints.
+ - We only appreciate the comforts of life in their loss.
+ - For nobody is curious, who isn’t malevolent.
+ - If anything is spoken in jest, it is not fair to turn it to earnest.
+ - What you lend is lost; when you ask for it back, you may find a friend made an enemy by your kindness. If you begin to press him further, you have the choice of two things – either to lose your loan or lose your friend.
+ - Ones oldest friend is the best.
+ - Your piping-hot lie is the best of lies.
+ - He who rushes headlong into love will fare worse than if he had cast himself from a precipice.
+ - We can more easily endure that which shames than that which vexes us.
+ - He that is in love, faith, if he be hungry, is not hungry at all.
+ - No guest is so welcome in a friend’s house that he will not become a nuisance after three days.
+ - If I can only keep my good name, I shall have riches enough.
+ - It is a tiresome way of speaking, when you should despatch the business, to beat about the bush.
+ - This is the great fault of wine; it first trips up the feet: it is a cunning wrestler.
+ - Flame is very near to smoke.
+ - It is difficult to whistle and drink at the same time.
+ - Woman is certainly the daughter of Delay personified!
+ - If you squander on a holyday, you will want on a workday unless you have been sparing.
+ - If you say hard things you must expect to hear them in return.
+ - It is well for one to know more than he says.
+ - I trust no rich man who is officiously kind to a poor man.
+ - Every one can remember that which has interested himself.
+ - Laws are subordinate to custom.
+ - The gods play games with men as balls.
+ - If you do anything well, gratitude is lighter than a feather; if you give offense in anything, people’s wrath is as heavy as lead.
+ - To ask that which is unjust at the hands of the just, is an injustice in itself; to expect that which is just from the unjust, is simple folly.
+ - It is our human lot, it is heaven’s will, that sorrow follow joy.
+ - It is much easier to begin than to end.
+ - Wine is a cunning wrestler.
+ - Even the whole of life is not sufficient for thorough learning.
+ - Little do you know what a gloriously uncertain thing law is.
+ - He who accuses another of wrong should look well into his own conduct.
+ - I suspect that hunger was my mother.
+ - He who falls in love meets a worse fate than he who leaps from a rock.
+ - Courage is to take hard knocks like a man when occasion calls.
+ - That which you know, know not; and that which you see, see not.
+ - You will not be a chip the richer.
+ - He who is most on his guard is often himself taken in.
+ - The poor man who enters into a partnership with one who is rich makes a risky venture.
+ - Riches, rightly used, breed delight.
+ - That man will never be unwelcome to others who makes himself agreeable to his own family.
+ - It is customary these days to ignore what should be done in favour of what pleases us.
+ - How great in number are the little minded men.
+ - If you speak insults you will hear them also.
+ - Wisdom is not attained by years, but by ability.
+ - He who dies for virtue does not perish.
+ - Modesty should accompany youth.
+ - Know this, that troubles come swifter than the things we desire.
+ - I’ve seen many men avoid the region of good advice before they were really near it.
+ - He who bravely endures evils, in time reaps the reward.
+ - I esteem death a trifle, if not caused by guilt.
+ - Find me a reasonable lover against his weight in gold.
+ - Enemies carry a report in form different from the original.
+ - If you are wise, be wise; keep what goods the gods provide you.
+ - The sea is certainly common to all.
+ - That least pleases us which is most urged on us.
+ - He is a friend who, in dubious circumstances, aids in deeds when deeds are necessary.
+ - To make any gain some outlay is necessary.
+ - Worthy things happen to the worthy.
+ - If you strike the goads with your fists, your hands suffer most.
+ - A woman smells well when she smells of nothing.
+ - In everything the middle course is the best; everything in excess brings trouble.
+ - The evil that we know is best.
+ - It is best to know the worst at once.
+ - Nothing is there more friendly to a man than a friend in need.
+
+182 quotes

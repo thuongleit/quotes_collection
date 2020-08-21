@@ -1,0 +1,22 @@
+ - Challenge yourself, jump off the deep end and learn to swim.
+ - I’ve always believed that clothing is a great way to tell your story.
+ - Show’s going well. New season starting, we’re on the road.
+ - Friends think your life is so glamorous, and it is. But there are times when, instead of going to a glamorous party, I would rather just come home from work, pop in a DVD and eat some microwave popcorn with a cutie on the sofa.
+ - I am not much about rules, I like to break ’em and don’t like to make ’em.
+ - Boxers are hot, and by boxers I mean guys who box, not the underwear. So get rid of ’em!
+ - I love music. I love going out dancing.
+ - It’s really important to share the idea that being different might feel like a problem at the time, but ultimately diversity is a strength.
+ - I hoped I could make people smile and laugh and have a good time.
+ - You don’t have to be perfect to be pretty.
+ - My method of helping someone is saying, ‘Wow, you look amazing. Let me help you look even better.’ I think tearing someone down is an awful thing to do. It has a lasting impression on people.
+ - We came, we saw, we bedazzled! You know, and it’s hard to be serious and thoughtful when you’re dressed like a Skittle.
+ - I think ultimately I make people happy: Whether I’m doing the stage show, giving somebody a makeover, or designing clothing, the end goal is to make people smile.
+ - I was into Barbie and designer jeans.
+ - I love fashion, but it’s always been my job, whereas horseriding is my hobby.
+ - I learned how to dance. I got a free spray tan. My life is good!
+ - Humour ended up being a really useful skill when it came time to be an international television celebrity.
+ - I’ve been doing makeovers on TV for years and years and years. It’s something I really know how to do. I also know personally what it’s like to not feel good about yourself.
+ - On our show, I’ve only reached out and touched about 55 guys. I think there’s still about 40 million.
+ - It’s incredibly hard to program a network from scratch for 24 hours.
+
+20 quotes

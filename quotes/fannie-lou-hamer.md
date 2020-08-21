@@ -1,0 +1,30 @@
+ - I am sick and tired of being sick and tired.
+ - Never to forget where we came from and always praise the bridges that carried us over.
+ - You can pray until you faint, but unless you get up and try to do something, God is not going to put it in your lap.
+ - Nobody’s free until everybody’s free.
+ - It’s time for America to get right.
+ - Sometimes it seem like to tell the truth today is to run the risk of being killed. But if I fall, I’ll fall five feet four inches forward in the fight for freedom. I’m not backing off.
+ - When I liberate others, I liberate myself.
+ - When I liberate myself, I liberate others. If you don’t speak out ain’t nobody going to speak out for you.
+ - I feel sorry for anybody that could let hate wrap them up. Ain’t no such thing as I can hate anybody and hope to see God’s face.
+ - If I am truly free, who can tell me how much of my freedom I can have today?
+ - You don’t have to like everybody, but you have to love everybody.
+ - We are here to work side-by-side with this “black” man in trying to bring liberation to all our people!
+ - A black woman’s body was never hers alone.
+ - I always said if I lived to get grown and had a chance, I was going to try to get something for my mother and I was going to do something for the black man of the South if it would cost my life; I was determined to see that things were changed.
+ - We serve God by serving our fellow man; kids are suffering from malnutrition. People are going to the fields hungry. If you are a Christian, we are tired of being mistreated.
+ - Righteousness exalts a nation. Hate just makes people miserable.
+ - One day I know the struggle will change. There’s got to be a change-not only for Mississippi, not only for the people in the United States, but people all over the world.
+ - Black people know what white people mean when they say “law and order”.
+ - No. What would I look like fighting for equality with the white man? I don’t want to go down that low. I want the true democracy that’ll raise me and that white man up raise America up.
+ - We didn’t come all the way up here to compromise for no more than we’d gotten here. We didn’t come all this way for no two seats, ’cause all of us is tired.
+ - With the people, for the people, by the people. I crack up when I hear it; I say, with the handful, for the handful, by the handful, cause that’s what really happens.
+ - If this is a Great Society, I’d hate to see a bad one.
+ - To support whatever is right, and to bring in justice where weve had so much injustice.
+ - You know I’m not hung up on this liberating myself from the “black” man – I’m not going to try that thing.
+ - Our foreparents were mostly brought from West Africa. We were brought to America and our foreparents were sold; white people bo ught them; white people changed their names my maiden name is supposed to be Townsend, but really, what is my maiden name? What is my name?
+ - There is one thing you have got to learn about our movement. Three people are better than no people.
+ - If the white man gives you anything – just remember when he gets ready he will take it right back. We have to take for ourselves.
+ - People have got to get together and work together. I’m tired of the kind of oppression that white people have inflicted on us and are still trying to inflict.
+
+28 quotes

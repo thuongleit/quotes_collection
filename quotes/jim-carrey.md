@@ -1,0 +1,170 @@
+ - If you give up on your dreams, what’s left?
+ - The effect you have on others is the most valuable currency there is.
+ - I wish everyone could experience being rich and famous, so they’d see it wasn’t the answer to anything.
+ - Life doesn’t happen to you, it happens for you.
+ - I think everybody should get rich and famous and do everything they ever dreamed of so they can see that it’s not the answer.
+ - Risk being seen in all of your glory.
+ - My soul is not contained within the limits of my body; my body is contained within the limitlessness of my soul.
+ - So many of us choose our path out of fear disguised as practicality. What we really want seems impossibly out of reach and ridiculous to expect, so we never dare to ask the universe for it.
+ - You are ready and able to do beautiful things in this world. You will only ever have two choices- love or fear. Choose love, and don’t ever let fear turn you against your playful heart.
+ - I learned many great lessons from my father, not the least of which, was that you can fail at what you don’t want so you might as well take a chance on doing what you love.
+ - The truth will set you free.
+ - If I’m not back in 5 minutes, just wait longer.
+ - Everything you gain in life will rot and fall apart, and all that will be left of you is what was in your heart.
+ - Not hope, but Faith. I don’t believe in hope. Hope is a beggar.
+ - That peace that we’re after, lies somewhere beyond personality, beyond the perception of others, beyond invention and disguise, even beyond effort itself. You can join the game, fight the wars, play with form all you want, but to find real peace, you have to let the armor fall.
+ - Don’t worry if you miss your cue, because there’s always doors opening. They keep opening.
+ - Like many of you, I was concerned about going out into the world and doing something bigger than myself. Until someone smarter than myself made me realize that there is nothing bigger than myself.
+ - Fear is going to be a player in your life, but you get to decide how much!
+ - Hope walks through the fire and faith leaps over it.
+ - Choose love and don’t ever let fear turn you away from your playful heart.
+ - I would visualize things coming to me. It would just make me feel better. Visualization works if you work hard. That’s the thing. You can’t just visualize and go eat a sandwich.
+ - I like challenges and I don’t believe in failure. I don’t believe in regrets. I believe suffering, failure – all those concepts – are things that are absolutely necessary to make us the best people that we can be, the best at whatever we want to do.
+ - It’s our intention. Our intention is everything. Nothing happens on this planet without it. Not one single thing has ever been accomplished without intention.
+ - As far as I can tell, it’s just about letting the universe know what you want and then working toward it while letting go of how it comes to pass.
+ - To find real peace you have to let the armor go. Your need for acceptance can make you invisible in this world. Don’t let anything stand in the way of the light that shines through this form. Risk being seen in all of your glory.
+ - Fear is going to be a player in your life, but you get to decide how much. You can spend your whole life imagining ghosts, worrying about the pathway to the future, but all it will ever be is what’s happening here, the decisions in that we make in this moment, which are based in either love or fear.
+ - You are the vanguard of knowledge and consciousness; a new wave in a vast ocean of possibilities.
+ - Those times in life when you’re terrified are the mastery times.
+ - The purpose of art is to bring people into presence.
+ - I want to be a positive force in the world, I would like to make people happy.
+ - Ultimately, we’re not the avatars we create. We’re not the pictures on the film stock. We are the light that shines through it. All else is just smoke and mirrors. Distracting, but not truly compelling.
+ - 50 years: here’s a time when you have to separate yourself from what other people expect of you, and do what you love. Because if you find yourself 50 years old and you aren’t doing what you love, then what’s the point?
+ - I have no limits! I cannot be contained because I’m the container.
+ - You are ready and able to do beautiful things in this world.
+ - There is a huge difference between a dog that is going to eat you in your mind and an actual dog that’s going to eat you.
+ - If you aren’t in the moment, you are either looking forward to uncertainty, or back to pain and regret.
+ - Isn’t it cool when the days that are supposed to feel good, actually do?
+ - It’s Better to Fail at What You Love Than Fail at What You Don’t.
+ - For the most sensitive among us, the noise can be too much.
+ - Riddle me this, riddle me that. Who’s afraid of the big black bat?
+ - Our eyes are not viewers, they’re also projectors that are running a second story over the picture that we see in front of us all the time. Fear is writing that script, and the working title is ‘I’ll never be enough’
+ - People need motivation to do anything. I don’t think human beings learn anything without desperation.
+ - I know this sounds strange, but as a kid, I was really shy. Painfully shy. The turning point was freshman year, when I was the biggest geek alive. No one, I mean no one, even talked to me.
+ - I don’t think you can know God unless you’re passionate about him so you’re either screaming at him, enraptured with the idea of being around him or feeling him in your life.
+ - When I started out. I’d drive a hundred miles to do my act for free.
+ - That’s the trouble with being me. At this point, nobody gives a damn what my problem is. I could literally have a tumor on the side of my head and they’d be like, ‘Yeah, big deal. I’d eat a tumor every morning for the kinda money you’re pulling down.’
+ - There’s been a thoughtfulness to everything I do. Even the stupidest things I do have some kind of point.
+ - The early bird gathers no moss! The rolling stone catches the worm.
+ - I feel like I’ve lived the dream for sure, I’m the luckiest guy in the world and I never forget that. I always feel like I’m proof of positive thought and manifestation, and that faith is more important than talent. But if you have both you’re really doing something.
+ - I’ve often said that I wished people could realize all their dreams of wealth and fame so they could see that it’s not where you’ll find your sense of completion.
+ - Madness is never that far away. It’s as close as saying yes to the wrong impulse.
+ - I’m not always looking for the laugh. I’m not the guy who sits in and listens to conversations and wants to jump in with something hilarious every two seconds. I actually do listen to people.
+ - All there will ever be is what’s happening here. Decisions we make in this moment are based on either love or fear. So many of us choose our path out of fear, disguised as practicality.
+ - I would do anything to be anywhere in the vicinity of Eckhart Tolle.
+ - But I refuse to believe that I am a better actor than myself.
+ - I hope everybody could get rich and famous...
+ - Compassion is the currency that leads to true wealth.
+ - I can be your best friend or your worst enemy. You seem to prefer the latter.
+ - I don’t hate you for loving you. I just hate my heart for choosing someone like you.
+ - I don’t believe in this fairy tale of staying together for ever. Ten years with somebody is enough. In ten years, you can give a lot of love.
+ - If you’ve got a talent, protect it.
+ - It’s always fun to do something that you know ultimately is not about the money, and it’s certainly not the fame because it’s a pain in the ass, but it’s really the person in the seat you think about when you sit in the rooms and write, and you do all the things you have to do.
+ - My father used to brag that I wasn’t a ham, I was the whole pig.
+ - The era of ‘yes’ has begun.
+ - It’s time to P-A-R-T-Why? Because I gotta!
+ - Comedic actors can be looked at as a lower form because we have to put ourselves in a lower place than most of the audience. I think lofty emotions are somehow considered more special. The best stories in the world to me are the ones that elicit a real emotion, but have humour.
+ - My spiritual journey has been a good kind of thing I’ve been on. I guess some people would say I’m obsessed with it, but in a really good way. It’s just enjoyable. I don’t really have crazy obsessions about things.
+ - A lot of good love can happen in ten years.
+ - One of my mission statements with all of my art has been to stop the world for people. I want to stop the worrying and stop the world.
+ - You know the trouble with real life? There’s no danger music.
+ - One man’s toxic waste is another man’s potpourri.
+ - Be grateful. Find something to be grateful for. Don’t do too many things that make you feel like you deserve to lose because we do program our own computers. I believe there is a plus and a minus column and if you end up on the minus column, your own conscience will make you lose.
+ - I just wanna hang out. No big deal!
+ - Don’t you just hate it, when you are in bed with three beautiful women, and the least attractive one whispers: save it for me!
+ - I don’t think I’m ever going to have the kind of life or schedule that I can really have a steady way of doing things.
+ - I always have been introspective, since I was a little kid, since I could remember, I was sitting in a closet trying to write out the meaning of the universe. That’s been my whole life.
+ - Hysterical in The Mask; funny yet moving in The Truman Show.
+ - My psychiatrist says I have a messiah complex. But I forgave him.
+ - I don’t feel any pressure to be funny at all. I’m funny because I want to be funny. I could sit here and be serious for an hour and you would go away and make me much funnier than I am.
+ - I like to enjoy life, I like to engage in life, so I would say I’m a yes man.
+ - Everything can be made fun of. The most serious things are ripe for making fun of them.
+ - I’m always trying to complicate things. For some reason I’ll go, “Well, maybe I can get that in,” and stuff like that. I always make it really hard for myself.
+ - Psychologically, it’s what I love to be. Tearing apart a person from the inside out.
+ - The combination of what’s written and just being in the moment is always the best way. You gotta start out with something solid and then you play.
+ - I hope I’ll never be is drunk with my own power.
+ - I’m not in a recession. I’m doing very, very well. I’m doing incredibly well. I just want to be honest. I really am kicking ass.
+ - Acting is divine dissatisfaction. It’s the greatest thing in the world to do, but you are never satisfied with it ever.
+ - I hate Christmas. I do think it is odd that I have wound up playing these two iconic Christmas haters. It is the same story, in a way. Scrooge is the original Grinch. I think I am perfectly suited, because I have had some dark Christmases.
+ - When someone you love dies, you don’t lose them all at once. You lose them in pieces over time, like how the mail stops coming.
+ - Christmas was really where I started coming into my own as a performer because I did all this stuff on my own, all this performing on my own, When other kids were outside playing, I was in my room conjuring characters and impressions and things like that.
+ - Dry land is not a myth. I’ve seen it. Kevin Costner. Waterworld. I don’t know what the big fuss is about. I saw that movie nine times. It rules!
+ - Just because I rock doesn’t mean I am made of stone.
+ - I enjoy my life. The fame part of it freaked me out for a little while, and there are definitely times when it’s not so great to be special and known by everybody – you know, when you’re wearing the wrong thing, or just in a vulnerable place. But I’m good with my life now.
+ - Like most Catholic boys, I wanted to be Jesus Christ. I could never get the turn-the-other-cheek thing down, though.
+ - Every character is a baby. You can’t choose between them. If you can, you didn’t do your job. You have to fall in love with every character.
+ - The inner child runs rampant. They’re just smaller, that’s all.
+ - The worst thing in the world when you feel broken is to have somebody coming at you with open-faced love. It becomes incredibly painful.
+ - All i want to make sure of is that she’s doing something she loves. watch your kids when they sit down and absolutely get lost in something. maybe that’s what they should be doing-the thing they’re dying to do all the time.
+ - I think I could go away tomorrow. I’ve already accomplished something. It’s such a selfish business that sometimes I get sick of myself.
+ - I think if we all acted the way we felt, four out of eight people at a dinner table would be sitting there sobbing.
+ - I’m the first to admit this whole salary thing is getting out of control. In the final analysis, it’s still about the work.
+ - My career has been in a weird kind of like low-flying under the radar-kind of place. I never made it on “Saturday Night Live” where all my friends did.
+ - Comedy started out as my hobby and then it became my profession. It’s like being on call all the time, like having a built-in beeper. You can’t just leave the office and relax because you never know when you’ll think of something funny.
+ - You can be zany and funny or you can do something that really has some depth to it and serious, so there’s many different colors to paint with. I would hate to get trapped in one little thing. I always feel like funny is an appendage, but it is not my whole body.
+ - My upbringing in Canada made me the person I am. I will always be proud to be a Canadian.
+ - Most of the time I live with my pain. I have pain but I won’t show it around. I think that’s the nobility of the character. There’s something noble in not spewing on people all the time about your problems. I’m the light guy, so I identified.
+ - Always turn your wheel in the direction of the skid.
+ - I spent most of my time in my room staring at a mirror. I never knew I was supposed to socialize. I just spent hours making faces at myself, having a good time.
+ - 150 people die every year from being hit by falling coconuts. Not to worry, drug makers are developing a vaccine.
+ - My dad was like a stage mother he always pushed me to do what I wanted.
+ - The wonderful thing about digital process is that I can be cast in films that I would never be cast in. If I have it in my soul to play the character it doesn’t matter what my face looks like, or my age. It’s really liberating.
+ - I’ve always believed that you can funnel good things toward yourself by thinking positiviely.
+ - I started out performing as a little boy, I was trying to make my mother feel better and laugh because she was sick and in pain all the time. I found out that I had that power to relieve her.
+ - I think obsessions happen because you’re trying to understand something or some urge.
+ - I’m not a bible thumper, I’m not any of that stuff, but I do believe that the force is with us.
+ - Movie offers are out there for me, I just don’t hear them yet.
+ - What I do as an art form is try to make people feel good and if I do try to make them feel bad, it’s for a reason. There’s something I am trying to say.
+ - It’s exhausting I think to just say really yes to everything for real, even if you do it for a day.
+ - The only thing that has ever consumed me is love from time to time. Feeling like, ‘What is it? How do I get it?’
+ - Free cable is the ultimate aphrodisiac.
+ - Movies find me, and I kind of just allow them to find me.
+ - I want to be the greatest actor that ever lived, frankly. I’d love that. But I don’t need to be. I just want to be here. That’s it.
+ - I really have always thought of myself as somebody who lives in the middle of the wheel and is able to go to the extreme, to the outside of the wheel in any direction. The best case scenario for me is to be able to be centered and then go out.
+ - When you are a kid, you need to have something to do. This will keep you off the streets.
+ - Charles Dickens was an incredibly cinematic writer. He wrote this one hundred years before there were movies. He writes very thematically. It is amazing.
+ - Maybe there is no actual place called hell. Maybe hell is just having to listen to our grandparents breathe through their noses when they’re eating sandwiches.
+ - I don’t think anybody should go through life without a team of psychologists. I have been through times when I’m literally squatting in the living room, having one of those open-throated cries, where you’re crying all the way to your butthole. I always believed I would come out of it, though.
+ - I’d like to thank my mother, my father, the Academy. I’m sorry. I was thinking of something else.
+ - The dating process is not normal for me.
+ - I don’t believe in bad people. I believe that people, somewhere inside, have the potential to realize themselves.
+ - Come back here so that I may brain thee!
+ - As far as I’m concerned, everything bad that happens in the world stems from the same place, they’re people who don’t feel important.
+ - Green Eggs and Ham was the story of my life. I wouldn’t eat a thing when I was a kid, but Dr. Seuss inspired me to try cauliflower!
+ - A better you means a better universe.
+ - Everybody expects the fairy tale – you’re going to be together forever with somebody. I don’t really subscribe to that. I’d love that to happen if that happened, but ten years is enough. Ten years is a good thing with somebody, I think. It’s a nice thing. A lot of good love can happen in ten years.
+ - It’s always good I think in general to have different energies on screen, like it’s nice to have different characters go at different speeds, just like different people work at different speeds.
+ - What’s yours? How will you serve the world? What do they need that your talent can provide? That’s all you have to figure out.
+ - I was on Prozac for a long time. It may have helped me out of a jam for a little bit, but people stay on it forever.
+ - Usually you regret the things you say no to.
+ - If I had never ventured beyond being a stand-up comic, then I would be sitting in my house today working on my Leonardo DiCaprio impression.
+ - Magicians are definitely more arrogant. They’re kind of like “Abra Kadabra, you’re an idiot,” they don’t let you in on the joke. Comedians, you’re always in on the joke unless it’s Andy Kaufman.
+ - I don’t make it in regular channels, and that’s okay for me.
+ - I tend to stay up late, not because I’m partying but because it’s the only time of the day when I’m alone and don’t have to be performing.
+ - I come from the philosophy of: “Whatever happens to me is the greatest thing that could happen, no matter what.” Sometimes in the moment I have a regret, but then I have found myself every time down the line saying to myself: “I wouldn’t be here if it weren’t for that so called failure.”
+ - I have been the guy who has everything but yet is so one-track minded about what I want, that I can’t see my blessings.
+ - Kids need to know they’re the most important thing in the world to you, and if that means quitting your job to prove it, then you have to prove it.
+ - I love stories about teachers. For some reason I can’t get enough of those kind of stories. If I turn a movie on about a teacher, I love it. I love that idea of an adult influence on kids.
+ - But, you know, you can’t be a star at home.
+ - I expected that most of my career would be in dramatic acting. My hero was James Dean.
+ - Well this is just a fist. But when I start throwing it around I can leave one hell of a mess.
+ - I would challenge anybody in their darkest moment to write what they’re grateful for, even stupid little things like the green grass that made them feel good, the friendly conversation they had with somebody on an alevator. You start to realize how rich you are.
+ - I think projects find me. It’s really interesting. Everything I’ve done, from “The Truman Show,” the “Eternal Sunshine” to “Yes Man” and “Bruce Almighty,” always come into my life at the perfect time.
+ - You might as well take a chance on doing what you love.
+ - I just like being creative, whatever way I have to do it.
+ - Every character I do is something special to me. Every time you score with a great character relationship in a movie, it becomes your baby.
+ - Lots of people say if you dredge too much stuff up, you’ll go crazy – “You’ll go insane!” But for a comedian, insanity is not a problem. It’s a goal.
+ - Until Ace Ventura, no actor had considered talking through his ass.
+ - I absolutely want to have a career where you make’em laugh and make’em cry. It’s all theater.
+ - I just love to skate. When I put a skate on the ice, I’m free from the world, and I have no problems at all. I am a bird!
+ - I never thought I was finished when people said I was finished, or any of that stuff. I always had this undying belief that even if I was in a wheelchair and I could only move my finger, somehow I would become the guy who does the amazing thing with his finger.
+ - I wanted to be a veterinarian for about a week of my life when I was a kid. But I found out about the whole euthanasia thing and I said, I can’t commit to that, sorry!
+ - The thing is, I’ve always tried to create transcendent moments. Moments that take people away from their concerns. Heaven to me is when people find a way to become so involved with life that they’re no longer concerned for the future.
+ - I laugh at mistakes. I laugh at how you recover from mistakes.
+ - I try to stay in decent shape always. I pride myself on staying at least a month away from really good shape.
+ - I try to do something the audience might not have seen before.
+ - I love acting. I love play-acting. I love pretending. I love telling stories so whether they be comedic or serious or whatever, it doesn’t really matter to me. I enjoy telling a good story. I have it all in me.
+ - When I started to realise how important the film was to people I thought there is a lot of negative stuff going on in the world, maybe they need these two people.
+ - I got paid a lot of money at one point so the focus became, for a lot of people, about that, but for me, it’s always been the same goal: To stop the world for people.
+
+168 quotes

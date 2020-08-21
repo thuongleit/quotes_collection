@@ -1,0 +1,30 @@
+ - The fairy tale journey may look like an outward trek across plains and mountains, through castles and forests, but the actual movement is inward, into the lands of the soul.
+ - Filmmaking can be a fine art.
+ - We’ve always lived in dark times. There has always been a range of human experience from the sublime to the brutal, and stories reflect it. It’s no less brutal now; each age has its horrors.
+ - Fairy tales were not my escape from reality as a child; rather, they were my reality – for mine was a world in which good and evil were not abstract concepts, and like fairy-tale heroines, no magic would save me unless I had the wit and heart and courage to use it widely.
+ - The simple truth is that being a creative artist takes courage; it’s not a job for the faint of heart. It takes courage each and every time you put a book or poem or painting before the public, because it is, in fact, enormously revealing.
+ - Our lives are our mythic journeys, and our happy endings are still to be won.
+ - Once upon a time fairy tales were told to audiences of young and old alike. It is only in the last century that such tales were deemed fit only for small children, stripped of much of their original complexity, sensuality, and power to frighten and delight.
+ - There’s that old adage about how there’s only seven plots in the world and Shakespeare’s done them all before.
+ - I’d like to encourage people to please keep reading-and most importantly, to please keep trying new writers. The only way we can bring fresh new material into the field is if people go out and buy it.
+ - I’m also looking for gems that the average reader might have missed.
+ - I’d had no particular interest in the Southwest at all as a young girl, and I was completely surprised that the desert stole my heart to the extent it did.
+ - I’m an artist, I’m not an academic folklorist.
+ - But for me, really, the written word is always stronger than film.
+ - When I was younger, I was in love with everything about the British Isles, from British folklore to Celtic music. That was always where my passions were as a young girl, and so I studied folklore as a college student in England and Ireland.
+ - I wanted to be a scientist. But I had no math skills.
+ - When I started in the business, there was a thing called adult fantasy, but nobody quite knew what it was, and most publishers didn’t have an adult fantasy list. They had science fiction lists, which they stuck a little bit of fantasy into.
+ - I divide my time between homes in Arizona and England, six months a year in each place.
+ - We’re all misfits herefrom our weirdnesses and our differences, from our manic fixations, our obsessions, our passions. From all those wild and wacky things that make each of us unique.
+ - A good novel editor is invisible.
+ - Since fantasy isn’t about technology, the accelleration has no impact at all. But it’s changed the lives of fantasy writers and editors. I get to live in England and work for a New York publisher!
+ - Magic Realism is not new. The label’s new, the specific Latin American form of it is new, its modern popularity is new, but it’s been around as long as literature has been around.
+ - The first job I was offered was as an editorial assistant. I think it was the best thing for me, in terms of being a storyteller by nature, to have spent years being an editor because I learned so much from it.
+ - In more recent years, I’ve become more and more fascinated with the indigenous folklore of this land, Native American folklore, and also Hispanic folklore now that I live in the Southwest.
+ - Happiness is a talent like any other. It’s another art form. Some people are good at it, some people aren’t.
+ - I’ve only been living in England for the last 10 years, if you don’t count my student years.
+ - I was a great fan of Jim Henson.
+ - What I find interesting about folklore is the dialogue it gives us with storytellers from centuries past.
+ - I have a great respect for the academics who are working with the source material. My hat’s off to them.
+
+28 quotes

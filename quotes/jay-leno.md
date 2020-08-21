@@ -1,0 +1,502 @@
+ - Today is Valentine’s Day – or, as men like to call it, Extortion Day!
+ - I believe engineers will save the world.
+ - Ambition beats genius 99% of the time.
+ - If God doesn’t destroy Hollywood Boulevard, he owes Sodom and Gomorrah an apology.
+ - Give a man a fish and he will eat for a day. Teach a man to fish and he will eat for a lifetime. Teach a man to create an artificial shortage of fish and he will eat steak.
+ - I’ve never understood why women love cats. Cats are independent, they don’t listen, they don’t come in when you call, they like to stay out all night, and when they’re home they like to be left alone and sleep. In other words, every quality that women hate in a man, they love in a cat.
+ - The Mars rover Curiosity has sent back images of some odd things on the surface of Mars, and some people think they could be UFOs. Here’s my question. If we’re on the surface of Mars, aren’t we the UFO?
+ - The good news is, the stock market is closed and it can’t hurt us again until tomorrow.
+ - I don’t know why it’s so hard to believe women. You to go Saudi Arabia and you need two women to testify against a man. Here you need 25.
+ - According to a new survey, 90% of men say their lover is also their best friend. Which is really kind of disturbing when you consider man’s best friend is his dog.
+ - In California, 50 women protested the impending war with Iraq by lying on the ground naked and spelling out the word peace. Right idea, wrong president.
+ - You know who must be very secure in their masculinity? Male ladybugs.
+ - If you restore a car, and you’re making money, then you’re doing it wrong.
+ - Researchers at Harvard say that taking a power nap for an hour in the afternoon can totally refresh you. They say that by the time you wake up you’ll feel so good, you’ll be able to start looking for a new job.
+ - The reason there are two senators for each state is so that one can be the designated driver.
+ - President Bush said this Iraq situation looks like ‘the rerun of a bad movie.’ Well sure, there’s a Bush in the White House, the economy’s going to hell, we’re going to war over oil. I’ve seen this movie, haven’t I?
+ - We are in a code orange. Homeland Security said earlier today that everyone should have a roll of duct tape and plastic sheeting to protect your house in event of terrorist attacks. Who came up with this idea? MacGyver?
+ - If God had wanted us to vote, he would have given us candidates.
+ - According to geologists, about 100 million years from now, Asia and the Americas will smash together to form one giant supercontinent. The good news: Maybe all those jobs that went over there will finally come back.
+ - In business news, chocolate maker nestle is buying Jenny Craig. Well, that says it all you need to know about the war on obesity, doesn’t it? It’s over! Apparently we surrendered!
+ - McDonald’s announced that it’s considering a more humane way of slaughtering its animals. You know they fatten them up and then kill them. You know the same thing they do to their customers, isn’t it?
+ - As we head to war with Iraq, President Bush wants to make one thing clear: This war is not about oil. It’s about gasoline.
+ - Forty million Americans smoked marijuana; the only ones who didn’t like it were Judge Ginsberg, Clarence Thomas and Bill Clinton.
+ - Gas stations are considering hiring security guards. Why are they getting security guards? We’re the ones getting robbed.
+ - In the Enron scandal, whistleblower Sherron Watkins is now calling herself Enron Brokovitch. She testified Ken Lay was duped by the other executives. Oh, yeah. When is the last time you got duped and made $100 million?
+ - Here at work, obviously, I make the most money of anyone on the show, so I try to be the first one here and the last one to leave. I have the crummiest office. I try to balance things out, spread it around.
+ - The Flinstones wore furs, they ate red meat, and had a stoneage philosophy. In fact, they were the first Republicans...
+ - Jesse Jackson’s wife was arrested in Puerto Rico while protesting the naval bombings there. Jesse said he was holding a meeting with four of his secretaries to decide what to do and that these meetings could run well into the night.
+ - That must be strange, cheating on your wife with a flight attendant. They’re in bed and she’s says, ‘In the event that wife should come home early please notice the location of the nearest emergency exit.’
+ - Thanksgiving began in 1621 when Native Americans sat down with a bunch of undocumented pilgrims. They had dinner and the pilgrims never left.
+ - People want to say there isn’t racial profiling at the airport, but let’s be honest. If you first name is Mohammed, and your last name isn’t Ali, leave a little extra time.
+ - I guess you heard, Hillary Clinton has a new campaign slogan: “I’ve fallen and I can’t get up!”
+ - When did the government become our psycho ex-girlfriend.
+ - According to a new UN report, the global warming outlook is much worse than originally predicted. Which is pretty bad, when they originally predicted it would destroy the planet.
+ - A German psychologist says that women talk more than men because they have a bigger vocabulary. But, it evens out because men only listen half the time.
+ - The CEO of The Cheesecake Factory is now warning that Obamacare will be very costly. Hey, The Cheesecake Factory is one of the reasons we need Obamacare in the first place.
+ - President Obama and House Speaker John Boehner have agreed to play a round of golf together. Imagine the two of them at the end of that golf game? Boehner will be crying over his score and Obama will be giving three explanations as to why his score is actually better than it appears.
+ - The first Olympic Games were held in 776 BC. Do you know who lit the flame? Betty White.
+ - The Boston Globe is reporting that Democratic presidential candidate John Kerry used to date actress Morgan Fairchild but it didn’t work out. Apparently she couldn’t handle dating someone with bigger hair then she had.
+ - Starbuck’s is going to start selling instant coffee. This is for people who want the quality of Sanka, but want to pay the high Starbuck’s price.
+ - President Obama signed a bill preventing members of Congress from profiting from insider trading. Didn’t you think that was already illegal?
+ - Happiness is a privilege.
+ - Congratulations to Mexico. They upset Brazil to win a gold medal in men’s soccer. And after the Olympics ended, the Mexican soccer team, of course, returned home to their houses here in Los Angeles.
+ - You can tell you ate too much for Thanksgiving when you have to let your bathrobe out.
+ - According to a new study, Botox injections can help back pain. So you see, that’s why John Kerry had all that Botox – his back was killing him from all that flip-flopping on issues.
+ - Martha Stewart is now under house arrest. So she’ll go to her $40 million 153-acre estate. So she’s going from the big house to an even bigger house.
+ - My stockbroker asked me something important today: paper or plastic?
+ - Some sad news, President Bush’s lapdog passed away. Gee, I didn’t even know Tony Blair was sick?
+ - Comedy is the only profession where love from a stranger is better than love from a family member. You need to perform for strangers to see if you’re really funny. If they laugh and cheer, it’s the greatest thing in the world.
+ - This problem with illegal immigration is nothing new. In fact, the Indians had a special name for it. They called it “white people.”
+ - And Ralph Nader, God bless him, still out there campaigning. Ralph Nader said today he has set a record for the most campaign speeches given in one day. He gave 21 speeches in one day. Of course, we have to take his word for it, because of course, there are no witnesses.
+ - A new study shows that American students are becoming less proficient in science, and if the trend continues, we will become a nation that’s science and chemistry illiterate. And you thought a lot of meth labs are blowing up now?
+ - The games haven’t even started yet and already there are people complaining about the horrible accommodations at the Sochi Olympic village. Toilets don’t flush. The faucets spew discolored water. They say it’s like being on a Royal Caribbean cruise.
+ - The key to a long and healthy marriage is that, honestly, there’s nothing worth fighting about.
+ - A fitness instructor in Maine has been charged with running a prostitution business out of her Zumba dance studio. Authorities first got suspicious when they saw guys going to work out at a Zumba dance studio.
+ - Barack Obama now says he is open to offshore oil drilling. So, apparently, when he promised change, he was talking about his mind.
+ - President Bush’s campaign is now attacking John Kerry for throwing away some of his medals to protest the Vietnam War. Bush did not have any medals to throw away, but in his defense he did have all his services records thrown out.
+ - Today is February 14th – St. Valentine’s day. Women call it Love day, while men name it as Extortion day.
+ - If I have one advantage, it’s that I will try to work harder than the next guy.
+ - My dad’s idea of a good time is to go to Sears and walk around.
+ - How many are worried about a government shutdown? How many are more worried about it starting back up?
+ - Worried about an IRS audit? Avoid what’s called a red flag. That’s something the IRS always looks for. For example, say you have some money left in your bank account after paying taxes. That’s a red flag.
+ - With high definition TV, everything looks bigger and wider. Kind of like going to your 25th high school reunion.
+ - The Republicans finally got some good news over the weekend. The North Koreans set off a nuclear bomb. Thank God. It was so powerful it knocked the Mark Foley story right off the front page. And knocked him off the page he was on, too.
+ - According to Time magazine, global warming is 33% worse than we thought. You know what that means? Al Gore is one-third more annoying than we thought.
+ - Remember when we used to worry about some weirdo having a razor blade inside an apple on Halloween? Not anymore. Like a kid today would eat an apple.
+ - A Christmas tree – the perfect gift for a guy. The plant is already dead.
+ - Osama bin Laden has hired 10 look-alikes. Now, how hard up do you have to be before you take that job? There’s no way to win! If Osama dies, you don’t get paid. If you’re found, you get killed.
+ - So, it’s pretty crazy. Look, we’re bailing out Wall Street, we’re bailing out banks, we’re bailing out car companies. In fact, did you know there’s a special box on your tax form this year you can check if you want a portion of your taxes to actually go to running the government?
+ - Vice President Joe Biden said today that ‘Syria must be held accountable.’ Unfortunately, the Obama administration has never employed an accountant, so they have no idea how to do that.
+ - President Bush has unveiled his first campaign commercial, highlighting all of his accomplishes in office. That’s why it’s a 60-second spot.
+ - Go through your phone book, call people and ask them to drive you to the airport. The ones who will drive you are your true friends. The rest aren’t bad people; they’re just acquaintances.
+ - John Kerry has apologized for saying those who do not study hard and do their homework will get stuck in Iraq. Now, those that do not campaign well and are boring, will end up stuck in the Senate.
+ - John Kerry said today that he wants to get rid of tax cuts for the rich and his wife said, ‘Hey, shut up! What’s the matter with you?! Are you nuts?!’
+ - President Obama said he plans on training 10,000 new math and science teachers. How about teaching math to that economic team of his?
+ - President Bush said that our kids must be taught how to read. He said if his aides never learned to read, they’d never be able to tell him what’s in the newspapers every day.
+ - Jesse Jackson was involved in a three-car crash this weekend. I understand that no one was hurt, but I understand that two of the women in the other cars are now pregnant.
+ - President Bush was in Los Angeles yesterday where he announced his new campaign theme – “Safer, Stronger, and Tested.” Isn’t that a condom ad?
+ - America needs ObamaCare like Nancy Pelosi needs a Halloween mask.
+ - Mitt Romney is coming under fire because even though he is a multimillionaire, he only paid 15 percent in taxes. That’s not a tax, that’s barely a tip.
+ - Well, Joe Biden has done it again. He showed up at the White House Passover Seder with a bunch of ham sandwiches.
+ - Researchers found a frog in new guinea that is so tiny, they believe it’s the smallest vertebrate on the planet. It has the tiniest backbone of any living creature, except members of Congress.
+ - The Environmental Protection Agency is conducting a seven-hundred-thousand-dollar study to see if Alaskan trees are polluting Oregon forests. You can tell Republicans are in power. Pollution? It’s those damn trees.
+ - I flew this past weekend. I went through airport security and said to the guy, ‘Is everything okay?’ He said, ‘You might want to have that mole on your ass checked out.’ That seems a little personal to me.
+ - There is a nationwide shortage of drugs for Attention Deficit Disorder. The FDA says they’re not sure how it happened. I guess somebody wasn’t paying attention.
+ - New Year’s Eve, where auld acquaintance be forgot. Unless, of course, those tests come back positive.
+ - North Korea is now threatening the United States with all-out war. You can see they’re stepping it up. In fact, they released 10 more photos of Kim Jong Un looking through binoculars.
+ - The Stock Market was down today. Two major businesses declared bankruptcy, consumer spending is at an all time low – in other words, Bush is back on the job.
+ - I think high self-esteem is overrated. A little low self-esteem is actually quite good. Maybe you’re not the best, so you should work a little harder.
+ - Jesse Jackson also said he thought Barack Obama was talking down to black people by lecturing them on things like fatherhood and being a responsible husband. Jesse thought it was insulting, not only to him, but to his former mistress and their love child.
+ - Every year Steve Kaufman supports the charity “Love Ride” by donating a painting to this cause.
+ - One thing about mildly dyslexic people – they’re good at setting everything else aside to pursue one goal.
+ - It is day two of the Democratic convention, and apparently they had a huge lighting problem in the convention hall today. They worked all day on it. They still couldn’t get President Obama out of Bill Clinton’s shadow.
+ - I’m a staunch Independant. Every time I think I am a Republican, they do something greedy, and every time I think I am a Democrat, they go and do someting stupid.
+ - Experts are saying that President Bush’s goal now is to politically humiliate Saddam Hussein. Why don’t we just make him the next Democratic presidential nominee?
+ - The Mirror interviewed one of Osama bin Laden’s sons and said bin Laden has 42 children. That’s going to happen when you sleep in a different cave every night.
+ - I don’t like goodbyes, NBC does.
+ - When Rick Perry was told about Kim Jong Il, he said, ‘I never heard of him, but then again, I don’t listen to that rap.’
+ - Usain Bolt won the gold for the men’s 100- and 200-meter dashes for the second Olympics in a row. You know, he has been running since he was in elementary school – kind of like Mitt Romney.
+ - Presidential Democratic front-runner Howard Dean admitted to Chris Matthews on the ‘Hardball’ show that he got out of the draft because of a bad back. He had a curvature of the spine. Apparently it curved too far to the left.
+ - According to CNN, Donald Rumsfeld said the war in Iraq did not go according to plan. And President Bush said, ‘What? We had a plan?’
+ - President Obama was in India yesterday visiting our jobs. Tomorrow he goes to China to visit our money.
+ - Having a life is easy. Having a career is hard to come by.
+ - The Democratic Convention is $27 million in debt. They had to cancel the kick-off event at the Charlotte Motor Speedway. A speedway is the perfect place for the Democratic Convention. You go around in circles, turn left every few seconds, and you end up right where you started.
+ - The FBI is urging all Americans to beware of any letters or packages that have badly misspelled words. Man, this is going to be terrible news for the rap industry.
+ - John Kerry met with Ralph Nader last week. Both sides of every issue were discussed. And then, Nader spoke.
+ - The lead story on MSNBC was the news that there was nothing new to report in the Gary Condit story. So remember when there is nothing new to report, MSNBC will be the station not to report it first.
+ - The good news is, President Obama was born in America. The bad news is, so was Donald Trump.
+ - There are now reports that President Obama will name Massachusetts Senator John Kerry to be the next secretary of defense. Apparently this is part of America’s new defense strategy to bore our enemies to death.
+ - Heating bills this winter are the highest they’ve been in five years, but President Bush has a plan to combat rising bills. It’s called global warming.
+ - Dean is a doctor but he acts more like a postal worker!
+ - I was born the day I got my license. When I was a kid, if I wanted to go somewhere and see things, you have to get in your car and actually go.
+ - People don’t mind if you have a lot of money if they know you’re working for it.
+ - Donald Trump says he’s President Obama’s worst nightmare. That’s not true. Having to make a decision is Obama’s worst nightmare.
+ - It’s just a matter of time before we go into Iraq and get Saddam Hussein. I think just before Bush falls below 50 percent, that’s when we’ll be going.
+ - Folks, we’re starting to learn more and more about that man arrested in the New York SUV car bombing case. His name is Faisal Shahzad. He’s from Pakistan. What tipped off the authorities he might be the bomber? His name is Faisal Shahzad. He’s from Pakistan.
+ - Stephen Hawking is getting a divorce. That’s scary. If the smartest guy in the world can’t figure out women, we’re screwed.
+ - You can’t stay mad at somebody who makes you laugh.
+ - I went into a McDonald’s yesterday and said, ‘I’d like some fries.’ The girl at the counter said, ‘Would you like some fries with that?’
+ - Former Enron founder Ken Lay and CEO Jeffrey Skilling found guilty in the Enron case. Ken Lay is so guilty I’m surprised people aren’t calling him Congressman Ken Lay. Wait ’till these guys find out in prison that insider trading has a whole new meaning.
+ - Diet Coke with lemon – didn’t that used to be called Pledge?
+ - Congratulation s to Rahm Emanuel on being elected mayor of Chicago. His first order of business after taking office will be to actually move to Chicago.
+ - Anheuser-Busch gives two free cases of beer to its employees at all of its parks, like Busch Gardens. That’s a comforting thought the next time you’re getting ready to get on the roller coaster!
+ - This Osama bin Laden guy, spoiled rich kid worth $300M. I have three words for this guy: Anna Nicole Smith. We send her over there, she’ll get his money, he’ll be dead in a week.
+ - Here’s an interesting figure: 43 percent of the incoming congressional freshmen are millionaires. The other 57 percent are Democrats.
+ - Denmark is charging a fat food tax on cheese, meat, and oil. Here, we call that the Denny’s Grand Slam breakfast.
+ - When a candidate walks away from a reality show, that’s when you know they’re serious about being president of the United States.
+ - Senator Hillary Rodham Clinton is now facing a kind of personal dilemma. She can’t decide whether to drop the name Clinton from her name, or drop the name Rodham. They can’t figure out which one is more embarrassing.
+ - As you know, several times, McCain talked about serving his country in Vietnam, which is a nice change after 16 years and two presidents who could never quite explain how they got out of serving their country in Vietnam.
+ - Sarah Palin has revealed she has tried marijuana, but she did not like it. You know, it’s amazing: 200 million Americans have smoked marijuana. The only ones who don’t like it seem to be elected officials. Ever notice that?
+ - A petition to have Justin Bieber deported got over 100,000 signatures, which means the White House now has to legally rule on it. So finally a chance for Obama to issue an executive order that both Republicans and Democrats can agree on.
+ - The United States is sending its most powerful drone to Libya. That’s a long trip for Joe Biden.
+ - President Obama said he is going to use the Gulf disaster to push a new energy bill through Congress. How about using the Gulf disaster to fix the Gulf disaster?
+ - Nineteen percent of doctors say that they’d be able to give their patients a lethal injection. But they also went on to say that the patient would have to be really, really behind on payments.
+ - The other night, President Bush’s press conference was pre-empted by ‘American Idol.’ You know the difference between President Bush and ‘American Idol?’ See, on ‘American Idol,’ the one with the most votes wins.
+ - There is a video out now on how to please men. Here’s tip number 1: Just show up!
+ - Congress voted for tougher laws on corporations. So now when a corporation buys a senator, they need a receipt.
+ - The crime problem in New York is getting really serious. The other day the Statue of Liberty had both hands up.
+ - BP CEO Tony Hayward said he would just like to get his life back. He wants to get his life back. You know, I say give him life plus 20.
+ - According to today’s Los Angeles Times, Gray Davis now gets negative job ratings from white people, black people, Latinos, Republicans, Independents and even Democrats. Say what you want about the guy but he’s a uniter!
+ - The Sacramento Bee is reporting that Arnold Schwarzenegger is not going to run for governor. You know what would be better? Arnold should do what he does in the Terminator movies. He should go back in time and prevent Gray Davis from ever being born. That way you wouldn’t have the problem.
+ - Six women have come forward that say Arnold Schwarzenegger groped them without their consent. This proves he would be a hands-on governor.
+ - The Washington Bullets are changing their name. They don’t want their team to be associated with crime. From now on, they’ll just be known as the Bullets.
+ - Congratulations to President Obama on being reelected president of the United States. Turns out it is not all bad news for the Republicans. It seems that depression is covered by Obamacare.
+ - Republican presidential hopeful Mike Hucka-BS is attacking actress Natalie Portman for getting pregnant without being married. It could get a little awkward if he runs into Sarah and Bristol Palin at Fox News.
+ - A Canadian psychologist is selling a video that teaches you how to test your dog’s IQ. Here’s how it works: if you spend $12.99 for the video, your dog is smarter than you.
+ - Marriage is grand. Divorce is about twenty grand.
+ - John Kerry speaks French fluently. Democrats are saying he’s one in a million. A war hero who speaks French, isn’t it more like one in a trillion?
+ - Sixty years ago this week Hitler invaded Poland. This led to the creation of The History Channel.
+ - People made a big deal out of the fact this is the first time a sitting president has done a late-night show. We tried to have other presidents on, but President Bush went to bed every night at 9:00. And President Clinton always seemed to have other late-night plans.
+ - If politicians all told the truth, we’d be out of business.
+ - Con artists are using Obamacare confusion to sign people up for fake health insurance. The scammers lure victims with false promises like, ‘If you like your healthcare plan, you can keep your healthcare plan.’ The scammers will tell you that, so you have to be careful.
+ - That American Taliban kid Johnny Walker was indicted today. Ten counts of terrorism. He could get 5 life sentences. In Taliban terms, that’s 360 virgins.
+ - The car was the iPhone of the 20th century. Kids these days don’t have to drive anymore. They just go there virtually.
+ - Now the Democrats control the Senate. But the good news is that now the Republicans can admit that Strom Thurmond has been dead since 1988.
+ - It’s not called cocaine any more. It’s now referred to as Crack Classic.
+ - Enron is now officially out of the energy business. They are now in a new business: confetti.
+ - You know what the bounty is on bin Laden? $25 million. It sounds like a lot until you realize the Texas Rangers paid $250 million to get Alex Rodriguez.
+ - Show business pays you a lot of money because eventually you’re gonna get screwed.
+ - Authorities in New York City have foiled a plot by terrorists to blow up the Holland Tunnel. There was one awkward moment when officials informed President Bush the Holland Tunnel was safe. Bush then thanked the Dutch authorities for all their help.
+ - All I ask is that you tip your waiters and waitresses. We have to turn this situation around.
+ - The New England Journal of Medicine reports that 9 out of 10 doctors agree that 1 out of 10 doctors is an idiot.
+ - An Israeli man’s life was saved when he was given a Palestinian man’s heart in a heart transplant operation. The guy is doing fine, but the bad news is, he can’t stop throwing rocks at himself.
+ - I didn’t realize it was October until I saw the Chicago Cubs choking.
+ - It seems that England’s royal family is running out of money. They are down to just $1.6 million. Well sure, that’s what happens when nobody in your family has had a job for the last thousand years.
+ - Yesterday, Saddam Hussein got 100 percent of the vote. Well, that’s according to Saddam’s campaign manager, Jeb Hussein.
+ - Jesse Jackson’s in trouble. They’re going after this tax thing. Jesse said he will amend his taxes to show the money that he paid to his mistress. See, he has just one mistress. Jesse uses the standard mistress deduction. As opposed to Clinton, who had to itemize.
+ - This is now the twelfth day of rioting in France. They have been rioting for almost two weeks. And France has still not surrendered. That’s like a record.
+ - Scientists believe that monkeys can be taught to think, lie and even play politics within their community. If we can just teach them to cheat on their wives we can save millions on congressional salaries.
+ - President Obama met with leaders of the American Indian tribes and they honored the president by giving him his own Indian name: Running Deficits.
+ - Women get a little more excited about New Year’s Eve than men do. It’s like an excuse: you drink too much, you make a lot of promises you’re not going to keep; the next morning as soon as you wake up you start breaking them. For men, we just call that a date.
+ - Saddam Hussein also challenged President Bush to a debate. The Butcher of Baghdad vs. the Butcher of the English language.
+ - British scientists say they have developed a super broccoli that can help fight heart disease. You know, if you want to fight heart disease, why don’t you come up with a food people will actually eat? Like a super glazed doughnut.
+ - Disneyland celebrated its 40th anniversary by burying a time capsule. They say it will be dug up in 50 years – or when the last person in line at Space Mountain gets to the front, whichever comes first.
+ - The University of Nebraska says that elderly people that drink beer or wine at least four times a week have the highest bone density. They need it – they’re the ones falling down the most.
+ - President Obama gave a big speech on climate change. He believes global warming is getting worse because apparently he’s sweating a lot more during his second term.
+ - Soup is just a way of screwing you out of a meal.
+ - The new specialty at the Iowa fair this year is fried butter on a stick. Of course, if you’re like me and you want like to eat healthy, get your stick of butter baked.
+ - President Obama has begun a three-state bus tour. I believe the three states are: Confusion, Delusion, and Desperation.
+ - The New York Police Department says Iran has conducted surveillance inside New York City. They say Iranian operatives are using special mobile surveillance units. I believe they’re called taxi cabs.
+ - Casey Anthony was found not guilty. This means that President Obama’s economic team is only the second-most clueless group in America.
+ - President Bush stopped off at a bass pro fishing store to pick up a fishing reel, some line and some rubber worms. He’s going to disappear and go fishing. So he must think he’s back in the National Guard.
+ - I like cars that are ahead of their times, and that were noble failures because they were built to a higher standard than the consumer needed. Cars like the Wills Sainte Claire or the Duesenberg.
+ - They had so much rain in New York that a lot of the cabbies had their first shower in years.
+ - Even Arnold’s adviser says he was shocked by his decision to run. I mean, his people were backstage that night and they had no idea. He totally fooled them. Who knew Arnold was that good of an actor? If he had done that in a movie, he’d have an Academy Award by now.
+ - Astronomers have discovered a planet that is twice the size of earth and made of diamonds. President Obama says the planet may be inhabited by aliens not paying their fair share.
+ - Scientists say that Texas and Antarctica were connected at one time. In fact, early Mexicans used to go through Texas to try to sneak into Antarctica.
+ - Senator John Kerry released his plan today to eliminate the deficit. He said all we have to do is find a really rich country like Switzerland and marry it.
+ - For some reason, the Secret Service revealed this, that Sarah Palin’s Secret Service code name is ‘Denali.’ Turns out ‘Denali’ is an old Eskimo name that means ‘Dan Quayle.’
+ - Yesterday President Obama said, ‘We can’t continue to treat tax money like monopoly money.’ Oh really – how come all those guys on Wall Street got ‘get out of jail free’ cards?
+ - A new study says that working fewer hours can slow global warming. So you know what that means? President Obama’s economic policy is also his climate change policy.
+ - There are now more obese people in the United States than there are overweight people. I think it’s safe to say that after all these years, Diet Coke is a complete failure.
+ - You know what Arnold Schwarzenegger and Meg Whitman have in common? They both got in trouble for stiffing the maid.
+ - You’ve got Bush and Gore headed to the Supreme Court. You’ve got George W. Bush’s intelligence will be pitted against Al Gore’s honesty. This is more like a case for small claims court.
+ - Al Gore has found a new job. He is going to teach journalism at Columbia University, which is ironic isn’t it? The guy who did all the coke winds up going to the White House, the guy who didn’t do coke goes to Columbia.
+ - Hillary Clinton is getting a little bit of controversy because she has the most expensive hometown office rent – over $500,000 a year. She’s in a one-year lease in the office, as opposed to her marriage, which is on a month-to-month.
+ - The Democratic Leadership Council has named Senator Hillary Rodham Clinton to design a plan to help define an agenda to the Democratic party. Although Bill said today, in his experience, whenever Hillary enters the picture that’s when the party ends.
+ - Over 6 million people were evacuated from New Jersey ahead of the hurricane. And now, three of them have gone back.
+ - In the spirit of the Olympic Games, they traditionally ask that all fighting and warfare around the world stop. So, there’s hope for a ceasefire within the Jackson family.
+ - I’ve lost some weight. I am on that new Obama diet. Every day I let Vladimir Putin eat my lunch.
+ - A number of plastic surgeons are claiming that looking at John Kerry now, as opposed to a few months ago, they believe he’s had Botox shots. They claim a number of his worry lines have vanished. They haven’t vanished, just Howard Dean is wearing them now.
+ - How about this John Edwards thing? Imagine that, a personal injury attorney who turns out to be a sleaze ball. Who could have seen that coming?
+ - It’s fun when you’re driving, and people wave at you, and you wave back. I think you either like people or you don’t. I mean, I don’t want to put on sunglasses. That’s why I’m in show business.
+ - Another air traffic controller fell asleep on the job, but he had a good excuse. He was watching President Obama’s deficit speech.
+ - They said these North Korean missiles had enough range to hit Seattle, but residents in Seattle were not worried. Today Bill Gates said Microsoft has enough missiles to destroy North Korea ten times over.
+ - Big scandal on the new ‘Survivor’ series. The white, the black and the Hispanic teams were caught cheating off the Asian team.
+ - Ashcroft went on to say that our way of life is being threatened by a group of radical religious fanatics who are armed and dangerous. And then he called for prayers in the schools and an end to gun control.
+ - California Governor Gray Davis visited an elementary school here in Los Angeles where he taught a class. I don’t want to say he was unpopular but the kids gave him a wedgie and stuffed him in a locker.
+ - Sarah Palin has admitted she tried marijuana several years ago, but she did not like it. She said it distorted her perceptions, impaired her thinking, and she’s hoping that the effects will eventually wear off.
+ - Herman Cain told a group of Occupy Wall Street protesters to go home, get a job, and get a life. That’s the Republican version of hope and change, ladies and gentlemen.
+ - CNN found that Hillary Clinton is the most admired woman in America. Women admire her because she’s strong and successful. Men admire her because she allows her husband to cheat and get away with it.
+ - The FDA is now warning people not to eat raw cookie dough this holiday season. Is that how fat we’re getting in this country? Our ovens are too slow now?
+ - China is now expected to surpass Japan as the 2nd richest country in the world. They could become the richest, but that’s only if we pay them the money we owe them, and that’s not going to happen.
+ - In Chicago some anti-Mitt Romney protesters told reporters they’re being paid to protest. They said they’re being paid by Democrats to stand outside and chant anti-Romney slogans. Well, who says President Obama isn’t creating any new jobs?
+ - Scientists think they can now clone an all-white zebra. Now, I’m no expert, but isn’t that a horse?
+ - The Globe reports that North Korean dictator Kim Jong-Il raises money by selling fake Viagra pills. What it is about this guy? None of his missiles seem to launch.
+ - In an exclusive interview with the Christian Broadcasting Network Donald Trump said “I believe in god.” But of course The Donald was talking about Himself.
+ - Yesterday all five living presidents gathered for the opening of the George W. Bush presidential library in Dallas. Well, six living presidents if you count Hillary in 2016.
+ - It is said that life begins when the fetus can exist apart from its mother. By this definition, many people in Hollywood are legally dead.
+ - Know what the Taliban leaders like to do for fun? Just sit around and get bombed.
+ - I looked up the word POLITICS in the dictionary, and it’s actually a combination of two words: poli, which means ‘many,’ and tics, which means ‘bloodsuckers.’
+ - Obama called on Americans to have more grandchildren. Probably so there’s more of them to pay off our debt.
+ - Nissan is designing a car that will read the driver’s mind. I already know what I’m going to do. I want a car that will read the other guy’s mind.
+ - A woman in Great Britain has died after being hit in the back of the head by a golf ball, on the first hole. Her husband was so distraught, he only played the front nine.
+ - John Kerry went hunting today. He said he killed a goose. He didn’t bring Teresa along because he was a little rusty and he was afraid he might kill the goose that laid the golden egg.
+ - In an unlikely pairing, Hillary Clinton made an appearance this week with Newt Gingrich to push a health care plan. The press is making a big deal out this thing with Newt but, hey, if anyone knows how to appear in public with a man she can’t stand, it’s Hillary.
+ - There was another war-related casualty today. The French were injured when they tried to jump on our bandwagon.
+ - Ron Paul is in favor of letting states legalize marijuana, prostitution, and cocaine. So even if he doesn’t win, that’s going to be one heck of an election night party.
+ - Researchers in England say tall men are more likely to have more children than short men. Here in America we call that the NBA theory.
+ - President Bush appeared with Arnold Schwarzenegger at a huge campaign event. Only in California can a governor who speaks German and a president who can barely speak English try to make themselves clear to an audience that’s primarily Spanish.
+ - The nation’s largest savings and loan, Washington Mutual, has become the biggest bank failure in history. See, the problem with the savings and loans? Not enough savings, too many stupid loans, okay In fact, they changed their name from WaMu to ‘screw you.’
+ - According to a new report, more than 700 fake Obamacare websites have been created. Security experts say it’s simple to identify the phony sites because they are easy to log on to.
+ - Studies show American students are becoming less proficient in math. Experts say we should have seen this coming, but nobody could put 2 and 2 together.
+ - When they said “Make love, not war” at Woodstock, they never imagined that one would become as dangerous as the other.
+ - Folks, tomorrow America will get to hear those four words we’ve been waiting for: “Former president George Bush”.
+ - If you don’t want your dog to have bad breath, do what I do: Pour a little Lavoris in the toilet.
+ - Texas Gov. Rick Perry referred to the Mexican city of Juarez as the most dangerous city in America. In his defense, he probably just thought it was an American city because there were so many Mexicans there.
+ - Senator Kerry recovering very nicely after having shoulder surgery. The doctors said the senator was fully awake, lucid and joking after the surgery was done, but cautioned that that was just the drug. He went back to his boring self soon afterward.
+ - The Bush administration has apparently approved a plan to oust Saddam Hussein. I think that’s President Bush’s Father’s Day gift to his Dad.
+ - Nike actually has a pair of shoes called Air-Turbulence. Try getting past airline security wearing those. Might as well call them Air-Osama.
+ - When you work with your hands, you learn to appreciate how easy it is to earn money talking.
+ - Thousands of dead fish have now washed up on shore along the coast of South Carolina. Today the NRA said that this wouldn’t have happened if those fish had guns.
+ - A New York doctor has finished a five year study on what smells have the biggest effect on New Yorkers. The smell New Yorkers like the most: vanilla. The smell New Yorkers like the least: New Jersey.
+ - Now this really annoys me: All these people getting on the Internet and saying Nostradamus predicted this. If Nostradamus were alive today his name would be Miss Cleo and he’d be charging $2.99 a minute.
+ - They determined who got the first question by a coin toss, to which Sarah Palin said, ‘Oh, what a coincidence, that’s how I got picked.’
+ - Oliver North says he is very upset that John Walker could come back to this country and cash in on his celebrity status. He hates to see someone who did something wrong get rewarded by writing a book or getting a TV show out of it.
+ - President Obama had lunch with Republican leaders at the White House today and had to do without salt, pepper and butter. Not for dietary reasons. The Republicans refused to pass anything.
+ - Two Americans have been awarded the Nobel Prize for Economics. They are the first to figure out all the charges on their telephone bill.
+ - The Pentagon still has not given a name to the Iraqi war. Somehow ‘Operation Re-elect Bush’ doesn’t seem to be popular.
+ - Well, Harry Reid and other members of congress, they’re just furious over this Olympic uniform deal. He says we should burn the uniforms, and it’s an embarrassment and a disgrace. Not as embarrassing as congress constantly borrowing money from the Chinese, but still embarrassing.
+ - Over in Iraq after you vote they paint your finger purple so you can’t vote again. It’s a flawless system. It works perfectly unless, of course, someone has paint remover.
+ - Barack Obama’s daughters are very smart. They told him they will take the same responsibility for the dog that he is taking for the economy. That way, if the dog leaves a mess in the White House, it’ll be cleaned up by future generations.
+ - Rick Santorum is so conservative; he thinks KY Jelly is jam made in Kentucky.
+ - The healthcare reform bill now includes a tanning booth tax of 10 percent. You know what this means? This whole thing could be funded by the cast of ‘Jersey Shore.’
+ - My favorite Halloween candy is the candy corn. It comes in four colors: white, yellow, orange, brown. Those are also the stages of your teeth rotting after you eat it.
+ - If I could ask Ken Lay one question right now, do you know what it would be? “Does the Devil really wear Prada?”
+ - Postal inspectors have been given advanced warning that Publishers Clearinghouse is sending packets of laundry detergent that could be mistaken for anthrax. Oh, good timing. What genius came up with this promotion? What’s next – a ticking alarm clock? Let’s put that in a box.
+ - As you know President Bush has been traveling around the country trying to sell his new Social Security plan. He wants to take our retirement money and invest it in the stock market. He says nothing can go wrong. I’ll mention that to Martha Stewart the next time I see her.
+ - I was watching Discovery Channel the other day, and you know that they have come up with a new theory about how dinosaurs was wiped out? It was a midturn election...
+ - A lot of Congressmen yesterday were upset when Kenneth Lay took the Fifth. Lay said it wasn’t his fault. He had planned on testifying, but when Jeffrey Skilling testified, he took all the really good lies.
+ - It really kind of looks like now that John Kerry is on his way to the presidential nomination. The only thing that can sink John Kerry now is an Al Gore endorsement.
+ - Those two pilots that sped 150 miles past their Minneapolis destination have been suspended. They got suspended because they were looking at their laptops instead of flying the plane. Think about this – everybody else on the plane has to turn off their laptops except for the people flying the plane.
+ - Kerry was here in Los Angeles. He was courting the Spanish vote by speaking Spanish. And he showed people he could be boring in two languages.
+ - The White House has now released military documents that they say prove George Bush met his requirements for the National Guard. Big deal, we’ve got documents that prove Al Gore won the election.
+ - The latest issue of GQ magazine, John Kerry talks about what a man should look for in a woman. GQ? If John Kerry is going to talk about what he likes in a woman, shouldn’t it be in Fortune or Money magazine?
+ - President Obama wants Congress to increase the minimum wage. Believe me, when it comes to doing the minimum for their wage, Congress knows what it’s talking about.
+ - At Ken Lay’s funeral service the minister compared him to Dr. Martin Luther King, Junior. The difference is Dr. King had a dream, Ken Lay had a scheme.
+ - USA Today reports that the number of death row executions this year has hit a 35-year low. They attribute that to DNA evidence clearing more people and the fact that Rick Perry has been on the road campaigning.
+ - The White House says that the unemployment rate is good news because it means more people are looking for jobs. More good news like that, and everyone at the White House will be looking for jobs.
+ - Men are liars. We lie about lying if we have to.
+ - According to a recent survey, men say the first thing they notice about women is their eyes. And women say the first thing they notice about men is they’re a bunch of liars.
+ - Saddam Hussein has raised the amount going to suicide bombers from $10 thousand dollars to $25 thousand. What’s next, a health care plan?
+ - A new poll shows that Americans now believe that Bill Clinton is more honest than President Bush. At least when Clinton screwed the nation, he did it one person at a time.
+ - Halloween’s coming. Kids get very imaginative in my neighborhood. Last year, three kids showed up as Goldman Sachs executives and demanded 4.5 billion pieces of candy.
+ - Anybody who gives their car to a valet isn’t a car guy.
+ - Elections officials here in California are concerned that having 247 candidates would require a ballot so long it would be difficult to count. Today in Florida they said, ‘What? You count the ballots?’
+ - In South Korea, a scientist considered to be one of the pioneers in the field of cloning has been sentenced to two years in prison. At least, they think it’s him...
+ - A historic operation occurred over in Boston. Doctors successfully transplanted tissue from a pig’s brain to a man’s brain – and the man’s brain did not reject it. That pretty much confirms what women have been saying about men.
+ - John McCain said that Barack Obama is already measuring the drapes in the White House. That’s what he said. I understand Sarah Palin is already driving McCain around to look at assisted living facilities.
+ - A team of British lawyers has now concluded that the Declaration of Independence was illegal, and the American colonies had no right to secede from England. Well, you thought our court system was backed up.
+ - It’s always bad news when you kill your date.
+ - There was a rumor that Jesse Jackson was going to go over there to talk with the Taliban, apparently they were having trouble rhyming the word Jihad.
+ - President Obama is currently on a week-long trip to Africa, where he will promote freedom, democracy, and economic opportunity. I guess he figured it hasn’t worked here – so try it somewhere else.
+ - A new poll says that if the election were held today, both John Kerry and John Edwards would beat President Bush by double digit margins. The White House is so worried about this, they’re now thinking of moving up the capture of Osama Bin Laden to next month.
+ - John Kerry suspended his campaign for five days this week in honor of President Reagan. And right now, he’s ahead in the polls. How’s that make him feel? Disappears for a week and he’s up in the polls. What else can he do now but go into hiding.
+ - A Democratic congressman said that he worries that the IRS scandal might have a chilling effect on the IRA and that they might be afraid to audit people. So finally some good is coming out of all of this.
+ - A lot of controversy over this possible invasion of Iraq. In fact, Nelson Mandela was so upset, he called Bush’s dad. How embarrassing, when world leaders start calling your father.
+ - Have you seen the cover of Newsweek? They have Martha Stewart on the cover, but it’s not actually Martha. It’s a doctored photo. They put Martha’s head on a slimmer woman’s body. And Martha was very upset about this. She said, ‘Hey, if I wanted my face on another woman’s body, I’d stay in prison.’
+ - I’m trying to sum up President Obama’s first 11 months in office. He gave billions to Wall Street, cracked down on illegal immigrants getting health care, and he’s sending 30,000 more troops to Afghanistan. You know something, he may go down in history as our greatest Republican president ever.
+ - Did you hear about the dog that was so high-strung, he developed a nervous tick?
+ - Iraq began destroying those missiles they don’t have over the weekend. See, President Bush may be the smartest military president in history. First, he gets Iraq to destroy all of their own weapons. Then he declares war.
+ - But the good news, the crime rate is down. Isn’t that amazing? Less banks are being robbed. Well, sure. A, there’s less banks. B, the banks don’t have any money left. And C, nobody’s got gas money for the getaway car. So, right there, crime is down!
+ - Today Arnold Schwarzenegger made another major announcement. He said his lieutenant governor will be Xena, Warrior Princess.
+ - Mitt Romney is predicting that as president, he will create 12 million jobs in his first term. Well, President Obama says a Romney presidency would result in lost jobs. Yeah, his and Biden’s.
+ - CNN said that after the war, there is a plan to divide Iraq into three parts: regular, premium and unleaded.
+ - According to The New York Times, the mob has now gotten into Medicare fraud. But the good news is, when they do break your legs there’s a good chance you’re covered.
+ - President Clinton says he looks forward to the day a citizen can call the IRS and get the right answer to a question. I look forward to the day I can call the IRS and get a voice that says, ‘Sorry, that number has been disconnected.’
+ - The Secret Service has announced it is doubling its protection for John Kerry. You can understand why – with two positions on every issue, he has twice as many people mad at him.
+ - Some Democrats say the estimated $60 billion dollar cost of a war with Iraq could be better spent at home. When he heard that, President Bush agreed and announced plans to bomb Ohio.
+ - Well, it looks like we’ve moved a step closer to war. Not with Iraq. With France and Germany. How did we screw that one up?
+ - Your preoccupation should be on doing what you do as well as you can.
+ - With the presidential debates right around the corner, John Kerry is going to play Mitt Romney to help the President prepare for the debates. That’s kind of a stretch; a rich white guy from Massachusetts playing a rich white guy from Massachusetts.
+ - Romney raised $10 million. That’s a dollar for every position he’s had on healthcare.
+ - President Bush earned $400,000 for his job as president last year. That’s not really that much for being president when you think about it. But President Bush, he doesn’t do it for the money, he does it for the eight months of vacation every year.
+ - Attorney General John Ashcroft said there is a new credible terrorist threat. He said everything is under control; not to panic. And then he went back to his harmonically sealed bunker.
+ - American Taliban John Walker Lindh has pleaded guilty to two counts of terrorism and will face twenty years in prison. I guess that means his jihad is on ji-hold.
+ - According to a recent study, ten percent of ‘Star Trek’ fans meet the psychological criteria for addiction. Deprived of their favourite show, some Trekkies disply withdrawal symptoms similar to drug addicts. Of course, the real difference is that drug addicts aren’t nearly as annoying.
+ - Scientists are complaining that the new dinosaur movie shows dinosaurs with lemurs, who didn’t evolve for another million years. They’re afraid the movie will give kids a mistaken impression. What about the fact that the dinosaurs are singing and dancing?
+ - Major league baseball has asked its players to stop tossing baseballs into the stands during games, because they say fans fight over them and they get hurt. In fact, the Florida Marlins said that’s why they never hit any home runs. It’s a safety issue.
+ - Regulations force people to do better.
+ - President Bush said global warming is happening much quicker than he thought, and then his staff pulled him aside and said ‘It’s just springtime.’
+ - As if this whole thing isn’t confusing enough, election officials announced this week that the alphabet on the ballot will begin with the letter R, then W, then Q. You know, even Sesame Street is laughing at California now.
+ - Dean’s wife, Judith Steinberg, made a rare appearance with Dean. She’s a doctor, so I guess they brought her in to stop the hemorrhaging.
+ - How many have seen that Osama bin Laden footage? Pretty scary. In fact, today, NBC ordered 13 more episodes.
+ - Now see, a lot of critics are saying Arnold can’t get elected because he’s just an ambitious guy with a famous name, who doesn’t know anything about running the government. Didn’t hurt George Bush.
+ - It seemed that after he was killed, Gadhafi’s body was stored at a commercial freezer at a shopping mall. It’s one thing to hunt a guy down and shoot him twice in the head, but then to drag him to the mall? Come on, guys hate that.
+ - 65% of people say that cheating on your income tax is worse than cheating on your spouse. The other 35% were women.
+ - Remember when Obama was campaigning? Didn’t he say he was going to close Guantanamo Bay? Didn’t he say that? Apparently, he just meant for renovations.
+ - A man in Florida has been arrested for wearing a President Obama mask while robbing a McDonald’s. To show you how good this guy’s disguise was, instead of a holdup note he was reading from a teleprompter.
+ - I’m glad the government has shut down. Think about it, for the first time in years it’s safe to talk on the phone and send emails without anybody listening in.
+ - For the first time ever, overweight people outnumber average people in America. Doesn’t that make overweight the average then? Last month you were fat, now you’re average – hey, let’s get a pizza!
+ - Real movement in the Kerry campaign now. His poll numbers are moving, donations are moving, endorsements are moving. The only thing not moving is his hair.
+ - Of course, Republicans still can’t believe that Barack Obama won the Nobel Peace Prize. But then Democrats can’t believe that Sarah Palin wrote a book.
+ - The 99 Cent Only Store is calling itself your Valentine’s Day headquarters. Guys, if that’s your Valentine’s Day headquarters, you can also call the garage your new home.
+ - An intruder broke into Mike Tyson’s hotel room in Las Vegas while he was sleeping but got out before Tyson could get to him. I don’t know what’s scarier. Having someone breaking into your room while you’re sleeping or breaking into someone else’s room and finding out the guy is Mike Tyson.
+ - President Bush has urged people to get back to normal and today Congress announced that they are accepting bribes again.
+ - John Kerry accused President Bush of catering to the rich. You know, as opposed to John Kerry who just marries them.
+ - The Democrats are all over this. Democratic strategists feel John Kerry’s war record means he can beat Bush. They say when it comes down to it voters will always vote for a war hero over someone who tried to get out of the war. I’ll be sure to mention that to Bob Dole when I see him.
+ - Remember the good old days when the only bomb you had to worry about on a plane was the Rob Schneider movie?
+ - Mitt Romney has a new fundraising gimmick. If you donate $3 or more to his campaign, your name will be entered into a drawing to win a dinner with Mitt Romney and Donald Trump. If you donate more than $10, you get to sit at a different table.
+ - While visiting Kenya, former President Clinton was offered 40 goats and 20 cows for his daughter, Chelsea, by a love struck government official. Bill said, “No way!” How does that make Hillary feel? Bill almost gave her up for one cow.
+ - President James Garfield could write in Latin with one hand while writing in Greek with the other. I would give my right arm to be ambidextrous.
+ - Last night, John McCain said that under the Democratic health care plan, a bureaucrat would stand between you and your doctor, as opposed to the Republican health care plan, where an accountant would stand between you and your health care.
+ - Yesterday, President-elect Barack Obama announced his new economic team. You know what he should do? Hire those people who were in charge of his fundraising campaign. We can pay this thing off in like a week.
+ - There is a penalty for trying to knock down a cockpit door, but it’s the people who try to go from coach to 1st class they really beat up.
+ - Chris Christie won by such a wide margin that pundits say this will give him the impetus he needs to run for president. And he’s got a new slogan: ‘Put the oval in the Oval Office.’
+ - Oscar nominations came out today. Up for best actor, Sean Penn for ‘Mystic River,’ Jude Law for ‘Cold Mountain,’ and of course, George W. Bush for ‘Iraqi Weapons of Mass Destruction.’
+ - This is my favorite story of the week. The Republican National Committee is in trouble after spending nearly $2,000 at a bondage club in Hollywood. You know what I call a Republican that spends a lot of money in a strip club? A Democrat.
+ - Several states are now looking into the possibility of taxing marijuana as a source of revenue. That is so typical of the government, isn’t it? Trying to squeeze blood from a stoner.
+ - The big question now is who will take power in Afghanistan once the Taliban is defeated. I was thinking, how about Al Gore? He’s not doing anything, he needs a job, and he’s already got the beard.
+ - You know what’s sad about this? Not the gambling, but the best way to reach college athletes is the Cartoon Network.
+ - A student at the University of Wisconsin in Madison spent 90 days technology free. He went without a cell phone, Facebook, Twitter, or any social media of any kind. And you know what really improved? His driving!
+ - Form 1040 was chosen by the IRS because for every $50 you earn, you get 10 and they get 40.
+ - The Senate voted 97-0 for an anti-spam bill to stop those annoying things you get on your computer. The senators made it very clear that when you start misleading the American people and start taking their money over false promises, that’s our turf, buddy!
+ - Howard Dean is a politician, a medical doctor and a Democrat. So he has three reasons to tell women to take off their clothes now.
+ - The Iraqis sat down for talks on how to put together a post-war government. They would have sat down yesterday, but somebody stole all their couches.
+ - President Obama has announced a task force to review the tax codes. He’s concerned there are too many loopholes and too many people manipulating the system to avoid paying taxes. And that’s just in his administration.
+ - George W. Bush loves golf because it’s like the election – low score wins.
+ - Everyone is so concerned now where all of the candidates are born. McCain was born on a military base in Panama. Hillary was born outside Chicago, and if you believe the media, Barack Obama was born in a manger.
+ - President Obama is coming under criticism now for not meeting with his jobs council. He hasn’t met with his jobs council in over six months. You know the reason Obama hasn’t met with his job council in six months? They’re all out looking for jobs.
+ - According to federal reports filed yesterday, the Obama campaign spent more money than they raised in the month of May. They spent more money than they raised? Well, that’s called being a Democrat.
+ - President Obama released his tax returns. It turns out he made $900,000 less in 2011 then he did in 2010. You know what that means? Even Obama is doing worse under President Obama.
+ - Not a good night for President Obama. He lost elections in Virginia, New Jersey, and he’s not doing good in Afghanistan either.
+ - The entire spring and summer line from Marc Jacobs was stolen on the way to the fashion show in Paris. The thief is considered armed and fabulous.
+ - Hundreds of barefoot Filipinos marched on the roads through the Philippines carrying heavy wooden crosses and whipping their backs until they bled to prepare for Easter. Call me old-fashioned but I just like coloring the eggs.
+ - Vice President Cheney is also on vacation. He’s in Jackson Hole, Wyoming. What better place for a guy who has had 4 heart attacks than a place with thin air, rugged hiking and all-beef dinners? Why don’t they get some snow for him to shovel while he’s out there, too?
+ - John Kerry and Ralph Nader met face-to-face, it was a historic meeting. Astronomers said today their meeting actually created what is called a ‘charisma black hole.’
+ - President Obama told a group of school children that broccoli was his favorite food, and they believed him. Then he told them Obamacare would reduce the deficit and the kids all busted out laughing.
+ - You know, it shows how old I am. I can remember the good old days when the president picked the Supreme Court justices instead of the other way around.
+ - Experts say that if we go to war with Iraq, oil could reach as much as $80 a barrel. Of course, after the war it will be free.
+ - An evangelical minister has had to resign after pictures surfaced showing him in a hot tub with two women. He claimed it was just a baptism gone terribly wrong.
+ - According to Kim Jong-Il’s biography, they say he has been constantly accused of dishonesty, drunkenness and sexual excess. So if he lived here, he could be in Congress.
+ - A lot of American companies are now moving into Iraq. Iraq now has Pizza Hut, Subway, Taco Bell and Popeye’s fried chicken. So, great, instead of oil for food, we’re giving them oil in food.
+ - They say that most airline seats on planes today are meant for 170-pound passengers. The last time the average American weighed 170 pounds, the Wright Brothers were flying the plane.
+ - Facebook has revealed their estimated net worth – $96 billion. That’s almost as much money as businesses lose every year from their employees wasting time looking at Facebook.
+ - President Obama flew to a rally in Las Vegas last night. However, he did not visit any of the casinos. You know why? When you’re $16 trillion in debt, they don’t let you in.
+ - If any job should give you a company car, it’s the car bomb business.
+ - It happened again this week. Hundreds of people had to be evacuated from O’Hare Airport in Chicago. Seems every time somebody went through with a weapon, the metal detectors accidentally went off.
+ - The leaders of the Taliban said today that killing bin Laden won’t solve the problem. But, you know, it couldn’t hurt.
+ - We’ve got the government shutdown, but the beginning of Obamacare. You know what that means? You can now complain to your doctor about the government making you sick.
+ - The United States have developed a new weapon that destroys people but it leaves buildings standing. It’s called the stock market.
+ - Anthony Weiner and his wife, Huma, have given birth to a baby boy. He posted a photo of the new baby on Twitter, but people are afraid to open it.
+ - According to government auditors, the stimulus money is being held up because there aren’t enough government workers to oversee the spending. So follow me, in other words, government workers who aren’t there are needed to spend money we don’t have to create jobs that don’t exist.
+ - According to a survey in this week’s Time magazine, 85% of Americans think global warming is happening. The other 15% work for the White House.
+ - The Bush administration said today there is a lot of support for us to attack Iraq. Exxon, Mobil, Texaco, Chevron, they’re all lining up.
+ - The worst thing about losing this job: I’m no longer covered by NBC. I have to sign up for ObamaCare.
+ - It seems that researchers at Colorado University say wine may help people lose weight. It’s not the wine directly that causes the weight loss, it’s all the walking around you do trying to find your car.
+ - The latest report is that Osama bin Laden has shaved his beard, is wearing Western clothes and has had plastic surgery. Isn’t that amazing? The guy has made just two videos and he’s already gone Hollywood.
+ - American forces in Iraq found $650 million in American cash sealed in a hidden cottage. See, this is why President Bush wants to invade Iraq, the whole place is oil and cash. It’s like Republican Disneyland.
+ - There’s all this talk about Arnold Schwarzenegger. Well, you know where he is now? Visiting Mexico, which I think means that he is definitely going to run for governor. Arnold is smart. He’s in Mexico campaigning with the very people who’ll be living here by election time.
+ - Arnold said this is a last minute attack by Democrats. How did Arnold know to grope only Democrats?
+ - Today, President Barack Obama promised to ‘detect and pursue’ American tax evaders, as opposed to his first 100 days, in which he detected and nominated American tax evaders.
+ - Yesterday morning Facebook was temporarily offline, leaving millions of workers unable to do anything except their jobs.
+ - A dead body was discovered this week on the grounds of a country estate owned by Queen Elizabeth. The queen said today she hopes this serves as a reminder to anybody on her staff that there is a right way and a wrong way to polish sterling silver.
+ - Here’s the latest from the Pentagon – the generals are worried that the White House is spreading itself thin by trying to fight a war on two fronts; Afghanistan and Fox News.
+ - We should make politicians dress like race car drivers – when they get money, make them wear the company logos on their suit.
+ - John Kerry keeping a low profile this week. He said he wanted to get away and go someplace where no one would expect to see him. So I guess he showed up at his old seat in the Senate. Nobody’s going to look for him there.
+ - You know what Ken Lay had for breakfast this morning? Shredded Wheat.
+ - The big winner last night in New Hampshire – Senator John Kerry. He won 39 percent of the vote, which is pretty good, and begs the question, why the long face?
+ - Jack Abramoff is going to testify against some of the other weasels in Congress. A lobbyist testifying against congressmen? How many Bibles are going to burst into flames in that courtroom?
+ - And under the new guidelines issued by the Obama Administration, Federal agents will not pursue pot-smoking patients in states that allow medical marijuana. This new policy is called ‘Don’t Ask, Don’t – What Was I Talking About?’
+ - The Mayans have predicted the world is supposed to end on December 21. If the world doesn’t end on December 21, you can bet the next day the malls will be overrun with Mayans trying to buy last-minute gifts.
+ - President Obama was in Disney World today where he unveiled his new plan to create jobs. He was joined by Mickey Mouse and Minnie Mouse but not Goofy. He had to stay behind to tend to his vice presidential duties.
+ - According to a new book coming out by a Pulitzer Prize-winning author, apparently when he was in high school, President Obama smoked large amounts of marijuana. You know what that means? He could be our first green president.
+ - President Obama told the Irish people that America will always stand by them, to which Israel laughed.
+ - Is it me or is Bush going everywhere Kerry goes? So far in the past week, President Bush has followed John Kerry to Davenport, Iowa; New Mexico; Las Vegas; Los Angeles; and he follows him to Portland, Oregon. The only place he never followed John Kerry was Vietnam.
+ - Martha Stewart was found guilty on all charges. You know what that means, stripes are in this year.
+ - President Bush spoke with the Amish. He didn’t want to, but it was the only group he could find that wasn’t upset about the high price of gas.
+ - They say there are something like 12 million illegal immigrants in the country right now, with another half a million coming every year. Remember in the last election when the Democrats claimed there was two Americas? Turns out one of them was Mexico.
+ - John Kerry said today he wants to debate President Bush once a month. Hey good luck, if Bush couldn’t make it to the National Guard once a month, he’s not going to show up for this.
+ - Wikipedia was offline after an overheating problem at one of its data centers. It was pretty bad. For a while there, people had nowhere to go for phony, inaccurate information.
+ - Do you know what White House correspondents call actors who pose as reporters? Anchors.
+ - Arnold Schwarzenegger is blaming man for global warming. And today, Al Gore agreed with him. That’s so typical. Two cyborgs, ‘Oh, let’s blame the humans.’
+ - I love all these politicians, they all say the same thing – ‘We’ll give California back to the people.’ Yeah, great, now that it’s not worth anything, they want to give it back to us.
+ - Homeland Security Chief Tom Ridge raised security alert to a code red. Apparently Howard Dean has escaped. Did you see Dean’s crazed speech the other night, yelling? I see why his wife won’t campaign with him. In fact, Dean has a new slogan: ‘Aaghhhh.’
+ - Bin Laden was once targeted by President Clinton. President Clinton wanted to kill him but couldn’t get him. Of course not, we all know what kind of aim Clinton has.
+ - Joe Biden once again denied stories that he will be replaced on the ticket in 2012. He says he will continue to embarrass President Obama for another four years.
+ - Do you know who will be in charge of health care? The IRS. You thought getting audited was bad? Wait until your next prostate exam.
+ - A hiker who was lost in a blizzard said he stayed alive by digging a snow tunnel and burning dollar bills for warmth. Today he was offered a job as President Obama’s economic adviser.
+ - Political experts are saying the reason John Kerry is doing so well is because he’s ‘electable.’ Hey, so was Al Gore – in fact, he even got elected and it didn’t help him at all.
+ - ESPN has announced that they are launching a 3-D sports network. Industry analysts say this will absolutely revolutionize the way Americans don’t watch soccer.
+ - For the first time ever, women are scoring higher than men on IQ tests. Scientists say it has something to do with breast implants – not that it makes the women smarter, it just makes the men dumber.
+ - John Kerry reportedly flew in his private hairdresser before his “Meet the Press” interview for a total cost of $1,000. That’s $1,000 for a haircut, which sounds like a lot, but have you seen the size of Kerry’s head.
+ - Kerry has already begun his search for a running mate. They say that because John Edwards still has $50 million in campaign money, Kerry might pick him. Pick him? Hey, for $50 million, Kerry will marry him.
+ - President Obama wants to raise taxes on the country’s richest people. And you thought Donald Trump hated him before.
+ - Well, the big story – Hillary Clinton will be running for president in 2008. You know why I think she’s running? I think she finally wants to see what it’s like to sleep in the president’s bed.
+ - They always say the Miss America Pageant isn’t a beauty contest, it’s really a scholarship program. If that’s the case, why don’t we just put all the contestants on Jeopardy! and pick Miss America that way? At least you get the smartest one.
+ - Clinton vetoed the repeal of the marriage tax. I guess Bill figures if he’s married, then we all have to suffer.
+ - Of course with John McCain out of the race, George W. Bush has to pick a running mate. Which is kind of a scary proposition when you think about it. I mean his dad picked Dan Quayle, an he isn’t as smart as his dad.
+ - Republicans are now saying that Dan Rather should lose his job because he misled the country with bogus information. Which is odd because the Democrats are saying the exact same thing about President Bush.
+ - We ought to thank President Bush. He made it a lot easier for people to do taxes this year. No job, no income tax this year.
+ - Actually, you know who gave the shortest inauguration speech in history? George Washington. It was only like three minutes long. Well, sure. George Washington couldn’t tell a lie.
+ - There is now a $5 million dollar bounty on Osama bin Laden. Which marks the first time in history there has ever been a bounty on a guy’s head who wears Bounty on his head.
+ - Hillary Clinton said she hopes America is ready for a woman in the Oval Office. That was the great thing about her husband Bill: he was always ready for a woman in the Oval Office.
+ - President Bush spent the day calling names he couldn’t pronounce in countries he never knew existed.
+ - San Francisco hosted the first medical marijuana job fair. The keynote speech was titled, ‘Jobs and How to Avoid Getting One.’
+ - Last night I went out for Chinese. I picked up a Team USA Olympic uniform.
+ - Today, one year after their divorce, Pamela and Tommy Lee announced they’re getting back together. You know what that means? There’s still hope for Ike and Tina Turner.
+ - I feel bad for people who die on Valentine’s Day. How much would flowers cost then, ten grand?
+ - I guess we didn’t even officially apologize. Jesse Jackson called on the United States to officially apologize to the Chinese. Jesse said, ‘An apology is not a sign of weakness.’ And as President Clinton has taught us, an apology isn’t even a sign you’re sorry.
+ - One of the Taliban spokesmen said they have thousands of men who look forward to death like Americans look forward to living, which is great because we can arrange that. We’ll set them up with death, we’ll continue living.
+ - For the first time the people of Iraq are united. Today on CNN I saw a Kurd, a Shiite and a member of the Republican Guard coming together to cart off a big screen TV.
+ - Bush is smart. I don’t think that Bush will ever be impeached, ’cause unlike Clinton, Reagan, or even his father, George W. is immune from scandal. Because, if George W. testifies that he had no idea what was going on, wouldn’t you believe him?
+ - Barack Obama spent his first day as president-elect putting together his transition team. And if you believe MSNBC, by tomorrow he will have chosen all 12 of his disciples.
+ - President Obama and House Speaker John Boehner played golf this weekend. Obama’s handicap is Joe Biden.
+ - We pick politicians by how they look on TV and Miss America on where she stands on the issues. Isn’t that a little backwards?
+ - Senator Chris Dodd unveiled his plan to reduce corruption in the Senate. He’s retiring.
+ - The NFL draft is going to be this Thursday. That’s a huge night for college players. That’s the night they start being paid over the table.
+ - In spite of the poor economy, almost 70 percent of Americans occasionally splurge on luxury items – like a blanket on a plane, or a peanut.
+ - A new medical study reports that men who eat ten pizzas a week are less likely to develop prostate problems at age 50. That’s because they are usually dead by age 40.
+ - Courtney Love said she once escorted Kerry to a concert. John Kerry once went out with Courtney Love and he’s questioning Bush’s judgment.
+ - In a new issue of Esquire magazine, they revealed that before he was married to Teresa Heinz, Senator John Kerry dated Morgan Fairchild, Michelle Phillips, Catherine Oxenberg and Dana Delany. Finally a Democratic presidential candidate with good taste in women.
+ - It’s cold out. It’s even cold in Florida. So cold today that Katherine Harris put on a third layer of makeup.
+ - Never perform for your family. They either laugh too hard or not at all.
+ - George W. Bush says he spends sixty to ninety minutes a day working out. He says he works out because it clears his mind. Sometimes just a little too much.
+ - Scientists say they have developed a car that can run on water. The only catch is, the water has to come from the Gulf of Mexico.
+ - Ex-convicts prepared the eggs for the White House’s Easter Egg Roll. It’s nice to see the White House reaching out to former members of Congress.
+ - The White House approved an exemption in Obamacare coverage for Congress and members of their staff. Members complained that the Affordable Care Act will cost them thousands extra a year in premiums. Wait a minute. It’s their bill. If it’s too expensive, why did they name it the Affordable Care Act?
+ - A new study found that people who are depressed have a greater risk of stroke. Well that should cheer them up.
+ - A survey released today found that men spend twice as much on their mistresses for Christmas as they do on their wives. On the other hand, men spend half their income on the wives when the wife finds out about the mistress. So it all balances out.
+ - French troops arrived in Afghanistan last week, and not a minute too soon. The French are acting as advisers to the Taliban, to teach them how to surrender properly.
+ - In his speech last night, John Kerry said this was the beginning of the end of the Bush administration. I agree. Sure, it may take another five years, but this is it.
+ - You know what they say when a supermodel gets pregnant? Now she’s eating for one.
+ - It’s casual Friday, which means that at the White House, they’re casually going through everybody’s phone calls and records.
+ - I’m sure you know by now, Jesse Jackson was overheard saying, and I’ll put this more delicately, that he wanted to cut Barack Obama’s testicles off. And Jesse has been on several news programs the last couple of days, explaining what he meant by those comments. Do you need to explain that?
+ - According to the New York Daily News, Geraldo said he is now carrying a gun, and he will personally shoot Osama bin Laden if he finds him. If Osama also has a gun, this could work out okay.
+ - They say hot dogs can kill you. How do you know it’s not the bun?
+ - You know who Boehner is, right? He’s that orange looking guy. See, for Republicans that counts as diversity.
+ - As you may have heard, former President Bill Clinton says he’s coming here to California to help Governor Gray Davis in his recall election campaign. Which is ironic, isn’t it? When Clinton was president, he couldn’t recall anything.
+ - A survey says that American workers work the first three hours every day just to pay their taxes. So that’s why we can’t get anything done in the morning: We’re government workers.
+ - I think there’s one more thing Perry can forget, too: Being president.
+ - Republicans are always criticizing President Obama for using the teleprompter. Is that a big deal? After eight years of George Bush, I’m glad we have a president that can read.
+ - Former Enron CEO Jeffrey Skilling appeared before Congress. Do you think they even bothered swearing him in? Now he is denying he lied to Congress last week. He’s saying it was just the liquor talking.
+ - You see the pictures in the paper today of John Kerry windsurfing? He’s at his home in Nantucket this week, doing his favorite thing, windsurfing. Even his hobby depends on which way the wind blows.
+ - John Kerry’s wife Teresa Heinz is on the cover of Newsweek magazine this week and they said that if he is elected president, she will be the oldest first lady in American history. But that doesn’t bother John Kerry, he said, ‘To me, she looks like a million bucks’
+ - In his big victory speech last night, Senator Kerry said that he wanted to defeat George Bush and the ‘economy of privilege.’ Then he hugged his wife, Teresa, heir to the multi-million dollar Heinz food fortune.
+ - Major heat wave in India – 122 degrees today. It was so hot people in India were sweating like Americans waiting to hear if their job is being outsourced to India.
+ - If we go down in flames, we will be laughing on the way down, believe me.
+ - The Obama administration has revealed the size of America’s nuclear arsenal. We have 1,000 warheads aimed at China, 1,000 aimed at Russia, and the rest aimed at Fox News.
+ - Before we give the government any more money, show us some receipts.
+ - President Obama will be going to Disney World where he’ll unveil his new plan to create jobs. And what better place for the president to talk about his jobs plan than Fantasyland?
+ - Changing the story until you believe it.
+ - It’s being reported that the economy lost 95,000 jobs in September. And that’s just people leaving the White House.
+ - The Catholic Church is still very angry about The Da Vinci Code – they don’t like anything that makes more money in a weekend than they do.
+ - The Democrats say that President Bush doesn’t have an exit strategy for Iraq. Of course he does. If things don’t go well, he exits in November.
+ - Here is a very inexpensive costume idea. Wear a re-elect Obama button and go out as a journalist.
+ - Show business is like Champagne. You’ll appreciate it more if you don’t drink it everyday.
+ - Gray Davis got some good news this week: the Clintons are out here in California campaigning for him. Actually, Hillary is campaigning for Davis, Bill is out here for Larry Flynt.
+ - There was also talk of bringing Al Gore to California to help out, but there was concern that Gray Davis and Al Gore in the same state would cause some kind of rolling personality blackout.
+ - It looks like President Obama has a new campaign slogan: ‘Yes I Did.’
+ - Arnold Schwarzenegger announced that he is going to run for governor on our program last night. My staff didn’t know, Arnold’s staff didn’t know, I was shocked as everyone else. If he doesn’t get elected governor, maybe he should work for the CIA. I mean, he can keep a secret better than they can.
+ - Warren Buffett’s company reportedly owes the IRS a billion dollars in back taxes. When he said he wasn’t paying enough taxes, he wasn’t kidding.
+ - Tonight the Republican presidential candidates had a big debate, 10 candidates. The last time that many rich white guys got together, I think Exxon merged with Mobil.
+ - Actually, Joe Biden looked pretty good. In fact, Joe’s popularity has gone from 1% to 2% last week to 3% today. At this rate, he could win the nomination by the year 2032.
+ - In Greece, the unemployment rate has risen to 22%. The solution to the problem was to raise taxes on the rich, according to the Greek president Barack Obama-opolis.
+ - A top geneticist at Stanford says human intelligence is declining. You know what that means? We are seeing Congress at its smartest and most effective right now.
+ - I had a dog that was so lazy, he had a prerecorded bark.
+ - Rick Perry told reporters this week that he has a permit to carry a concealed handgun. He also has a concealed vocabulary, concealed knowledge of the issues, concealed tolerance...
+ - A new poll shows only 3 percent strongly approve of the job Congress is doing, with a margin of error of 4 percent, so it’s possible that “less than no one” thinks they’re doing a good job.
+ - The first case of mad cow disease since 2006 was discovered right here in the United States. The good news, since the cow is in California, instead of putting the cow down, they are going to enroll him in anger management classes.
+ - John Kerry announced that he and his wife are leaving on a week-long vacation. He’s going to take her back to the place where he first proposed to her – at her bank.
+ - The Houston Astros want to change the name of Enron Field where they play. I guess the Enron name could cause problems for them. Like players could steal a base and then deny it.
+ - I think Donald Trump and Jeb Bush are the frontrunners. It’s kind of like the race between the tortoise and the bad hair.
+ - Donald Trump says that he will not run for president. You know why? He can’t find his birth certificate.
+ - Good news. President Bush is creating thousands of new jobs. Unfortunately, all of them are at the White House.
+ - To give you an idea how bad the American economy is, Mexico is now calling for a fence along the border. Stay on your side!
+ - President Clinton and President Obama played a round of golf over the weekend. President Clinton asked Obama what his handicap was, and Obama said, ‘Joe Biden.’
+ - Here’s some exciting news – according to The New York Post, both Al Gore and John Kerry are thinking of running for president in 2008. Gore and Kerry again! Political experts say it’s too early to tell who would lose bigger!
+ - The FCC is considering lifting the ban on cellphone calls on planes. The good news is you’ll be able to make calls during your flight. The bad news? The person sitting next to you will be able to make cellphone calls during yourflight.
+ - The IRS said today anyone with a refund coming from their 2001 taxes will lose it if they don’t pick it up by April 15th. If it is more then three years they will just keep it. How come it doesn’t work that way with back taxes?
+
+500 quotes

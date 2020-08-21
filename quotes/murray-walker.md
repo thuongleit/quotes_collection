@@ -1,0 +1,85 @@
+ - There are seven winners of the Monaco Grand Prix on the starting line today, and four of them are Michael Schumacher.
+ - Michael Schumacher is leading Michael Schumacher.
+ - I don’t make mistakes. I make prophecies which immediately turn out to be wrong.
+ - Do my eyes deceive me, or is Senna’s Lotus sounding rough?
+ - And here comes Mika Hakkinen, double world champion twice over.
+ - And there’s no damage to the car. Except to the car itself.
+ - This would have been Senna’s third win a row if he’d won the two before.
+ - And that just shows you how important the car is in Formula One Racing.
+ - Somebody said once ‘Follow the money’ and that is what it is all about.
+ - Ukyo Katayama is undoubtedly the best Formula One driver that Grand Prix racing has ever produced.
+ - I was often in the pit lane the noise was indescribable and I’ve no doubt that is why my hearing was affected.
+ - You can cut the tension with a cricket stump.
+ - Jean Alesi is 4th and 5th.
+ - Rally points scoring is twenty for the fastest, eighteen for the second fastest, right down to six points for the slowest fastest.
+ - The gap between the two cars is 0.9 of a second, which is less than one second.
+ - Nigel Mansell is the last person in the race apart from the five in front of him.
+ - Tombay’s hopes, which were nil before, are absolutely zero now.
+ - As you can see, visually, with your eyes.
+ - And now Jacques Laffitte is as close to Surer as Surer is to Laffitte.
+ - It’s lap 26 of 58, which unless I’m very much mistaken is half way.
+ - The lead car is unique, except for the one behind it which is identical.
+ - Andrea De Cesaris, the man who has won more Grands Prix than anybody else in the history of Grand Prix racing without actually winning one of them.
+ - We now have exactly the same situation as we had at the start of the race, only exactly the opposite.
+ - Mansell can see him in his earphone.
+ - You might not think that’s cricket, and it’s not, it’s motor racing.
+ - I wonder if Watson is in the relaxed state of mind he’s in.
+ - I was there when I said it.
+ - Speaking from memory, I don’t know how many points Nelson Piquet has...
+ - Just under 10 seconds for Nigel Mansell. Call it 9.5 seconds in round numbers.
+ - That’s the first time he had started from the front row in a Grand Prix, having done so in Canada earlier this year.
+ - And he’s done that in a whisker under 10 seconds, call it 9.7 in round figures.
+ - This circuit is interesting because it has inclines and declines. Not just up, but down as well.
+ - As you look at the first four, the significant thing is that Alboreto is fifth.
+ - That’s history. I say history because it happened in the past.
+ - Look up there! That’s the sky!
+ - Anything happens in Grand Prix racing, and it usually does.
+ - There are four different cars filling the first four places.
+ - Alboreto has dropped back up to fifth place.
+ - Either the car is stationary, or it’s on the move.
+ - Let’s stop the startwatch.
+ - I’ve no idea what Eddie Irvine’s orders are, but he’s following them superlatively well.
+ - I can’t imagine what kind of problem Senna has. I imagine it must be some sort of grip problem.
+ - I’m very careful with money – both my parents were very sensible with it and I grew up to become an obsessive saver.
+ - IF is a very long word in Formula One; in fact, IF is F1 spelled backwards.
+ - I’m a car fanatic and each morning I wake up with a smile on my face, whether I’m commentating on the Formula One or at Silver Hatch racetrack in Roary the Racing Car.
+ - It all comes down to money.
+ - Like everybody, I have invested in things that have gone bad, because there’s never any guarantee of success or profit when it comes to money.
+ - I’m a frustrated driver. I would love to be out on the track instead of them. I look at them with envy.
+ - If you don’t trust someone to look after your investments, then they shouldn’t be doing the job for you.
+ - And all Niki really has to do now is coast.
+ - Brundle is driving an absolutely pluperfect race.
+ - And Damon Hill is following Damon Hill.
+ - Motor racing can never be totally safe and it never should be in my opinion.
+ - Frentzen is taking, er, reducing that gap between himself and Frentzen.
+ - With two laps to go then the action will begin, unless this is the action, which it is.
+ - Stewart has two cars in the top five: Magnusson 5th and Barichello 6th.
+ - I want to say so much more than I have time for.
+ - Jenson Button is in the top ten, in eleventh position.
+ - I’m in my usual state up here in the commentary box: high tension, heart beating like a trip hammer, whatever that is.
+ - Villeneuve is now twelve seconds ahead of Villeneuve.
+ - Schumacher has made his final stop three times.
+ - Mansell is slowing it down, taking it easy. Oh, no he isn’t! It’s a lap record.
+ - And Michael Schumacher is 37 seconds ahead, so he can refuel the car, change all four wheels, take off his helmet, have a smoke and a cup of tea, and rejoin in first.
+ - And this is the third place car about to lap the second place car.
+ - And the first five places are filled by five different cars.
+ - Ferrari leads, McLaren second, McLaren second, Jordan third, and Benneton fifth and sixth.
+ - The European drivers have adapted to this circuit extremely quickly, especially Paul Radisich who’s a New Zealander.
+ - With half the race gone, there is half the race still to go.
+ - Thackwell really can metaphorically coast home now.
+ - A mediocre season for Nelson Piquet as he is now known and always has been.
+ - I wish we had a system where you are given a bill including service and that people were paid properly so they didn’t have to rely on tips. In different restaurants there are different policies and it’s all very confusing.
+ - We all make mistakes, but when I made mistakes there was no filter between me and the consumer.
+ - It is a huge honour to be recognised as the world’s best commentator, particularly against so many sporting greats.
+ - The tires are called wets, because they’re used in the wet. And these tires are called slicks, because they’re very slick.
+ - Now he must not go the wrong way round the circuit, and unless he can spin himself stationary through 360 degrees I fail to see how he can avoid doing so.
+ - And he’s lost both right front tires.
+ - Even in five years time, he will still be four years younger than Damon Hill.
+ - I didn’t see the time, largely because there wasn’t one.
+ - And the first three cars are all Escorts, which isn’t surprising as this is an all Escort race.
+ - Of course he did it voluntarily, but he had to do it.
+ - Alain Prost is in a commanding second position.
+ - And there’s the man in the green flag!
+ - Alesi is in second place, and Hill is in second place.
+
+83 quotes

@@ -1,0 +1,41 @@
+ - The only thing that separates successful people from the ones who aren’t is the willingness to work very, very hard.
+ - Money, if it does not bring you happiness, will at least help you be miserable in comfort.
+ - Love doesn’t drop on you unexpectedly; you have to give off signals, sort of like an amateur radio operator.
+ - Feeling insecure is good for you. It forces you to do something better, drives you to use all your talents.
+ - Every morning when I’m thrashing around on the floor doing my solid hour of heavy exercises I’m not really doing that for anyone but myself. It makes me feel good.
+ - Feed the alligators and you get bigger alligators.
+ - The prerequisite for making love is to like someone enormously.
+ - You can have your titular recognition. I’ll take the money and the power.
+ - Don’t use men to get what you want in life. Get it yourself.
+ - If you’re a little mouseburger, come with me. I was a mouseburger and I will help you. You’re so much more wonderful than you think. Cosmopolitan is shot full of this stuff although outsiders don’t realize it. It is, in its way, an inspiration magazine.
+ - I think a single woman’s biggest problem is coping with the people who are trying to marry her off!
+ - Good posture is the one most important thing anybody can do now to look better.
+ - Never throw anything good away – real wool, pure silk. Put it away and wait for it to come back.
+ - I care. I care a lot. I think of Cosmopolitan all day, and I run scared. So it’s a combination of fright, caring and anxiety.
+ - Work with the raw material you have, namely you, and never let up.
+ - When you meet a man, don’t you always idly wonder what he’d be like in bed? I do.
+ - Sometimes I wonder if I’m doing everyone a disservice by perpetuating the idea that beautiful is better than plain, because having done everything just about that you can do, sparing no expense, and not effort, to become better looking, I know that only so much can be done.
+ - We are told to value ourselves without feedback, but if nobody is making a pass at you or trying to take you to Bermuda, how are you supposed to feel? Confident?
+ - Don’t do small stuff early in your energy cycle or you’ll blow your ‘golden hours,’ but occasionally you have to do the ‘possible’ to develop the momentum for the killer task.
+ - Never fail to know that if you are doing all the talking, you are boring somebody.
+ - Do what’s in front of you as well as possible. Keep going until you realize what you’re best at.
+ - I guess anyone with a beautiful body, man or woman, loves to be looked at, but to admit such a thing is a little rough at times. That’s why it’s hard to get people to pose.
+ - The happiest people I know are not those who are the most beautiful, rich or famous. The happiest people I see are simply those who stay cheerful and try to cheer up others while getting through their own bad stuff.
+ - Talkers expand like bread dough.
+ - A man likes to sleep with a brainy girl. She’s a challenge. If he makes good with her, he figures he must be good himself.
+ - I think I’m a fairly average person, I think I have only a medium IQ. I didn’t go to college, obviously.
+ - There are not that many people who know how to edit. It’s a funny tiny little obscure talent but it’s very special. You have to have the feeling of popular taste.
+ - Charm is the next best asset after looks and brains – and can almost make up for looks.
+ - Two warm bodies and one cold bottle of champagne will produce something more wonderful than would happen without the champagne.
+ - I think you keep two sets of books. In one set, you record the truth – how well you are really doing. This is the secret set – just for you and loved ones. In the other set are more modest entries and statements, and these are for public consumption!
+ - Trying to describe a good marriage is like trying to describe your adrenal glands. You know they’re in there functioning but you don’t really understand how they work.
+ - I guess I’m a survivor. There are many of us survivors and any successful woman of my age has somewhat of that in her.
+ - People never get tired of looking at beautiful pictures of gorgeous girls.
+ - You know you can’t hope yourself a better life – you must take yourself there.
+ - I just had the idea that all the covergirls should be gorgeous, and not just interesting, not beautiful in an offbeat or exotic way, just plain yummy gorgeous.
+ - Get up and do it if it needs to be done, even if you hate it!
+ - It’s unrealistic to think you can only have one good product. People are not that poor. They can buy what they want.
+ - If you do the best you can, no matter how bad the situation, you probably are going to come out okay.
+ - The only reason a man doesn’t call is that he doesn’t want to.
+
+39 quotes

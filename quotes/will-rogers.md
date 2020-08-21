@@ -1,0 +1,502 @@
+ - Even if you are on the right track, you’ll get run over if you just sit there.
+ - The road to success is dotted with many tempting parking spaces.
+ - You never get a second chance to make a first impression.
+ - Don’t let yesterday use up too much of today.
+ - A man only learns in two ways, one by reading, and the other by association with smarter people.
+ - Sometimes people deserve a high five, in the face, with a chair.
+ - Too many people spend money they haven’t earned to buy things they don’t want to impress people they don’t like.
+ - When I die, I want to die like my grandfather who died peacefully in his sleep. Not screaming like all the passengers in his car.
+ - A vision, without a plan, is just a hallucination.
+ - Make crime pay. Become a lawyer.
+ - If you want to be successful, it’s just this simple. Know what you are doing. Love what you are doing. And believe in what you are doing.
+ - Real estate is the best investment in the world because it is the only thing they’re not making any more.
+ - The way to make money in the stock market is to buy a stock. Then, when it goes up, sell it. If it’s not going to go up, don’t buy it!
+ - Advertising is the art of convincing people to spend money they don’t have for something they don’t need.
+ - A successful outcome shows what hard work, perseverance and taking advantage of your opportunities will do for you.
+ - Lead your life so you wouldn’t be ashamed to sell the family parrot to the town gossip. 
+ - If you are trying to get out of the hole, stop digging.
+ - If there are no dogs in Heaven, then when I die I want to go where they went.
+ - Even if you’re on the right track, you’ll get run over if you just sit there. Opportunity rarely knocks on your door. Knock rather on opportunity’s door if you ardently wish to enter.
+ - Good judgment comes from experience, and a lot of that comes from bad judgment.
+ - It takes a lifetime to build a good reputation, but you can lose it in a minute.
+ - Some people try to turn back their odometers. Not me, I want people to know “why” I look this way. I’ve traveled a long way and some of the roads weren’t paved.
+ - Don’t wait to buy land, buy land and wait.
+ - I know worrying works, because none of the stuff I worried about ever happened.
+ - Worrying is like paying on a debt that may never come due.
+ - America is a land of opportunity and don’t ever forget it.
+ - People’s minds are changed through observation and not through argument.
+ - If you don’t like the weather in Oklahoma, wait a minute and it’ll change.
+ - There are two theories to arguing with a woman. Neither works.
+ - Don’t wait to buy land, Buy land and wait. Find out where the people are going and buy the land before they get there.
+ - Never slap a man who’s chewing tobacco. Never kick a cow chip on a hot day. Never miss a good chance to shut up.
+ - There are three kinds of men. The one that learns by reading. The few who learn by observation. The rest of them have to pee on the electric fence for themselves.
+ - The best way out of a difficulty is through it.
+ - Just because it’s common sense, doesn’t mean it’s common practice.
+ - Everything is changing. People are taking their comedians seriously and the politicians as a joke.
+ - We can’t all be heroes, because somebody has to sit on the curb and applaud when they go by.
+ - What the country needs is dirtier fingernails and cleaner minds.
+ - A stranger is just a friend I haven’t met yet.
+ - The trouble with practical jokes is that very often they get elected.
+ - Everything is funny, as long as it’s happening to somebody else.
+ - Long ago when men cursed and beat the ground with sticks, it was called witchcraft. Today it’s called golf.
+ - The taxpayers are sending congressmen on expensive trips abroad. It might be worth it except they keep coming back.
+ - We always want the best man to win an election. Unfortunately, he never runs.
+ - The worst thing that happens to you may be the best thing for you if you don’t let it get the best of you.
+ - With Congress, every time they make a joke it’s a law, and every time they make a law it’s a joke.
+ - When you find yourself in a hole, quit digging.
+ - You know you’ve got to exercise your brain just like your muscles.
+ - Invest in inflation. It is the only thing going up.
+ - Always drink upstream from the herd.
+ - When you’re through learning, you’re through.
+ - An ignorant person is one who doesn’t know what you have just found out.
+ - There are men running governments who shouldn’t be allowed to play with matches.
+ - I am always going to do my best, no matter where I am.
+ - Everyone is a self-made man. Only the successful admit it.
+ - I never met a man that I didn’t like.
+ - It is not the return on my investment that I am concerned about; it’s the return of my investment.
+ - Under capitalism man exploits man; under socialism the reverse is true.
+ - What’s considered enough money? Just a little bit more.
+ - We have the best Congress that money can buy.
+ - A king can stand people’s fighting but he can’t last long if people start thinking.
+ - Things will get better – despite our efforts to improve them.
+ - Do the best you can, and don’t take life too serious.
+ - Never miss a chance to shut up.
+ - If Stupidity got us into this mess, then why can’t it get us out?
+ - Lord, let me live until I die.
+ - Everyone wants to vote for the best and most qualified man, but he never runs for office.
+ - If you want to be successful, love what you are doing.
+ - I love a dog. He does nothing for political reasons.
+ - The man with the best job in the country is the vice-president. All he has to do is get up every morning and say, ‘How is the president?’
+ - I’m not so much interested in the return ON my money as I am in the return OF my money.
+ - It’s no laughing matter being a Republican in these perilous times. Anyone can be a Republican when the stock market is up, but when stocks are selling for no more than they’re worth, I tell you, being a Republican – it’s a sacrifice.
+ - You must judge a man’s greatness by how much he will be missed.
+ - The more that learn to read the less learn how to make a living. That’s one thing about a little education. It spoils you for actual work. The more you know the more you think somebody owes you a living.
+ - The older we get, the fewer things seem worth waiting in line for.
+ - There is one rule that works in every calamity. Be it pestilence, war, or famine, the rich get richer and poor get poorer. The poor even help arrange it.
+ - All I know is just what I read in the papers, and that’s an alibi for my ignorance.
+ - It isn’t what we don’t know that gives us trouble, it’s what we know that ain’t so.
+ - Get someone else to blow your horn and the sound will carry twice as far.
+ - Half our life is spent trying to find something to do with the time we have rushed through life trying to save.
+ - This thing of being a hero, about the main thing to it is to know when to die.
+ - The only way you can beat the lawyers is to die with nothing.
+ - We are all here for a spell, get all the good laughs you can.
+ - There is not a man in the country that can’t make a living for himself and family. But he can’t make a living for them and his government, too, the way his government is living. What the government has got to do is live as cheap as the people.
+ - The short memories of the American voters is what keeps our politicians in office.
+ - People are getting smarter nowadays; they are letting lawyers, instead of their conscience, be their guide.
+ - I don’t make jokes. I just watch the government and report the facts.
+ - Broad-minded is just another way of saying a fellow is too lazy to form an opinion.
+ - The farmer has to be an optimist or he wouldn’t still be a farmer.
+ - We are all ignorant. We are just ignorant about different things.
+ - There is no income tax in Russia. But there’s no income.
+ - I love words but I don’t like strange ones. You don’t understand them and they don’t understand you. Old words is like old friends, you know ’em the minute you see ’em.
+ - Show me a healthy community with a healthy economy and I will show you a community that has its green infrastructure in order and understands the relationship between the built and the unbuilt environment.
+ - You know, women always could endure more than men. Not only physically, but mentally – did you ever get a peek at some of the husbands?
+ - Common sense ain’t common.
+ - When ignorance gets started it knows no bounds.
+ - The only time people dislike gossip is when you gossip about them.
+ - People that pay for things never complain. It’s the guy you give something to that you can’t please.
+ - Common sense is not an issue in politics – it’s an affliction.
+ - Pain is such an uncomfortable feeling that even a tiny amount of it is enough to ruin every enjoyment.
+ - There is one guaranteed formula for failure, and that is to try to please everyone.
+ - Chaotic action is preferable to orderly inaction.
+ - If America ever passes out as a great nation, we ought to put on our tombstone: America died from a delusion she had Moral Leadership.
+ - Nobody wants to be called common people, especially common people.
+ - The sales tax is the best and most equitable tax. The gasoline tax, which is nothing but a sales tax, has proven painless, productive and punitive. Everything we buy should have its equal proportion of tax, outside of cheap food and cheap clothes.
+ - Be thankful we’re not getting all the government we’re paying for.
+ - It’s great to be great, but its greater to be human.
+ - There have been three great inventions since the beginning of time: fire, the wheel, and central banking.
+ - So let’s be honest with ourselves and not take ourselves too serious, and never condemn the other fellow for doing what we are doing every day, only in a different way.
+ - There is nothing so stupid as the educated man if you get him off the thing he was educated in.
+ - You know horses are smarter than people. You never heard of a horse going broke betting on people.
+ - We will never have true civilization until we have learned to recognize the rights of others.
+ - You’ve got to go out on a limb sometimes because that’s where the fruit is.
+ - Diplomacy is the art of saying ‘Nice doggie’ until you can find a rock.
+ - In time of crisis people want to know that you care, more than they care what you know.
+ - We may elevate ourselves but we should never reach so high that we would every forget those who helped us get there.
+ - Eventually you will reach a point when you stop lying about your age and start bragging about it.
+ - The minute you read something that you can’t understand, you can almost be sure that it was drawn up by a lawyer.
+ - Cattlemen have lost more in the last few years than anybody and say less about it.
+ - Rumor travels faster, but it don’t stay put as long as truth.
+ - I am not a member of any organized political party. I am a Democrat.
+ - I guess there is nothing that will get your mind off everything like golf. I have never been depressed enough to take up the game, but they say you get so sore at yourself you forget to hate your enemies.
+ - Buy land. They ain’t making any more of the stuff.
+ - It’s getting so if a man wants to stand well socially, he can’t afford to be seen with either the Democrats or the Republicans.
+ - A remark generally hurts in proportion to its truth.
+ - The more you observe politics, the more you’ve got to admit that each party is worse than the other.
+ - The trouble with Democrats is that they all want to run for President.
+ - There is two types of Larceny, Petty and Grand. They are supposed to be the same in the eyes of the law, but judges always put a little extra on you for Petty, which is kind of a fine for stupidness.
+ - You can have all the advanced war methods you want, but, after all, nobody has ever invented a war that you don’t have to have somebody in the guise of soldiers to stop the bullets.
+ - Don’t invite me if you don’t want me.
+ - Let Wall Street have a nightmare and the whole country has to help them back to bed again.
+ - It’s almost worth the Great Depression to learn how little our big men know.
+ - When you give a lesson in meanness to a critter or a person, don’t be surprised if they learn their lesson.
+ - We are always yapping about the ‘Good Old Days’ and how we look back and enjoy it, but I tell you there is a lot of hooey to it. There is a whole lot of all our past lives that wasn’t so hot.
+ - People should be more concerned with the return of their principal than the return on their principal.
+ - The US is safest when Congress is in recess.
+ - I would rather be the man who bought the Brooklyn Bridge than the man who sold it.
+ - Democrats are the only reason to vote for Republicans.
+ - A difference of opinion is what makes horse racing and missionaries.
+ - Mona Lisa is the only beauty who went through history and retained her reputation.
+ - One revolution is like one cocktail, it just gets you organized for the next.
+ - Women are not the weak, frail little flowers that they are advertised. There has never been anything invented yet, including war, that a man would enter into, that a woman wouldn’t, too.
+ - My father was one-eighth Cherokee indian and my mother was quarter-blood Cherokee. I never got far enough in arithmetic to figure out how much injun that made me, but there’s nothing of which I am more proud than my Cherokee blood.
+ - If you live right, death is a joke to you as far as fear is concerned.
+ - Congress is going to start tinkering with the Ten Commandments just as soon as they find someone in Washington who has read them.
+ - I can remember way back when a liberal was one who was generous with his money.
+ - Never slap a man who is chewing tobacco.
+ - Money, horse racing and women: three things the boys just can’t figure out.
+ - I have Indian Blood in me. I have just enough white blood for you to question my honesty!
+ - We Americans think we are pretty good! We want to build a house, we cut down some trees. We want to build a fire, we dig a little coal. But when we run out of all these things, then we will find out just how good we really are.
+ - And if you call one a real estate agent and he won’t sell you anything. He is a REALATOR. It’s the same as what the old fashioned real estate agent used to be only the commission is different.
+ - My forefathers didn’t come over on the Mayflower, but they met the boat.
+ - I like to hear a man talk about himself because then I never hear anything, but good.
+ - More words ain’t good for anything in the world only to bring on more argument.
+ - The Senate just sits and waits till they find out what the president wants, so they know how to vote against him.
+ - You can’t legislate intelligence and common sense into people.
+ - See what will happen if you don’t stop biting your fingernails.
+ - I never expected to see the day when girls would get sunburned in the places they now do.
+ - All one has to do to get one’s stuff in the Congressional Record is to find a stenographer that can stay awake long enough to take it down. Then you mark in the ‘Applause’ and ‘Laughter’ parts yourself.
+ - Andrew Jackson was the first one to think up the idea to promise everybody that if they will vote for you, you will give them an office when you get it, and the more times they vote for you, the bigger the office.
+ - Take me ham away, take away my eggs, even my Chili, but leave me my newspaper.
+ - Every time a woman leaves off something she looks better, but every time a man leaves off something he looks worse.
+ - When you put down the good things you ought to have done, and leave out the bad ones you did do well, that’s Memoirs.
+ - The time to save is now. When a dog gets a bone, he doesn’t go out and make a down payment on a bigger bone. He buries the one he’s got.
+ - In the early days of the Indian Territory, there were no such things as birth certificates. You being there was certificate enough.
+ - Every Harvard class should have one Democrat to rescue it from oblivion.
+ - It looks to me like any man that wants to be President in times like these lacks something.
+ - Politics is the best show in America. I love animals and I love politicians, and I like to watch both of ’em at play, either back home in their native state, or after they’ve been captured and sent to a zoo, or to Washington.
+ - Technocracy wants to do everything by machinery. Machinery is doing just fine. If it can’t kill you, it will put you out of work.
+ - Everybody is ignorant, only on different subjects.
+ - I bet any Sunday could be made as popular at church as Easter is if you made ’em fashion shows too. The audience is so busy looking at each other that the preacher just as well recite Gunga Din.
+ - Everything is funny as long as it is happening to Somebody Else, but when it happens to you, why it seems to lose some of its Humor, and if it keeps on happening, why the entire laughter kinder Fades out of it.
+ - We are always saying: Let the Law take its Course but what we really mean is: Let the Law take OUR Course.
+ - If pro is the opposite of con, what is the opposite of Congress?
+ - There is something about riding down the street on a prancing horse that makes you feel like something, even when you ain’t a thing.
+ - If you feel the urge, don’t be afraid to go on a wild goose chase. What do you think wild geese are for anyway?
+ - There are two things I don’t care how smart you are, you will never understand. One is an alienist’s testimony, and the other is a railroad timetable.
+ - I was just thinking, if it is really religion with these nudist colonies, they sure must turn atheists in the wintertime.
+ - There’s the one thing no nation can ever accuse us of and that is secret diplomacy. Our foreign are an open book, generally a check book.
+ - That’s what a Congressman or a Senator is for – to see that too much money don’t accumulate in the national Treasury.
+ - When you get into trouble 5,000 miles from home, you’ve got to have been looking for it.
+ - Some guy invented Vitamin A out of a carrot. I’ll bet he can’t invent a good meal out of one.
+ - In politics practically everything you hear is scandal, and besides, the funny thing is that the things they are whispering ain’t half has bad as the things they have been saying right out loud.
+ - No man can be condemned for owning a dog. As long as he has a dog, he has a friend; and the poorer he gets, the better friend he has.
+ - When you are dissatisfied and would like to go back to youth, think of Algebra.
+ - The bankers just got a good cussing by everybody for loaning too much money. Well, they got some awful nice buildings. So when a banker fails, he fails in splendor.
+ - Ancient Rome declined because it had a Senate, now what’s going to happen to us with both a House and a Senate?
+ - It don’t take a genius to spot a goat in a flock of sheep.
+ - Communism is like prohibition, it is a good idea, but it won’t work.
+ - Polo, racing and horse shows all are doing great work to help the farmer and rancher to raise better horses.
+ - Lobbyists have more offices in Washington than the President. You see, the President only tells Congress what they should do. Lobbyists tell’em what they will do.
+ - The trouble with our praying is, we just do it as a means of last resort.
+ - Rail-splitting produced an immortal president in Lincoln, but golf hasn’t produced even a good Congressman.
+ - People learn more from observation that they do from conversation.
+ - The trouble with land is that they’re not making it anymore.
+ - Political elections are a good deal like marriages, there’s no accounting for anyone’s taste.
+ - We are the first nation in the history of the world to go to the poorhouse in an automobile.
+ - We have killed more people celebrating our independence day than we lost fighting for it.
+ - I tell you folks, all politics is applesauce.
+ - There is no argument in the world that carries the hatred that a relioious belief does. The more learned a man is, the less consideration he has for another man’s belief.
+ - The English should give Ireland home rule – and reserve the motion picture rights.
+ - There ain’t nothing that breaks up homes, country and nations like somebody publishing their memoirs.
+ - The self persists like a dying star, In sleep, afraid.
+ - The good old horse-and-buggy days: then you lived until you died and not until you were run over.
+ - Wine had such ill effects on Noah’s health that it was all he could do to live 950 years. Show me a total abstainer that ever lived that long.
+ - We don’t give our criminals much punishment, but we sure give ’em plenty of publicity.
+ - I guess the only way to stop divorce is to stop marriage.
+ - A company is known by the people it keeps.
+ - The farmers can be thankful. Didn’t the Farm Board decide in Washington last week that they could have cheaper interest? All the farmers have to do now is to find something new to put up as security.
+ - I doubt if a charging elephant, or a rhino, is as determined or hard to check as a socially ambitious mother.
+ - In a real estate man’s eye, the most expensive part of the city is where he has a house to sell.
+ - Baseball is a skilled game. It’s America’s game – it, and high taxes.
+ - Money and women are the most sought after and the least known about of any two things we have.
+ - Congress meets tomorrow morning. Let us all pray: Oh Lord, give us strength to bear that which is about to be inflicted upon us. Be merciful with them, oh Lord, for they know not what they’re doing. Amen.
+ - Ten men in our country could buy the whole world and ten million can’t buy enough to eat.
+ - Don’t squat with your spurs on.
+ - Hurray! Congress is to adjourn! Only four more days of Congressional burglary on the Treasury!
+ - Politicians are dumb, but they can count to 50% plus one.
+ - Whoever said a horse was dumb, was dumb.
+ - When should a college athlete turn pro? Not until he has earned all he can in college as an amateur.
+ - Nothing makes a man, or a body of men, as mad as the truth. If there is no truth in it, they laugh it off.
+ - Foreign relations is an open book – generally a checkbook.
+ - If all politicians fished instead of spoke publicly, we would be at peace with the world.
+ - If your time is worth anything, travel by air. If not, you might just as well walk.
+ - A senator got up today in Congress and called his fellow senators sons of wild jackasses. Now, if you think the senators were hot, imagine how the jackasses must feel.
+ - Democrats never agree on anything, that’s why they’re Democrats. If they agreed with each other, they would be Republicans.
+ - Texas is a great state. It’s the ‘Old Man River’ of states. No matter who runs it or what happens to it politically, it just keeps rolling along!
+ - Golf is good for the soul. You get so mad at yourself you forget to hate your enemies.
+ - I never met a man I didn’t get a kind of strange and exciting tingling sensation from.
+ - Ignorance lies not in the things you don’t know, but in the things you know that ain’t so.
+ - I don’t care how little your country is, you got a right to run it like you want to. When the big nations quit meddling then the world will have peace.
+ - A fool and his money are soon elected.
+ - Our country has plenty of five-cent cigars, but the trouble is they charge fifteen cents for them.
+ - All I know is just what I read in the Congressional Record. They have had some awful funny articles in there lately. As our government deteriorates, our humor increases.
+ - Does college pay? They do if you are a good open-field runner.
+ - I am just an old country boy in a big town trying to get along. I have been eating pretty regular and the reason I have been is because I have stayed an old country boy.
+ - Shrewdness in public life all over the world is always honored, while honesty in public men is generally attributed to dumbness and is seldom rewarded.
+ - There’s a simple solution to our traffic problems. We’ll have business build the roads, and government build the cars.
+ - Parades should be classed as a nuisance and participants should be subject to a term in prison.
+ - The old horse is coming back in a high lope. Thousands of people are riding a horse today that five years ago couldn’t sit in a Ford with all the doors locked.
+ - My own mother died when I was 10 years old. My folks have told me that what little humor I have comes from her. I can’t remember her humor, but I can remember her love and understanding of me.
+ - Don’t be misled by History, or any other unreliable source.
+ - Congress is deadlocked and can’t act.
+ - It’s not what you pay a man, but what he costs you that counts.
+ - You never know how much a man can’t remember until he is called as a witness.
+ - What would we say if the Chinese sent a gunboat with their marines up the Mississippi River claiming they were protecting their laundries in Memphis?
+ - Every time somebody has thought of relief for the farmer it has been to make it so he could borrow more money. What he needs is some way to pay back. Not some way to borrow more.
+ - After seeing kids play polo against big guys, it only shows that horses are the greatest equalizer in the world. No matter what you weigh, the little fellow is your equal on a horse.
+ - If a thousand shares of stocks or bonds make nothing, you pay nothing. But on a thousand acres of land you pay enough to support half the community who own no land and pay no taxes.
+ - Well, the disarmament conference is off to a flying start. There is nothing to prevent their succeeding now but human nature.
+ - Statistics have proven that the surest way to get anything out of the public mind and never hear of it again is to have a Senate committee appointed to look into it.
+ - Asking Europe to disarm is like asking a man in Chicago to give up his life insurance.
+ - Horses raise what the farmer eats and eats what the farmer raises. You can’t plow the ground and get gasoline.
+ - Hundreds and hundreds of beautiful horses in the parade and a man without a silver saddle is a vagrant.
+ - Now they got such a high inheritance tax on ’em that you won’t catch these old rich boys dying promiscuously like they did. This bill makes patriots out of everybody. You sure do die for your country if you die from now on.
+ - You can’t fool all of the people all of the time. But it isn’t necessary.
+ - This would be a great world to dance in if we didn’t have to pay the fiddler.
+ - Prohibition is better than no liquor at all.
+ - People love high ideals, but they got to be about 33-percent plausible.
+ - I will never joke about old soldiers who try to get to reunions to talk over the war again. To talk of old times with old friends is the greatest thing in the world.
+ - You have to have a serious streak in you, or you can’t see the funny side of the other fellow.
+ - I joked about every prominent man of my time, but I never met a man I didn’t like.
+ - One way to solve the traffic problem is to keep all the cars that are not paid for off the streets.
+ - Steak on the plate went up. Steak on the hoof went down.
+ - Live your life so that whenever you lose, you are ahead.
+ - The fellow that can only see a week ahead is always the popular fellow, for he is looking with the crowd. But the one that can see years ahead, he has a telescope but he can’t make anybody believe that he has it.
+ - If you can build a business up big enough, it’s respectable.
+ - I go too fast to see much, only the tops of everything. I’ve got to prowl slow some time through this country.
+ - There is no more independence in politics than there is in jail.
+ - There is no more interesting place in the world to meet characters than a movie set.
+ - It looks to me like the candidates are trying to relieve the farmer of his vote, instead of his debts.
+ - The 1928 Republican Convention opened with a prayer. If the Lord can see His way clear to bless the Republican Party the way it’s been carrying on, then the rest of us ought to get it without even asking.
+ - Alexander Hamilton originated the put and take system in our national treasury: the taxpayers put it in, and the politicians take it out.
+ - The more ignorant you are, the quicker you fight.
+ - Politics is not worrying this country one-tenth as much as where to find a parking space.
+ - Everything worthwhile is a good idea, but did you ever notice there is more bad ideas that will work than there is good ones?
+ - The nation is prosperous on the whole, but how much prosperity is there in a hole?
+ - I argue with wife over what little pieces of real estate investments we should try to pay on and hold, and which to let go back. We always said, “Put it in land, and you can always walk on it.” We did, but no buyers would walk on it with us.
+ - The only difference between death and taxes is that death doesn’t get worse every time Congress meets.
+ - I represent what is left of a vanishing race, and that is the pedestrian. That I am still able to be here, I owe to a keen eye and a nimble pair of legs. But I know they’ll get me someday.
+ - I was born because it was a habit in those days, people didn’t know anything else.
+ - I have always said that a conference was held for one reason only, to give everybody a chance to get sore at everybody else. Sometimes it takes two or three conferences to scare up a war, but generally one will do it.
+ - A politician is just like a pickpocket; it’s almost impossible to get him to reform.
+ - Don’t gamble; take all your savings and buy some good stock and hold it till it goes up, then sell it. If it don’t go up, don’t buy it.
+ - It’s the greatest game I ever saw. You can’t lose. Everybody buys to sell and nobody buys to keep. What’s worrying me is who is going to be the last owner. It’s just like an auction; the only one stuck is the last one.
+ - Will somebody please tell me what they do with all the Vice-Presidents a bank has? Why the United States is the biggest business institution in the world, and they got only one Vice-President and nobody has ever found anything for him to do.
+ - Things in our country run in spite of government, not by aid of it.
+ - The man that found the 726-carat diamond in Africa, received $350,000 for it and wants to buy a farm and silk hat. Well, I can understand a man perhaps being eccentric enough to want to own a silk hat.
+ - Some say, what is the Salvation of the Movies? I say, run ’em backwards. It can’t hurt ’em and it’s worth a trial.
+ - The theater is a great equalizer: it is the only place where the poor can look down on the rich.
+ - No man is great if he thinks he is.
+ - In all your life, you will never find a method more effective in getting through to another person than to make that person feel important.
+ - Never blame a legislative body for not doing something. When they do nothing, that don’t hurt anybody. When they do something is when they become dangerous.
+ - Mothers are the only race of people that speak the same tongue. A mother in Manchuria could converse with a mother in Nebraska and never miss a word.
+ - If we got one-tenth of what was promised to us in these acceptance speeches there wouldn’t be any inducement to go to heaven.
+ - If you get to thinking you’re a person of some influence, try ordering somebody else’s dog around.
+ - There is an awful lot of difference between reading something and actually seeing it, for you can never tell, till you see it, just how big a liar History is.
+ - The difference between a Republican and a Democrat is the Democrat is a cannibal they have to live off each other, while the Republicans, why, they live off the Democrats.
+ - Being a hero is about the shortest-lived profession on earth.
+ - A lot of guys have had a lot of fun joking about Henry Ford because he admitted one time that he didn’t know history. He don’t know it, but history will know him. He has made more history than his critics ever read.
+ - You can be killed just as dead in an unjustified war as you can in one protecting your own home.
+ - When you are satisfied, you are successful. For that’s all there is to success is satisfaction.
+ - One of the evils of democracy is, you have to put up with the man you elect whether you want him or not.
+ - The only way to solve the traffic problems of the country is to pass a law that only paid-for cars are allowed to use the highways. That would make traffic so scarce, we could use our boulevards for children’s playgrounds.
+ - We don’t seem to be able to check crime, so why not legalize it and then tax it out of business?
+ - Never kick a cow chip on a hot day.
+ - If I studied all my life, I couldn’t think up half the number of funny things passed in one session of congress.
+ - You could transfer Congress over to run Standard Oil or General Motors, and they would have both things bankrupt in two years.
+ - Politics has become so expensive that it takes a lot of money even to be defeated.
+ - If Wall Street paid a tax on every “game” they run, we would get enough revenue to run the government on.
+ - I don’t think you can make a lawyer honest by an act of legislature. You’ve got to work on his conscience. And his lack of conscience is what makes him a lawyer.
+ - More men have been elected between Sundown and Sunup than ever were elected between Sunup and Sundown.
+ - Let advertisers spend the same amount of money improving their product that they do on advertising and they wouldn’t have to advertise it.
+ - There is nothing fairer than workmen having unions of their mutual benefit.
+ - Both political parties have their good times and bad times, only they have them at different times.
+ - The South is dry and will vote dry. That is, everybody that is sober enough to stagger to the polls will.
+ - The reason political party platforms are so long is that when you straddle anything it takes a long time to explain it.
+ - It’s one of the most progressive cities in the world. Shooting is only a sideline.
+ - Even when you make a tax form out on the level, you don’t know when it’s through if you are a crook or a martyr.
+ - There’s only one thing that can kill the movies, and that’s education.
+ - About all I can say for the United States Senate is that it opens with a prayer and closes with an investigation.
+ - Syntax must be bad, having sin and tax in it.
+ - We have plenty of Confidence in this country, but we are a little short of good men to place our Confidence in.
+ - Every man gets an opportunity once in a lifetime.
+ - The business of government is to keep the government out of business – that is, unless business needs government aid.
+ - I’ll bet you the time ain’t far off when a woman won’t know any more than a man.
+ - We don’t know what we want, but we are ready to bite somebody to get it.
+ - So the question rises: How much liberty can you get away with? Well, you get no more liberty than you give!
+ - It costs ten times more to govern us than it used to, and we are not governed one-tenth as good.
+ - Lord, the money we do spend on Government and it’s not one bit better than the government we got for one-third the money twenty years ago.
+ - There is only one redeeming thing about this whole election. It will be over at sundown, and let everybody pray that it’s not a tie, for we couldn’t go through with this thing again.
+ - Your mothers get mighty shocked at you girls nowadays, but in her day, her mother was just on the verge of sending her to reform school.
+ - It would drive a person crazy to dope out really what does divide the two parties. Prosperity don’t divide the two parties, for under either administration the poor get poorer and the rich get richer.
+ - The only real diplomacy ever performed by a diplomat is in deceiving their own people after their dumbness has got them into a war.
+ - I love horses and I only ask-don’t let me know which one we are eating today.
+ - There is two things that can disrupt business in this country. One is War, and the other is a meeting of the Federal Reserve Bank.
+ - A Democrat is just like a baby. If it’s hollering and making a lot of noise, there is nothing serious the matter with it. When it’s quiet and doesn’t pay much attention to anything, that’s when it’s really dangerous.
+ - This country has gotten where it is in spite of politics, not by the aid of it. That we have carried as much political bunk as we have and still survived shows we are a super nation.
+ - Wish all the Farmers would move to town one year, that’s the only way I know to clear the thing up.
+ - I am proud of the fact there is not a human being that I have got it in for. I never met a man I didn’t like.
+ - You could be the World’s greatest orator and if you don’t say anything while orating, they are going to walk out on you after a while.
+ - Being young is beautiful, but being old is comfortable.
+ - The budget is like a mythical bean bag. Congress votes mythical beans into it, then reaches in and tries to pull real ones out.
+ - The problem ain’t what people know. It’s what people know that ain’t so that’s the problem.
+ - We are the only nation in the world that waits till we get into a war before we start getting ready for it.
+ - In Europe public men do resign. But here it’s a lost art. You have to impeach ’em.
+ - There is a tremendous movement on to get lower taxes on earned incomes. Then will come the real problem, ‘Who among us on salary are earning our income?’
+ - If I could kick the person in the tail that causes me the most problems I could not sit down for a week.
+ - I hope we never live to see the day when a thing is as bad as some of our newspapers make it.
+ - The greatest loss of time is delay and expectation. I never yet talked to the man who wanted to save time who could tell me what he was going to do with the time he saved.
+ - I bet you, if I had met Trotsky, and had had a chat with him, I would have found him a very interesting and human fellow, for I have never yet met a man I didn’t like.
+ - Do anything in this world but monkey with somebody eles’s religion. What reasoning of conceit makes anyone think theirs is right?
+ - A man that don’t love a horse, there is something the matter with him.
+ - We are here just for a spell and then pass on. So get a few laughs and do the best you can. Live your life so that whenever you lose it, you are ahead.
+ - I never took a human life, I only sold the fellow the gun to take it with.
+ - What the Secretary of Agriculture is trying to do is to teach the farmer corn acreage control, and the hogs birth control, and one is just as hard to make understand it as the other.
+ - Politicians are just a bunch of local bandits, sent by their local voters to raid the public treasury.
+ - The Democrats and the Republicans are equally corrupt where money is concerned. It’s only in the amount where the Republicans excel.
+ - I bet after seeing us, George Washington would sue us for calling him ‘father.’
+ - What’s the matter with the world? Why, there ain’t nothing but one word wrong with everyone of us, and that’s selfishness.
+ - A liberal is a man who wants to use his own ideas on things in preference to generations who he knows know more than he does.
+ - When you figure it right down, none of us are in a really essential business but the farmer, and he raises so much that even his business is partly non-essential.
+ - Samuel Gompers has spent his life trying to keep labor from working too hard and has succeeded beyond his wildest dreams.
+ - In Hollywood you can see things at night that are fast enough to be in the Olympics in the day time.
+ - We cuss Congress, and we joke about ’em, but they are all good fellows at heart, and if they wasn’t in Congress, why, they would be doing something else against us that might be even worse.
+ - No nation ever had two better friends that we have. You know who they are? The Atlantic and Pacific oceans.
+ - There is a hundred things to single you out for promotion in party politics besides ability.
+ - That’s the trouble with our charities; we are always saving somebody away off, when the fellow next to us ain’t eating.
+ - Fanatical religion driven to a certain point is almost as bad as none at all, but not quite.
+ - The Schools ain’t what they used to be and never was.
+ - If this depression stays with us, the loser Tuesday is going to be the winner.
+ - I maintain that it should cost as much to get married as to get divorced. Make it look like marriage is worth as much as divorce, even if it ain’t.
+ - Where I come from, they won’t let me play with this rope. They think I might hurt myself.
+ - They are voting whether to keep a governor two years or four. I think a good, honest governor should get four years, and the others life.
+ - In Hollywood the woods are full of people that learned to write but evidently can’t read. If they could read their stuff, they’d stop writing.
+ - Successful colleges will start laying plans for a new stadium; unsuccessful ones will start hunting a new coach.
+ - Labor Day, I suppose set by an Act of Congress. Everything we do nowadays is either by, or against, Acts of Congress. How Congress knew anything about Labor is beyond us.
+ - You know you are getting old when everything either dries up or leaks.
+ - If you ever injected truth into politics you would have no politics.
+ - If we have Senators and Congressmen there that can’t protect themselves against the evil temptations of lobbyists, we don’t need to change our lobbies, we need to change our representatives.
+ - I do honestly believe the Republicans have reformed and want to do better. But whether they have done it in time to win the election is another thing. The old voter is getting so he wants to be saved before October every election year.
+ - The crime of taxation is not in the taking it, it’s in the way that it’s spent.
+ - Coolidge is a better example of evolution than either Bryan or Darrow, for he knows when not to talk, which is the biggest asset the monkey possesses over the human.
+ - The income tax has made liars out of more Americans than golf.
+ - If you don’t have malice in our heart, it doesn’t come across harsh.
+ - You have a wonderful organization. I understand you have ten thousand here. And if you count the ones in the various federal prisons, it brings your total membership up to around thirty thousand.
+ - Believe in something for another world, but don’t be too set on what it is, and then you won’t start out that life with a disappontment. Live your life so that whenever you lose you are ahead.
+ - I have always claimed Americans didn’t want a drink as bad as they wanted the right to take a drink if they did happen to want one.
+ - Any person that don’t read at least one well-written country newspaper is not truly informed.
+ - I don’t know how I got over the hill without getting to the top.
+ - This session of Congress is also to relieve the farmer again, relieve him of any encouragement that he might have received during the last one.
+ - Every time we have an election, we get in worse men and the country keeps right on going. Times have proven only one thing and that is you can’t ruin this country even with politics.
+ - If you make any money, the government shoves you in the creek once a year with it in your pockets, and all that don’t get wet you can keep.
+ - There is not a better day in the world to be spent than with a lot of wise old cowmen around barbecued beef, black coffee and good free holy beans.
+ - A president just can’t make much showing against congress. They lay awake nights, thinking up things to be against the president on.
+ - Banking and after-dinner speaking are two of the most nonessential industries we have in this country. I am ready to reform, if they are.
+ - A holding company is the people you give your money to while you’re being searched.
+ - Anything important is never left to the vote of the people. We only get to vote on some man; we never get to vote on what he is to do.
+ - I guess truth can hurt you worse in an election than about anything that can happen to you.
+ - I have always noticed that people will never laugh at anything that is not based on truth.
+ - Our public men are speaking every day on something, but they ain’t saying anything.
+ - Be a politician; no training necessary.
+ - This stuff they are talking here in Congress costs the people of the United States $44 a page. That’s beside what it costs to ship it to the asylums where it’s read.
+ - One-third of the people in the United States promote, while the other two-thirds provide.
+ - Noah must have taken into the Ark two taxes, one male and one female. And did they multiply bountifully! Next to guinea pigs, taxes must have been the most prolific animals.
+ - Elections are a good deal like marriages. There’s no accounting for anyone’s taste. Every time we see a bridegroom we wonder why she ever picked him, and it’s the same with public officials.
+ - There ought to be one day – just one – when there is open season on senators.
+ - The Supreme Court is divided almost in half on the decisions. Talk about an international court. How would we ever agree with a lot of foreigners when we can’t even agree among our own judges?
+ - You shake a slogan at an American and it’s just like showing a hungry dog a bone.
+ - George Washington was quite a farmer. He was a farmer, Civil Engineer and gentleman. He made enough at civil engineering to indulge in both the other luxuries.
+ - She was so ugly she could make a mule back away from an oat bin.
+ - The trip across Arizona is just one oasis after another. You can just throw anything out and it will grow there, I like Arizona.
+ - If you got a dollar, soak it away, put it in a savings bank, bury it, do anything but spend it. Spending when we didn’t have it put us where we are today. Saving when we’ve got it will get us back to where we was before we went cuckoo.
+ - This country has come to feel the same when Congress is in session as when the baby gets hold of a hammer.
+ - Many a politician wishes there was a law to burn old records.
+ - You can’t legitimately kick on income tax, for it’s on what you have made. You have already made it. But, look at land, farms, homes, stores, vacant lots. You pay year after year on them whether you make it or not.
+ - Candidates have been telling you that if elected they would ‘pull you from this bog hole of financial misery.’ Now is a good chance to get even with ’em, by electing ’em, just to prove what a liar they are.
+ - They are having quite an argument over Treasury Secretary Mellon’s Tax Bill. Mr. Mellon wants to cut the surtax on the rich, and leave it as is on the poor, as there is more poor than rich. I suppose the majority will win.
+ - Government spending? I don’t know what it’s all about. I don’t know any more about this thing than an economist does, and, God knows, he doesn’t know much.
+ - The American people are a very generous people and will forgive almost any weakness, with the possible, exception of stupidity.
+ - A conference is just an admission that you want somebody to join you in your troubles.
+ - It is awful hard to get people interested in corruption unless they can get some of it.
+ - The man who never makes a mistake must get tired of doing nothing.
+ - A debt is just as hard for a Government to pay as it is for an individual. No debt ever comes due at a good time. Borrowing is the only thing that seems handy all the time.
+ - People want just taxes more than they want lower taxes. They want to know that every man is paying his proportionate share according to his wealth.
+ - Farmers have about given up hope of getting farm relief and have decided to fertilize instead.
+ - The government says they have loaned over One Billion dollars to the Farmers. In other words, we can’t help you make any money, but we will show you where you can owe some more.
+ - I see where we are starting to pay some attention to our neighbors to the south. We could never understand why Mexico wasn’t just crazy about us, for we have always had their good will, and oil and minerals, at heart.
+ - If your Income Taxes go to help out the less fortunate, there could be no legitimate kick against it in the world. This is becoming the richest, and the poorest Country in the world. Why? Why, on account of an unequal distribution of the money.
+ - Both gangs have been bad sports, so see if at least one can’t redeem themselves by offering no alibis, but cooperate with the winner, for no matter which one it is the poor fellow is going to need it.
+ - I guess there is no two races of people in worse repute with everybody than the international bankers, and the folks that put all those pins in new shirts.
+ - The deer season just opened. A deer hunter in Ventura Country brought in his first man yesterday.
+ - We all joke about Congress but we can’t improve on them. Have you noticed that no matter who we elect, he is just as bad as the one he replaces?
+ - You politicians have got to look further ahead; you always got a Putter in your hands, when you ought to have a Driver.
+ - Every day you meet a delegation going to some convention to try and change the way of somebody else’s life.
+ - It’s the fellow who knows when to quit that the audience wants more of.
+ - Nothing makes a man broad-minded like adversity.
+ - There isn’t any finer folks living than a Republican that votes the Democratic ticket.
+ - I have a scheme for stopping war. It’s this – no nation is allowed to enter a war till they have paid for the last one.
+ - Don’t just grab at the first thing that comes along. Know when to refuse something that won’t get you anywhere.
+ - If you want to know how a man stands, go among the people who are in his same business.
+ - A foreigner coming here and reading the Congressional Record would say that the President of the United States was elected solely for the purpose of giving Senators somebody to call a horse thief.
+ - You shouldn’t say anything mean about people who can’t read. You should write it instead.
+ - If you let women have their way, you will generally get even with them in the end.
+ - If we took Congress seriously, we would be worrying all the time.
+ - Ohio claims they are due a president as they haven’t had one since Taft. Look at the United States, they have not had one since Lincoln.
+ - I am a great believer in high-priced people. If a thing cost a lot it may not be any better, but it adds a certain amount of class that the cheap thing can never approach; in the long run it’s the higher-priced things that are the cheapest.
+ - An economist’s guess is liable to be as good as anybody else’s.
+ - America is a nation that conceives many odd inventions for getting somewhere but it can think of nothing to do once it gets there.
+ - Politicians can do more funny things naturally than I can think of to do purposely.
+ - The stock market has spoiled more appetites than bad cooking.
+ - I haven’t seen a tractor working all day. The country has gone sane and got back to horses. Farmers all look worse, but they feel better.
+ - And, when the votes are counted, let everybody, including the candidates, get into a good humor as quick as they got into a bad one.
+ - Harvard students have completed more English courses and less forward passes than any school in this generation.
+ - Those tax-exempt bonds were put in so that a town or a state or a government could sell more bonds than it ought to.
+ - Golf is a wonderful exercise. You can stand on your feet for hours, watching somebody else putt.
+ - If any of us had a child that we thought was as bad as we know we are, we would have cause to start to worry.
+ - A fanatic is always the fellow that is on the opposite side.
+ - We are sure living in a peculiar time. You get morefor not working than you will for working, and morefor not raising a hog than for raising it.
+ - I wonder if it isn’t just cowardice instead of generosity that makes us give tips.
+ - You got to do more than just live in the country to be a Farmer.
+ - Congress knew Coolidge would veto the farm bill. There was more politics than relief in that bill.
+ - Politicians, after all, are not over a year behind public opinion.
+ - One Ad is worth more to a paper than forty Editorials.
+ - A politician is not as narrow-minded as he forces himself to be.
+ - I traveled a good deal all over the world, and I got along pretty good in all these foreign countries, for I have a theory that it’s their country and they got a right to run it like they want to.
+ - We have been just going like a house afire, and we couldent see any reason why we shouldent keep right on burning. Our tastes were acquired on credit, and we wanted to keep on enjoying ’em on credit.
+ - Now if there is one thing that we do worse than any other nation, it is try and manage somebody else’s affairs.
+ - The movies are the only business where you can go out front and applaud yourself.
+ - You’ve never in your life seen a picture, I bet any one of you, never seen a picture of one of these old Pilgrims praying when they didn’t have a gun right by the side of them. That was to see that he got what he was praying for.
+ - It rained in the Middle West. Farmers are learning that the relief they get from the sky beats what they get from Washington.
+ - When a fellow ain’t got much mind, it don’t take him long to make it up.
+ - I don’t know how a lot of these nations existed as long as they have till we could get some of our people around and show ’em how to be good and pure like us.
+ - Don’t raise anything, except what fits your appetite. Then the price don’t worry you. Just raise all you can eat and let the low prices go by.
+ - They are each good when they are out, and each bad when they are in.
+ - The president says, ‘There is lots of people worse off than the Farmers.’ I don’t know who it could be unless it is the fellow who holds the Mortgages on the Farms.
+ - Plans get you into things, but you got to work your way out.
+ - I don’t think either one of them knows what it’s all about, to be honest with you. Both sides are doing nothing but just looking towards the next election.
+ - There wasn’t any more truth in over half of what any so-called orator said. If it wasn’t a Deliberate Lie, why it was an Exaggerated Falsehood.
+ - It’s easy being a humorist when you’ve got the whole government working for you.
+ - Course, that’s the trouble with politics, it breeds politics! So that makes it pretty hard to stamp out.
+ - The French couldn’t hate us any more unless we helped ’em out in another war.
+ - Old Hollywood is just like a desert water in Africa. Hang around long enough and every kind of animal in the world will drift in for refreshments.
+ - Conferences are just like the poor and the Democrats, they will always be with us.
+ - Local conservation programs can help our communities shape thoughtful growth.
+ - There’s no way in the world you’re going to make a political party respectable unless you keep it out of office.
+ - The United States never lost a war or won a conference.
+ - The United States investigates everything – usually after it’s dead.
+ - Outside of traffic, there is nothing that has held this country back as much as committees.
+ - You can take any line of business and skill and the ones who do it the best are the ones who get the most money for it.
+ - The best way to make a fire with two sticks is to make sure one of them is a match.
+ - An onion can make people cry but there’s never been a vegetable that can make people laugh.
+ - Funny to watch these Senators switching back and forth on Prohibition. Politics is a great character builder. You have to take a referendum to see what your convictions are for that day.
+ - If all the time consumed in attending dinners and luncheons was consumed in some work, the production of this country would be doubled.
+ - The rest of the people know the condition of the country, for they live in it, but Congress has no idea what is going on in America, so the President has to tell ’em.
+ - You can’t tell what a man is like or what he is thinking when you are looking at him. You must get around behind him and see what he has been looking at.
+ - On prohibiting anybody from learning anything: Why, in five years we would have the smartest race of people on earth.
+ - When everybody has got money they cut taxes, and when they’re broke they raise them. That’s statesmanship of the highest order.
+ - It looks like the financial giants of the world have bungled as much as the diplomats and politicians. This would be a great time in the world for some man to come along that knew something.
+ - Civilization has taught us to eat with a fork, but even now if nobody is around we use our fingers.
+ - There is something about a Republican that you can only stand him just so long; and on the other hand, there is something about a Democrat that you can’t stand him quite that long.
+
+500 quotes

@@ -1,0 +1,25 @@
+ - Stem cell research can revolutionize medicine, more than anything since antibiotics.
+ - We can choose between the future and the past, between reason and ignorance, between true compassion and mere ideology.
+ - Religion may indeed inspire acts of great kindness and courage. But it also trains people to believe things for which there is no evidence. This makes religion’s intrusion into the political sphere all the more troubling.
+ - I’ve never joined any political party and have no plans to do so. I’m fully independent.
+ - You cannot be against embryonic stem cell research and be intellectually and therefore morally consistent, if you’re not also against in vitro fertilization.
+ - When you hear somebody justifying a war by citing the Almighty, I get a little worried, frankly.
+ - What do you say to your sister who poses in the nude? It’s not like you are really itching to see photographs of your sister naked. I mean, it’s just something that is not too exciting.
+ - He had written my mother once that he wanted her to be the first thing he saw every morning and the last thing he ever saw. And that’s how it turned out.
+ - I have to say that flying on Air Force One sort of spoils you for coach on a regular airline.
+ - My father never felt the need to wrap himself in anybody’s mantle. He never felt the need to pretend to be anybody else. This is their administration. This is their war. If they can’t stand on their own two feet, well, they’re no Ronald Reagans, that’s for sure.
+ - I admire the fact that the central core of Buddhist teaching involves mindfulness and loving kindness and compassion.
+ - We have three cats. It’s like having children, but there is no tuition involved.
+ - I’m aware that most people who meet me for the first time think of me in a certain way because of who my father is. That just comes with the territory. But that’s been that way ever since I was a little kid as long as I can remember. I grew up that way.
+ - My father didn’t know George W. Bush from Adam.
+ - People who believe they are acting with the mandate of God, who see others who don’t share their beliefs as inferior in the eyes of God, make dangerous leaders. Just ask Osama Bin Laden.
+ - Now, ignorance is one thing, ignorance can be cured. But many of the Republican leaders opposing this research know better.
+ - My wife and I just prefer Seattle. It’s a beautiful city. Great setting. You open your front door in the morning and the air smells like pine and the sea, as opposed to bus exhaust.
+ - He never stopped wanting to save the world.
+ - Neither of my parents would ever stand in the way of any of their children speaking their minds.
+ - I mean, we’ve had all these awful pictures from the prison in Iraq and these sort of memos floating around about justifying torture, all this kind of stuff. And it makes you want to take a shower, you know?
+ - My father felt that children should make their own way.
+ - The big elephant sitting in the corner is that George W. Bush is simply unqualified for the job. What’s his accomplishment? That he’s no longer an obnoxious drunk?
+ - I would be unelectable. I’m an atheist. As we all know, that is something people won’t accept.
+
+23 quotes

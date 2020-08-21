@@ -1,0 +1,37 @@
+ - Lord of the Rings made me realize that I’m not interested in doing anyone else’s work.
+ - Wizards was my homage to Tolkien in the American idiom. I had read Tolkien, understood Tolkien, and wanted to do a sort of fantasy for American kids, and that was Wizards.
+ - They say I’m a revolutionary, but they’re all wrong.
+ - One of the best animated films I’ve seen come out of Disney was the Tarzan movie. I wasn’t crazy about the story or the design on Tarzan’s face, but the traditional animation was spectacular.
+ - Painting pictures didn’t make me a lot of money. I have to eat.
+ - I had the X rating on my films. Now they do as much on The Simpsons as I got an X rating for Fritz the Cat.
+ - The rise of anime had to happen. If the Japanese could tell better American stories, it would go through the roof. They still tell stories which are very much oriental. I take my hat off to them.
+ - Animation is tremendously resilient. Animation will recover, as art always recovers. There’s always cycles of good art.
+ - Cartooning at its best is a fine art. I’m a cartoonist who works in the medium of animation, which also allows me to paint my cartoons.
+ - Every character in each of my movies is a different side of myself.
+ - All the old great companies were run by guys who knew what an animator meant, and guys who knew how to draw. All the companies today are run by executives.
+ - Sweetheart, I’m the biggest ripped-off cartoonist in the history of the world, and that’s all I’m going to say.
+ - Its all big money, high rent, high prices in New York City now. The poor people completely got rolled over. I’ve never seen anything like it in my life. It’s disgusting.
+ - What’s most important in animation is the emotions and the ideas being portrayed. I’m a great believer of energy and emotion.
+ - As an artist, I want to interpret my feelings – not run across the street and ask what my mother thinks.
+ - I am not interested in slickness for the sake of slickness.
+ - Disney had such a hold on the mind of America-they were Adolf Hitler. The whole country thought Disney was some sort of god and that animation was some sort of pure thing for children.
+ - I animated 20 years at Terry Toons. It’s important to know that animators like pizza and a raise once in a while, and you’ve got to treat them with love.
+ - It’s curtains for you, Mighty Mouse! This gun is so futuristic that even I don’t know how it works!
+ - I would like to have the original ending to my Lord of the Rings instead of the one they released. In my original cut I had the victory at Helm’s Deep as the final sequence.
+ - I wouldn’t leave Disney to do Disney.
+ - Live action writers will give you a structure, but who the hell is talking about structure? Animation is closer to jazz than some kind of classical stage structure.
+ - You cant second-guess yourself as a filmmaker.
+ - I’m having the same problems today that I had when I first started, saying that outrageous adult animation works.
+ - I separate cartooning, which is fun and wacky and soulful, from illustration, which is very well-drawn and extremely uptight to look at. There’s a difference. I’m a cartoonist.
+ - I draw what I feel, which is no more than doing my job.
+ - Someone’s been mean to you! Tell me who it is, so I can punch him tastefully.
+ - I miss animation very passionately. Not continuously, but every once in a while I would die to do another film.
+ - Most of the animated films I watched, the emotions are all prepackaged like canned music, the hand actions, the sighs.
+ - I’m from the East Coast. I love the city. I love the characters. I love the kind of people we are, the kind other people look at in amazement.
+ - My good films were independent and my bad films were not.
+ - Look what Disney’s done to their animation department. There wasn’t an animator in charge of their animation unit!
+ - My movies continue to be found and be sold because there’s something going on in them.
+ - I’m the first to admit that I can’t be as good as Tolkien, and a movie can never be as good as Tolkien.
+ - Too many of Disney animators, and a lot try to emulate Disney, are trying to hit what they call quality levels. They’re boring mannerisms.
+
+35 quotes

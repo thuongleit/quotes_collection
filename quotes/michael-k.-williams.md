@@ -1,0 +1,44 @@
+ - I use my job to engage empathy and compassion for people society might stereotype or ostricise.
+ - Cajun culture is dying.
+ - I don’t dabble in politics too much. I’m really ignorant to the world of politics. I’m not that smart, I’m not that cunning, it’s just too much smoke and mirrors for me. I just don’t want to play that game.
+ - I know nothing of what it is to be a gangster.
+ - The most successful people reach the top not because they are free of limitations, but because they act in spite of their limitations.
+ - My only goal is to stay focused on my craft and make sure my life is as sharp as it can be to attack any character that is given to me.
+ - I am a dark-skinned, nappy-headed, scar-faced dude from the streets of Brooklyn. I can’t hide from being who I am. It’s all over my face.
+ - I absolutely miss dancing. Don’t want to do it for a living, I’m getting old, I can’t move like I used to. If I had the opportunity to do something on Broadway or a musical, I would jump at the opportunity.
+ - I came out the womb dancing.
+ - The streets would have chewed me up and spit me out and I knew that, but I found my own ways and different knacks for getting in trouble and being reckless with my life. And I’ve overcome a lot of personal demons and to be alive is really my greatest achievement.
+ - I’m more liable to hurt myself than someone else.
+ - I grew up in East Flatbush in Brooklyn which was an intense neighbourhood filled with different West Indian cultures.
+ - I am the epitome of the underdog. By societies standards I should have been dead a long time ago, and I was nobody’s gangster, I wasn’t a thug, I wasn’t selling drugs on the corner – I was scared of that.
+ - I don’t believe in typecasting. Just because all my characters may come from the other side of the tracks doesn’t mean they are all the same. You don’t stereotype people and generalize people, everyone’s different.
+ - The arts saved my life.
+ - As we say in the hood, I’m a stoop kid.
+ - Our criminal justice system has swallowed up too many people I love.
+ - Having been through the muck and mire, I’ve had my own brush with bad choices.
+ - I know plenty of adults who act like teenagers.
+ - Music’s been part of my entire life. It’s in my DNA.
+ - No one wakes up one day and decides they want to become a drug dealer or they want to be a stick-up kid. Those decisions are made after a series of events have happened in one’s life.
+ - You know, Tupac is very near and dear to my heart. He started my career as an actor.
+ - My main goal, starting out as a young actor, was to carry the reins that Pac left off and to reach the depths as an actor that I know he would have reached had he still been here with us.
+ - I’m good with all my roles, I’ve never had a bad role.
+ - For me, my past characters been hard, the way they died, being murdered, the sadness that goes around, the death. It’s a very hard thing to do.
+ - I’m looking for diversity, all my characters may or may not be on the wrong side of the tracks. It doesn’t mean that they’re all the same.
+ - I do happen to love Honey Nut Cheerios. I don’t know if I want to walk down to the store in my pajamas for them. But I do love them.
+ - Ending a television character that you’ve been, especially someone like Omar Little, it hurts. For me, it’s a huge thing. You feel like a part of you is gone.
+ - You know, my childhood was pretty colorful; I like to use the word ’turbulent.
+ - My job is to bring to life the character, not to put the words on the paper.
+ - I got picked on a lot as a kid.
+ - I have a very healthy appetite for good writing and good characters. Having weak writing is my biggest fear.
+ - Doing something that warrants the attention of the President of the United States is super cool.
+ - My goal as an actor, as an up-and-coming actor in this business is to stay consistent with the work and if you do good work, and stay focused on the work, writers and directors will pay attention.
+ - Revenge is not a positive state of mind or energy to indulge your self in.
+ - I’m totally comfortable today with the success that Omar and ‘The Wire’ have brought me – living with that character, being recognized and remembered for that character.
+ - If you’ve ever felt oppressed on any level, there’s something from ‘The Wire’ that you can take and identify with.
+ - I haven’t had a problem with being typecast, but if I was only getting one type of role, I wouldn’t mind. What I’m worried about is not working.
+ - I come to work on time. I focus on my job. I bust my scenes out and everything else kind of happens from there.
+ - You have to put your character to rest after x amount of years.
+ - I don’t consider myself a person of fashion because it’s too sophisticated. My thing is I look at style like swagger. I like things that pull me, that I gravitate to.
+ - All my characters have playlists.
+
+42 quotes

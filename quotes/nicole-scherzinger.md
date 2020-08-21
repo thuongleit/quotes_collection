@@ -1,0 +1,33 @@
+ - You cry and you scream and you stomp your feet and you shout. You say, ‘You know what? I’m giving up, I don’t care.’ And then you go to bed and you wake up and it’s a brand new day, and you pick yourself back up again.
+ - I definitely have the eye of the tiger. Ive fought my way to where I am and will continue to do so. Im a hard worker – I get it from my family. We only know work. Nothing was handed to us. When I believe in something, I go after it. Its very hard to tell me no.
+ - Music is my passion – it’s what I love and it’s in my blood. You can never take me away from my work.
+ - It’s important to be fearless yet vulnerable. It takes courage to do both.
+ - I’ve always had a fighter’s spark in me. I was born with it. I think it’s in my blood.
+ - Girl power is about loving yourself and having confidence and strength from within, so even if you’re not wearing a sexy outfit, you feel sexy.
+ - If believing in yourself and going after what you want in life and realising your worth is ruthless and selfish, then I’m definitely ruthless and selfish.
+ - Confidence comes with maturity, being more accepting of yourself.
+ - When I go onstage, I kind of turn into a beast sometimes, this alter-ego, you know.
+ - When you break a sweat you just feel great. You’ve got your endorphins going. You feel better. You look better. And if you aren’t able to get a workout in, try to find a steam room somewhere. You just look and feel so much better after a sweat.
+ - It takes time to really understand your body shape and it’s taken me years to know what I can and can’t pull off.
+ - I always feel like I’m rehearsing. I’m a workaholic. But youve got to let go and trust and enjoy! I’m a real perfectionist. Its probably my biggest disadvantage. But as long as I can go out there, trust in the work and just have fun, thats what matters.
+ - Once you stay true to just having a good time and being honest to your fans and your audience, you can’t go wrong.
+ - I think the sexiest thing about a man is that he’s confident. Sure, sometimes you meet someone and you see his appearance first, but then you get to know him, and he looks completely different to you. So ultimately I think it’s all about chemistry.
+ - I see lots of women having beautiful children later in life. And, if not, just freeze your eggs!
+ - Growing up, my mom was very strict about how I dressed and how I behaved, and I said to myself that I wasn’t going to be like that. But now I know I’m going to be exactly like my mom. I’m going to be worse!
+ - I’m no diva but I can be annoying in a recording studio. Of course I try to be a diva in terms of confidence of performance and owning a song but I’ve never behaved like one in terms of the negative connotations of the word.
+ - I love the studio. It’s my place to escape and to create and to try anything.
+ - Although religion was around me my whole life I never felt it was forced upon me. It is my centring, my grounding, the soul of me. I feel I’m nothing without it.
+ - I can be quite daring with my clothes but I believe that you have to feel comfortable and confident to carry off whatever it is you’re wearing.
+ - I don’t like my thighs, the back of my legs or my chubby knees. I wear clothes that show off my legs in pictures and videos but not often when I’m appearing live.
+ - I love making down-home Southern cooking, and just chilling out and having cakes and pies and baking stuff, you know. I’m a pretty simple girl.
+ - Dancing is another way to communicate. That’s what separates The Pussycat Dolls from other groups.
+ - To be honest, I miss the old Hollywood way of having some mystique about the star.
+ - I feel the sexiest when I’m on stage with the Dolls because I feel like nothing can touch me. Although I want to touch everyone in some way.
+ - I think shoulders are sexier than cleavage.
+ - You know, I try to avoid Googling myself, but sometimes I slip up. Sometimes I just want to see how the world is viewing me on a particular day.
+ - A lot of songs are empowering because everybody who has been through a hard time in a relationship or in their lives can relate to it.
+ - It’s important for a woman to feel good in her clothes. It’s OK to have curves and to work them.
+ - When I hit my thirties, that’s when I calmed down and I wasn’t so tough on myself. I wasn’t doing the yo-yo dieting any more. I gave myself a break. I think that, if you’re more accepting of yourself, you’re more free and open and can just allow more people in.
+ - The word feminism has negative connotations for men. Rather, we are wanting to celebrate females and their confidence. There is no political agenda behind my work. I’m just trying to make music that makes me feel good and confident. We’ve got a cool message.
+
+31 quotes

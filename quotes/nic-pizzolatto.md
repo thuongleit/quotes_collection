@@ -1,0 +1,35 @@
+ - I didn’t come to Hollywood to be subservient to anyone else’s vision.
+ - We live in a culture that has a real hard time distinguishing fiction from reality. Even when they’re told something is fiction.
+ - I was raised by television. It was my first cultural window. It was a constant companion.
+ - As human beings, we are nothing but the stories we live and die by – so you’d better be careful what stories you tell yourself.
+ - Certain experiences you can’t survive, and afterward you don’t fully exist, even if you failed to die.
+ - I’ve found that all weak people share a basic obsession – they fixate on the idea of satisfaction. Anywhere you go men and women are like crows drawn by shiny objects. For some folks, the shiny objects are other people, and you’d be better off developing a drug habit.
+ - I read The Conspiracy Against the Human Race and found it incredibly powerful writing. For me as a reader, it was less impactful as philosophy than as one writers ultimate confessional: an absolute horror story, where the self is the monster.
+ - And if we’re talking about hard-boiled detectives, too, what could be more hardboiled than the worldview of Ligotti or Cioran? They make the grittiest of crime writers seem like dilettantes. Next to The Conspiracy Against the Human Race, Mickey Spillane seems about as hard-boiled as bubble gum.
+ - I knew the past wasn’t real. It was only an idea, and the thing I’d wanted to touch, to brush against, the feeling I couldn’t name – it just didn’t exist. It was only an idea, too.
+ - Some people, no matter where they look, they see themselves.
+ - I don’t think you can create effectively toward expectation. I’m not in the service business.
+ - You just do the best you can, and when you’re able to connect with people, and when you do, it’s just incredibly gratifying.
+ - I made True Detective like it was going to be the only thing I ever made for television. So put in everything and the kitchen sink. Everything.
+ - I was raised in a heavily Catholic family. Early and consistent encounters with mysticism.
+ - As someone with a novelistic background, I just didn’t have much interest in creating stories by committee. I don’t think you necessarily get the best story through that approach.
+ - The Atlantic really gave me my writing career – even just the conviction to be a writer.
+ - I find the constraints of drama actually freeing: It brings everything down to character and action.
+ - Whatever story you’re telling in Louisiana, the landscape is going to become a character in it.
+ - Killing characters on television has become an easy short cut to cathartic emotion.
+ - If I write scripts that nobody likes, I don’t think we’ll be doing ‘True Detective.’
+ - The idea of being a show runner was very attractive to me, to create and control something.
+ - Whatever I watched, whatever I loved in 36 years of life on Earth, probably had some influence on me.
+ - If landscape is a character for me, then it helps if I’m familiar with it and I already have a take on it.
+ - I’m not in the service business.
+ - Often, what allows someone to behave heroically in dire circumstances is unpalatable in day-to-day life.
+ - It’s better to not have a reputation than a bad one.
+ - In the summer of 2010, I was working on a version of True Detective that I was thinking might be my next novel, and it was told in these two first-person voices; Cohle and Harts voices.
+ - The work is where I tend to feel pressure – not so much in the reaction to it.
+ - In the summer of 2010, I had decided to get into film and TV writing, so I wrote scripts for six different ideas I had developed, and the pilot for True Detective was one of them.
+ - For me as a storyteller, I want to follow the characters and the story through what they organically demand.
+ - Most television shows are going to require an actor sign up from four to six years, but an anthology show really amounts to five or six months at the most. I thought serious actors might be attracted to that.
+ - At DePauw, I was teaching writing and fiction. The things I wanted to teach, more than anything else, were form and theory of the novel, of narrative. I liked those classes.
+ - There’s never been anything I didn’t love that I didn’t connect with on a personal level because, to some degree, I projected upon it.
+
+33 quotes

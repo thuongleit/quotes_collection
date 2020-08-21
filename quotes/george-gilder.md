@@ -1,0 +1,49 @@
+ - A successful economy depends on the proliferation of the rich, on creating a large class of risk-taking men who are willing to shun the easy channels of a comfortable life in order to create new enterprise, win huge profits, and invest them again.
+ - Entrepreneurship is the launching of surprises.
+ - Quality is abundant. Time is the new scarcity.
+ - Real poverty is less a state of income than a state of mind.
+ - Liberals force lower middle-class families, who love their children, to dispatch them to ghetto schools dominated by gangs of fatherless boys bearing knives.
+ - Creativity is the foundation of wealth. All progress comes from the creative minority. Under capitalism, wealth is less a stock of goods than a flow of ideas, the defining characteristic of which is surprise. If it were not surprising, we could plan it, and socialism would work.
+ - In a world of dumb terminals and telephones, networks had to be smart. But in a world of smart terminals, networks have to be dumb.
+ - A design isn’t finished until somebody is using it. Brenda Laurel Intelligent design itself does not have any content.
+ - All progress comes from the creative minority.
+ - Unlike an inexorable, Newtonian “great machine”, the economy is not a closed system.
+ - Entropy is Janus-faced. Its upside surprises are redemptive and favorable to freedom. It is freedom of choice. But the carrier itself requires constant vigilance against entropic noise. Order is not spontaneous, but it is a necessary condition for all the surprises of freedom and opportunity.
+ - Television is not vulgar because people are vulgar; it is vulgar because people are similar in their prurient interests and sharply differentiated in their civilized concerns.
+ - The belief that all wealth comes from stealing is popular in prisons and at Harvard.
+ - Giving is the vital impulse and moral center of capitalism.
+ - Entrepreneurial creation is the generation, de novo, of novelty and surprise- freedom of choice originating in the world of ideas, and imagination beyond all concern with chemicals. The contrary view- that all ideas are determined by material relationships- is the materialist superstition.
+ - Socialism is an insurance policy bought by all the members of a national economy to shield them from risk. But the result is to shield them from knowledge of the real dangers and opportunities...
+ - The welfare culture tells the man he is not a necessary part of the family; he feels dispensable, his wife knows he is dispensable, his children sense it.
+ - Activity and creativity almost always flow to the least regulated arena.
+ - If government could create jobs and raise children, socialism would have worked.
+ - But if the 1 percent and the 0.1 percent are respected and allowed to risk their wealth – and new rebels are allowed to rise up and challenge them – America will continue to be the land where the last regularly become the first by serving others.
+ - By merely foreswearing violence and taking advantage of their unique position contiguous with the world’s most creative people, the Palestinians could be rich and happy.
+ - Unlike femininity, relaxed masculinity is at bottom empty, a limp nullity. While the female body is full of internal potentiality, the male is internally barren. Manhood at the most basic level can be validated and expressed only in action.
+ - Bandwidth grows at least three times faster than computer power.
+ - A culture that does not aspire to the divine becomes obsessed with the fascination of evil, reveling in the frivolous, the depraved, and the bestial.
+ - Wealth usually comes from doing what other people find insufferably boring.
+ - This is what sexual liberation chiefly accomplishes-it liberates young women to pursue married men.
+ - Capitalism begins with giving.
+ - Nothing is more deadly to achievement than the belief that effort will not be rewarded, that the world is a bleak and discriminatory place in which only the predatory and the specially preferred can get ahead.
+ - People cannot be expected to learn one expertise and just apply it routinely in a job. Your expertise is in steadily renewing your knowledge base and extending it to new areas. That lifelong cycle of learning really is the foundation of the new information organization and economy.
+ - In embracing change, entrepreneurs ensure social and economic stability.
+ - Capitalists are motivated not chiefly by the desire to consume wealth or indulge their appetites, but by the freedom and power to consummate their entrepreneurial ideas.
+ - On every continent and in every epoch the peoples who have excelled in creating wealth have been the victims of some of society’s greatest brutalities.
+ - Surely women’s liberation is a most unpromising panacea. But the movement is working politically, because our sexuality is so confused, our masculinity so uncertain, and our families so beleaguered that no one knows what they are for or how they are sustained.
+ - Hatred of producers of wealth still flourishes and has become, in fact, the racism of the intelligentsia.
+ - The key to growth is quite simple: creative men with money. The cause of stagnation is similarly clear: depriving creative individuals of financial power.
+ - A policy of subsidizing failures will end in an economy strewn with capital-guzzling industries long past their time of profitability – old companies that cannot create jobs themselves, but can stand in the way of job creation.
+ - The fact is there hasn’t been a thrilling new erogenous zone discovered since de Sade.
+ - In order to understand the movement of prices, you need not an oscilloscope to measure the entire market and reduce it to noise, but a microscope to investigate the creative process behind every company and its price.
+ - The differences between the sexes are the single most important fact of human society.
+ - History tells us that the threat to prosperity is not debt but socialism.
+ - All small returns are noise. To transcend the noise and the risk, seek outsized returns from technological paradigms.
+ - Poverty is less a matter of income than of prospects. While the incomes of the poor have steadily risen through Great Society largesse, their prospects have plummeted as families have broken into dependent fragments.
+ - In the history of enterprise, most of the protagonists of major new products and companies began their education.
+ - The first priority of any serious program against poverty is to strengthen the male role in poor families.
+ - The envy of excellence leads to perdition; the love of it leads to the light.
+ - The prevailing theory of capitalism suffers from one central and disabling flaw, a profound distrust and incomprehension of capitalism.
+ - The fundamental fact in the lives of the poor in most parts of America is that the wages of common labor are far below the benefits of AFDC, Medicaid, food stamps, public housing, public defenders, leisure time and all the other goods and services of the welfare state.
+
+47 quotes

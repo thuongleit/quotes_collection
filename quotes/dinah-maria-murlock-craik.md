@@ -1,0 +1,65 @@
+ - Autumn to winter, winter into spring, Spring into summer, summer into fall, – So rolls the changing year, and so we change; Motion so swift, we know not that we move.
+ - Keep what is worth keeping and with the breath of kindness blow the rest away.
+ - Oh, the comfort – the inexpressible comfort of feeling safe with a person – having neither to weigh thoughts nor to measure words, but pouring them all right out, just as they are, chaff and grain together.
+ - Every man for himself, and the Devil take the hindmost.
+ - It is not work that kills, but “worry.”
+ - To accept the inevitable; neither to struggle against it nor murmur at it-this is the great lesson of life.
+ - The man who does his work, any work, conscientiously, must always be in one sense a great man.
+ - A person who is careless about money is careless about everything, and untrustworthy in everything.
+ - Silence sweeter is than speech.
+ - A true test of friendship, to sit or walk with a friend for an hour in perfect silence, without wearying of one another’s company.
+ - O, the mulberry-tree is of trees the queen! Bare long after the rest are green; But as time steals onwards, while none perceives Slowly she clothes herself with leaves.
+ - A secret at home is like rocks under tide.
+ - When faith and hope fail, as they do sometimes, we must try charity, which is love in action. We must speculate no more on our duty, but simply do it. When we have done it, however blindly, perhaps Heaven will show us why.
+ - The plan of this world is infinite similarity and yet infinite variety.
+ - The world! It is a word capable of as diverse interpretations or misinterpretations as the thing itself a thing by various people supposed to belong to heaven, man, or the devil, or alternatively to all three.
+ - Many true words are spoken in jest.
+ - A perfect marriage is as rare as a perfect love. Could it be otherwise, when both men and women are so imperfect? Could aught else be expected? Yet all do expect it.
+ - Happiness is not an end – it is only a means, and adjunct, a consequence.
+ - A lost love. Deny it who will, ridicule it, treat it as mere imagination and sentiment, the thing is and will be; and women do suffer therefrom, in all its infinite varieties: loss by death, by faithlessness or unworthiness, and by mistaken or unrequited affection.
+ - No virtue ever was founded on a lie. The truth, then, at all risks and costs the truth from the beginning. Make a clean breast to whomsoever you need to make it, and then face the world.
+ - Now, I have nothing to say against uncles in general. They are usually very excellent people, and very convenient to little boys and girls.
+ - Be loving, and you will never want for love; be humble, and you will never want for guiding.
+ - Those whose own light is quenched are often the light-bringers.
+ - There are no judgments so harsh as those of the erring, the inexperienced, and the young.
+ - We expect too much from our children. We exact from them a perfection which we are far from carrying out in ourselves; we require of them sacrifices much heavier, comparatively, than those of any grown-up person.
+ - Ethics, as has been well said, are the finest fruits of humanity, but they are not its roots.
+ - The present only is a man’s possession; the past is gone out of his hand wholly, irrevocably. He may suffer from it, learn from it, – in degree, perhaps, expiate it; but to brood over it is utter madness.
+ - Better no marriage, than a marriage short of the best.
+ - For truly, the greatest of all external blessings is it to be able to lean your heart against another heart, faithful, tender, true, and tried, and record with a thankfulness that years deepen instead of diminishing, “I have got a friend!”
+ - Wedlock’s a lane where there is no turning.
+ - There was never a night that had no morn.
+ - A parent, unlike a poet, is not born – he is made.
+ - We never know through what Divine mysteries of compensation the great Father of the universe may be carrying out His sublime plan; but those three words, “God is love ” ought to contain, to every doubting soul, the solution of all things.
+ - It is astonishing what a lot of odd minutes one can catch during the day, if one really sets about it.
+ - What small account The All-living seems to take of this thin flame Which we call life. He sends a moment’s blast Out of war’s nostrils, and a myriad Of these our puny tapers are blown out Forever.
+ - The irrevocable Hand That opes the year’s fair gate, doth ope and shut The portals of our earthly destinies; We walk through blindfold, and the noiseless doors Close after us, forever.
+ - Love never stands still; it must inevitably be either growing or decaying – especially the love of marriage.
+ - We are all of us very perfect creatures so long as we are not tried.
+ - An author departs; he does not die.
+ - Happiness! Can any human being undertake to define it for another?
+ - One only “right” we have to assert in common with mankind – and that is as much in our hands as theirs – is the right of having something to do.
+ - One cannot make oneself, but one can sometimes help a little in the making of somebody else. It is well.
+ - It may often be noticed, the less virtuous people are, the more they shrink away from the slightest whiff of the odour of un-sanctity. The good are ever the most charitable, the pure are the most brave.
+ - If I had to write a book, I could not find anything in the world worth saying – as is indeed the case with many voluminous authors.
+ - How the sting of poverty, or small means, is gone when one keeps house for one’s own comfort and not for the comfort of one’s neighbors.
+ - Why cannot one always do, not only the right thing, but at the right time?
+ - The life of action is nobler than the life of thought.
+ - There is no sorrow under heaven which is, or ought to be, endless. To believe or to make it so, is an insult to Heaven itself.
+ - With faces like dead lovers who died true.
+ - Down in the deep, up in the sky, I see them always, far or nigh, And I shall see them till I die The old familiar faces.
+ - Sweet April-time-O cruel April-time! Year after year returning, with a brow Of promise, and red lips with longing paled, And backward-hidden hands that clutch the joys Of vanished springs, like flowers.
+ - O blest one hour like this! to rise And see grief’s shadows backward roll; While bursts on unaccustomed eyes The glad Aurora of the soul.
+ - Nothing but a speck we seem In the waste of waters round, Floating, floating like a dream, Outward bound.
+ - The wonder is not that some married people are less happy than they hoped to be, but that any married people, out of the honeymoon, or even in it, are ever happy at all.
+ - Our natural and happiest life is when we lose ourselves in the exquisite absorption of home, the delicious retirement of dependent love.
+ - We have not to construct human nature afresh, but to take it as we find it, and make the best of it.
+ - When the ship is going down we trouble ourselves little enough about the style of the cabin furniture.
+ - To-morrow is ah, whose?
+ - It is not the smallest use to try to make people good, unless you try at the same time and they feel that you are trying to make them happy. And you rarely can make another happy, unless you are happy yourself.
+ - There can be there ought to be no medium course; a love-affair is either sober earnest or contemptible folly, if not wickedness: to gossip about it is, in the first instance, intrusive, unkind, or dangerous; in the second, simply silly.
+ - God makes many poets, but he only gives utterance to a few.
+ - Action is the parent of results; dormancy, the brooding mother of discontent.
+ - Society, in the aggregate, is no fool. It is astonishing what an amount of “eccentricity” it will stand from anybody who takes the bull by the horns, too fearless or too indifferent to think of consequences.
+
+63 quotes

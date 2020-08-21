@@ -1,0 +1,91 @@
+ - Satanism demands study, not worship!
+ - Up is down, pleasure is pain, darkness is light, slavery is freedom, madness is sanity...
+ - There is a beast in man that should be exercised, not exorcised.
+ - It’s too bad that stupidity isn’t painful.
+ - The Atheist complains about the wind. The Christian prays for it to change. The Satanist adjusts his sails.
+ - Satanism represents kindness to those who deserve it instead of love wasted on ingrates!
+ - Be as a lion in the path. Be dangerous even in defeat.
+ - When one sleeps on the floor one need not worry about falling out of bed.
+ - Blessed are the destroyers of false hope, for they are the true Messiahs – Cursed are the god-adorers, for they shall be shorn sheep!
+ - Many of you already read my writings indicating that TV is the new god. There is a little thing I neglected to mention up until now, television is the major mainstream infiltration for the new satanic religion.
+ - Definition of Good and Evil: Good is what you like. Evil is what you don’t like.
+ - Don’t waste your time with people who will ultimately destroy you, but concentrate instead on those who will appreciate your responsibility to them, and, likewise, feel responsible to you.
+ - There is no heaven, there is no hell, except here on Earth.
+ - When walking in open territory, bother no one. If someone bothers you, ask him to stop. If he does not stop, destroy him.
+ - The seven deadly sins of the Christian Church are: greed, pride, envy, anger, gluttony, lust, and sloth. Satanism advocates indulging in each of these ‘sins’ as they all lead to physical, mental, or emotional gratification.
+ - Every religion in the world that has destroyed people is based on love.
+ - Hate your enemy with a whole heart, and if a man smite you on one cheek, SMASH him on the other!
+ - Life is the great indulgence – death the great abstinence. Therefore, make the most of life here and now!
+ - There is no heaven of glory bright, and no hell where sinners roast. Here and now is our day of torment! Here and now is our day of joy! Here and now is our opportunity! Choose ye this day, this hour, for no redeemer liveth!
+ - I break away from all conventions that do not lead to my earthly success and happiness.
+ - The Satanist realizes that man, and the action and reaction of the universe, is responsible for everything, and doesn’t mislead himself into thinking that someone cares.
+ - Most of the interesting people I’ve ever met have been deviant in one form or another.
+ - The devils of past religions have always, at least in part, had animal characteristics, evidence of man’s constant need to deny that he too is an animal, for to do so would serve a mighty blow to his impoverished ego.
+ - I’m glad that Christian parents let their children worship the devil at least one night out of the year.
+ - One of the keys to success is an unflinching belief that there are no rules. Anyone who’s ever succeeded has gone on that premise; not buying established procedures, business or otherwise. The naysayers are inevitably left behind amid shouts of ‘it cannot be done’ and “should not be done’.”
+ - To be loved, feelings must be rationed. To love, the doors of hysteria, fantasy, and madness may be flung open.
+ - Behold the crucifix; what does it symbolize? Pallid incompetence hanging on a tree.
+ - The real satanist is not quite so easily recognized as such.
+ - Do what you want as long as its paying off for you. But once its become a liability, then something is wrong and you better find out what it is.
+ - Magic is never totally scientifically explainable, but science has always been, at one time or another, considered magic.
+ - Since man’s natural instincts lead him to sin, all men are sinners; and all sinners go to hell. If everyone goes to hell, then you will meet all your friends there.
+ - You cannot love everyone; it is ridiculous to think you can.
+ - The true test of anyone’s worth as a living creature is how much he can utilize what he has.
+ - Stupidity-The top of the list for Satanic Sins.
+ - What good are friends if they cant do you any good?
+ - There are many who would like my time. I shun them. There are some who share my time. I am entertained by them. There are precious few who contribute to my time. I cherish them.
+ - If you’re going to be a sinner, be the best sinner on the block.
+ - I knew then that the Christian Church thrives on hypocrisy, and that man’s carnal nature will out!
+ - Satan has been the best friend the church has ever had, as he has kept it in business all these years!
+ - Satanism represents a form of controlled selfishness.
+ - It has been said, ‘the truth will make men free.’ The truth alone has never made anyone free. It is only doubt which will bring mental emancipation.
+ - Don’t let that little pyramid with the bright eye fool you. That’s to draw your attention away from the real thing: the big trapezoid beneath it.
+ - The ideal woman to me would be the gun-toting moll. Someone who is true blue and ready to face the world. Open to ideas and suggestion, not stubborn and closed minded.
+ - The truth alone has never set anyone free. It is only DOUBT which will bring about mental emancipation. Without the wonderful element of doubt, the doorway through which truth passes would be tightly shut, impervious to the strenuous poundings of a thousand Lucifer’s.
+ - When ghettos become the mainstream of society, islands of individuality cannot help but harbor an elite.
+ - ALL religions of a spiritual nature are inventions of man. He has created an entire system of gods with nothing more than his carnal brain. Just because he has an ego, and cannot accept it, he has to externalize it into some great spiritual device which he calls God.
+ - Religions are easy to invent. Most traditional religions have little or nothing to do with reality, are dependent on obfuscation, interpretation, guilt, and unreasoning faith...
+ - In this arid wilderness of steel and stone I raise up my voice that you may hear. To the East and to the West I beckon. To the North and to the South I show a sign proclaiming: Death to the weakling, wealth to the strong!
+ - There is nothing inherently sacred about moral codes. Like the wooden idols of long ago, they are the work of human hands, and what man has made, man can destroy!
+ - Satanism is not a white light religion; it is a religion of the flesh, the mundane, the carnal – all of which are ruled by Satan, the personification of the Left Hand Path.
+ - If a guest in your lair annoys you, treat him cruelly and without mercy.
+ - I don’t drink much anymore, because it’s supposedly not good for me. I still have gallons of it around though. I smell the cork and do a lot of wishing.
+ - The only thing Christianity ever contributed to Satanism was the name.
+ - I never met a person who loved everybody I didn’t dislike.
+ - I feel that what is probably the greatest enemy of longevity is popularity, and most people die of popularity.
+ - Martin Luther dreamed up Protestantism while sitting on the toilet at Wittenburg monastery, and we know what a big movement that became.
+ - If a person wants to be hurt and enjoys suffering, then there is no reason not to indulge him in his wont.
+ - Those that would say Satanist would like to kill animal’s, sacrifice animals I would say they would make ideal animal sacrifices, I love animals and animals have always been part of me.
+ - Those who spell Magic with a K aren’t.
+ - My parents were lenient. My mother believed God was another word for nature. I took up Satanism not out of desperation, but out of logic. I rebelled, not but because of a religious or repressive childhood. I wanted to join the French Foreign Legion.
+ - No hoary falsehood shall be a truth to me; no stifling dogma shall encramp my pen!
+ - The first time I read the Protocols of the Elders of Zion, my instinctive reaction was, so what’s wrong with THAT? Isn’t that the way any master plan should work? Doesn’t the public deserve – nay, demand – such despotism?
+ - Before none of your printed idols do I bend in acquiescence, and he who saith thou shalt to me is my mortal foe!
+ - The ecclesiastical description of Hell is that of a horrible place of fire and torment; in Dante’s Inferno, and in northern climes, it was thought to be an icy cold region, a giant refrigerator.
+ - There is not always ‘two sides to every issue.’ That statement is a ridiculous slogan invoked by vested interests and perpetuated by minds of limited scope.
+ - Man prides himself on being the only animal who can modify his nature, yet when he chooses to do so he is called a phony.
+ - Why should I not hate mine enemies – if I “love” them does that not place me at their mercy?
+ - Yeah, well, I’m crazy, but I’m not stupid, hopefully. And I think we’re all a bit crazy if we do anything that’s deviant. I’ve studied a great deal on deviance and aberrant behavior. Most of the interesting people I’ve ever met have been deviant in one form or another.
+ - I visualize the day that tridents and pentagrams are thrust into the sky from church roofs instead of crosses.
+ - I request reason for your golden rule and ask the why and wherefore of your ten commandments.
+ - Mysterious beings we seek from birth; what does that mean to me? Something we seek, and as we age it becomes more elusive, yet our spirit remains willing, but our flesh grows weak.
+ - Anyone without a sense of humor is too pretentious to be a good magician.
+ - A friend of mine who was a founding father of the Church of Satan, who later I compared notes with, said when he was a kid, he too managed to get into Sallys Nude Ranch, and in the corral he saw his Sunday school teacher!!! That was a real epiphany for him. From that moment on he was a Satanist.
+ - I thought, acted, and thereupon found myself removed.
+ - Heaven must be populated with some rather strange creatures if all they lived for was to go to a place where they can strum harps for eternity.
+ - We are so inculcated with guilt that we think that weakness is a sin or that it is some crime against nature to be submissive.
+ - I have a passion for big cats, I like big snakes. There is something about snakes that is so wise, they have this uncanny perfection. I’d like to get inside their reptilian heads.
+ - Unfortunately for a multitude of occultists, humor is a rare ingredient in their lives. In fact it is their very lack of humor that has impelled them into the arcane and esoteric.
+ - Hair on a man’s chest is thought to denote strength. The gorilla is the most powerful of bipeds and has hair on every place on his body except for his chest.
+ - Satanists are encouraged to indulge in the seven deadly sins, as they need hurt no one; they were only invented by the Christian Church to insure guilt on the part of its followers.
+ - In order to perform the supernatural, you must first be able to accomplish the supernormal.
+ - Whatever alleged ‘truth’ is proven by results to be but an empty fiction, let it be unceremoniously flung into the outer darkness, among the dead gods, dead empires, dead philosophies, and other useless lumber and wreckage!
+ - All we want, those few of us who have the strength to realize what’s going on, is the freedom to create and entertain and share with each other, to preserve and cherish what we can while we can, and to build our own little citadels away from the insensitivity of the rest of the world.
+ - How could you set yourself up as the most powerful institution on earth? You first find out what every man feels at least once a day, establish that as a sin, and set yourself up as the only institution capable of pardoning that sin.
+ - I like raunchiness, not like in a biker-chick sort of a way, but like the girl can’t help it. Little bruises, a few hairs out of place, a little stain here and there.
+ - To the Maker the archetype, the self-sustainer, human interaction is usually a waste of the most precious thing in his vital existance: time.
+ - It’s a cinch that if you read it in an occult periodical or paperback, everyone’s doing it. That should be your cue to avoid such stuff, lest you be relegated to the same readership level.
+ - There are many who would take my time. I shun them.
+ - A Satanist practices the motto, If a man smite thee on one cheek, smash him on the other! Let no wrong go unredressed.
+
+89 quotes

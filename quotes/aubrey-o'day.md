@@ -1,0 +1,24 @@
+ - You can never regret anything you do in life. You kind of have to learn the lesson from whatever the experience is and take it with you on your journey forward.
+ - I’m very honest about the things I struggle with and I need to work on to survive as a solo artist.
+ - I would rather be hated every damn day of my life for being real than loved for being something I’m not.
+ - When you start to realize life isn’t fair, what do you do: curl up and die or fight every second of the way?
+ - I’m a girl who eats, I love to eat.
+ - I’ve never gone into an interview in my life and said that we can’t talk about something.
+ - I mean, a lot of the times I think I’m seen as a bad girl, and I think that’s because I’m so open.
+ - I don’t like how I have to always be judged for my weight – I hate that.
+ - The only thing I’m looking for in life is incredible passion and honest love, no matter what options are on the table. All I really operate on is the way I feel in my heart when it comes to love.
+ - One thing I think celebrities shy away from is exposing the reality that we’re all the same. Somebody’s not more important because they have a Bentley or a big house or a famous boyfriend or plastic surgery – we’re all the same.
+ - I think in society we tend to put ourselves in boxes and corners and restrict ourselves, and we constantly feel the need to not say this or not wear this.
+ - I think a lot of people settle with comfort. I’ve kinda pushed my whole life not to do that. There’s nothing wrong with settling, it’s definitely an easier life than the one I’ve chosen to live.
+ - I can’t always live my life for everybody else.
+ - I love that my career has been documented and I can look back one day and share it with my kids.
+ - You know, entertainment is just a curtain at the end of the day.
+ - You know, I never fight for corporate America.
+ - Celebrity nowadays is so fleeting.
+ - I have a very pop voice, but there’s so much of me I associate mostly with urban music, so I try to blend the two.
+ - My theory on smear pieces is try and win ’em over.
+ - I know that everybody is so obsessed with this idea of fame, and they think that I’m obsessed. In all honesty, I’m just doing me.
+ - For me, I feel like reality TV is anything but these days.
+ - If there’s anything I think that you’ve seen about me, it’s that I’m the rebellious girl.
+
+22 quotes

@@ -1,0 +1,24 @@
+ - Service is not something we endure on this earth so we can earn the right to live in the celestial kingdom. Service is the very fiber of which an exalted life in the celestial kingdom is made.
+ - Receiving the Holy Ghost is the therapy which effects forgiveness and heals the sin-sick soul.
+ - Self-Reliance is a prerequisite to the complete freedom to act.
+ - There is an interdependence between those who have and those who have not. The process of giving exalts the poor and humbles the rich. In the process, both are sanctified.
+ - While the Lord will magnify us in both subtle and dramatic ways, he can only guide our footsteps when we move our feet.
+ - Pondering is, in my feeling, a form of prayer.
+ - Prayer is the means by which men communicate with God. Revelation is the means by which God communicates with men.
+ - Always keep your eye on the President of the church, and if he ever tells you to do anything, even if it is wrong, and you do it, the lord will bless you for it, but you don’t need to worry. The lord will never let his mouthpiece lead the people astray.
+ - We will see the day when we live on what we produce.
+ - The only motive strong enough to induce men to exercise the self control required by the religion of Jesus is love.
+ - The efficacy of our prayers depends on how much we care for one another.
+ - The key to happiness is to get the spirit and keep it.
+ - My soul has made its greatest growth as I have been driven to my knees by adversity and affliction.
+ - Prayer is the instrument of miracles.
+ - But you don’t need to worry. The Lord will never let his mouthpiece lead the people astray.
+ - The possession of a true testimony is the most valuable possession that one could have. It gives one knowledge, the hope and assurance that one, through obedience, can be a partaker of all the promised blessings.
+ - Forgiveness is as wide as repentance.
+ - It has always seemed somewhat paradoxical to me that we must constantly have the Lord command us to do those things which are for our own good.
+ - Peace has been variously defined, but perhaps we might think of it as ‘harmony within one’s self, and with God and man.’
+ - Every choice one makes either expands or contracts the area in which he can make and implement future decisions. When one makes a choice, he irrevocably binds himself to the consequences of that choice.
+ - No, the Lord doesn’t really need us to take care of the poor, but we need this experience; for it is only through our learning how to take care of each other that we develop within us the Christlike love and disposition necessary to qualify us to return to his presence.
+ - The prime duty of help to the poor by the Church is not to bring temporal relief to their needs, but salvation to their souls.
+
+22 quotes

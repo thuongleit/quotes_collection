@@ -1,0 +1,23 @@
+ - My brokenness is a better bridge for people than my pretend wholeness ever was.
+ - God has promised that whatever you face, you are not alone. He knows your pain. He loves you. And He will bring you through the fire.
+ - If you feel stuck, bring your whole self to Christ, not just the problem, but you. Ask God to change your heart. Commit yourself to pray to that end. It’s God’s heart to give good gifts to His children.
+ - Lord God, I long to hear Your voice but not just secondhand through teachers, as wonderful and godly as they can be. I long to hear Your voice firsthand.
+ - In these uncertain times, I know 100 percent that I can stake my life on the unshakeable, unchanging promises of God!
+ - Some people will not understand what the love of Christ compels you to do; do it anyway.
+ - If we mistake God’s silence for indifference, we are the most miserable of people. If we give up when we no longer understand, we reject His caring, steadfast love and cut ourselves off from our only real hope.
+ - Suffering is seldom an item on our list of requests to the Lord. But when it crosses our path and we are able by his grace to keep on walking, our lives become messages of hope to the world and to the church.
+ - God talks to His people-to each one of us-through His Word, through the counsel of godly friends, and through the Holy Spirit.
+ - When our dreams seem to go sour or remain unfulfilled, hopelessness can dominate our lives-or we can hold on with open hands, knowing that we have hope because God is faithful.
+ - The Father is truly the only Promise Maker who is in earnest a Promise Keeper. A promise from God is a promise kept.
+ - It’s my absolute passionate belief that every single human being, man, woman, or child, is aching to find a face-to-face relationship with God.
+ - It takes deliberate and continuous effort to carve out time in our overfull schedules to listen to the voice of God.
+ - When we don’t deal honestly with our lives and the losses we face, when we try to anesthetize the pain and move on, then the suppressed anger or fear or guilt will deal with us until we are ready to deal with those issues.
+ - But the witness of the substitutionary atonement of Jesus is that God’s most difficult promise has been kept.
+ - Theres not one good thought in me, apart from God. Thats the good news.
+ - I’ve never walked to an altar in my life. I gave my life to Christ in my bedroom as a child.
+ - The world is not looking for Stepford-type Christians. People are tired of pretense. We struggle with failures; we long for intimacy. So why are we feigning perfection before God and one another.
+ - I got pregnant and turned 40 at the same time.
+ - When I work with Women of Faith, I probably talk to anything from 15- to 20,000 women a weekend. They are dying to hear somebody tell their story out loud and not self-combust, to bring all the secrets out of the shadow into Gods light.
+ - I was one of the loneliest people on the planet. You can be incredibly well known and very alone. And thats who I was. I was a well-known person who was very alone.
+
+21 quotes

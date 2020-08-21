@@ -1,0 +1,100 @@
+ - You don’t make a photograph just with a camera. You bring to the act of photography all the pictures you have seen, the books you have read, the music you have heard, the people you have loved.
+ - You don’t take a photograph, you make it.
+ - There are no rules for good photographs, there are only good photographs.
+ - To the complaint, ‘There are no people in these photographs,’ I respond, There are always two people: the photographer and the viewer.
+ - It is horrifying that we have to fight our own government to save the environment.
+ - Once destroyed, nature’s beauty cannot be repurchased at any price.
+ - It is the photographer, not the camera, that is the instrument.
+ - I believe the world is incomprehensibly beautiful – an endless prospect of magic and wonder.
+ - There is nothing worse than a sharp image of a fuzzy concept.
+ - A great photograph is one that fully expresses what one feels, in the deepest sense, about what is being photographed.
+ - When words become unclear, I shall focus with photographs. When images become inadequate, I shall be content with silence.
+ - Photograph not only what you see but also what you feel.
+ - A good photograph is knowing where to stand.
+ - Bad weather makes for good photography.
+ - Twelve significant photographs in any one year is a good crop.
+ - I can look at a fine art photograph and sometimes I can hear music.
+ - The single most important component of a camera is the twelve inches behind it!
+ - There are always two people in every picture: the photographer and the viewer.
+ - Not everybody trusts paintings but people believe photographs.
+ - A great photograph is a full expression of what one feels.
+ - Landscape photography is the supreme test of the photographer – and often the supreme disappointment.
+ - A true photograph need not be explained, nor can it be contained in words.
+ - Yosemite Valley, to me, is always a sunrise, a glitter of green and golden wonder in a vast edifice of stone and space.
+ - How high your awareness level is determines how much meaning you get from your world. Photography can teach you to improve your awareness level.
+ - We all move on the fringes of eternity and are sometimes granted vistas through fabric of illusion.
+ - Ask yourself, ‘Why am I seeing and feeling this? How am I growing? What am I learning?’ Remember: Every coincidence is potentially meaningful.
+ - The negative is the score, and the print the performance.
+ - Life is your art. An open, aware heart is your camera. A oneness with your world is your film. Your bright eyes and easy smile is your museum.
+ - No matter how sophisticated you may be, a large granite mountain cannot be denied – it speaks in silence to the very core of your being.
+ - Photography is more than a medium for factual communication of ideas. It is a creative art.
+ - Notebook. No photographer should be without one!
+ - Emphasis on technique is justified only so far as it will simplify and clarify the statement of the photographer’s concept.
+ - One of the most important pieces of equipment, for the photographer who really wants to improve, is a great big wastepaper basket.
+ - The negative is comparable to the composer’s score and the print to its performance. Each performance differs in subtle ways.
+ - Sometimes I do get to places just when God’s ready to have somebody click the shutter.
+ - All art is the expression of one and the same thing- the relation of the spirit of man to the spirit of other men and to the world.
+ - In wisdom gathered over time I have found that every experience is a form of exploration.
+ - If you have enough craft, you’ve done your homework and you’re practiced. You can then make the photograph you desire.
+ - The camera cannot, but the photographer can.
+ - The artist and the photographer seek the mysteries and the adventure of experience in nature.
+ - The best picture is around the corner. Like prosperity.
+ - I hope that my work will encourage self expression in others and stimulate the search for beauty and creative excitement in the great world around us.
+ - My last word s that it all depends on what you visualize.
+ - I know that I am one with beauty and that my comrades are one. Let our souls be mountains, Let our spirits be stars, Let our hearts be worlds.
+ - Today, we must realize that nature is revealed in the simplest meadow, wood lot, marsh, stream, or tidepool, as well as in the remote grandeur of our parks and wilderness areas.
+ - The quality of place, the reaction to immediate contact with earth and growing things that have a fugal relationship with mountains and sky, is essential to the integrity of our existence on this planet.
+ - I am sure the next step will be the electronic image, and I hope I shall live to see it. I trust that the creative eye will continue to function, whatever technological innovations may develop.
+ - A photograph is not an accident – it is a concept.
+ - It is all very beautiful and magical here – a quality which cannot be described. You have to live it and breathe it, let the sun bake into you.
+ - Dodging and burning are steps to take care of mistakes God made in establishing tonal relationships.
+ - I tried to keep both arts alive, but the camera won. I found that while the camera does not express the soul, perhaps a photograph can!
+ - Image quality is not the product of a machine, but of the person who directs the machine, and there are no limits to imagination and expression.
+ - Impression is not enough. Design, style, technique – these, too, are not enough. Art must reach further than impression or self-revelation .
+ - The technique of 35mm photography appears simple. One is beguiled by the quick viewing and operation, and by the very questionable inclination to make many pictures with the hope that some will be good.
+ - The ‘machine-gun’ approach to photography – by which many negatives are made with the hope that one will be good – is fatal to serious results.
+ - Knowing what I know now, any photographer worth his salt could make some beautiful things with pinhole cameras.
+ - I can’t verbalize the internal meaning of pictures whatsoever. Some of my friends can at very mystical levels, but I prefer to say that, if I feel something strongly, I would make a photograph, that would be the equivalent of what I saw and felt.
+ - A photograph is usually looked at – seldom looked into.
+ - No man has the right to dictate what other men should perceive, create or produce, but all should be encouraged to reveal themselves, their perceptions and emotions, and to build confidence in the creative spirit.
+ - It is easy to take a photograph, but it is harder to make a masterpiece in photography than in any other art medium.
+ - Photography, as a powerful medium of expression and communications, offers an infinite variety of perception, interpretation and execution.
+ - Art is both the taking and giving of beauty, the turning out to the light of the inner folds of the awareness of the spirit.
+ - The herculean task of a photographer is to capture a momentary frame as beautiful in reality, as it would be in a dream.
+ - If what I see in my mind excites me, there is a good chance it will make a good photograph.
+ - We make images to “honor what is greater and more interesting than we are.”
+ - To photograph truthfully and effectively is to see beneath the surfaces and record the qualities of nature and humanity which live or are latent in all things.
+ - The sheer ease with which we can produce a superficial image often leads to creative disaster.
+ - I usually have an immediate recognition of the potential image, and I have found that too much concern about matters such as conventional composition may take the edge off the first inclusive reaction.
+ - Photography is an austere and blazing poetry of the real.
+ - We were in the shadow of the mountains, the light was cool and quiet and no wind was stirring. The aspen trunks were slightly greenish and the leaves were a vibrant yellow.
+ - I believe in beauty. I believe in stones and water, air and soil, people and their future and their fate.
+ - The great rocks of Yosemite, expressing qualities of timeless yet intimate grandeur, are the most compelling formations of their kind. We should not casually pass them by, for they are the very heart of the earth speaking to us.
+ - The skies and land are so enormous, and the detail so precise and exquisite that wherever you are you are isolated in a glowing world between the macro and the micro.
+ - I have often had a retrospective vision where everything in my past life seems to fall with significance into logical sequence.
+ - The piano has eighty-eight keys, and you have to be able to play all of them. And the range of white to black is analogous to the eighty-eight keys and you have to be able to play all eighty-eight keys in that palette from white to black.
+ - Millions of men have lived to fight, build palaces and boundaries, shape destinies and societies; but the compelling force of all times has been the force of originality and creation profoundly affecting the roots of human spirit.
+ - I believe photography is a tool to express our positive assessment of the world. A tool to acquire ultimate happiness and belief.
+ - I knew my destiny when I first experienced Yosemite.
+ - It is just as important to bring people the evidence of the beauty of the world of nature and of man as it is to give them a document of ugliness, squalor, and despair.
+ - It is my intention to present – through the medium of photography – intuitive observations of the natural world which may have meaning to the spectators.
+ - I believe the approach of the artist and the approach of the environmentalist are fairly close in that both are, to a rather impressive degree, concerned with the affirmation of life.
+ - All art is a vision penetrating the illusions of reality, and photography is one form of this vision and revelation.
+ - We who are gathered here may represent a particular delete, not of money and power, but of concern for the earth for the earth’s sake.
+ - In a strict sense photography can never be abstract, for the camera is incapable of synthetic integration.
+ - Myths and creeds are heroic struggles to comprehend the truth in the world.
+ - As the fisherman depends upon the rivers, lakes and seas and the farmer upon the land for his existence, so does mankind in general depend upon the beauty of the world about him for his spiritual and emotional existence.
+ - A photograph is not an accident – is a concept. It exists at, or before, the moment of exposure of the negative.
+ - I am probably afraid that some spectator will not understand my photography – therefore I proceed to make it really less understandable by writing defensibly about it.
+ - The only things in my life that compatibly exists with this grand universe are the creative works of the human spirit.
+ - We must remember that a photograph can hold just as much as we put into it, and no one has ever approached the full possibilities of the medium.
+ - The craft of photography is the key to good images.
+ - My wife – she could help me get the negs out!
+ - I expect to retire to a fine-grained heaven where the temperatures are always consistent, where the images slide before one’s eyes in a continual cascade of form and meaning.
+ - I’m interested in something which is built up from within, rather than just extracted from without.
+ - The term accessories has come to include a host of photographic gadgets of questionable value...
+ - I am always surprised when I see several cameras, a gaggle on lenses, filters, meters, et cetera, rattling around in a soft bag with a complement of refuse and dust. Sometimes the professional is the worst offender!
+ - With all art expression, when something is seen, it is a vivid experience, sudden, compelling, and inevitable.
+ - I don’t know anybody who needs a critic to find out what art is.
+
+98 quotes

@@ -1,0 +1,41 @@
+ - The heart breaks and breaks and lives by breaking it is necessary to go through dark and deeper dark and not to turn.
+ - A longing for the dance stirs in the buried life.
+ - I can hardly wait for tomorrow, it means a new life for me each and every day.
+ - What makes the engine go? Desire, desire, desire.
+ - Poetry is ultimately mythology, the telling of stories of the soul. The old myths, the old gods, the old heroes have never died. They are only sleeping at the bottom of our minds, waiting for our call. We have need of them, for in their sum they epitomize the wisdom and experience of the race.
+ - The poem in the head is always perfect. Resistance begins when you try to convert it into language.
+ - The universe is a continuous web. Touch it at any point and the whole web quivers.
+ - End with an image and don’t explain.
+ - Darling, do you remember the man you married? Touch me, remind me who I am.
+ - We have to learn how to live with our frailties. The best people I know are inadequate and unashamed.
+ - I want to write poems that are natural, luminous, deep, spare. I dream of an art so transparent that you can look through and see the world.
+ - I associate the garden with the whole experience of being alive, and so, there is nothing in the range of human experience that is separate from what the garden can signify in its eagerness and its insistence, and in its driving energy to live – to grow, to bear fruit.
+ - I dropped my hoe and ran into the house and started to write this poem, ‘End of Summer.’ It began as a celebration of wild geese. Eventually the geese flew out of the poem, but I like to think they left behind the sound of their beating wings.
+ - In every house of marriage there’s room for an interpreter.
+ - Deftly they opened the brain of a child, and it was full of flying dreams.
+ - A poem has secrets that the poet knows nothing of.
+ - The unconscious creates, the ego edits.
+ - You must be careful not to deprive the poem of its wild origin.
+ - The poem comes in the form of a blessing, like rapture breaking on the mind.
+ - Be what you are. Give What is yours to give. Have Style. Dare.
+ - A poet needs to keep his wilderness alive inside him.
+ - Forward my mail to Mars.
+ - I like an ending that’s both a door and a window.
+ - The ear writes my poems, not the mind.
+ - We have all been expelled from the Garden, but the ones who suffer most in exile are those who are still permitted to dream of perfection.
+ - When they shall paint our sockets gray And light us like a stinking fuse, Remember that we once could say, Yesterday we had a world to lose.
+ - Poetry is language surprised in the act of changing into meaning.
+ - Memory is each man’s poet-in-residence.
+ - Poetry is the enemy of the poem.
+ - My mother never forgave my father.
+ - Not that you need to be a saint to have visions worth talking about. The most effective prescription, I suspect, is to be a disciplined sinner. Perfection, as Valery noted, is work.
+ - Some poems present themselves as cliffs that need to be climbed. Others are so defensive that when you approach their enclosure you half expect to be met by a snarling dog at the gate. Still others want to smother you with their sticky charms.
+ - The supreme morality of art is to endure.
+ - Poetry today is easier to write but harder to remember.
+ - A poet needs to keep his wilderness alive inside him. To remain a poet after forty requires an awareness of your darkest Africa, that part of yourself that will never be tamed.
+ - The first task of the poet is to create the person who will write the poems.
+ - Rhythm to me is essentially what Hopkins called the taste of self. I taste myself as rhythm.
+ - Certainly the modern poets I cherish most are disturbing spirits; they do not come to coo.
+ - An old poet ought never to be caught with his technique showing.
+
+39 quotes

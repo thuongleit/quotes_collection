@@ -1,0 +1,30 @@
+ - Complaining is silly. Either act or forget.
+ - Yes, design can make you happy.
+ - Having guts always works out for me.
+ - Hobbies are for people that don’t like what they’re doing.
+ - Whenever I do overcome my inherent fear, it turns out well.
+ - Everyone who is honest is interesting.
+ - Everybody thinks they are right.
+ - To touch somebody’s heart with design.
+ - The question I wanted to answer was, could I train my mind to be happy the same way one trains ones body?
+ - Any excuse to get away from the computer screen is welcome.
+ - To be a good designer, you would need to have deep and far-reaching interests outside of the profession.
+ - I didnt think that personal style had much value in graphic design.
+ - It is very important to embrace failure and to do a lot of stuff – as much stuff as possible – with as little fear as possible. It’s much, much better to wind up with a lot of crap having tried it than to overthink in the beginning and not do it.
+ - Keeping a diary supports personal development.
+ - My diary entries allow me to keep track of all the things I would like to change about my life.
+ - Ensure it feels like it’s made by humans, for humans.
+ - You’re authentic when you’re honest.
+ - I think it’s ultimately inhuman to only see things for their functionality. We want things to be more than that. The desire for beauty is something that’s in us, and it’s not trivial.
+ - I discovered that I never really used Helvetica but I like to look at it. I like the VW beetle, too, although I’ve never driven one.
+ - Trying to always be the nice guy, to appear good, can be limiting. Avoiding confrontation has closed up a number of possibilities for me.
+ - If you want to communicate something, youd better make sure that your design piece is well-dressed and that its teeth are fixed. At the same time, I still believe that if it is only stylistically great and it has nothing to say, it still is not going to make a lasting impression on anybody.
+ - I myself am doing a full year of experiments every seven years, but I’m sure many other divisions are possible, depending on the field, the possibilities, and personal preferences. One hour a day or a day a week.
+ - Drugs feel great in the beginning and become a drag later on.
+ - My granddad wanted to become a sign painter and designer, but was stopped; my dad would have had a real talent for language, but was stopped. When I expressed a desire to become a graphic designer, I was not stopped.
+ - In running, I know that I can train as much as I want and Im never going to break the world record for the five miles. Its partly genetics; Im just not built for it. But if I worked really hard, I might be able to cut my time by half. Could I do the same thing with my mind and my well-being?
+ - Being in a foreign place, preferably for the first time, having seen many things and collected new impressions, and returning to an empty hotel room with an hour or so to blow. That mix often yields fine results.
+ - Peter Noever is a pain in the ass and a joy in the heart.
+ - So whatever I find true for myself, other people might also relate to.
+
+28 quotes

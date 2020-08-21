@@ -1,0 +1,118 @@
+ - New directions in science are launched by new tools much more often than by new concepts. The effect of a concept-driven revolution is to explain old things in new ways. The effect of a tool-driven revolution is to discover new things that have to be explained.
+ - Technology is a gift of God. After the gift of life it is perhaps the greatest of God’s gifts. It is the mother of civilizations, of arts and of sciences.
+ - The PhD system is the real root of the evil of academic snobbery. People who have PhDs consider themselves a priesthood, and inventors generally don’t have PhDs.
+ - Climate change is part of the normal order of things, and we know it was happening before humans came.
+ - As we look out into the Universe and identify the many accidents of physics and astronomy that have worked together to our benefit, it almost seems as if the Universe must in some sense have known that we were coming.
+ - Technology without morality is barbarous; morality without technology is impotent.
+ - No matter how far we go into the future, there will always be new things happening, new information coming in, new worlds to explore, a constantly expanding domain of life, consciousness, and memory.
+ - That was the wonderful thing about Ramanujan. He discovered so much, and yet he left so much more in his garden for other people to discover.
+ - The public has a distorted view of science because children are taught in school that science is a collection of firmly established truths. In fact, science is not a collection of truths. It is a continuing exploration of mysteries.
+ - It is better to be wrong than to be vague.
+ - All stable processes we shall predict. All unstable processes we shall control. Describing John von Neumann’s aspiration for the application of computers sufficiently large to solve the problems of meteorology, despite the sensitivity of the weather to small perturbations.
+ - The total disorder in the universe, as measured by the quantity that physicists call entropy, increases steadily over time. Also, the total order in the universe, as measured by the complexity and permanence of organized structures, also increases steadily over time.
+ - One factor that has remained constant through all the twists and turns of the history of physical science is the decisive importance of the mathematical imagination.
+ - One of the memorable moments of my life was when Willard Libby came to Princeton with a little jar full of crystals of barium xenate. A stable compound, looking like common salt, but much heavier. This was the magic of chemistry, to see xenon trapped into a crystal.
+ - A good scientist is a person with original ideas. A good engineer is a person who makes a design that works with as few original ideas as possible. There are no prima donnas in engineering.
+ - Technology must be guided and driven by ethics if it is to do more than provide new toys for the rich.
+ - It is not surprising that honest and well-informed experts can disagree about facts. But beyond the disagreement about facts, there is another deeper disagreement about values.
+ - The greatest unsolved mysteries are the mysteries of our existence as conscious beings in a small corner of a vast universe.
+ - Science is not a collection of truths. It is a continuing exploration of mysteries.
+ - In the history of science it has often happened that the majority was wrong and refused to listen to a minority that later turned out to be right.
+ - The analogies between science and art are very good as long as you are talking about the creation and the performance. The creation is certainly very analogous. The aesthetic pleasure of the craftsmanship of performance is also very strong in science.
+ - I see a bright future for the biotechnology industry when it follows the path of the computer industry, the path that von Neumann failed to foresee, becoming small and domesticated rather than big and centralized.
+ - The more I examine the universe and study the details of its architecture, the more evidence I find that the universe in some sense must have known that we were coming.
+ - It has become part of the accepted wisdom to say that the twentieth century was the century of physics and the twenty-first century will be the century of biology.
+ - Aviation is the branch of engineering that is least forgiving of mistakes.
+ - Do not imagine that you have to know everything before you can do anything. My own best work was done when I was most ignorant.
+ - We have no reason to think that climate change is harmful if you look at the world as a whole. Most places, in fact, are better off being warmer than being colder. And historically, the really bad times for the environment and for people have been the cold periods rather than the warm periods.
+ - There is a great satisfaction in building good tools for other people to use.
+ - Ethical progress is the only cure for the damage done by scientific progress.
+ - Sometimes we talked about the nature of the human soul and about the Cosmic Unity of souls that I had believed in so firmly when I was 15 years old. My mother did not like the phrase Cosmic Unity. It was too pretentious. She preferred to call it a world soul.
+ - You ask: what is the meaning or purpose of life? I can only answer with another question: do you think we are wise enough to read God’s mind?
+ - Thanks to the discoveries of astronomers in the twentieth century, we now know that the heat death is a myth. The heat death can never happen, and there is no paradox.
+ - We must be careful not to discourage our twelve-year-olds by making them waste the best years of their lives preparing for examinations.
+ - We should try to introduce our children to science today as a rebellion against poverty and ugliness and militarism and economic injustice.
+ - The great advances in science usually result from new tools rather than from new doctrines.
+ - The reason why new concepts in any branch of science are hard to grasp is always the same; contemporary scientists try to picture the new concept in terms of ideas which existed before.
+ - The pain of childbirth is not remembered. It’s the child that’s remembered.
+ - Just because you see pictures of glaciers falling into the ocean doesn’t mean anything bad is happening. This is something that happens all the time. It’s part of the natural cycle of things. We know from measurements that glaciers have been melting for 200 years at least.
+ - It’s not going to be just humans colonizing space, it’s going to be life moving out from the Earth, moving it into its kingdom. And the kingdom of life, of course, is going to be the universe.
+ - As a working hypothesis to explain the riddle of our existence, I propose that our universe is the most interesting of all possible universes, and our fate as human beings is to make it so.
+ - I do not make any clear distinction between mind and God. God is what mind becomes when it has passed beyond the scale of our comprehension.
+ - It is characteristic of all deep human problems that they are not to be approached without some humor and some bewilderment.
+ - If we want to go to space with humans, that’s for fun not for science. Human adventures in space are just sporting events.
+ - In the future, a new generation of artists will be writing genomes as fluently as Blake and Byron wrote verses.
+ - Scepticism is as important for a good journalist as it is for a good scientist.
+ - A model is such a fascinating toy that you fall in love with your creation.
+ - There is nothing so big nor so crazy that one out of a million technological societies may not feel itself driven to do, provided it is physically possible.
+ - I grew up in England at a time when England was winning Nobel Prizes right and left. I mean it was amazing how many Nobel Prizes England was winning in chemistry and physics and biology and all the sciences and at that time the teaching of science in the schools was really lousy.
+ - The universe in some sense must have known that we were coming.
+ - It makes very little sense to believe the output of the climate models.
+ - If the tools are bad, nature’s voice is muffled. If the tools are good, nature will give us a clear answer to a clear question.
+ - The technologies which have had the most profound effects on human life are usually simple.
+ - As finite creatures who think and feel, we can create islands of meaning in the sea of information.
+ - If you start out with a tragic view of life, then anything since is just a bonus.
+ - So long as you have courage and a sense of humor, it is never too late to start life afresh.
+ - Successful technologies often begin as hobbies. Jacques Cousteau invented scuba diving because he enjoyed exploring caves. The Wright brothers invented flying as a relief from the monotony of their normal business of selling and repairing bicycles.
+ - Progress in science is often built on wrong theories that are later corrected. It is better to be wrong than to be vague.
+ - Every orchid or rose or lizard or snake is the work of a dedicated and skilled breeder. There are thousands of people, amateurs and professionals, who devote their lives to this business. Now imagine what will happen when the tools of genetic engineering become accessible to these people.
+ - Mind and intelligence are woven into the fabric of our universe in a way that altogether surpasses our understanding.
+ - The purpose of thinking about the future is not to predict it but to raise people’s hopes.
+ - Science is my territory, but science fiction is the landscape of my dreams.
+ - I think it’s much better to have your eyes open, but on the other hand, of course it can do harm if you tell people look, there’s all these terrible things you can do and then some idiot may go ahead and do it.
+ - Life is nature’s way to give mind oportunities it wouldn’t otherwise had.
+ - Biology is now bigger than physics, as measured by the size of budgets, by the size of the workforce, or by the output of major discoveries; and biology is likely to remain the biggest part of science through the twenty-first century.
+ - The idea that global warming is the most important problem facing the world is total nonsense and is doing a lot of harm.
+ - If you don’t have a nasty obituary you probably didn’t matter.
+ - Scientifically speaking, a butterfly is at least as mysterious as a superstring. When something ceases to be mysterious, it ceases to be of absorbing concern to scientists. Almost all the things scientists think and dream about are mysterious.
+ - Humanity looks to me like a magnificent beginning but not the final word.
+ - Unfortunately the global warming hysteria, as I see it, is driven by politics more than by science.
+ - The technologies that raise the fewest ethical problems are those that work on a human scale, brightening the lives of individual people.
+ - I like people who are working on practical things and who are working in teams. It’s not so important to get the glory. It’s much more important to get something that works. It’s a better way to live.
+ - The glory of science is to imagine more than we can prove.
+ - Boiled down to one sentence, my message is the unboundedness of life and the unboundedness of human destiny.
+ - It is our task, both in science and in society at large, to prove the conventional wisdom wrong and to make our unpredictable dreams come true.
+ - For any speculation which does not at first glance look crazy, there is no hope.
+ - Our thinking is permeated by our historical myths.
+ - What the world needs is a small, compact, flexible fusion technology that could make electricity where and when it is needed. The existing fusion program is leading to a huge source of centralized power, at a price that nobody except a government can afford.
+ - The important thing is that we now have the tools to sequence all kinds of animals and plants and microbes – as well as humans. It is not important that we didn’t actually finish the human sequence yet.
+ - Most of the papers which are submitted to the Physical Review are rejected, not because it is impossible to understand them, but because it is possible. Those which are impossible to understand are usually published.
+ - There is no way to find the best design except to try out as many designs as possible and discard the failures.
+ - We do not need to have an agreed set of goals before we do something ambitious!
+ - I am hoping that the scientists and politicians who have been blindly demonizing carbon dioxide for 37 years will one day open their eyes and look at the evidence.
+ - Lucky individuals in each generation find technology appropriate to their needs.
+ - I don’t know, but I think it’s quite possible that the more science you teach kids in school the more it turns them off, so I don’t know. I mean you never can tell which way it will go.
+ - We cannot hope to either understand or to manage the carbon in the atmosphere unless we understand and manage the trees and the soil too.
+ - We simply don’t know yet what’s going to happen to the carbon in the atmosphere.
+ - Younger people have so many opportunities. I don’t see any pessimism among them.
+ - The biologists have essentially been pushed aside. Al Gore’s just an opportunist. The person who is really responsible for this overestimate of global warming is Jim Hansen. He consistently exaggerates all the dangers.
+ - If we had a reliable way to label our toys good and bad, it would be easy to regulate technology wisely. But we can rarely see far enough ahead to know which road leads to damnation. Whoever concerns himself with big technology, either to push it forward or to stop it, is gambling in human lives.
+ - Most of what we see in the universe is dust.
+ - A model is done when nothing else can be taken out.
+ - The marketplace judges technologies by their practical effectiveness, by whether they succeed or fail to do the job they are designed to do.
+ - There is no doubt that parts of the world are getting warmer, but the warming is not global.
+ - I mean science was blamed for all the horrors of World War I, just as it’s blamed today for nuclear weapons and quite rightly.
+ - In the end it is how you fight, as much as why you fight, that makes your cause good or bad.
+ - The only way to improve the chances for finding winners is to keep all the choices open and try them all.
+ - To give us room to explore the varieties of mind and body into which our genome can evolve, one planet is not enough.
+ - I am acutely aware of the fact that the marriage between mathematics and physics, which was so enormously fruitful in past centuries, has recently ended in divorce.
+ - The public knows that human beings are fallible. Only people blinded by ideology fall into the trap of believing in their own infallibility.
+ - A good cause can become bad if we fight for it with means that are indiscriminately murderous. A bad cause can become good if enough people fight for it in a spirit of comradeship and self-sacrifice. In the end it is how you fight, as much as why you fight, that makes your cause good or bad.
+ - And somehow mother nature manages to create this incredible biosphere, to create this incredibly rich environment of animals and plants with this amazingly small amount of data.
+ - The ground of science was littered with the corpses of dead unified theories.
+ - If you want to have a program for moving out into the universe, you have to think in centuries not in decades.
+ - Mostly I’m just writing books for the public, and so I try to describe for the public what the choices are, what they might have to expect in the future and so by warning people ahead of time maybe you have an effect.
+ - The fact that the climate is getting warmer doesn’t scare me at all. There’s no reason why one should be scared.
+ - Many of the technologies that are now racing ahead most rapidly, replacing human workers in factories and offices with machines, making stockholders richer and workers poorer, are indeed tending to accentuate the existing inequalities in the distribution of wealth.
+ - I’m a mathematician, basically. What I do is look around for problems where I can find useful applications for mathematics. All I do, really, is the math, and other people have the ideas.
+ - When I listen to the public debates about climate change, I am impressed by the enormous gaps in our knowledge, the sparseness of our observations and the superficiality of our theories.
+ - Committees do harm merely by existing.
+ - If it should turn out that the whole of physical reality can be described by a finite set of equations, I would be disappointed. I would feel that the Creator had been uncharacteristically lacking in imagination.
+ - I am saying that all predictions concerning climate are highly uncertain.
+ - For a physicist mathematics is not just a tool by means of which phenomena can be calculated, it is the main source of concepts and principles by means of which new theories can be created.
+ - It’s better to get mugged than to live a life of fear.
+ - The question that will decide our destiny is not whether we shall expand into space. It is: shall we be one species or a million? A million species will not exhaust the ecological niches that are awaiting the arrival of intelligence.
+ - It’s as great a part of the human adventure to invent things as to understand them. John Randall wasn’t a great scientist, but he was a great inventor. There’s been lots more like him, and it’s a shame they don’t get Nobel Prizes.
+ - The laws of nature are constructed in such a way as to make the universe as interesting as possible.
+
+116 quotes

@@ -1,0 +1,41 @@
+ - What a fool cannot learn he laughs at, thinking that by his laughter he shows superiority instead of latent idiocy.
+ - I never married because there was no need. I have three pets at home which answer the same purpose as a husband. I have a dog which growls every morning, a parrot which swears all afternoon, and a cat that comes home late at night.
+ - Such lovely warmth of thought and delicacy of colour are beyond all praise, and equally beyond all thanks!
+ - Years should be nothing to you. Who asked you to count them or consider them? In the world of wild Nature, time is measured by seasons only-the bird does not know how old it is-the rose-tree does not count its birthdays!
+ - The Browning love story? It is an ideal, all too rare, and yet I hardly think it strange. It would have been far stranger had the fates allowed those two brilliant passionate souls to beat themselves out in silence.
+ - And out of heart’s pain comes heart’s peace; and out of desire, accomplishment.
+ - How foolish it would be if women did not obey men. The world would be all confusion!
+ - If we choose to be no more than clods of clay, then we shall be used as clods of day for braver feet to tread on.
+ - Let me be mad, then, by all means! mad with the madness of Absinthe, the wildest, most luxurious madness in the world! Vive la folie! Vive l’amour! Vive l’animalisme! Vive le Diable!
+ - Greatness is always envied – it is only mediocrity that can boast of a host of friends.
+ - I must not say what I truly think, or you will tell me I flatter you-but I can only speak what I feel-and very often I cannot even do that when the feeling is very deep.
+ - No one is contented in this world, I believe. There is always something left to desire, and the last thing longed for always seems the most necessary to happiness.
+ - Wealth acts merely as a kind of mirror to show you human nature at its worst.
+ - Pleasure for others is the only pleasure possible to me. I assure you I’m quite selfish! – I’m greedy for the happiness of those I love – and if they can’t or won’t be happy I’m perfectly miserable.
+ - Patriotism is understood to be that virtue which consists in serving one’s country; but in what way is this ‘Patria’ or country served by slaying its able bodied men in thousands?
+ - There is no wealth but love.
+ - An opinion which excites no opposition at all is not worth having!
+ - Love clamors far more incessantly and passionately at a closed gate than an open one!
+ - Nothing gives small minds a better handle for hatred than superiority...
+ - Nothing is so deceptive as human reasoning, – nothing so slippery and reversible as what we have decided to call ‘logic.’ The truest compass of life is spiritual instinct.
+ - One of the advantages or disadvantages of the way in which we live in these modern days is that we are ceasing to feel. That is to say we do not permit ourselves to be affected by either death or misfortune, provided these natural calamities leave our own persons unscathed.
+ - Flowers are like visible messages from God.
+ - There is nothing so depressing as a constant contemplation of one’s self, and the greatest moral cowardice in the world’s opinion comes from consulting one’s own personal convenience.
+ - I attribute my good fortune to the simple fact that I have always tried to write straight from my own heart to the hearts of others.
+ - It is not so difficult to win love as to keep it!
+ - A criminal is twice a criminal when he adds hypocrisy to his crime.
+ - When one loves God better than the Church is one called a heretic?
+ - Hate is a grand, a strong quality! It makes nations, it builds up creeds! If men loved one another what should they need of a Church?
+ - What was the use of trying to expound a truth, if the majority preferred a lie?
+ - A fine morning’s killing, ay! All their necks wrung – all dead birds! Once they could fly – fly and swim! Fly and swim! All dead now – and sold cheap in the open market!
+ - Great Poets discover themselves. Little Poets have to be ‘discovered’ by somebody else.
+ - Education! Is it education to teach the young that their chances of happiness depend on being richer than their neighbors? Yet that is what it all tends to. Get on! – be successful!
+ - Fame, or notoriety, whichever that special noise may be called when the world like a hound ‘gives tongue’ and announces that the quarry in some form of genius is at bay, is apt to increase its clamor in proportion to the aloofness of the pursued animal...
+ - The Church is a system, – but whether it is as much founded on the teaching of our Lord, who was divine, as on the teaching of St. Paul, who was not divine, is a question to me of much perplexity.
+ - For though there never was so much reading matter put before the public, there was never less actual ‘reading’ in the truest and highest sense of the term than there is at present.
+ - Fancy your having no sunshine in London yesterday! Here it was glorious, like full summer, and I sat up with the window wide open, listening to the discourse of two amorous thrushes.
+ - You should always be well and bright, for so you do your best work; and you have so much beautiful work to do. The world needs it, and you must give it!
+ - Imagination is the supreme endowment of the poet and romanticist. It is a kind of second sight, which conveys the owner of it to places he has never seen, and surrounds him with strange circumstances of which he is merely the spiritual eyewitness.
+ - The Press nowadays is not a literary press; classic diction and brilliancy of style do not distinguish it by any means.
+
+39 quotes

@@ -1,0 +1,59 @@
+ - All love stories are tales of beginnings. When we talk about falling in love, we go to the beginning, to pinpoint the moment of freefall.
+ - I wasn’t prepared for the fact that grief is so unpredictable. It wasn’t just sadness, and it wasn’t linear. Somehow I’d thought that the first days would be the worst and then it would get steadily better – like getting over the flu. That’s not how it was.
+ - Suddenly it was fall, the season of death, the anniversary of things-going-to-hell.
+ - Grief is a bad moon, a sleeper wave. It’s like having an inner combatant, a saboteur who, at the slightest change in the sunlight, or at the first notes of a jingle for a dog food commercial, will flick the memory switch, bringing tears to your eyes.
+ - I believe in the importance of individuality, but in the midst of grief I also find myself wanting connection – wanting to be reminded that the sadness I feel is not just mine but ours.
+ - I think that grief is a profound spiritual, metaphysical, and – oddly – physical reckoning with death, which we don’t understand well. It’s both the process by which you relearn the world in the absence of someone who was a pillar in it, and the process in which you confront the reality of death.
+ - The people we most love do become a physical part of us, ingrained in our synapses, in the pathways where memories are created.
+ - A mother, after all, is your entry into the world. She is the shell in which you divide and become a life. Waking up in a world without her is like waking up in a world without sky: unimaginable.
+ - Our minds are mysterious; our conscious brain is like a ship on a sea that is obscure to us.
+ - A death from a long illness is very different from a sudden death. It gives you time to say goodbye and time to adjust to the idea that the beloved will not be with you anymore.
+ - It’s all too easy when talking about female gymnasts to fall into the trap of infantilizing them, spending more time worrying more about female vulnerability than we do celebrating female strength.
+ - My mother never liked Mother’s Day. She thought it was a fake holiday dreamed up by Hallmark to commodify deep sentiments that couldn’t be expressed with a card.
+ - I envy my Jewish friends the ritual of saying kaddish – a ritual that seems perfectly conceived, with its built-in support group and its ceremonious designation of time each day devoted to remembering the lost person.
+ - Relationships take up energy; letting go of them, psychiatrists theorize, entails mental work. When you lose someone you were close to, you have to reassess your picture of the world and your place in it. The more your identity was wrapped up with the deceased, the more difficult the loss.
+ - One word I had throughout the first year and a half of my mother’s death was ‘unmoored.’ I felt that I had no anchor, that I had no home in the world.
+ - A mother is a story with no beginning. That is what defines her.
+ - Nothing prepared me for the loss of my mother. Even knowing that she would die did not prepare me.
+ - Grief is characterized much more by waves of feeling that lessen and reoccur, it’s less like stages and more like different states of feeling.
+ - What had happened still seemed implausible. A person was present your entire life, and then one day she disappeared and never came back. It resisted belief.
+ - There are many kinds of loss embedded in a loss – the loss of the person, and the loss of the self you got to be with that person. And the seeming loss of the past, which now feels forever out of reach.
+ - When my mother was sick, I found myself needing to put down in my journals all sorts of things – to try to understand them, and, I think, to try to remember them.
+ - Loss doesn’t feel redeemable. But for me one consoling aspect is the recognition that, in this at least, none of us is different from anyone else: We all lose loved ones; we all face our own death.
+ - If the condition of grief is nearly universal, its transactions are exquisitely personal.
+ - A mother is the portal by which you enter the world.
+ - One of the grubby truths about a loss is that you don’t just mourn the dead person, you mourn the person you got to be when the lost one was alive. This loss might even be what affects you the most.
+ - And after my mother’s death I became more open to and empathetic about other people’s struggles and losses.
+ - It’s a blessing not to be alone in your grief but it’s also painful to see your parents and siblings in pain.
+ - Grief is at once a public and a private experience. One’s inner, inexpressible disruption cannot be fully realized in one’s public persona.
+ - For sure, the funeral industry seems intensely cynical to me and I don’t think it is HELPING people mourn.
+ - Many researchers say the dominant emotion experienced after loss is yearning or searching. And while you might feel more anger early on, it’s accompanied by a whole host of other feelings.
+ - Be patient with yourself. Don’t make the loss harder by thinking you should be a certain way, or have bounced back, etc.
+ - The truth is, I need to experience my mother’s presence in the world around me and not just in my head.
+ - Funerals cost so much money, and are likely to be an additional source of stress in this recession – it’s sad that we don’t have a more humane, less commercialized way to approach burial.
+ - To mourn is to wonder at the strangeness that grief is not written all over your face in bruised hieroglyphics. And it’s also to feel, quite powerfully, that you’re not allowed to descend into the deepest fathom of your grief – that to do so would be taboo somehow.
+ - Many grievers experience intense yearning or longing after a death – more than they experience, say, denial.
+ - Like my mother before me, I have always been a good speller.
+ - Time doesn’t obey our commands. You cannot make it holy just because it is disappearing.
+ - What’s endlessly complicated in thinking about women’s gymnastics is the way that vulnerability and power are threaded through the sport.
+ - My whole life, I had been taught to read and study, to seek understanding in knowledge of history, of cultures.
+ - This is part of the complexity of grief: A piece of you recognizes it is an extreme state, an altered state, yet a large part of you is entirely subject to its demands.
+ - I am the indoctrinated child of two lapsed Irish Catholics. Which is to say: I am not religious.
+ - But there is a discomfort that surrounds grief. It makes even the most well-intentioned people unsure of what to say. And so many of the freshly bereaved end up feeling even more alone.
+ - There is always tension in women’s gymnastics between athleticism, grace, performance, and eros.
+ - One of the ideas I’ve clung to most of my life is that if I just try hard enough it will work out.
+ - Faith does help mourners survive their loss, some studies suggest; but I imagine one still struggles.
+ - I’m not much like my mother; that role falls to my brothers, who have more of her blithe and freewheeling spirit.
+ - We have an idea – a very modern idea – that dying is undignified. But I think this is because we have the illusion that we can control our bodies and our fates.
+ - Many Americans don’t mourn in public anymore – we don’t wear black, we don’t beat our chests and wail.
+ - There is no single way of grieving. But research suggests that there are some broad similarities among grievers.
+ - Loss is so paradoxical: It is at once enormous and tiny.
+ - Writing has always been the primary way I make sense of the world.
+ - My theory is this: Women falter when they’re called on to be highly self-conscious about their talents. Not when they’re called on to enact them.
+ - After all dying is one of the most profound and difficult experiences we have.
+ - I live to collect information, and I am also a perfectionist.
+ - One of the things about grief is that it can bring a deeper perspective into your life; in the end, it has, for me, though it’s also brought sorrow.
+ - I have seen that grief can be very different for different people. While the range of emotions experienced is similar, the way we deal with those emotions isn’t, necessarily.
+ - But when my mother died, I found that I did not believe that she was gone.
+
+57 quotes

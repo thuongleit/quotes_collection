@@ -1,0 +1,25 @@
+ - If we seek first the Kingdom of God and live as we should, all the rest of life seems to fall into place and wonderful things happen.
+ - Love is a gift from God, and as we obey His laws and genuinely learn to serve others, we develop God’s love in our lives. Love of God is the means of unlocking divine powers which help us to live worthily and to overcome the world...
+ - Life is a competition not with others, but with ourselves. We should seek each day to live stronger, better, truer lives; each day to master some weakness of yesterday; each day to repair a mistake; each day to surpass ourselves.
+ - Don’t be discouraged at seemingly overwhelming odds in your desire to live and to help others live God’s commandments. At times it may seem like David trying to fight Goliath. But remember, David did win.
+ - Someone has written, Love is a verb. It requires doing -not just saying and thinking. The test is in what one does, how one acts, for love is conveyed in word and deed.
+ - God does not love us because we are lovable, have a pleasing personality or a good sense of humor, or at rare times show exceptional kindness. In spite of who we are and what we have done, God wants to pour out His love on us, for the unlovable are also precious unto Him.
+ - Nothing touches the soul but leaves its impress, and thus, little by little, we are fashioned into the image of all we have seen and heard, known and meditated; and if we learn to live with all that is fairest and purest and best, the love of it all will in the end become our life.
+ - There come to one’s soul heavenly thoughts as he joins in heavenly expressions coupled with heavenly melody.
+ - Regular temple attendance is one of the simplest ways you can bless those who are waiting in the spirit world. If you live near a temple, partake of the opportunity to go often and regularly.
+ - To develop good thoughts and acts, we must live and associate with good people.
+ - Take advantage of this great opportunity in your life to live it well, to be good, to have good works, and to influence other people for good.
+ - Love is this divine ingredient. It alone describes what can be our perfect relationship to our Heavenly Father and our family and neighbors, and the means by which we accomplish His work.
+ - Those who labor unselfishly in behalf of others, with no thought of remuneration, will be physically and spiritually refreshed and renewed.
+ - The Lord never asks the impossible. Often the difficult, but never the impossible.
+ - A temple is a place in which those whom He has chosen are endowed with power from on high – a power which enables us to use our gifts and capabilities – to bring to pass our Heavenly Father’s purposes in our own lives and the lives of those we love.
+ - Knowing that we should love is not enough. But when knowledge is applied through service, love can secure for us the blessings of heaven.
+ - Bible prophecies indicate that in the last dispensation of the gospel, there would be a restoration of all of the principles and practices of former dispensations, which includes temple-building and the performing of ordinances therein.
+ - I hope that we have grateful hearts for the knowledge that we have and the testimonies we have and for the feelings we have.
+ - God accomplishes His purposes heart to heart.
+ - How did they manage to raise their children in righteousness? The principles become part of their lives, and when it becomes part of their life, it isn’t difficult to do.
+ - You young men of the priesthood, resolve to live the way you should. Don’t be caught up in some of the silly things that are going on in the world, but bear in mind what has been given to you.
+ - It is the love that we give and the service we render that really is the great payoff.
+ - Though the world is becoming more wicked, the youth of Christ’s Church can become more righteous if they understand who they are, understand the blessings available, and understand the promises God has made to those who are righteous, who believe, who endure.
+
+23 quotes

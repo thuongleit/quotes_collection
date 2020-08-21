@@ -1,0 +1,34 @@
+ - Men who have a lot of charm have it in place of something real that you are eventually going to want from them and find that they do not have.
+ - Whatever behavior you’ve experienced from people in the past, expect them to do it again and again and again.
+ - Of the things I know to be true in life, right at the top of the list of irrefutable truths is, “No one ever listens to anyone.” It might even be No. 1.
+ - Beware the old man in young guy’s clothes. If he’s over 35 and comes to pick you up looking as though he’s headed for a skateboarding competition while you are dressed to go to a nice restaurant, this is not a good sign.
+ - Beware the cute, hot guy who kind of reminds you of the parent you don’t get along with: your cold, distant father who left when you were a kid or your hot-tempered mother whom you could never please.
+ - I don’t like the celebrity gossip culture, and I certainly don’t want to contribute to it. I don’t care about the Kardashians, or any of them.
+ - They were soul mates, my mother and father. They claimed to adore each other, as if the word ‘adore’ meant ’argue with ceaselessly.
+ - I always hated those classic kid movies like Old Yeller or The Yearling where the beloved pet dies. What would be so wrong with having those damn kids learn their lessons about mortality from watching Grandpa kick? Then at least the dog would be around to comfort them.
+ - Beware the man who doesn’t ask you any questions about yourself on your first date.
+ - Conversely, beware the man who does nothing but ask you questions about yourself and offers no information about himself. Not only is he keeping you at bay, he is probably not listening to your answers.
+ - Since – in my belief system – we each get only one go-round here on planet Earth, it is the task of the writer to interpret, examine, and reflect on the specifics of their one and only life experience.
+ - I sometimes look into the face of my dog Stan and see a wistful sadness and existential angst, when all he is actually doing is slowly scanning the ceiling for flies.
+ - Some people know that they are so adorable looking, all they have to do is smile and dress up and they get plenty from that. Then there are some of us who, early on, see that that doesn’t work. So we joke about it.
+ - Reality TV has managed to commodify everything we used to think of as the elements of normal life.
+ - A wacky, trendy outfit on a guy over 40 indicates he’s got big issues.
+ - The whole narcissism and echo syndrome is usually the result of early childhood training. Those are very hard habits for anyone to break.
+ - Reality television is a scripted hyper-life that employs writers, but won’t allow them to call themselves writers or join the union.
+ - The phrase “singular incredible life” seems to me that it applies more appropriately to Jane Goodall or David Attenborough, people I regard with awe and who stand for great humanism and knowledge.
+ - I have learned that the stuff that causes me anxiety, the stuff I instinctively veer away from, is usually a road map to where my own creative growth can be found. So I consciously head toward the places that make me uncomfortable.
+ - As you can imagine this is a very emotional moment for me because Dave promised me many times that I was the only woman he would ever cheat on.
+ - The day is divided into two important sections: Mealtimes and everything else.
+ - I am deeply grateful for the life I do have. In many ways, I am very fortunate.
+ - Every moment of your life that is not a complete nightmare is happiness.
+ - When you have been writing for a lot of years, you have to make an effort not to start repeating yourself. It occurred to me that I tended to tread certain ground automatically, because it was comfortable, but that there were areas I avoided automatically because they made me nervous.
+ - My dogs, the only creatures on the planet marked by my singular nurturing imprint, have all turned out to be rude and self-absorbed. In all likelihood, if they were children instead of dogs, I would have foisted more Charlie Sheens or Kardashians onto our crumbling culture.
+ - You just never know when it might be cookie time. And, that is what the dogs have taught me.
+ - I think people figure out early in their lives what currency they can work in.
+ - My goal was always getting my work out in the world, and in many ways, I feel like the luckiest person alive.
+ - I care about being creative and productive.
+ - When anyone lacks self-awareness and doesn’t recognize their transparencies, it’s always funny.
+ - A more complex – but only slightly more original – way to feel out of it is available at the hip and pretentious nightclubs and bars along the Sunset Strip.
+ - Men, as a general rule, shy away from therapy because there is no obvious way to keep score.
+
+32 quotes

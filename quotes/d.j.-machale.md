@@ -1,0 +1,34 @@
+ - I’m the terrorist, do what I say or I’ll terrorize you.
+ - If you work hard doing the wrong job, is it really work? Or is it some kind of fakery?
+ - Hobey-Ho, let’s go.
+ - Now it was just the three of us: the leader, the warrior, and the kid about to wet his pants. Guess who I was.
+ - I hate clowns. I’ve mentioned that, right?
+ - You can’t have pride without humility. Aggression without tolerance. Strength without compassion. Power without restraint.
+ - There are no simple answers in life. There is a good and bad in everyone and everything. No decision is made without consequence. No road is taken that doesn’t lead to another. What’s important is that those roads always be kept open, for there’s no telling what wonder they might lead to.
+ - I have a sudden urge to pee.- Spader.
+ - Riggedy riggedy white Come and spend the night We’ll play some games Some wild some tame Cause if you will, you might. By, Laberge.
+ - Whenever you look back and say “if” you know you’re in trouble. There is no such thing as “if”. The only thing that matters is what really happened.
+ - Nights were the worst. I’d try to get some sleep, only to be thrown out of bed and dragged out into the compound for another game of “Let’s whack Bobby in the dark!” – Bobby Pendragon, RoZ.
+ - Max Rose: Vo? What kind of name is that? Spader: What kind of name is Rose? Isn’t that some kind of flower?
+ - We took the elevator back down from the first observation level of the Eiffel Tower and started walking in he direction of the Taj Mahal.
+ - I was exhausted. Fighting to save the universe will do that.
+ - I really suggest the Pendragon series to all readers unless you are afraid of gore!
+ - Spader and I were nearly killed. Three times. We were also robbed and witnessed a gruesome murder. Happy birthday to me!
+ - Do you know how hard it is to gather seventy thousand people? Especially people who are confused and scared that they might be eaten by hungry dinosaurs?
+ - Even at the end of the road, read the first sentence, there is a road. Even at the end of the road, a new road stretches out, endless and open, a road that may lead anywhere. To him who will find it, there is always a road.
+ - If I weren’t already dead, I’d have to kill myself just so I could roll over in my grave.
+ - In my few short years I learned that seeing what’s positive about a situation is a lot more fun and gets you a lot further than looking for what might be wrong with it.
+ - There were eleven of us. Each more different than the next. All with the same mindset. Things weren’t the way they were meant to be. It was our job to make things right. We were the soldiers of Halla. It was time for us to take it back.
+ - Mine would be, “We will stand together, he and I. One in victory, one in shame. Only then can I truly own the power of Halla. How sweet the moment of revelation will be, when he learns that he handed it to me.” -SD the Pilgrims of Rayne.
+ - What exactly is a french before it’s fried?
+ - It is much more fun to write about villains then heroes. The villains are the ones that think out the scheme, and the heroes just kind of come along for the ride.
+ - I stood on the street, staring up at the most normal-looking house in the world. My house. I’d lived there my entire life. It was home. It was safe. It was haunted. The only other explanation was that I was demented. I couldn’t say which I was rooting for.
+ - Before I can face the future, I must first deal with the past.
+ - Mark: When did you learn to drive? Courtney: About three seconds ago.
+ - I felt as if I learned a few things. I learned that it’s sometimes okay to think like a weenie, so long as you don’t act like one – at least not all the time. I learned that it’s okay to be wrong, as long as you can admit it and are willing to listen to those who may know better.
+ - The history of each and every territory is written in the blood of those who died trying to fulfill the aspirations of their ambitious leaders.
+ - To write, you need to find what you love.
+ - It wasn’t that I didn’t trust Mark’s flying, it was just that, okay, I didn’t trust Mark’s flying.
+ - My life is an ongoing, ever changing adventure.
+
+32 quotes

@@ -1,0 +1,29 @@
+ - To err is human, but to really foul things up you need a computer.
+ - I see harm reduction as a way of engaging people as part of that path to recovery.
+ - Too many cars, too many factories, too much detergent, too much pesticides, multiplying contrails, inadequate sewage treatment plants, too little water, too much carbon dioxide – all can be traced easily to too many people.
+ - There are substitutes for oil; there is no substitute for fresh water.
+ - By 1985 enough millions will have died to reduce the earth’s population to some acceptable level, like 1.5 billion people.
+ - We’re one of the most highly regulated industries, and we have to pay attention to what government is doing.
+ - The mother of the year should be a sterilized woman with two adopted children.
+ - It turns out the population issue is an easier thing to deal with than the consumption issue. Some obvious extremes in consumption we can deal with. The standard cure for a stuttering economy is to go out and buy an SUV and three more refrigerators. That’s obviously not the way to go.
+ - So, regarding the time frame, I’m only too willing to admit that my crystal ball, like everybody else’s, is cracked. If I could predict precisely, I would have started predicting the stock market and would now be living with a bunch of young women on Bora Bora, having bought it.
+ - The main thing is, and of course this is a pedant talking, we should start our education on these issues in kindergarten. Instead of saying, “See Spot run,” we ought to say, “See the plant grow in the sun.” We ought to explain what runs the weather in the third or fourth grade to start out with.
+ - There are a lot of signs. One of the things that makes me most nervous is the disappearance of the frogs. They’re going downhill all over the planet. Frogs are susceptible to all kinds of problems, because they require water to breed and their skin is very porous. Their condition is nerve racking.
+ - Actually, the problem in the world is that there are too many rich people.
+ - I thought if the climate was heating that CO2 was the only forcing, and it would be late in the century before we had trouble. Now that we know about the other half of the forcing, it’s obvious that the trouble is coming much sooner.
+ - Most of the scientists I know think civilization is teetering on the brink of a global disaster. They just don’t know when it’s going to hit. I don’t have the answer to that either. I’m scared as hell.
+ - People have to decide, first of all, how they’d like to live, and how secure they want to be from disaster. After that, scientists can help determine what would be necessary to achieve that.
+ - We ought to take good care of everybody we have on the planet, but we ought to regulate the rate at which people join us. The old saying is, “It’s the top of the ninth inning, and humanity has been hitting nature hard, but you’ve always got to remember that nature bats last.”
+ - There’s no question at all that the population explosion will come to an end. The two basic choices are it’ll come to an end because we control our reproduction, and in many areas we have started to do so, or we’ll end up with a high death rate. You have to take a personal moral stand on this.
+ - With taxes, if they aren’t working right, we can change them with a stroke of the pen. It’s basically a market-type mechanism. People make their own choices. You run the taxes, and you get the results.
+ - For example, I’m a great fan of pornography, but I don’t see any reason not to restrict it so that people walking down the street who hate pornography don’t have full color pictures outside of movie theaters. Let them be in a different district. I’m kidding about pornography, but you get the point.
+ - I would take even money that England will not exist in the year 2000.
+ - We’ve all got to get together and demand something better out of our government and out of each other. We’ve got a system that’s making us working harder, and isn’t giving us satisfaction. We’ve got to sit down and decide what the hell we really want to be as human beings.
+ - We’re never all going to agree with each other. We have to learn to value the diversity. It’s one of the presumable principles of our government that isn’t followed nearly enough – one of the jobs of the majority is to try and make the minority feel comfortable.
+ - All scientists who’ve looked at it know we have to phase away from burning fossil fuels. That means we’ve got to put a lot of effort into alternate energy technologies, but we’re still subsidizing fossil fuels and not subsidizing most of the alternatives. It’s not going to be an easy transition.
+ - There’s all of this stuff where we have so much debate over nonsense; it could be cured if we had a better educational system, if we trained people to really try and look into things on their own. That’s a tough thing to do, particularly with the educational system staggering.
+ - Chinese are already more on board than we are. China is the only country that actually discussed in formal government documents how important it is to control the size of your populations if you’re going to limit emissions.
+ - If we were redesigning around people instead of around automobiles, which I think the market is more or less going to do, although too slowly, than I’d be a lot cheerier.
+ - The National Academy of Sciences would be unable to give a unanimous decision if asked whether the sun would rise tomorrow.
+
+27 quotes

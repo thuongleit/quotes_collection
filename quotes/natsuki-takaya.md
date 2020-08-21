@@ -1,0 +1,53 @@
+ - The sun will shine again. No matter how painful and hard the rain may beat down on me.
+ - Don’t get lost. Give it a try. Go find the place that you’re wishing for.
+ - Just be yourself and you’ll be fine.
+ - Because even the smallest of words can be the ones to hurt you, or save you.
+ - Those who hurt others will also hurt themselves.
+ - Let’s try our best? I hope that someday the many, many tears that were shed will be worth it.
+ - I want to believe that I’m not wrong. I want to believe that life isn’t full of darkness. Even if storms come to pass, the sun will shine again. No matter how painful and hard the rain may beat down on me.
+ - Everytime you fall down or take the wrong path, it isn’t wasted. You will surely develop and grow over time.
+ - I wish I could’ve lived my life without making any wrong turns. But that’s impossible. A path like that doesn’t exist. We fail. We trip. We get lost. We make mistakes. And little by little, one step at a time, we push forward. It’s all we can do. On our own two feet.
+ - He gets hurt by the smallest touch. It’ll be okay, as long as there will finally be a day. Eventually, one day. It will be good if all our burdens would finally be released. I really hope you can do it. I hope you two can both live happily.
+ - No. Never. I have to try my best or I’ll become worse and worse. Even if I can’t make up with them. Even if they all ignore me. I still have to try my best.
+ - I want to believe that memories, even sad and painful ones, should not be forgotten forever.
+ - That’s why I won’t give up! I’ll continue to move forward because I believe!
+ - It’s all very simple. But maybe because it’s so simple, it’s also hard.
+ - If there is anything you can do, it may just be to smile for them. Because when you smile, the world seems just a little kinder. For you to just be yourself is a very important thing, I think.
+ - Momijii Sohma: Kyo’s got the hots!!
+ - You may be an idiot but I don’t think you’re a fool.
+ - I love the stars. Because they can’t say anything. I love the stars. Because they do not judge anyone.
+ - Human beings are strange creatures. As people come across one another they produce various outcomes. Good things, sometimes. And other times, bad.
+ - Because if you stay true to yourself and live your life boldly, someday you might be able to meet someone who will want to eat takoyaki with you more than anyone else.
+ - I know it’s not good to be weak and helpless. But I don’t think it’s good to be too strong either. In our society, they talk about survival of the fittest. But we’re not animals. We’re human.
+ - I want to live with all of my memories, even if they’re sad memories. I believe that if I stay strong, someday I’ll overcome the pain, and then I’ll be glad that I have those memories. I believe that there are no memories that are okay to forget.
+ - If you didn’t have someone to hate, you wouldn’t know what to do with yourself, would you?
+ - If you think of someone’s good qualities as the umeboshi in an onigiri it’s as if their qualities are stuck to their back! Maybe the reason people get jealous of each other is because they can see so clearly the umeboshi on other people’s backs.
+ - So let me get this straight. You were living in a tent in the woods, but now you’re living with Prince Charming and anger management boy? SERIOUSLY?!
+ - Above and beyond drawing my creations, I try to incorporate some kind of message. I try not to end as merely a question but try to provide a conclusion within the work.
+ - It’s because you’re like that that you’re still a virgin, you know.
+ - Shigure Sohma: Tohru’s very cute in a sweet sort of way. Hatori Sohma: For some reason when you say that it reeks of something illegal.
+ - There was something I wanted, something I envisioned, loving parents, a happy home with everyone smiling at me. A home that no one would ever want to leave, a warm place, a warm person. It exists, I know it does.
+ - It would be so great if it were possible to go through life without making a single mistake but there is no such path. Falling, tripping, losing the way, making mistakes, little by little, walking one step at a time, this is the only way.
+ - You can’t be born again, but you can change.
+ - Even if you’ve never experienced the wonderful things in life, only after something has been contaminated and marred will it become a beautiful thing. Pain can be healed with gentle care, darkness can be removed with sunlight. Don’t underestimate the small things. Everything is significant.
+ - The wish of peeking at women showering is also a kind of romance.
+ - People aren’t born with kindness, it grows with them...
+ - Yuki: “What can I learn from a stupid cat like you? You didn’t even know that Jason isn’t really a bear. He’s a character in a horror film.” Kyo: “Yeah? So what if I didn’t? Like I’d waste my time watching some movie about a bear!” Yuki: You truly are an idiot.
+ - Give them back! Give my tears back, right now – – with interest!!
+ - When someone else accepts you, that’s when you begin to see yourself through their eyes. And you begin to realize that there may actually be many qualities to like about yourself.
+ - It’s you, so I feel that a person who will understand you, a person who will find you is waiting out there. So just keep on trying your best.
+ - Ayame: This concludes my wonderful story. Kyo Sohma: You mean stupid!
+ - Momiji Sohma: Are you sure? Shigure said it hurt really bad. Hatori Sohma: Yes, well, I did that on purpose. Shigure Sohma: Oh, Ha’ri, you’re killing me! Why would you be so cruel? Hatori Sohma: It seemed to be the only way to shut you up at the time.
+ - Did you hear that! Yuki, the heartless Yuki! Heartless Yuki has begged me with tears to let him visit my shop!
+ - Shigure Sohma: singing High school girls high school girls all for me High school girls.
+ - I think that nationality has no relation to that which gives rise to manga. Even among the Japanese, manga creators are making their creations everyday reflecting their own individuality, with none being the same. What is important isn’t the differences between the creators but their love for manga.
+ - He’s just explaining the situation to her, but he’s all over her every chance he gets! Kureno! Touching Tohru!!!
+ - Hanajima, my spear! Bring me my spear!
+ - I will take away your means of escape.
+ - Partings are the beginnings of new meetings. Beginnings happen because there are endings.
+ - There’s no such thing as a person who has to go away.
+ - Kyo Sohma: angrily pointing at Yuki Just like I’ll beat you one of these days Yuki: looking bored Wait wait I think I’ve heard this one before.
+ - Simply put, I’m glad that manga as an expressive form is expanding.
+ - Ayame: Hello, Tori-san!! You’re not going to believe what Yuki just told me!
+
+51 quotes

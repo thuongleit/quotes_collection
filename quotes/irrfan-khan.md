@@ -1,0 +1,26 @@
+ - Language does not make one an elite.
+ - The sign of a good society is where talent is respected.
+ - I don’t want to do romantic roles where I have to lip sync to a song. A role that explores romance on a new level would suit me.
+ - I cannot live anywhere else except India.
+ - It’s always an inner wish of every actor to reach out to maximum audiences.
+ - Parsi theater was known for melodrama.
+ - Hollywood isn’t ready for an Indian leading man.
+ - A nation needs to know how to utilise talent.
+ - I’m trying to strike a balance between Bollywood and Hollywood.
+ - I can’t think of a more pathetic situation for an actor than to do a film and not connect to it. And I pray to God that I never face that situation.
+ - Maybe to become famous is to reassure yourself that whatever you’re lacking inside, you’ve fulfilled that.
+ - What happens with every role, you have to trick yourself, you have to creatively find ways to explore the mental state of your character.
+ - I am not ready to fit into the mould of commercial cinema.
+ - I was going through a crisis once, so I went to therapy because I was so unbearable for myself.
+ - It surely gives you a high to be an international actor with quality work.
+ - A film engages you emotionally and intellectually.
+ - I can recite poetry, but I cannot write it.
+ - I want to entertain people, but with some substance.
+ - In India, therapy is not part of the culture; it has not become such a big need.
+ - I’ve played many characters that have consumed me and owned me.
+ - Our Bollywood stars who talk of being part of 100 crore films, I think I belong to the 1,000 crore club.
+ - Cinema is changing every week, and multiplex audiences are demanding every week.
+ - I am lucky that the Western world chooses me to play roles in their movies an television, whatever language it may be.
+ - I will only do a Hollywood film when there is something special offered to me.
+
+24 quotes

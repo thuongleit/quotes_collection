@@ -1,0 +1,104 @@
+ - Earth angels help others remember who they are.
+ - A balance of giving and receiving is essential to keeping your energy, mood and motivation at a consistently high level.
+ - Keep the faith, and keep going strong!
+ - Surround yourself with positive people and situations, and avoid negativity.
+ - Your inner glow comes from the light of God, and your light can never be extinguished or soiled. You are eternally bright and beautiful.
+ - When you stand up for yourself, you are standing up for everyone who will follow your positive example!
+ - Because you’re a creation of God, you reflect the Divine qualities of creativity, wisdom, and love.
+ - Never be afraid of failure or disappointment, because those are just temporary experiences on the path to your dreams coming true.
+ - You are perfect, whole and complete. You needn’t add anything to yourself to experience your true power.
+ - Forgive yourself for what you think you’ve done or not done. At every moment, you had your reasons for all of your actions and decisions. You’ve always done the best that you could do. Forgive yourself.
+ - Angels are always with you. You’re never alone, especially in your time of need. Listen in stillness for our guidance, which comes upon wings to your heart, mind, and body. Our messages always speak of love.
+ - If someone says or does something hurtful, call upon heaven for protection and healing.
+ - Angels appear in many different forms to hold your hand through the difficult times.
+ - Divine love always has been, and always will be, the answer that you seek.
+ - In addition to showing gratitude to others, place emphasis on showing gratitude to yourself.
+ - True friends are trustworthy angels.
+ - Anything that you fight with or struggle against grows larger. You give power to lower energies by focusing upon them. You don’t eliminate darkness by arguing with it. The only way to eliminate darkness is to turn on a light.
+ - Your feelings are your signals of deep truths inside of you. They’re the language of your soul, and they need you to listen to them.
+ - The ego urges you to accomplish, while the soul merely asks you to enjoy the process.
+ - I take action in the direction of my dreams, passions, talents, and interests. I know that I have a much-needed life purpose, which I embrace without delay. I focus only on today with respect to my goals, trusting that all of my tomorrows will work out well.
+ - You are a being composed of light, love, and intelligence.
+ - By staying true to yourself, you keep your energy high and clear, and you provide inspirational role modeling for other healers and helpers. Integrity toward yourself is a gift to the world.
+ - I remember to breathe throughout the day. I remind myself that I can choose peace, no matter what is going on around me. Whenever I desire, I can retreat to that quiet place within simply by closing my eyes.
+ - Thought for Today: I dream big! I let go of any limitations on my imagination, and I give voice to my inner wisdom and creative impulses. I shed past fears and doubts, replacing them with courage and love. I nurture my future with the same care that I would give to a newborn baby.
+ - Be an earth angel, and look for love behind the actions of everyone you meet today. Whenever you look for love, you will always find it.
+ - Boundaries are a part of self-care. They are healthy, normal and necessary.
+ - Dear God, thank You for providing for all of my earthly needs. I ask that You continue to guide me clearly to everything that I need to fulfill my mission and to be able to provide a safe and healthful life for myself and my loved ones. Amen.
+ - Use each moment to make another’s eyes sparkle and to warm a heart.
+ - Every relationship has a spiritual purpose that helps us grow and become stronger. Sometimes, our most challenging relationships bring the greatest personal blessings. From them we learn about forgiveness, patience, and other virtues.
+ - Always speak and think kindly about yourself, because your soul needs your love and approval.
+ - Remember that although bodies may pass away, the energy that connects you to a loved one is everlasting and can always be felt when you’re open to receiving it.
+ - When you see sparkling lights with no physical origin and no medical eye issues, it means that you are seeing Angel Lights, which are the energies of your Guardian Angels and Archangels moving around you.
+ - Your energy of love is so powerful that it can heal anything, including your future.
+ - See yourself and others through the eyes of an angel and you will see a beautiful world that is light, bright, and hopeful.
+ - You don’t need a formal prayer or invocation to call the angels to your side. Simply think, ‘Angels, please surround me,’ and they are there.
+ - I find the humor in life, and laugh easily.
+ - Get to work because Mother Earth needs you right now.
+ - I’m going to trust this, I’m going to follow my path and my passion and I’m going to write from my heart.
+ - Even five minutes spent in silence will nurture and revive your soul and spirit.
+ - Regardless of the situation at hand, the answer is always found through your inner peace.
+ - Forgiveness is essential as the ultimate detox.
+ - I’ve learned, finally, how to balance work with having a personal life. I had to separate my personal and my professional life but now that I only have loving people in my life my personal and professional life blend together.
+ - Angels, please help me remember to direct blessings and prayers to everyone I meet today. Please send extra healing energy through me to all my relationships. I ask that each encounter I have bring gifts to everyone involved.
+ - I have learned from my own pain is that God’s plan for all of us is peace. Being a role model to peace, and spreading peace through being peaceful ourselves. It’s about choosing peace instead of pain – this is the bottom line.
+ - The angels are thoughts of love sent from God. Since God is continuously expressing loving thoughts, there are an infinite number of angels. They are very real messengers, sent by God, to help us feel peace and joy.
+ - All thoughts create thought-forms. When you think about anything, an electrical impulse is released. Its charge gathers into a form that appears clairvoyantly like a soap bubble. The thought-form creates, manifests, and attracts that which is similar to it.
+ - Joy is all there is. The rest is a preoccupation of the ego, unworthy of your holy mind.
+ - Your two guardian angels are always with you. The other angels come and go as we need them.
+ - It’s important to only think about what you desire, not what you fear.
+ - Your intentions create your experiences.
+ - When others see you at peace, they’re reminded of the value of tranquility – that is, you inspire them to be at peace.
+ - I don’t feel that we have any choice but to see the Love and the Light that exists within every person.
+ - Everyone has a life purpose, and the key to your life purpose is following your passion, which consumes a lot of time.
+ - The angels can sometimes come as wordless words, as feeling, and as repetitive signs, like getting recommended the same book over and over and over again.
+ - Allow others to give you loving care. Receive without guilt or apologies.
+ - What seems to be a problem or block is often really a Blessing in Disguise.
+ - You see, when you’re in love, you look for similarities with your beloved. Since the root of all conflict is seeing differences between yourself and another, love truly seems to be the key to eliminating conflict.
+ - The angels have never made it a secret that they are with us; they want us to know that they are here, and they do their best to give us signs all the time.
+ - Ask God and the angels to help you to meet people who will treat you with respect and love.
+ - You can work on healing, uplifting, and changing situations from a place of forgiveness, instead of from a place of resentment. Forgive yourself and everyone, and you are free!
+ - Quiet solitude is a nutritional need of the ascending body.
+ - No matter where I am in the world or what’s on my schedule, I begin each day by reading an inspirational book and then meditating and praying. I adopted this healthy habit many years ago to ensure that my first thoughts of the day were positive.
+ - People who are empathic definitely will have some difficulties distinguishing their own feelings from other people’s feelings and they tend to take on other people’s energies quite easily.
+ - There’s a place inside of you where you can retreat and enjoy perfect stillness.
+ - If you find yourself focusing on negative scenarios, ask us angels to transmute this fearful energy into love.
+ - I really feel like if everyone listened to their angels the world which shift. We wouldn’t see any kind of greed or competition – it would really be the world of kindness .
+ - If you try to shut down your angel guidance, that’s the path to feeling unhappy and results in addiction.
+ - I would use going into nature to clear myself – trees and plants including having plants at your house is a wonderfully natural way to continuously clear yourself.
+ - A lot of my work is helping people to find their own life’s purpose and then follow it. I find that when people are not working on their life’s purpose there is a sense of emptiness and anxiety.
+ - The plants have taught me they don’t like to be potted too long – it’s very restrictive to them so I would plant them outside if you could, or in a green house.
+ - I’ve always seen the bright lights of the angels, and I know that lower-entities can’t disguise this light, because it only comes from the Love of God.
+ - The wind is a natural way to loosen and release dead leaves and branches, just as emotional and life-situation storms are opportunities for humans to release ‘deadwood’ and anything needing to be swept away.
+ - Today, recall a favorite memory, which serves as a gateway to uplifting feelings and thoughts.
+ - Everything is already healed, except in the dream of illness. Let the illusion go, in exchange for peace.
+ - The angels don’t take offense if we keep asking over and over again.
+ - Its okay to have a job that fits your passions, we don’t have to suffer for money.
+ - Instead of searching for what you want externally, concentrate on developing mental pictures of your desires. Surround these images with feelings of security, gratitude, and faith; and know that what you’ve been looking for is on its way to you right now.
+ - You do have great love within you at this very moment.
+ - Fairies are angels who reside very close to the Earth so that they can perform their Divine mission of protecting nature and animals.
+ - Pray for healthy loving friendships, and you will have them.
+ - There are a lot of people who had past lives where they were monks and nuns and all their needs were provided for them. I feel like most people in the new age had this as their most recent lifetime experience, that kind of communal living.
+ - A lot of my work with the financial and helping my workers involves taking them back to their past life and helping them to understand this past.
+ - Every time you see someone in distress, you have the opportunity to work as a team with Heaven’s angels. You become the channel for your angels to provide loving care to those in need.
+ - You are more powerful than any fearful force. Your Divine willingness can out-will any darkness that the world has ever seen.
+ - Feeling stuck or indecisive? Listen to your intuition and make a decision.
+ - I believe that my parents helped me to keep my natural psychic abilities open. I think most kids see angels or fairies, and because my parents were such open people, I kept that alive.
+ - The bliss of the Creator forever permeates all of creation, and it is only in the forgetting that misery exists.
+ - The world is changing so rapidly, and many people are paralyzed with fear and anxiety about the future. The angels can guide us through these changes, and give us solid guidance that we can trust.
+ - The only way to shut out the voice of God and the angels is to act out addictively whether it’s alcohol or food or drugs, or behaviors.
+ - The reason that I’m considered to be prolific is just because I’m a good listener. It literally is me taking dictation when I write. I’m listening and typing as fast as I’m hearing the words.
+ - Each moment spent in prayer is like a coin put into a bank account.
+ - Your angels are giving you strength and comfort right now.
+ - What I have learned from working with plants over the years is that the big leafed plants are the best to absorb the energy so I like philodendrons very, very much.
+ - I feel that it is vital that we all re-open our spiritual gifts and open up to the voice of the Divine.
+ - I feel like every single person has guardian angels.
+ - If we’re not at peace, we are in an ego state.
+ - The divisiveness could be really dangerous and it can create a lot of violence I think. So we have got to heal that by embracing that everybody wants the same thing and they are just going about it in different ways.
+ - Even labeling the tea party and left and right its dangerous, because it’s – it’s another ego separation tool.
+ - What robs you from peace? Usually it’s the so-called little things in life, like being late to work, or needing a parking place, or trying to find your glasses, your car keys when you are running out the door, those so called little stressors.
+ - I feel like every job teaches us something.
+ - I don’t in any way believe that I’m special.
+ - When we choose the path of love, we grow spiritually, help others, and balance our karma.
+
+102 quotes

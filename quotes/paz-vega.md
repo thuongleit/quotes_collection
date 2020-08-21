@@ -1,0 +1,32 @@
+ - I loved working with kids because the energy is great.
+ - For me, the family is more important, of course! I don’t want to change my family, or situation, for work. But I think it is possible for these things not to fight each other.
+ - In Europe people don’t worry about the body.
+ - My husband is from Venezuela and he cries when he needs to cry!
+ - My ambition is to not have to work any more. In 10 years I want to stop, and I want to be living with my family, taking care of my house. I want to be a housewife.
+ - We are a very typical Spanish family – a bullfighter, an actress, a flamenco dancer and singer!
+ - Asian people have a unique way about them and a different sense of beauty. It’s exotic to me. I like they way Asians project their feelings. There’s a hardness to the culture, but at the same time there’s a delicateness.
+ - I’m not the new Penelope Cruz. I’m Paz Vega. There’s only one Penelope, and she’s marvelous.
+ - People in Seville are very happy, the lifestyle here is very relaxed, you can walk everywhere; it’s very easy.
+ - For me, everything is cool.
+ - I’m sure the movie industry is going up but I would love to see more Chinese films about contemporary Chinese about the problems of life on the street.
+ - I felt, this is what I want to be in my life. I want to be an actress.
+ - My father was a bullfighter.
+ - It’s very difficult to decide. And I’m very open to proposals.
+ - My family is very traditional, Catholic.
+ - I think it is important to maintain your personality, your roots, very important.
+ - My style go with me. It depend how I feel, what is my state of mind.
+ - Not understanding anything is terrible, because I communicate very much in my real life.
+ - Bullfighters are Seville’s heroes.
+ - I like small stories.
+ - I never slept outside of my home.
+ - I’ve brought the traditions from Spain to the United States: spending the afternoons with my husband and my son, enjoying the little things.
+ - Personally I have always liked boys, but if it’s a girl, marvelous, because I was raised among women.
+ - I cook croquetas, and I eat jamon. I keep my diet 100% Mediterranean and drink my Rioja. In that sense, I have a piece of Spain in West Hollywood.
+ - Hollywood has treated me well.
+ - I don’t want to play only Latin women. I want to have roles in English.
+ - America, I like the spirit. Because American people here believe in something. I like that spirit.
+ - A pregnancy is a marvelous moment that I would love to repeat and repeat.
+ - Big dress, cocktails, party – I love that. It is my work, but my work allow me to have glamour, to wear beautiful and amazing dresses, to go to big ceremonies.
+ - All my life is in Spain. I will stay.
+
+30 quotes

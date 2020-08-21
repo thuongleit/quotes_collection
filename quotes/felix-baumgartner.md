@@ -1,0 +1,55 @@
+ - Sometimes you have to go up really high to understand how small you really are.
+ - The only limit is the one you set yourself.
+ - I like to challenge myself.
+ - Don’t live life as a spectator.
+ - I have no privacy anymore.
+ - I want to inspire the next generation. I want to be in mission control with someone younger than me wanting to break my record.
+ - Engage your life with enthusiasm; grasp your life aggressively and squeeze from it every drop of excitement, satisfaction, and joy.
+ - If you want to do something extraordinary, there’s always risk involved. I was always willing to take that risk.
+ - Learn to love what you’ve been taught to fear.
+ - I’m not an adrenaline junkie. It’s never been about thrills for me. I’m just someone who loves a challenge.
+ - This claustrophobia was the only weakness I had. It’s not my fault. It’s just in my mind.
+ - Never accept your limitations – because there are NO limitations.
+ - I always had the dream of flying, and the cheapest way is to become a skydiver.
+ - I feel at home up in the air, just like sailors do at sea and climbers do in the mountains.
+ - It feels great to be on top of the world but the greatest feeling is when your feet are on the ground.
+ - As a little kid, I climbed a lot of trees because I always loved the bird’s-eye view.
+ - I don’t like to rate myself; others can do that.
+ - You have seen on TV how hard it is to go up 129,000 feet and how hard it is to come down.
+ - I started skydiving because I loved the idea of freedom.
+ - To jump and break the sound barrier will not be a mere record breaking experience or another extreme event that ends once the mission is accomplished.
+ - I love a challenge, and trying to become the first person to break the speed of sound in freefall is a challenge like no other.
+ - I have a lot of fears that normal people have.
+ - We want to push mankind’s boundaries out a little further.
+ - I’m more a competitive person.
+ - I feel comfortable with what I do and I guess that my girlfriend feels the same.
+ - I know the whole world is watching now. And I wish the world could see what I can see. Sometimes you have to get up really high to understand how small you really are. I’m going home now.
+ - I want to find a nice decent job as a helicopter pilot.
+ - I once wanted to be a stuntman. I was constantly on the front pages when I was a base jumper. But if I were a stuntman, my name would only appear right at the end of the closing credits, even though I’d risked my life for others.
+ - Normally, when I skydive, even in winter, I wear very thin gloves. I want to be flexible, with fast reactions.
+ - I’ve done a lot of things in a business where you’re lucky to stay alive, so when the time comes, I’ll be happy to pass my knowledge along and help someone else.
+ - Aviation – and space travel, in particular – have always been especially captivating.
+ - If the Wright brothers hadn’t put their lives on the line, we would not be flying around the world these days. So we need pioneers.
+ - I can’t bear the thought of my mother having to push me around in a wheelchair. I’d rather die quickly.
+ - Extreme sport has only ever been about goals and the ways to achieve these goals. Adrenaline plays a part, but it’s never in the foreground.
+ - When I was standing there on top of the world, you become so humble, you do not think about breaking records anymore, you do not think about gaining scientific data. The only thing you want is to come back alive.
+ - The stratosphere is a hostile place.
+ - They call me Fearless Felix.
+ - One of the most exciting moments was standing out on top of the world, 30 seconds before stepping off.
+ - I’m retired from the daredevil business.
+ - I’m 100 percent sure I’m becoming a really good helicopter pilot.
+ - The only thing you want is to come back alive.
+ - People are fascinated about the world above them because it seems so out-of-reach.
+ - If I do something, it’s always 90% obvious and 10% unknown.
+ - If something goes wrong, the only thing that might help you is God.
+ - Of course my life has changed because now everybody knows who Felix Baumgartner is.
+ - Well, I jumped for the first time when I was 16. I just loved it and immediately realized that it was what I wanted to do.
+ - I base jumped off one of the highest buildings in the world.
+ - People are fascinated about the world above them because it seems so out-of-reach. My jump gave them an opportunity to come along for the ride. They could watch live on their screens how someone rises all the way up into the stratosphere.
+ - I’m now a member of a pretty small club.
+ - I would’ve never dreamt that my skydive would trigger such gushing enthusiasm. I still don’t really understand exactly what I’ve accomplished, although I always suspected it would be a truly spectacular moment.
+ - I always feel the danger because you might always be subject to an unexpected or emergency event.
+ - I had to work with a psychiatrist.
+ - Well, to me, my past accomplishments weren’t crazy. They required a lot of skill and careful planning.
+
+53 quotes

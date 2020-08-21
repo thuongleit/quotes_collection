@@ -1,0 +1,295 @@
+ - One of the cruelest things you can do to another person is pretend you care about them more than you really do.
+ - Remember: the time you feel lonely is the time you most need to be by yourself. Life’s cruelest irony.
+ - TV and the Internet are good because they keep stupid people from spending too much time out in public.
+ - Destiny is what we work toward. The future doesn’t exist yet. Fate is for losers!
+ - You know what the best thing is about the end of the day? Tomorrow, it starts all over again.
+ - There are three things we cry for in life: things that are lost, things that are found, and things that are magnificent.
+ - Adventure without risk is Disneyland.
+ - OPTION PARALYSIS: The tendency, when given unlimited choices, to make none.
+ - Christmas makes everything twice as sad.
+ - Ten commandments yet seven deadly sins: conflict?
+ - In our heads we’re all about 33 years old.
+ - Besides, animals don’t even have time. Only humans have time. It’s what makes us different.
+ - I build my life so that I don’t wake up for anything. Ever. If you make me get up early to do something with you, I will hate you and resent you and figure out a way of never having to work with you ever again.
+ - The more you want something to happen, the harder it becomes.
+ - My secret is that I need God – that I am sick and can no longer make it alone. I need God to help me give, because I no longer seem to be capable of giving; to help me be kind, as I no longer seem capable of kindness; to help me love, as I seem beyond being able to love.
+ - Nothing very very good and nothing very very bad lasts for very very long.
+ - Never loan a book to someone if you expect to get it back. Loaning books is the same as giving them away.
+ - If your life had lyrics, would they be any good?
+ - Youth is the time of life lived for some imaginary audience.
+ - Life is boring. People are vengeful. Good things always end. We do so many things and we don’t know why, and if we do find out why, it’s decades later and knowing why doesn’t matter any more.
+ - Vaccinated Time Travel: To fantasize about traveling backward in time, but only with proper vaccinations.
+ - Human beings are the only animal that thinks they change who they are simply by moving to a different place. Birds migrate, but it’s not quite the same thing.
+ - Maybe the more emotions a person experiences in their daily lives, the longer time seems to feel to them. As you get older, you experience fewer new things, and so time seems to go by faster.
+ - Shopping is Not Creating.
+ - Nobody cares about worthiness. People care about what is real inside of you.
+ - There’s much to be said for feeling numb. Time passes more quickly. You eat less, and because numbness encourages laziness, you do fewer things, good or bad, and the world’s probably a better place for it.
+ - Flying dreams mean that you’re doing the right thing with your life.
+ - As the expression goes, we spend our youth attaining wealth, and our wealth attaining youth.
+ - Blame is just a lazy person’s way of making sense of chaos.
+ - People are pretty forgiving when it comes to other people’s families. The only family that ever horrifies you is your own.
+ - If human beings had genuine courage, they’d wear their costumes every day of the year, not just on Halloween.
+ - Salad bars are like a restaurant’s lungs. They soak up the impurities and bacteria in the environment, leaving you with much cleaner air to enjoy.
+ - MCJOB: A low-pay, low-prestige, low-dignity, no-future job in the service sector. Frequently considered a satisfying career choice for people who have never held one.
+ - You know, I think the people I feel saddest for are the ones who once knew what profoundness was, but who lost or became numb to the sensation of wonder, who felt their emotions floating away and just didn’t care. I guess that’s what’s scariest: not caring about the loss.
+ - As you grow older, it becomes harder to feel 100 percent happy; you learn all the things that can go wrong, you become superstitious about tempting fate, about bringing disaster upon your life by accidentally feeling too good one day.
+ - We are changed souls; we don’t look at things the same way anymore. For there was a time when we expected the worst. But then the worst happened, did it not? And so we will never be surprised again.
+ - Even when you take a holiday from technology, technology doesn’t take a break from you.
+ - NOSTALGIA IS A WEAPON.
+ - The universe hands you opportunities for a while, and if you don’t take them, the universe says to itself, ‘Oh I see, this person doesn’t like opportunities’ and stops giving them to you.
+ - Knee-Jerk Irony: The tendency to make flippant ironic comments as a reflexive matter of course in everyday conversation.
+ - New York is a theme park for people with IQs over 108.
+ - What if God exists except it turns out he doesn’t really like people very much?
+ - SAFETY NET-ISM: The belief that there will always be a financial and emotional safety net to buffer life’s hurts. Usually parents.
+ - My writing process is ritualized and monotonous, but there’s no other way to get the job done. All other fiction writers I’ve met say the same thing.
+ - Eagles are seagulls with a good hairdo.
+ - The capacity for not feeling lonely can carry a very real price, that of feeling nothing at all.
+ - And any small moments of intense, flaring beauty such as this morning’s will be utterly forgotten, dissolved by time like a super-8 film left out in the rain, without sound, and quickly replaced by thousands of silently growing trees.
+ - You can never become rich unless you like rich people.
+ - We want our idols to be dead because it makes death a much less scary place.
+ - On TV people look at your hair and then they look at your skin, and then they look at your clothes, and by the time they’re listening to what you’re saying, you’re off the screen.
+ - I like doing radio because it’s so intimate. The moment people hear your voice, you’re inside there heads, not only that, you’re in there laying eggs.
+ - Their talk was endless, compulsive, and indulgent, sometimes sounding like the remains of the English language after having been hashed over by nuclear war survivors for a few hundred years.
+ - Technology favors horrible people.
+ - I would like to fall in love again but my only hope is that love doesn’t happen to me so often after this. I don’t want to get so used to falling in love that i get curious to experience something more extreme – whatever that may be.
+ - Long lives aren’t natural. We forget that senior citizens are as much an invention as toasters or penicillin.
+ - There’s nothing cute or funny or lovable about being cheap. It’s a total turn-off.
+ - At least there’s nothing scary about him and hopefully he doesn’t see anything scary in me. We go way back, to summer camp. We KNOW each other. People I don’t know just make me want to say YIKES! I’ll take history over mystery any day of the week.
+ - People who advocate simplicity have money in the bank; the money came first, not the simplicity.
+ - Please stop putting quotes from Nietzsche at the end of your emails. Five years ago you were laughing your guts out over American Pie 2. What – suddenly you’ve magically turned into Noam Chomsky?
+ - In the end, I think the relationships that survive in this world are the ones where two people can finish each other’s sentences. Forget drama and torrid sex and the clash of opposites. Give me banter any day of the week.
+ - In periods of rapid personal change, we pass through life as though we are spellcast. We speak in sentences that end before finishing. We sleep heavily because we need to ask so many questions as we dream alone. We bump into others and feel bashful at recognizing souls so similar to ourselves.
+ - Dreams don’t come true. Dreams die. Dreams get compromised. Dreams end up dealing meth in a booth at the back of the Olive Garden. Dreams choke to death on bay leaves. Dreams get spleen cancer.
+ - It’s weird when people start sentences with ‘frankly’ – as if their other sentences don’t count.
+ - A bland smile is like a green light at an intersection, it feels good when you get one, but you forget it the moment you’re past it.
+ - Depression is when you have lots of love, but no one’s taking.
+ - Here’s my theory about meetings and life: the three things you can’t fake are erections, competence and creativity.
+ - It’s just amazing how hard it is for people to change, even when amazing things happen. It almost reinforces who you are instead of making you change.
+ - Sometimes you can’t realize you’re in a bad mood until another person enters your orbit.
+ - You really have to wonder why we even bother to get up in the morning. I mean, really: Why work? Simply to buy more stuff?
+ - I think God is how you deal with everything that’s out of your own control.
+ - All families are psychotic. Everybody has basically the same family – it’s just reconfigured slightly different from one to the next.
+ - We’re all born lost, aren’t we? We’re all born separated from God – over and over life makes sure to inform us of this – and yet we’re all real: we have names, we have lives. We mean something. We must.
+ - I find people who prejudge reality TV to be annoying. Art comes from anywhere. Culture can ooze out of any crack. Prejudging is the death of creativity.
+ - You can’t fake competence, creativity, or sexual arousal.
+ - Royalty is either going to do very well with cloning, or it’s going to disappear completely.
+ - Unhappiness is something we are never taught about; we are taught to expect happiness, but never a Plan B to use to use when the happiness doesn’t arrive.
+ - The Internet has made me very casual with a level of omniscience that was unthinkable a decade ago. I now wonder if God gets bored knowing the answer to everything.
+ - In the same way you can never go backward to a slower computer, you can never go backward to a lessened state of connectedness.
+ - Could the situation be that we no longer believe in that particular place? Or maybe we were all promised Heaven in our lifetimes, and what we ended up with can’t help but suffer in comparison.
+ - If a building looks better under construction than it does when finished, then it’s a failure.
+ - Nobody believes the identities we’ve made for ourselves. I feel like everybody in the world is fake now – as though people had true cores once, but tucked them away and replaced them with something more attractive but also hollow.
+ - ETHNOMAGNETISM: The tendency of young people to live in emotionally demonstrative, more unrestrained ethnic neighborhoods: ‘You wouldn’t understand it there, mother-they hug where I live now.’
+ - What is human behavior, except trying to prove that we’re not animals?
+ - I like having a beard. My beard changes my face shape and allows me to see in it family members who I love and can’t see otherwise.
+ - Feeling unique is no indication of uniqueness.
+ - Hasn’t it been a long time since you had a flying dream?
+ - If God drives a car, He’d drive a 1973 Ford LTD Brougham sedan with a claret-colored vinyl roof, with oxblood leather upholstery and an opera window.
+ - Give parents the tiniest of confidences and they’ll use them as crowbars to jimmy you open and rearrange your life with no perspective.
+ - Failure is authentic, and because it’s authentic, it’s real and genuine, and because of that, it’s a pure state of being.
+ - We live in an era with no historical precedents. History is no longer useful as a tool in helping us understand current changes.
+ - We are all of us born with a letter inside us, and that only if we are true to ourselves, may we be allowed to read it before we die.
+ - I think the killers get far too much attention.
+ - The belief that tomorrow is a different place from today is certainly a unique hallmark of our species.
+ - Sometimes the best lighting of all is a power failure.
+ - Birds are a miracle because they prove to us there is a finer, simpler state of being which we may strive to attain.
+ - I didn’t realize then that so much of being adult is reconciling ourselves with the awkwardness and strangeness of our own feelings. Youth is the time of life lived for some imaginary audience.
+ - Purchased experiences don’t count.
+ - Below a certain point, if you keep too quiet, people no longer see you as thoughtful or deep; they simply forget you.
+ - The real killers in the business world aren’t the ones who aim for the top, it’s the ones who aim for two notches below the top.
+ - Why do most of us make such boring choices for the stories of our lives?
+ - Brain research tells us that only twenty percent of human beings have a sense of irony, which means that eighty percent of the world takes everything at face value.
+ - When future archaeologists dig up the remains of California, they’re going to find all of those gyms their scary-looking gym equipment, and they’re going to assume that we were a culture obsessed with torture.
+ - I used to care about how other people thought I led my life. But lately I’ve realized that most people are too preoccupied with their own lives to give anybody else even the scantiest of thoughts.
+ - What is prayer but a wish for the events in your life to string together to form a story – something that makes some sense of events you know have meaning.
+ - Do you ever just want to take your car out onto the highway and gun the engine as fast as you can and then close your eyes and see what happens?
+ - Venice Beach: proof of the biological impossibility of imagining a person being simultaneously good-looking and poor.
+ - If you don’t change, then what’s the point of anything happening to you? It’ll still be happening to an unchanged person.
+ - I really do force myself to not be fully engaged with all the technology at once, just because I have an addictive personality and I get too into it.
+ - Sometimes I think God is like weather – you may not like the weather, but it has nothing to do with you. You just happen to be there. Deal with it. Sadness and grief are part of being human and always will be.
+ - Starved for affection, terrified of abandonment, I began to wonder if sex was really just an excuse to look deeply into another human being’s eyes.
+ - Men won’t read any email from a woman that’s over 200 words long.
+ - Later, I would learn that coincidences are the most planned things in the world. Later, I would learn that every single moment is a coincidence.
+ - Too much free time is certainly a monkey’s paw in disguise. Most people can’t handle a structureless life.
+ - You can only fall in love six times in your life. Choose wisely.
+ - Only losers make decisions when things are bad. The time to rejig your life is the time when it’s seemingly smooth.
+ - Your body isn’t just a body. It’s an ecosystem.
+ - You can’t get mad at weather because weather’s not about you. Apply that lesson to most other aspects of life.
+ - The best part of my life is gone, and what remains is whizzing past so quickly I feel like I’m Krazy-Glue’ed onto a mechanical bull of a time machine.
+ - Workshops and seminars are basically financial speed dating for clueless people.
+ - All systems have failed me. In five minutes I’ll be fine again for a while, but right now the inside of my head feels like Niagara Falls without the noise, just this mist and churning and no real sense of where earth ends and heaven begins.
+ - Time perception is very much about how you sequence your activities, how many activities you layer overtop of others, and the types of gaps, if any, you leave in between activities.
+ - Every single moment is a coincidence.
+ - I guess the thing about exposing your heart is that people may not even notice it. Like a flop movie. Or they’ll borrow your heart and they’ll forget to return it to you.
+ - Time erases both the best and the worst of us.
+ - Your brain forms roughly 10,000 new cells every day, but unless they hook up to preexisting cells with strong memories, they die. Serves them right.
+ - Time ticks by; we grow older. Before we know it, too much time has passed and we’ve missed the chance to have had other people hurt us. To a younger me this sounded like luck; to an older me this sounds like a quiet tragedy.
+ - Beware of the corporate invasion of private memory.
+ - I don’t deserve a soul, yet I still have one. I know because it hurts.
+ - Here’s what I think: the five most unattractive traits in people are cheapness, clinginess, neediness, unwillingness to change and jealousy. Jealousy is the worst, and by far the hardest to conceal.
+ - A ring is a halo on your finger.
+ - Happy. And then I got afraid that it would vanish as quickly as it came. That it was accidental – that I didn’t deserve it. It’s like this very, very nice car crash that never ends.
+ - I’ve got 911 on speed dial.
+ - Is there anything in the world more annoyingly creepy than an unspoken dress code?
+ - The heart of a man is like deep water.
+ - Lottery tickets are a surtax on desperation.
+ - Eroticize intelligence.
+ - Cloning is great. If God made the original, then making copies should be fine.
+ - When Donald Duck traded his wings for arms, was he trading up or trading down?
+ - I’ve given up wanting to make a killing or be a bigshot. I just want to find happiness and maybe open up a little roadside cafe in Idaho.
+ - Wilcox Fate is for losers.
+ - Make your goals big and broad enough so that they never become answered prayers and boomerang to curse you.
+ - At least when you’re young you’re also stupid.
+ - Fondue sets, martini shakers and juicing machines: three things the world could live completely without.
+ - Tofu hot dogs are actually scarier than real hot dogs. It’s like wanting the worst possible meat product without even the thrill of it actually being meat.
+ - Life always kills you in the end, but first it prevents you from getting what you want.
+ - Our achievements may make us interesting, Tyler, but our darkness makes us lovable.
+ - It’s difficult to speak with beautiful people. No matter how hard you try to pretend otherwise, you still want them to like you.
+ - I sandpapered the roof of my mouth with 3 bowls of Cap’n Crunch – had raw gobbets of mouth-beef dangling onto my tongue all day.
+ - There are few, if any, Canadian men that have never spelled their name in a snow bank.
+ - The Vienna Franks are a good example of urban white acid folk revivalism crossed with ska.
+ - I have always liked the idea of Superman because I have always liked the idea that there is one person in the world who doesn’t do bad things. And that there is one person in the world who is able to fly.
+ - Good looking people with strong, fluoridated teeth get things handed to them on platters.
+ - It is indeed a mistake to confuse children with angels.
+ - My brain feels like a cool, deep lake.
+ - Every human being you see in the course of a day has a problem that’s sucking up at least 70 percent of his or her radar.
+ - HISTORICAL SLUMMING: the act of visiting locations such as diners, smokestack industrial sites, rural villageslocations where time appears to have been frozen many years backso as to experience relief when one returns back to’the present’.
+ - Big companies are like marching bands. Even if half the band is playing random notes, it still sounds kind of like music. The concealment of failure is built into them.
+ - You wait for fate to bring about the changes in life which you should be bringing about by yourself.
+ - I think money is due for some sort of collapse. People are going to realize that money has a half-life, like radioactive elements.
+ - I think that to acknowledge a new generation is to acknowledge some degree of obsolescence in yourself, and that is very hard to do and often comes with undeniable anger.
+ - We sleep heavily because we need to ask so many questions as we dream alone.
+ - With Google I’m starting to burn out on knowing the answer to everything. People in the year 2020 are going to be nostalgic for the sensation of feeling clueless.
+ - Society indeed conspires to keep you ball and chained.
+ - Capitalization implies a hierarchy, that some letters are more special than others.
+ - You fear that if you lower your guard for even one second your whole world will disintegrate into chaos.
+ - Storytelling is ultimately a creative act of pattern recognition. Through characters, plot and setting, a writer creates places where previously invisible truths become visible. Or the storyteller posits a series of dots that the reader can connect.
+ - If you’re not spending every waking moment of your day radically rethinking the nature of the world-if you’re not plotting every moment boiling the carcass of the old order-then you’re wasting your day.
+ - Unhappy endings are just as important as happy endings. They’re an efficient way of transmitting vital Darwinian information. Your brain needs them to make maps of the world, maps that let you know what sorts of people and situations to avoid.
+ - I was sick of wanting money. I was sick of being without a goal.
+ - Quick. Name ten dead redheads.
+ - So where do you start when you want to start your life again?
+ - If cats were double the size they are now, they’d probably be illegal.
+ - All events became omens; I lost the ability to take anything literally.
+ - High school is such a shared experience in North American culture.
+ - It’d be preposterous for me to propose a universal cure to loneliness but I will say that people who do the things they find interesting, either creatively or vocationally, tend to become unlonely very quickly.
+ - I’m an adult. Discipline me and I’ll bury you alive. – Roger.
+ - Compromise is said to be the way of the world and yet I find myself feeling sick trying to accept what it has done to me.
+ - I know it’s not cat food, but what exactly is it that they put inside of tinned ravioli?
+ - Handmade presents are scary because they reveal that you have too much free time.
+ - Try not thinking of peeling an orange. Try not imagining the juice running down your fingers, the soft inner part of the peel. The smell. Try and you can’t. The brain doesn’t process negatives.
+ - Earth was not built for six billion people all running around and being passionate about things. The world was built for about two million people foraging for roots and grubs.
+ - Where does personality end and brain damage begin?
+ - I am aware that there is a world out there that functions without regard to me. There are wars and budgets and bombings and vast dimensions of wealth and greed and ambition and corruption. And yet I don’t feel a part of that world, and I wouldn’t know how to join if I tried.
+ - It’s never felt more Canadian to be Canadian than it does now.
+ - You can get a subjective and highly factual dossier on most anyone in the public realm almost instantly. It’s why publishers don’t worry about author photos any more; people just Google a person and get on with things.
+ - As I’m never going to be old, I’m glad that I never lost my sense of wonder about the world, although I have a hunch it would have happened pretty soon. I loved the world, its beauty and bigness as well as its smallness.
+ - Q: If you could be an animal, what kind of animal would you be? A: You already are an animal.
+ - You’re right, a spleen is a strange thing-we technically don’t need one, but maybe spleens are kept in our bodies in case we mutate or evolve, and if we grow wings or tentacles we need to have the spleen in place in order for them to work.
+ - There is no shame in impulse.
+ - It was pivotal in making you but you don’t remember it. Or do you? Do we understand the events that make us who we are? Do we understand the factors that make us do the things we do?
+ - I don’t want any vegetables, thank you. I paid for the cow to eat them for me.
+ - We’re rapidly approaching a world comprised entirely of jail and shopping.
+ - Las Vegas is a SimCity game gone horribly wrong.
+ - I think individual people are interesting, not really groups of people.
+ - You can have information or you can have a life, but you can’t have both.
+ - What if it was cats who invented technology, would they have TV shows starring rubber sqeaky toys?
+ - There’s a lot to be said for having a small manageable dream.
+ - When you crop the photo, you tell a lie.
+ - Canadian winters are long. Life is hard and so is ice.
+ - People will always choose more money over more sex.
+ - When we constantly ask for miracles, we’re unraveling the fabric of the world. A world of continuous miracles would not be a world, it would be a cartoon.
+ - I ma trying to feel more well adjusted than I really am, which is, I guess, the human condition.
+ - Americans are a quarter of a billion people who have almost nothing in common except for the fact they’ve been told they have lots in common.
+ - Is that all time is – our perception of how quickly it does or does not pass?
+ - Discussions of generations only go downhill. There’s no point in having them.
+ - Lists only spell out the things that can be taken away from us by moths and rust and thieves. If something is valuable, don’t put it in a list. Don’t even say the words.
+ - It’s not healthy to live life as a succession of isolated little cool moments.
+ - Anyway, I want to remember that love can happen. Because there is life after not having a life. I never expected love to happen. What was I expecting from life, then?
+ - Florida isn’t so much a place where one goes to reinvent oneself, as it is a place where one goes if one no longer wished to be found.
+ - It’s very strange that most people don’t care if their knowledge of their family history only goes back three generations.
+ - Gap clothing allows you to look like you’re from nowhere and anywhere.
+ - What’s a bar bill but a surtax on reality?
+ - Question: If there were two of you which one would win?
+ - How can I be a part of the 1960s generation when I don’t even remember any of it?
+ - Star Trek characters never go shopping.
+ - If our subconscious was attractive, we wouldn’t have to bury it down deep within us.
+ - In the future, torture will once again become the recreational sport of the rich.
+ - Thinking you’re immortal is weirdly similar to being immortal.
+ - Most people have no idea how to politely answer a phone. The English do, and it’s been their only major business advantage for the past two centuries.
+ - Clowns drink to blot out the ravages of terrifying children for a living.
+ - The past is a finite resource.
+ - If you’re not a tree hugger, then you’re a what, a tree hater?
+ - What surprises me about humanity is that in the end such a narrow range of plights defines our moral lives.
+ - She thought about her life and how lost she’d felt for most of it. She thought about the way that all truths she’d been taught to consider valuable invariably conflicted with the world as it was actually lived. How could a person be so utterly lost, yet remain living?
+ - Letting go of randomness is one of the hardest decisions a person can make.
+ - I find it hard to believe that human beings are the crowning achievement of life on earth. Something better than us has to come along.
+ - Ski boots are the worst. Solid plastic. They’ll be around till the sun goes supernova.
+ - You’ve seen what you’ve seen; you’ve felt what you’ve felt. Ideology is for people who don’t trust their own experiences and perceptions of the world.
+ - We need to be around our families not because we have so many shared experiences to talk about, but instead because they know precisely which subjects to avoid.
+ - Los Angelenos dress like they’ve been focus-grouped.
+ - Death without the possibility of ever changing the world is the same as a life that never was.
+ - I like the present. I’m always interested in new ideas, and what’s happening. I’m not nostalgic.
+ - TV is all about hair. And then skin. And then clothing. And then it’s about your voice. And finally the report, what you’re actually saying. And 99 times out of 100, it never gets past the hair.
+ - I think, there are people for whom freedom is a bigger, more important thing than stability.
+ - I have trouble with seafood because it tastes like a dock.
+ - I mean five thousand years ago people emerge out of nowhere -sproing!- with brains and everything and begin wrecking the planet. You’d think we’d give the issue a little more thought than we do.
+ - If nothing else, we simply get used to being alive.
+ - With the first drink comes the truth, with the second drink comes wishful thinking, and with the third drink come the lies.
+ - Sometimes it feels as if everything in life is just something we haul into the grave.
+ - The modern world is devoted to vanishing species, vanishing weather and vanishing capacity for wonder.
+ - Marketing is essentially about feeding the poop back to diners fast enough to make them think they’re still getting real food.
+ - I want pills called September 10. You take one and your mind feels like the 11th never happened.
+ - We barely have enough time to figure out who we are and then we become bitter and isolated as we age.
+ - She went crazy with a calm face, justifiably so.
+ - If you want to get close to somebody, you have to tell him or her something intimate about yourself. They’ll tell you something intimate in return, and if you keep this going, maybe you’ll end up in love.
+ - We decided that the French could never write user-friendly software because they’re so rude.
+ - The person who needs the other person the least in a relationship is the stronger member.
+ - I think writing would have happened to me anyway, somehow. Differently, but it still would have happened.
+ - If I think too much about all of those Chinese factories where all the stuff in a Wal-Mart is made, I get that woozy feeling you get when you see ducks covered in crude oil.
+ - Sometimes failure isn’t an opportunity in disguise, it’s just you.
+ - God is what keeps us together after the love is gone.
+ - Keep your treasure to yourself.
+ - Nature is one great big wood-chipper. Sooner or later, everything shoots out the other end in a spray of blood, bones and hair.
+ - Before machines the only form of entertainment people really had was relationships.
+ - Making eye contact with adults while dressed as a clown is risky.
+ - Only the disenfranchised can party with abandon.
+ - Once you establish a look, and once everybody recognizes that look as your look, you never have to think about fashion again.
+ - A good piece of technology dreams of the day when it will be replaced by a newer piece of technology. This is one definition of progress.
+ - Most of us have only two or three genuinely interesting moments in our lives; the rest is filler.
+ - Forget about being world famous, it’s hard enough just getting the automatic doors at the supermarket to acknowledge our existence.
+ - I don’t think anyone ever gets over anything in life; they merely get used to it.
+ - Figure out what it is in life you don’t do well, and then don’t do it.
+ - What exactly is it that humans do that is specifically human? There has to be something. How odd it is for billions of people to be alive, yet not one of them is really quite sure of what makes people people.
+ - Being asked what animal you’d like to be is a trick question; you’re already an animal.
+ - The modern economy isn’t about the redistribution of wealth, it’s about the redistribution of time.
+ - Your ability to rationalize your own bad deeds makes you believe that the whole world is as amoral as you are.
+ - I think we’re simply going to run out of Nature before we have a chance to destroy it.
+ - You pretend to be more eccentric than you actually are because you worry you are an interchangeable cog.
+ - Canadians can easily ‘pass for American’ as long as we don’t accidentally use metric measurements or apologize when hit by a car.
+ - If you don’t have a spiritual practice in place when times are good, you can’t expect to suddenly develop one during a moment of crisis.
+ - So much information lacks a good way to store it, especially when it’s all digital; sometimes it requires old technology to go back and retrieve it.
+ - I want to see books taken out of historical time and placed into a different timeline, such as evolutionary or geological time, as a means of putting the human experience in context.
+ - The new world lies before her eyes like an opened chest of treasure, a flock of birds over Africa, a thousand TVs all playing at once.
+ - STRANGELOVE REPRODUCTION: Having children to make up for the fact that one no longer believes in the future.
+ - The future and eternity are two entirely different things.
+ - Kids today do nothing. They’re so apathetic. We used to go out and protest. All they do is shop and complain.
+ - Life need not be a story, but it does need to be an adventure.
+ - I curled myself into a ball and cried quietly, doing that thing that only young people can do, namely, feeling sorry for myself. Once you’re past thirty you lose that ability; instead of feeling sorry for yourself you turn bitter.
+ - A few years ago it dawned on me that everybody past a certain age – regardless of how they look on the outside – pretty much constantly dreams of being able to escape from their lives.
+ - When you grow up these days, you’re told you’re going to have four or five different careers during your lifetime. But what they don’t tell you is that you’re also going to be four or five different people along the way.
+ - You spend a much larger part of your life being old, not young.
+ - I thought it would be such a sick joke to have to remain to be alive for decades and not believe in or feel anything.
+ - I’d take a helicopter up and throw microwave ovens down on the Taco Bell.
+ - The harder you try to become the opposite of your parents, the more quickly you become them.
+ - If someone decides to be a musician now, it means because there is no hope of money at the end of it, it means they really want to be a musician. And if someone is writing now, there is no hope for money at the end of it.
+ - It’s around midnight. After I left Dad, my choice was to either become very drunk or write this. I chose to write this. It felt kind of now-or-never for me.
+ - The only way to the top is killing and greed. Okay, I’m kidding. But killing helps.
+ - I kind of wonder if creativity is all morphing into one big thing that’s not even art, but something universal and bigger.
+ - I think there is a Paris inside us all.
+ - I don’t understand beauty.
+ - Beyond a certain age, sincerity ceases to feel pornographic.
+ - Telling people they look relaxed makes them look relaxed.
+ - A man in a bookstore buys a book on loneliness and every woman in the store hits on him. A woman buys a book on loneliness and the store clears out.
+
+293 quotes

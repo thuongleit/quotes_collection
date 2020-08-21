@@ -1,0 +1,21 @@
+ - Coaching is like flying an airplane, there is going to be a lot of turbulence, but your job is to land the plane safely.
+ - Offense is spacing and spacing is offense.
+ - It’s discouraging to make a mistake, but it’s humiliating when you find out you’re so unimportant that nobody noticed it.
+ - Players have to buy into your system and be willing to accept the role, you, as the coach, have assigned to them.
+ - Defense can’t guard two things in a row.
+ - If you’re going to have to beg them to play, it’s not going to work.
+ - I’ve had too lengthy a career and coached too many players to make a choice.
+ - The important thing is to get the right players on the team so Mike can be successful.
+ - Though I’d have to say it was generally the guys in Detroit, as a group, that won the two Championships. They were terrific and I always look back very fondly.
+ - The first shot does not beat you.
+ - Athletes that can’t listen, can condition.
+ - I do some broadcasting and speaking as well.
+ - I think the Pistons have such a well rounded team, which is why they’re so successful. All you have to do is look at the stats defensively and at their rebounding and scoring.
+ - If one of our players gets his second foul in the first half, then he must come out of the game and not re-enter until the second half. To play defense and not foul is an art that must be mastered if you are going to be successful.
+ - A lot of guys go through their whole careers and don’t win a championship, but are still great coaches.
+ - The two championship years were that significant for me.
+ - I’m a lot better coach when I have really good players.
+ - The less determined and the less motivated weed themselves out.
+ - Defense doesn’t break down on the help, it breaks down on the recovery.
+
+19 quotes

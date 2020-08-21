@@ -1,0 +1,22 @@
+ - To experience sublime natural beauty is to confront the total inadequacy of language to describe what you see. Words cannot convey the scale of a view that is so stunning it is felt.
+ - She is a loner, too bright for the slutty girls and too savage for the bright girls, haunting the edges and corners of the school like a sullen disillusioned ghost.
+ - Never underestimate how extraordinarily difficult it is to understand a situation from another person’s point of view.
+ - Reason is no match for desire: when desire is purely and powerfully felt, it becomes a kind of reason of its own.
+ - I see disappointment as something small and aggregate rather than something unified or great. With a little effort, every failure can be turned into something good.
+ - I think the adverb is a much-maligned part of speech. Its always accused of being oppressive, even tyrannical, when in fact its so supple and sly.
+ - It is a feature of human nature to give what we most wish to receive.
+ - A woman fallen has no future; a man risen has no past.
+ - Theatre is a concentrate of life as normal. Theatre is a purified version of real life, an extraction, an essence of human behaviour that is stranger and more tragic and more perfect than everything that is ordinary about me and you.
+ - Love cannot be reduced to a catalogue of reasons why, and a catalogue of reasons cannot be put together into love.
+ - I vote far-left. I am frequently angered by corporate greed and think education ought to be free and teachers paid well.
+ - Solitude is a condition best enjoyed in company.
+ - What’s the likelihood? That the one girl who makes my heart race is the one girl who wants me in return? That the accident of my attraction coincides with the accident of hers?
+ - I really wanted to write an adventure story, a murder-mystery that was set during the gold-rush years in New Zealand.
+ - The way that I see astrology is as a repository of thought and psychology. A system we’ve created as a culture as way to make things mean things.
+ - Remember that anybody who is clever enough to set you free is clever enough to enslave you.
+ - A man ought never to trust another mans evaluation of a third mans disposition.
+ - Astrologys a moving system that depends on where youre looking at it from on Earth. My horoscope here in London would be completely different to down in New Zealand.
+ - I often feel intellectually frustrated when I’m in a position where I’m not moving forward; when I’m not enquiring about something.
+ - The proper way to understand any social system was to view it from above.
+
+20 quotes

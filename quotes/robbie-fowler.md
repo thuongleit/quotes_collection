@@ -1,0 +1,23 @@
+ - It sounds mercenary and it smacks of rats leaving the sinking ship. But get real, when everyone is bailing out, you don’t want to be the last man standing.
+ - I get paranoid about people staring at me. Even now I don’t deal with people looking at me. I can’t do it sometimes. I can’t go out. I don’t know how to react when people stare.
+ - Houllier did what he had to do – I’m not the first person to be treated like a disposable commodity.
+ - I was a boy, suddenly treated like the men and expected to act like them.
+ - I don’t want people losing respect for me as a player. I want to go out in every game and perform to the highest level. I have no retirement plans. I’ve had a lot of injuries but I want to continue playing.
+ - Maybe if I’d not been able to kick a ball it would have been different, but I doubt it because all my mates are decent blokes now, just normal fellas with families.
+ - The money I try and earn is for my family. It’s not for me. It’s always about my family.
+ - I used to hate Ian Rush when I was young, because I was a devout Evertonian in those days, and he seemed to score every time Liverpool played against us. It’s strange to think he used to support Everton too when he was a kid. He was brilliant to me at Anfield always giving me good advice.
+ - Anyone who doesn’t learn from Ian Rush needs shooting.
+ - After spending so much money Liverpool were a lot further behind the leaders when Houllier left than before he arrived.
+ - As a young kid, I wasn’t really interested at that stage – getting financial advice was far from my mind. I was focused on playing football. But I got onboard with this financial adviser and I heeded his advice, and that was my smartest money decision.
+ - Nothing had changed in my routine, except that when I went down the chippy and got me special fried rice, it would be wrapped in a newspaper that had my picture all over it.
+ - If you pray enough for things, I am proof that they can happen. I feel like a kid on Christmas day now, every day. It’s something I have wanted for a long time and I am as happy as anyone to be here. It is great to be back at my first love.
+ - To say that I haven’t been motivated to play is absolute nonsense.
+ - Time always seems long to the child who is waiting – for Christmas, for next summer, for becoming a grownup: long also when he surrenders his whole soul to time and I am as happy as anyone to be here. It is great to be back at my first love.
+ - Houllier couldn’t deal with players expressing any anger or questioning any of his decisions.
+ - The treble parade would have been the most perfect moment of my footballing life, but for the two people standing behind me, clearly already plotting their next move.
+ - An image has stuck for most of my career and it isn’t flattering.
+ - A goal is a goal no matter which end it goes in. I’m pleased to get off the mark again.
+ - I sometimes think I’ve needed a bit of an arm around me in my career – which I’ve not always got from certain managers and coaches who didn’t understand me.
+ - I hate talking about football. I just do it, you know?
+
+21 quotes

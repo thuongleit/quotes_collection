@@ -1,0 +1,29 @@
+ - One of the most important lessons that experience teaches is that, on the whole, success depends more upon character than upon either intellect or fortune.
+ - Anxiety and Ennui are the Scylla and Charybdis on which the bark of human happiness is most often wrecked.
+ - The unweary, unostentatious, and inglorious crusade of England against slavery may probably be regarded as among the three or four perfectly virtuous pages comprised in the history of nations.
+ - There are times in the lives of most of us, when we would have given all the world to be as we were but yesterday, though that yesterday had passed over us unappreciated and unenjoyed.
+ - The simple record of these three short years of active life has done more to regenerate and soften mankind than all the discourses of philosophers and all the exhortations of moralists.
+ - Pleasures that are in themselves innocent lose their power of pleasing if they become the sole or main object of pursuit.
+ - Passions weaken, but habits strengthen, with age, and it is the great task of youth to set the current of habit and to form the tastes which are most productive of happiness in life.
+ - Physical science has taught us to associate Deity with the normal rather than with the abnormal.
+ - The doctrine of a material hell in its effect was to chill and deaden the sympathies, predispose men to inflict suffering, and to retard the march of civilization.
+ - Contraction of theological influence has at once been the best measure, and the essential condition of intellectual advance.
+ - When the Church obtained the direction of the civil power, she soon modified or abandoned the tolerant maxims she had formerly inculcated; and, in the course of a few years, restrictive laws were enacted, both against the Jews and against the heretics.
+ - Terror is everywhere the beginning of religion.
+ - Fierce invectives against women form a conspicuous and grotesque portion of the writings of the Church fathers.
+ - Whence has come thy lasting power.
+ - There is no wild beast so ferocious as Christians who differ concerning their faith.
+ - There are some poisons which, before they kill men, allay pain and diffuse a soothing sensation through the frame. We may recognize the hour of enjoyment they procure, but we must not separate it from the price at which it was purchased.
+ - Whenever the clergy were at the elbow of the civil arm, no matter whether they were Catholic or Protestant, persecution was the result.
+ - In proportion to its power, Protestantism has been as persecuting as Catholicism.
+ - Making every allowance for the errors of the most extreme fallibility, the history of Catholicism would on this hypothesis represent an amount of imposture probably unequaled in the annals of the human race.
+ - There have certainly been many periods in history when virtue was more rare than under the Caesars; but there has probably never been a period when vice was more extravagant or uncontrolled.
+ - Spain and southern Italy, in which Catholicism has most deeply implanted its roots, are even now, probably beyond all other countries in Europe, those in which inhumanity to animals is most wanton and unrebuked.
+ - There is no possible line of conduct which has at some time and place been condemned, and which has not at some other time and place been enjoined as a duty.
+ - Almost all Europe, for many centuries, was inundated with blood, which was shed at the direct instigation or with the full approval of the ecclesiastical authorities.
+ - The animal world being altogether external to the scheme of redemption, was regarded as beyond the range of duty, and the belief that we have any kind of obligation to its members has never been inculcated – has never, I believe, been even admitted – by Catholic theologians.
+ - The morals of men are more governed by their pursuits than by their opinions. A type of virtue is first formed by circumstances, and men afterwards make it the model upon which their theories are framed.
+ - All history shows that, in exact proportion as nations advance in civilisation, the accounts of miracles taking place among them become rarer and rarer, until at last they entirely cease.
+ - I venture to maintain that there are multitudes to whom the necessity of discharging the duties of a butcher would be so inexpressibly painful and revolting, that if they could obtain a flesh diet on no other condition, they would relinquish it forever.
+
+27 quotes

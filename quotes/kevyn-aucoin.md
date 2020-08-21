@@ -1,0 +1,25 @@
+ - No amount of makeup can mask an ugly heart.
+ - Beauty might bring happiness, but happiness always brings beauty.
+ - Fear is the most debilitating emotion in the world, and it can keep you from ever truly knowing yourself and others – its adverse effects can no longer be overlooked or underestimated. Fear breeds hatred, and hatred has the power to destroy everything in its path.
+ - Everyone is beautiful to someone.
+ - The future belongs to thouse with open minds aand open hearts, who can appreciate beauty in all it’s forms.
+ - Beauty is about perception, not about make-up.
+ - Today I see beauty everywhere I go, in every face I see, in every single soul, and sometimes even in myself.
+ - Today I choose to feel life, not to deny my humanity but embrace it.
+ - Perfection is boring. If a face doesn’t have mistakes, it’s nothing.
+ - Glamour is not self-conscious; it’s not trying really hard. It’s just expressing your own truth. I think that’s what the essence of glamour really is – expressing your uniqueness.
+ - If you want to look your best, be creative, try some new ideas, and have fun doing it.
+ - I don’t use ‘always do this,’ ‘never say that’ and I never give advice because I’m not the end-all, be-all authority.
+ - I never went wrong by being myself.
+ - The fact is, there really is no such thing as ‘normal’ – everybody’s different, and that is the essence of their beauty.
+ - Makeup should be fun, not fascist.
+ - It is the free spirited men and women that we most admire and often envy – those individuals who dare to be themselves.
+ - There are no rules when it comes to makeup!
+ - Beauty is about perception, not about make-up. I think the beginning of all beauty is knowing and liking oneself.
+ - I’m not saying that putting on makeup will change the world or even your life, but it can be a first step in learning things about yourself you may never have discovered otherwise. At worst, you could make a big mess and have a good laugh.
+ - Audrey had an angelic quality about her. She didn’t act like she was better than everyone, she just had a presence, an energy, a sort of light coming from within her that was overwhelming.
+ - I spent much of my life hiding.
+ - Soon I realized that if beauty equalled forgiveness, I was never going to be forgiven.
+ - I understood early that beauty was power.
+
+23 quotes

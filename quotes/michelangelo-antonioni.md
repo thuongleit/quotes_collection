@@ -1,0 +1,33 @@
+ - I think people talk too much; that’s the truth of the matter. I do. I don’t believe in words. People use too many words and usually wrongly. I am sure that in the distant future people will talk much less and in a more essential way. If people talk a lot less, they will be happier. Don’t ask me why.
+ - The photographer in Blow-Up, who is not a philosopher, wants to see things closer up. But it so happens that, by enlarging too far, the object itself decomposes and disappears. Hence there’s a moment in which we grasp reality, but then the moment passes. This was in part the meaning of Blow-Up.
+ - A film that can be described in words is not really a film.
+ - Often to understand, we have to look into emptiness.
+ - You know what I would like to do: make a film with actors standing in empty space so that the spectator would have to imagine the background of the characters.
+ - Hollywood is like being nowhere and talking to nobody about nothing.
+ - We know that behind every image revealed there is another image more faithful to reality, and in the back of that image there is another, and yet another behind the last one, and so on, up to the true image of that absolute, mysterious reality that no one will ever see.
+ - When man becomes reconciled to nature, when space becomes his true background, these words and concepts will have lost their meaning, and we will no longer have to use them.
+ - In Blow-up I used my head instinctively!
+ - People are always misquoting me.
+ - When a scene is being shot, it is very difficult to know what one wants it to say, and even if one does know, there is always a difference between what one has in mind and the result on film.
+ - I may film scenes I had no intention of filming; things suggest themselves on location, and we improvise. I try not to think about it too much. Then, in the cutting room, I take the film and start to put it together, and only then do I begin to get an idea of what it is about.
+ - When I am shooting a film I never think of how I want to shoot something; I simply shoot it.
+ - A director is a man, therefore he has ideas; he is also an artist, therefore he has imagination. Whether they are good or bad, it seems to me that I have an abundance of stories to tell. And the things I see, the things that happen to me, continually renew the supply.
+ - The moment always comes when, having collected one’s ideas, certain images, an intuition of a certain kind of development- whether psychological or material- one must pass on to the actual realization.
+ - The greatest danger for those working in the cinema is the extraordinary possibility it offers for lying.
+ - We live in a society that compels us to go on using these concepts, and we no longer know what they mean.
+ - I began taking liberties a long time ago; now it is standard practice for most directors to ignore the rules.
+ - I am neither a sociologist nor a politician. All I can do is imagine for myself what the future will be like.
+ - You cannot penetrate events with reportage.
+ - A scene has to have a rhythm of its own, a structure of its own.
+ - Hollywood doesn’t believe in the death penalty for anyone except people who get cable TV without paying for it. Hollywood is like being nowhere and talking to nobody about nothing.
+ - Scientific man is already on the moon, and yet we are still living with the moral concepts of Homer.
+ - Normally, however, I try to avoid repetitions of any shot.
+ - All the characters in my films are fighting these problems, needing freedom, trying to find a way to cut themselves loose, but failing to rid themselves of conscience, a sense of sin, the whole bag of tricks.
+ - My work is like digging, it’s archaeological research among the arid materials of our times. That’s how I understand my first films, and that’s what I’m still doing...
+ - I always mistrust everything I see, which an image shows me, because I imagine what is beyond it. And what is beyond an image cannot be known.
+ - A man who renounces something is also a man who believes in something.
+ - Till now I have never shot a scene without taking account of what stands behind the actors because the relationship between people and their surroundings is of prime importance.
+ - I want my characters to suggest the background in themselves, even when it is not visible. I want them to be so powerfully realized that we cannot imagine them apart from their physical and social context even when we see them in empty space.
+ - I meant exactly what I said: that we are saddled with a culture that hasn’t advanced as far as science.
+
+31 quotes

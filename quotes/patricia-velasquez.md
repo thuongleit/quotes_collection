@@ -1,0 +1,26 @@
+ - The universe only gives you what you can handle, so trust that whatever is happening to you is exactly what you need. Just trust. Have certainty!
+ - Always work hard, be honest, and be proud of who you are.
+ - The universe always gives you what you need to grow into the person you are destined to become.
+ - For me, love is a pure, unconditional, nonjudgmental feeling that I feel towards some people and some parts of nature. Most of us love, but the purest love is the one where we take ego out of the equation, and that is the hard part of love, keeping ego aside.
+ - Thank God I had all these family values or who knows where I’d be now.
+ - It is possible to have second chances. When I thought everything was lost, when I reached bottom and things didn’t go my way, the universe gave me a second chance.
+ - Clothes, thank God I can get them from designers.
+ - I think if I could have a boyfriend like my brothers I’d be really happy. But without the brother thing.
+ - I do hot yoga. I try to keep one hour a day where I have space to reflect and meditate and take care of me and what is going on inside. This way, I can be a better person to be around.
+ - I began dancing when I was just 5, and I never really wanted to become an actress because its what every other model does.
+ - It takes one person to give you a big chance.
+ - I live in New York and I was only there for 2 weeks all last year.
+ - I also feel that if you were evil, then next time around you would be very good.
+ - There was a time when I used to live in Spain that it went really crazy with drugs and stuff like that.
+ - If I need something, even a pair of socks, my assistant has to get them for me.
+ - So struggling for work here has been very good for me, but it’s also been very hard to handle rejection.
+ - If there is one creature that represents my essence, it’s butterflies.
+ - I have no doubt I was someone very interesting in a past life.
+ - I enjoyed working as a model a lot as it let me travel and I got to do some really interesting projects.
+ - OK, I’ve been very wild, but I’ve never really been the sort of person who goes that crazy!
+ - People say many things, but at the end of the day people can say what they want.
+ - Every time you play a bad girl or guy in a movie, you really come from a place of pain.
+ - I used to be a dancer, and for me it was a really good combination of dance and acting.
+ - You need a routine, to be able to spend some time with a person, and my lifestyle is constantly on the move.
+
+24 quotes

@@ -1,0 +1,29 @@
+ - Etiquette-a fancy word for simple kindness.
+ - Cocktails are society’s most enduring invention!
+ - Laugh at yourself first, before anyone else can.
+ - Down with boredom. It has to go.
+ - Nothing spoils a good party like a genius.
+ - Keep your talent in the dark and you’ll never be insulted.
+ - Protocol may be defined as the code of etiquette which protects royalty from the competition of intellectual and social superiors.
+ - To get fifty people to a cocktail party in New York, you ask one hundred. In Hollywood, you invite twenty.
+ - Good manners – the longer I live the more convinced I am of it – are a priceless insurance against failure and loneliness. And anyone can have them.
+ - The cocktail party is easily the worst invention since castor oil.
+ - The loudest psalm singer in the congregation always is a reformed sinner.
+ - I make enemies deliberately. They are the sauce piquante to my dish of life.
+ - Good manners spring from just one thing – kind impulses.
+ - Under pressure, people admit to murder, setting fire to the village church or robbing a bank, but never to being bores.
+ - Intolerance of mediocrity has been the main prop of my independence.
+ - Bores put you in a mental cemetery while you are still walking.
+ - Someone said that life is a party. You join in after it’s started and leave before it’s finished.
+ - A bore is a vacuum cleaner of society, sucking up everything and giving nothing. Bores are always eager to be seen talking to you.
+ - Serve the dinner backward, do anything – but for goodness sake, do something weird.
+ - Seeing unhappiness in the marriage of friends, I was content to have chosen music and laughter as a substitute for a husband.
+ - I don’t hate anyone. I dislike. But my dislike is the equivalent of anyone else’s hate.
+ - Anatomize the character of a successful hostess and the knife will lay bare the fact that she owes her position to one of three things: either she is liked, or she is feared, or she is important.
+ - Most rich people are the poorest people I know.
+ - The secret of my success is that no woman has ever been jealous of me.
+ - Giving parties is a trivial avocation, but it pays the dues for my union card in humanity.
+ - People who have escaped from poverty are like old soldiers. In later years they recount the little, amusing incidents that happened infrequently, and conveniently forget the long, unrelieved stretches of misery and boredom.
+ - Only those who have earned leisure know how to use it profitably.
+
+27 quotes

@@ -1,0 +1,22 @@
+ - Propaganda is the art of persuading others of what you don’t believe yourself.
+ - Earth produces nothing worse than an ungrateful man.
+ - If you are dreaded by many then beware of many.
+ - If lucky be not proud; if unlucky, do not despond.
+ - Begin: To have commenced is half the deed. Half yet remains; Begin again on this and thou wilt finish all.
+ - Begin whatever you have to do: the beginning of a work stands for the whole.
+ - He who does not know how to be silent will not know how to speak.
+ - Let the blacksmith wear the chains he has himself made.
+ - The best memorial for a mighty man is to gain honor ere death.
+ - It often happens, that misery will follow a marriage when the dowry is too large.
+ - Every stage of life has its troubles, and no man is content with his own age.
+ - Be not arrogant when fortune smiles, or dejected when she frowns.
+ - Bear good fortune modestly.
+ - It is tormenting to fear what you cannot overcome.
+ - If fortune favors you do not be elated; if she frowns do not despond.
+ - A favor tardily bestowed is no favor; for a favor quickly granted is a more agreeable favor.
+ - No man will revel long in the indulgence of crime.
+ - Ausonius must be read to be believed! As poet, no subject is too trivial for him; as courtier, no flattery too excessive.
+ - When about to commit a base deed, respect thyself, though there is no witness.
+ - Can we wonder that men perish and are forgotten when their noblest and most enduring works decay?
+
+20 quotes

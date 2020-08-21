@@ -1,0 +1,37 @@
+ - That’s what falling in love really amounted to, your brain on drugs. Adrenaline and dopamine, oxytocin and serotonin. Chemical insanity, celebrated by poets.
+ - Evil doesn’t die. It never dies. It just takes on a new face, a new name. Just because we’ve been touched by it once, it doesn’t mean we’re immune to ever being hurt again. Lightning can strike twice.
+ - I know there’s evil in the world, and there always has been. But you don’t need to believe in Satan or demons to explain it. Human beings are perfectly capable of evil all by themselves.
+ - Only the forgotten are truly dead.
+ - Where we go depends on what we know, and what we know depends on where we go.
+ - We are not as impervious as we think we are. – Dr Maura Isles.
+ - Medicine is probably one of the best backgrounds for a writer to find stories. I always think cops and docs have the best background because we see so much of human behavior, such a range of human emotions.
+ - The most dangerous enemy in the world is the one you do not recognize.
+ - Sometimes, the stars line up, the gods smile, and love gets a fighting chance. Just a chance. That’s all it can really hope for. No guarantees, no certainties.
+ - The heart makes its choices without weighing the consequences. It doesn’t look ahead to the lonely nights that follow.
+ - The best heroes in the world are the reluctant ones. Courage isn’t fearlessness – it’s acting in the face of fear.
+ - We never know until the beast of opportunity is staring us in the face.
+ - Everything’s a gamble, love most of all.
+ - We dream our dreams, and sometimes they take us to places we never anticipate. But they are our dreams, and we go where they lead.
+ - The most intimate feeling people can share is neither love nor hate, but pain.
+ - Sometimes, the person who could make you happiest is the one who waits patiently in the wings.
+ - God, it’s like reality’s completely shifted on me. I used to think I was standing on such solid ground. If I wanted something badly enough, I just worked like hell for it. Now I can’t decide what to do, which move to make. All the things I counted on aren’t there for me anymore.
+ - If you want to remain at liberty, I suggest you not antagonize your defenders.
+ - There is honor between bitches.
+ - We are all descended from monsters.
+ - You don’t have to die to go to hell.
+ - Death does not discriminate; whether saints or sinners, in the end, all are equal.
+ - She now knew her death was inevitable, and with that acceptance came liberation. The courage of the condemned.
+ - When you’re a fifty-year-old woman, no one really bothers to look at you anymore, much less value your opinion. It’s hard on the old ego. But damn, it does make it easy to get away with a lot.
+ - The dead do not hurt you; only the living do.
+ - Only with maturity did I come to appreciate my own Chinese roots: not just the food and the ancient history, but also the philosophy of child-rearing and the respect for education and knowledge.
+ - Even divorce, she thought, cannot erase all the bonds forged by years of marriage. Long after the papers are signed, decrees notarized, the ties still remain. And the most powerful tie of all is written in a child’s flesh and blood.
+ - The Christmas tree, twinkling with lights, had a mountain of gifts piled up beneath it, like offerings to the great god of excess.
+ - Motherhood didn’t make you stronger; it made you vulnerable and afraid of what death could steal from you.
+ - What Rizzoli thought, staring at her own image, was that she hated Elizabeth Hurley for giving women false hope. The brutal truth was, there are some women who will never be beautiful, and Rizzoli was one of them.
+ - No man easily admits that he is afraid.
+ - She was the only woman in the homicide unit, and already there had been problems between her and another detective, charges of sexual harassment, countercharges of unrelenting bitchiness.
+ - My childhood was spent in my local library in a San Diego suburb. It’s where I became a writer – by 1st becoming a reader!
+ - The one man you most want to sleep with may be the worst choice of all.
+ - Parenthood is nothing but doubts.
+
+35 quotes

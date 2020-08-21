@@ -1,0 +1,64 @@
+ - Pressure is something you feel when you don’t know what the hell you’re doing.
+ - I love being coached. I get angry when I’m not coached. I ask a lot of questions and certainly appreciate any insight and feedback. I think if you ever stop listening to coaching or stop asking questions, you probably need to be doing something else.
+ - The attitude with which we approach the situation can determine our success or failure.
+ - Boy, do I hate to lose.
+ - If you work hard and you play well, all those critics quiet themselves pretty quickly.
+ - Remind your critics when they say you don’t have the expertise or experience to do something that an amateur built the ark and the experts built the Titanic.
+ - I pray every night, sometimes long prayers about a lot of things and a lot of people, but I don’t talk about it or brag about it because that’s between God and me, and I’m no better than anybody else in God’s sight.
+ - If you wait for others to initiate change you automatically become a follower.
+ - In life, and in sports, we all know that nothing lasts forever.
+ - I understand the seriousness of concussions.
+ - You’ve got to remember what your priorities are. When you’re playing, what u do on the field is the most important thing.
+ - Im happy to volunteer for the American Red Cross Celebrity Cabinet. The Red Cross is an organization that responds to those in need and it is an honor to help them with the lifesaving role they play everyday in communities nationwide.
+ - I don’t like to play favorites, and I do try to spread the ball around. But there’s an old rule: You throw to the guys who get open in practice.
+ - You hear about how many fourth quarter comebacks that a guy has and I think it means a guy screwed up in the first three quarters.
+ - When people are watching you, it makes you think twice about what you do, and the things you say, and the people you hang around with.
+ - I’m a serious person by nature – sometimes too serious.
+ - My dad was a class person on and off the field. That’s the person I want to be.
+ - I am stronger than I was last year. I am throwing the ball better now in May of 2013 than I did in May of 2012 – significantly better. I got better throughout the season.
+ - Touchdowns to me means that you’re scoring points and helping your team win games. You can have a lot of yards and not have points and not win games. So, this only means something because it has helped our teams win games and we won the division today in a competitive AFC West, that’s a good thing.
+ - He had a Halloween party and I dressed up as The King. One of the more enjoyable nights I’ve had. Nobody recognized me. They recognized me, but they recognized me as Elvis. I might have to bring that back to Indianapolis.
+ - Some guys leave a place after a long time, and they’re bitter. Not me.
+ - After a loss like this we just have to go back and work harder. We got outplayed and that’s all there is to it. You have to let it go, move on and just work harder.
+ - If nothing else in life, I want to be true to the things I believe in, and quite simply, to what I’m all about. I know I’d better, because it seems whenever I take a false step or two I feel the consequences.
+ - Nobody really wants to hear about anybody else’s injuries. Or how your back feels. Whose back doesn’t hurt?
+ - If people think I’m a laid-back guy, that’s their mistake.
+ - I would like to think I will be a guy who knows when it’s time to stop. I don’t want to be a guy who hung on and hung on. I do not have a goal in mind of a year or a statistic.
+ - If teams keep playing us this way, it’s going to be like this.
+ - I don’t want to retire. I still want to play.
+ - I don’t usually stink, but I stunk.
+ - I’ve been being asked about my legacy since I was about 25 years old. I’m not sure you can have a legacy when you’re 25 years old. Even 37. I’d like to have to be, like, 70 to have a legacy. I’m not even 100 percent sure what the word even means.
+ - My high-school coach Tony Reginelli was kind of famous for ‘Reggie-isms,’ kind of like ‘Yogi-isms.’ He always said if you want to be a good quarterback, when sprinting left you want to be amphibious and throw left-handed. I told him, ‘You mean ambidextrous, coach?’
+ - I committed my life to Christ, and that faith has been most important to me ever since.
+ - When you get a lot of money thrown at you, you can make some dumb decisions without the right advice.
+ - When you go through a significant injury and have a major career change, you truly do go one year at a time, and you don’t look past what’s going on now, because you are not sure what’s going to happen. Tomorrow is not promised.
+ - We have to try really hard to not accidentally summon a demon.
+ - I’ve been a Colt for almost all of my adult life, but I guess in life, and in sports, we all know nothing lasts forever. Times change, circumstances change, and that’s the reality of playing in the NFL.
+ - The game was much like our season. This game tested our toughness, our resilience, our unselfishness. It’s only fitting that it turned out this way. This is a great bunch of guys to play with. I feel very, very grateful.
+ - I’m the best Manning.
+ - Imitation is obviously a great form of flattery.
+ - I think e-mail is kind of a cheap way to communicate. It’s a lazy way of writing a letter, you know.
+ - You can play pickup basketball, but you can’t really re-create football.
+ - I’m proud to be Archie’s son. Being a quarterback, I had my mentor and hero living in the same house.
+ - I would love to have played in the ’60s. Now that would have been fun.
+ - I feel one of the most significant honors a player can have in his sport is to have his number retired. Certainly for me to have that at Tennessee, it’s with great pride.
+ - If your team is going to win, you need to play better than the other quarterback.
+ - The head coach tells us what to do, and we follow his orders.
+ - Being there every week for my teammates is really important to me. It’s about accountability. I hear stuff about the ‘toughest quarterback in the league’ and all that; what’s that mean?
+ - Some guys lose their focus. They get caught up in the business deals or the endorsements, and they lose their focus. For me, it’s always about football. I’ve never lost sight of what’s making all these other things happen.
+ - It goes without saying, winning against a good team in a hostile crowd on the road, it’s just an absolutely huge win.
+ - I think I could describe the perfect quarterback. Take a little piece of everybody. Take John Elway’s arm, Dan Marino’s release, maybe Troy Aikman’s drop-back, Brett Favre’s scrambling ability, Joe Montana’s two-minute poise and, naturally, my speed.
+ - I like to be able to do things on my own. I’m a big boy. I can drive myself to an appearance or get on a plane. I like a little bit of independence.
+ - I want to be out there every single snap, every single play.
+ - To all the fantasy owners who drafted me: You’re welcome.
+ - I remember when I first got into the league, I thought how it would be nice to have a year when you were the best. That means your team is probably winning.
+ - Certainly our job as an offense to try to score points and that’s running the ball, throwing the ball, whatever it is. Somehow, someway we’ve got to try to score points to help our team win. That’s where the focus is and it’s pretty easy just to focus on that.
+ - It’s kind of boring to me if teams never throw the ball.
+ - I’d like people to understand that I do have some personality.
+ - Everyone should play like Adrian Peterson. This guy does everything full speed. Pro Bowl – promoting himself for MVP.
+ - My job is to play well offensively and help my team score points. So I feel very responsible every time we lose a game.
+ - Whenever people ask you where you’re from and you say New Orleans, it’s always going to create a conversation.
+ - I see young quarterbacks just coming into the league, and they’re throwing screens and layoffs right away. As funny as this might sound, I really learned a lot by going downfield, even in tight coverage.
+ - I never left the field saying I could have done more to get ready and that gives me piece of mind.
+
+62 quotes

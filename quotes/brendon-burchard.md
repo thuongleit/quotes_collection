@@ -1,0 +1,36 @@
+ - No matter how small you start, start something that matters.
+ - At the end of our lives we all ask, did i live? Did i love? Did i matter?
+ - As soon as you seek to inspire others, it inspires the best in you.
+ - You have a clean slate every day you wake up. You have a chance every single morning to make that change and be the person you want to be. You just have to decide to do it. Decide today’s the day. Say it: this is going to be my day.
+ - It’s not about how much work you’re doing. It’s about what work you’re doing and how you’re doing the work.
+ - Drama in our lives is the greatest indicator that we’re not focused on meaningful goals. On the path to purpose you don’t have time for drama.
+ - When you knock on the door of opportunity, do not be surprised that it is Work who will answer.
+ - The ultimate secret to growth is finding something worth fighting for.
+ - A high performer is someone who says, ‘I want to be the best at what I’m doing.’
+ - I’m not interested in your limiting beliefs, i’m interested in what makes you limitless.
+ - The top experts in the world are ardent students. The day you stop learning, you’re definitely not an expert.
+ - If you create incredible value and information for others that can change their lives – and you always stay focused on that service – the financial success will follow.
+ - Successful people take their current limitation and put it on their agenda as a job to do, as a thing to figure out and make happen.
+ - Beginning today, set an intention and a relentless focus on living your life as the greatest person you can be, in all situations. Demand that you demonstrate a strength of character in such a way that you find pride in who you are, and that others see you as a role model.
+ - It’s that engagement of learning that makes us feel alive.
+ - Grant me the stormy seas over a life of ease, the toil and madness of a life of effort, and adventure, and meaning. The safe harbor is not for me, not for long. Let the fearful stand at the shore and point as we head into the unknown, toward that vast horizon where the bold become legend.
+ - If you look at high performers they are always the most passionate – in any industry.
+ - I won’t let others stoke fear in my heart. I choose to remain true to who I am and where my dreams direct me no matter the hardship I might incur. I remember it always: Fear wins or Freedom wins, and I choose Freedom.
+ - Your ultimate life experience and legacy is being built moment by moment, day by day. Your story is being crafted by your every action, all leading somewhere, all leading to what one hopes will be a magnificent crescendo.
+ - My best mentor is a mechanic – and he never left the sixth grade. By any competency measure, he doesn’t have it. But the perspective he brings to me and my life is, bar none, the most helpful.
+ - Optimists are happier in life for a reason.
+ - Why having been endowed with the courageous heart of a lion, do we live as mice?
+ - No matter your position, circumstances, or opportunities in life, you always have the freedom of mind to choose how you experience, interpret, and, ultimately, shape your world.
+ - Ask not what you are getting from the world but, rather, what you are giving to the world.
+ - Selecting your next challenge in life, choose one that is meaningful and will demand your complete concentration.
+ - Have you ever played a video game that didn’t have escalating levels of difficulty? Well, life can feel like play, too, when we purposefully engage in activities that demand we test and develop our skills.
+ - To me, meditation is simply silencing or focusing the mind.
+ - Business coaching and the personal development and self-help industry is considered to be one of the booming industries today.
+ - If your guard is up, let it down. If you’ve constructed a defensive wall to protect yourself and keep all the bad guys out, don’t forget who that wall also prevents from getting in – the good guys.
+ - People are remarkably bad at remembering long lists of goals. I learned this at a professional level when trying to get my high-performance coaching clients to stay on track; the longer their lists of to-dos and goals, the more overwhelmed and off-track they got. Clarity comes with simplicity.
+ - Freedom and victory belong to those who remain true and strong despite temptation to be dishonest and weak.
+ - I’ve seen that phenomenally successful people believe they can learn something from everybody. I call them ‘mavericks with mentors.’ Richard Branson, for instance, is a total maverick but he surrounds himself with incredibly successful, smart people and he listens to them.
+ - Meditation is a lifelong process. Give it a try. As you get deeper and more disciplined into the process, you’ll get deeper and more disciplined in your mind and life.
+ - I have to laugh when I receive newsletters from major personalities and when you hit reply, you get a ‘do-not-reply’ address. It’s ridiculous! Don’t you want your customers to reply to you?
+
+34 quotes

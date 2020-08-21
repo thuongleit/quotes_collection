@@ -1,0 +1,33 @@
+ - A university is just a group of buildings gathered around a library.
+ - I abhor the idea of a perfect world. It would bore me to tears.
+ - A rich man’s war and a poor man’s fight...
+ - I think making mistakes and discovering them for yourself is of great value, but to have someone else to point out your mistakes is a shortcut of the process.
+ - If you want to study writing, read Dickens.
+ - I’ve never known, at least a modern historical instance, where the truth wasn’t superior to distortion in every way.
+ - And I’m a slow writer: five, six hundred words is a good day. That’s the reason it took me 20 years to write those million and a half words of the Civil War.
+ - As a Southerner I would have to say that one of the main importances of the War is that Southerners have a sense of defeat which none of the rest of the country has.
+ - People make a grievous error thinking that a list of facts is the truth. Facts are just the bare bones out of which truth is made.
+ - A fact is not a truth until you love it.
+ - Of all the passions of mankind, the love of novelty most rules the mind. In search of this, from realm to realm we roam. Our fleets come loaded with every folly home.
+ - When you grow up in a totally segregated society, where everybody around you believes that segregation is proper, you have a hard time. You can’t believe how much it’s a part of your thinking.
+ - Getting close to books, and spending time by myself, I was obliged to think about things I would never have thought about if I was busy romping around with a brother and sister.
+ - A combination of all that was best in the gladdest days of the departing year...
+ - Writing is very hard work and knowing what you’re doing the whole time.
+ - I prize the Depression, for instance, because I learned the value of things in the Depression that a way people who don’t have to worry about such things never learned to prize it really, I believe.
+ - Generally the first week in September brings the hottest weather of the year, and this was no exception. Overhead the fans turned slow, their paddle blades stirring the air up close to the ceiling but nowheres else...
+ - North was only a direction indicated by a compass – if a man had one, that is, for otherwise there was no north or south or east or west; there was only the brooding desolation.
+ - But the same thing was true in the army. You slept in a barracks with all kinds of people of every nationality, every trade, every character and quality you can imagine, and that was a good experience.
+ - Grant was something rare in that or any war. He could learn from experience.
+ - I never cared what kind of grade I got.
+ - I don’t want anything to do with anything mechanical between me and the paper, including a typewriter, and I don’t even want a fountain pen between me and the paper.
+ - And I really do think that the difficulty of research makes it more real to you than punching a thing to find out how many men were killed at this particular action.
+ - My second book, Follow Me Down had some success, got good critical notices, went into a second printing and things like that, but Shiloh was by far the most successful of those first five novels.
+ - I think that everything you do helps you to write if you’re a writer. Adversity and success both contribute largely to making you what you are. If you don’t experience either one of those, you’re being deprived of something.
+ - I used to write sonnets and various things, and moved from there into writing prose, which, incidentally, is a lot more interesting than poetry, including the rhythms of prose.
+ - I’ve never shown anybody a draft of anything.
+ - Longevity conquers scandal every time.
+ - Most of my inspiration, if that’s the word, came from books themselves.
+ - I took five years on the first volume, five years on the second volume, and ten years on the third volume.
+ - I began the way nearly everybody I ever heard of – I began writing poetry. And I find that to be quite usual with writers, their trying their hand at poetry.
+
+31 quotes

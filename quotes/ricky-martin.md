@@ -1,0 +1,40 @@
+ - I don’t want to dream anymore, I want my life to be real!
+ - Everyday begins like a blank chalkboard, on which each one of us can write the poem of our present and our dreams for the future.
+ - Heroes represent the best of ourselves, respecting that we are human beings. A hero can be anyone from Gandhi to your classroom teacher, anyone who can show courage when faced with a problem. A hero is someone who is willing to help others in his or her best capacity.
+ - Amongst the qualities a hero should have, I would include determination, loyalty, courage, perseverance, patience, focus, intrepidity and selflessness.
+ - I love giving the golden shower. I’ve done it before in the shower. It’s like so sexy, you know, the temperature of your body and the shower water is very different.
+ - These years in silence and reflection made me stronger and reminded me that acceptance has to come from within and that this kind of truth gives me the power to conquer emotions I didn’t even know existed.
+ - She’ll make you take your clothes off and go dancing in the rain.
+ - I didn’t go around the world, I went around the world on a private jet. I didn’t have a hotel room, we had an entire floor. We were spoiled.
+ - I hated it when people tried to force me out when I wasn’t ready. It was very painful, and it actually pushed me away from doing so.
+ - Buddhism has a very beautiful teaching that says the worst thing you can do to your soul is to tell someone their faith is wrong.
+ - What will happen from now on? It doesn’t matter. I can only focus on what’s happening to me in this moment.
+ - I need to tell the world what I’m about, my nature, because not doing so would be teaching my children how to lie. I didn’t want it to be.
+ - I believe we have to bring Broadway a little Latino flair. We have to keep it alive.
+ - I canceled a show once to be with someone that I loved.
+ - I’m like a shark, right at the top of the food chain. I take what I want, when I want. I truly am the reflection of perfection.
+ - Every family is different. I am mom and I am dad and I’m going to do my best. You should be proud, walk through life saying I have the coolest family. I am part of a modern family.
+ - Before, I used to ask permission to my parents to leave the house. Now it’s – I ask permission to my children to leave the house. They own the house.
+ - Buddha’s teaching are very simple, you don’t have to break your head to understand the message. The part that I like the most from Buddha’s teachings and from His Holiness, The Dalai Lama, is that the most powerful weapon is to not attack, to be able to have self-control.
+ - Love, acceptance, friends, two kids that I love. I have to take care of myself for them. I’ve also been a vegetarian for two years.
+ - For many years I thought I was bisexual. And then I would ask myself, ‘What is bisexual? Does that even exist?’
+ - I truly am the reflection of perfection.
+ - I am convinced that music, like philanthropy, bridges hope.
+ - I’m an artist and you can fantasize about me however you want.
+ - Sexuality and sensuality are completely different things. Sensuality is something that you’re born with. But sexuality is something I leave for my own mirror.
+ - During my sabbatical, I spent two years not listening to my songs at all.
+ - I eat everything, that’s a problem. I don’t have discipline. My favorite dish is the Caribbean. Meat, rice, lots of grains. But I do like to do exercises. Lately, I’ve been having capoeira classes and lots of cardiovascular exercises, such as jogging and cycling.
+ - I have been a victim of stereotypes. I come from Latin America and to some countries, we are considered ‘losers,’ drug traffickers, and that is not fair because that is generalizing.
+ - I always wanted to be a father. I have a beautiful relationship with my dad and beautiful memories. I always knew I was going to have a family.
+ - Children aren’t just our future. They’re our present.
+ - Anything can change in show business; you know how it goes, everything changes from one day to the other.
+ - Everything they do, from smiling to crying, feels like a blessing. Being a father feels amazing. This has been the most spiritual moment in my life.
+ - I was onstage with Menudo since I was 12 years old. To us, the most successful one was the guy with the most fans. If you moved your hips and the girls screamed, you were getting it right. Who wouldn’t want to be like Elvis or Jim Morrison!
+ - I think religion is a bunch of hooey, and I think that the holidays are an opportunity for people to get stressed out, getting their rush to shop. It’s so conformist.
+ - I played Luke Skywalker. Every time we played, I was Luke Skywalker. Nobody else could be Luke Skywalker.
+ - And when you feel the heat, the world is at your feet.
+ - One day I’m riding a bicycle in my neighborhood, the next day I auditioned for Menudo and was on a plane to perform in front of 200,000 people.
+ - I don’t need anything to live, to be honest. Give me a mattress or a futon on the floor and I’ll be the happiest camper.
+ - I had very steady and formal relationships with women. And I can say, I fell in love with women and it felt right.
+
+38 quotes

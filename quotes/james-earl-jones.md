@@ -1,0 +1,65 @@
+ - One of the hardest things in life is having words in your heart that you can’t utter.
+ - The one constant in life is baseball.
+ - I found my voice in books...
+ - Love is just love, it can never be explained.
+ - Stuttering is painful. In Sunday school, I’d try to read my lessons, and the children behind me were falling on the floor with laughter.
+ - When I read great literature, great drama, speeches, or sermons, I feel that the human mind has not achieved anything greater than the ability to share feelings and thoughts through language.
+ - Your own need to be shines out of any dream or creation you imagine.
+ - No one asked me to be an actor, so no one owed me. There was no entitlement.
+ - I consider myself a novice film actor.
+ - A man’s got to take care of his family. You live in my house, you sleep your behind on my bedclothes, you put my food in your belly because you are my son; you are my flesh and blood, not because I like you. It is my duty to take care of you. I owe a responsibility to you.
+ - Don’t you try and go through life worried if someone had liked you or not. You best make sure that they are doing right by you.
+ - There is a very fine line between love and nausea.
+ - More and more, when I single out the person out who inspired me most, I go back to my grandfather.
+ - Love was just a word to me. Until you came along and gave it meaning.
+ - I was an adopted child of my grandparents, and I don’t know how I can ever express my gratitude for that, because my parents would have been a mess, you know.
+ - Just so you know, there’s a space that only you can fill. Just so you know, I loved you then, I guess I always will.
+ - You don’t build a bond without being present.
+ - My voice is for hire. My endorsement is not for hire. I will do a voice-over, but I cannot endorse without making a different kind of commitment. My politics are very personal and subjective.
+ - The inclusiveness of the Drama League luncheon is one of the most exciting things about it. I get to see old friends and meet new friends. Of course I can’t tell who anybody is if they’re under the age of 75. So my old friends become my new friends.
+ - Before my grandpa built his own church, we went to the neighboring town, and it was a white community. You know, up north, mostly middle European people and Indians, Chippewa Indians. We were welcome to that church, but once we got in, they didn’t know what to do with us.
+ - Speech is a very important aspect of being human. A whisper doesn’t cut it.
+ - If you live in an oppressive society, you’ve got to be resilient. You can’t let each little thing crush you. You have take every encounter and make yourself larger, rather than allow yourself to be diminished by it.
+ - I don’t ever want to be a sentimentalist. I prefer to be a realist. I’m not a romantic really.
+ - The world is filled with violence. Because criminals carry guns, we decent law-abiding citizens should also have guns. Otherwise they will win and the decent people will loose.
+ - If you expect someone else to guide you, you’ll be lost.
+ - People who lusted after Marilyn Monroe had no idea she stuttered. It is the secret of her sexiness, actually.
+ - Trying to make someone fall in love with you is about as pointless as trying to control who you fall in love with.
+ - I think stutterers are funny. And I know it’s rude and politically incorrect to laugh at stutterers. But I think it is okay because I know why they’re funny. They make people nervous. People think, when on earth are they going to get the word out, so they start laughing out of their own nervousness.
+ - I agree with my father, Albert Einstein, don’t believe every quote you read on the internet.
+ - I mean, my people were very, very simple. They were peasant people, you know?
+ - One day, my youngest uncle – the other one who was first to go to college, Randy – and I were sitting out on the front porch. And he was brilliant. He ended up – he just retired from Boeing Aircraft in Wichita, Kansas.
+ - I really think I ambled through a lot of my life, or ambled from one thing to the other.
+ - Writing can give full meaning to characters and avoid pure stereotype.
+ - In the wintertime, in the snow country, citrus fruit was so rare, and if you got one, it was better than ambrosia.
+ - There is not enough magic in a bloodline to forge an instant, irrevocable bond.
+ - My grandmother had the most dramatic effect on my life because she set me in one direction, and I had to go back the other direction for my sanity, and for my ability to be a social human being.
+ - You weren’t going to the theatre to change the world, but you had a chance to affect the world, the thinking and the feelings of the world.
+ - My youngest uncle Randy and I were the first members of our entire family to ever go to college.
+ - My grandmother though, began to prepare in her own neurotic – and I think psychotic – way to face racism. So she taught us to be racist, which is something I had to undo later when I got to Michigan, you know.
+ - So by the time I got to Michigan I was a stutterer. I couldn’t talk. So my first year of school was my first mute year and then those mute years continued until I got to high school.
+ - Actors never discuss future plans.
+ - I love doing commercials! Usually, they have enough money that they can take time and photograph it well.
+ - Acting is not about anything romantic, not even fantasy, although you do create fantasy.
+ - So I was determined to use my last two years in college doing something I thought I would enjoy, which was acting. And it was probably because there was girls over in the drama school too, you know?
+ - It has to be real, and I think a lot of the problems we have as a society is because we don’t acknowledge that family is important, and it has to be people who are present, you know, and mothers and fathers, both are not present enough with children.
+ - Even during the rationing period, during World War II, we didn’t have the anxiety that we’d starve, because we grew our own potatoes, you know? And our own hogs, and our own cows and stuff, you know.
+ - I’d like to film a British commercial; they’re better than American ones.
+ - I knew real show business from my father, who had been an actor since he left the world of boxing.
+ - When I was in New York after I left the Army, I studied for two years at the American Theater Wing, studied acting, which involved dance and fencing and speech classes and history of theater, all that.
+ - The last thing I want to be is a rich black superstar. I just want to act.
+ - I got out of the Army – in my world – I came to New York, for instance, when the civil rights movement was just beginning, and that created a certain energy, a certain rumble, a certain impetus for black actors.
+ - We used to be “shiftless and lazy,” now we’re “fearsome and awesome.” I think the black man should take pride in that.
+ - So in my junior year, I switched to the drama department.
+ - The goal wasn’t to be a millionaire or to be a Hollywood star. That was not the goal. The goal was something about – the goal was to find the goal, but I knew where it was.
+ - I do not know if it is true that all actors want to direct and all directors want to act, but in 1972 I tried directing and decided I had better stick to acting.
+ - You sang in church, you know, and you didn’t act at all. You tried not to act, you tried to tell the truth. The idea of being a troubadour on the road singing for your supper was very disturbing to him.
+ - I was as content Off-Broadway as I was in a big Hollywood movie, and, I just try to be content wherever I am, you know.
+ - I happened to happened to land in a time, in the middle ’60s, that without knowing it, and without being told by the history of theater – which we now see from a historical point of view was an explosive time.
+ - Once you begin to explain or excuse...
+ - Reading was a big thing, yes. Books were a big thing. But the things that stick out were the newspapers.
+ - We children learned responsibility automatically.
+ - Once you begin to explain or excuse all events on racial grounds, you begin to indulge in the perilous mythology of race.
+ - I think the extent to which I have any balance at all, any mental balance, is because of being a farm kid and being raised in those isolated rural areas.
+
+63 quotes

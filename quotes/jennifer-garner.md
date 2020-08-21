@@ -1,0 +1,77 @@
+ - Happiness is your own responsibility.
+ - Beauty comes from a life well lived. If you’ve lived well, your smile lines are in the right places.
+ - My parents came from a poor background and worked their way up because of education. They saw it as a way to succeed. So they cared about me getting straight A grades when I was growing up.
+ - My mother is a big believer in being responsible for your own happiness. She always talked about finding joy in small moments and insisted that we stop and take in the beauty of an ordinary day. When I stop the car to make my kids really see a sunset, I hear my mother’s voice and smile.
+ - And now, I still really don’t care that much but now I have music playing all the time at home, which is a first for me. Whatever. Everything from Ani DiFranco to Dave Matthews to Jack Johnson and Norah Jones.
+ - I want my girls to love math. I want them to think that being a scientist is the coolest possible job on the planet. I want them to not be afraid to lean toward their femininity.
+ - I’m still conflict-averse. I don’t like to argue.
+ - In my teens, I was never part of the cool crowd.
+ - My mom is a hard worker. She puts her head down and she gets it done. And she finds a way to have fun. She always says, ‘Happiness is your own responsibility.’ That’s probably what I quote from her and live by the most.
+ - I am the model middle child. I am patient and I like to take care of everyone. Being called nice is a compliment. It’s not a boring way to describe me.
+ - I wish I was one of those cute pregnant girls who wear skinny jeans throughout their pregnancies. But I just gain weight.
+ - I do like having my ears pierced, because there’s a lot more choice in pierced earrings than there is with clip-ons, and they’re a lot more comfortable to wear – Sometimes I completely forget I’ve got them in and end up going to sleep wearing them.
+ - I do all my own stunts!
+ - I don’t think that because you are a perfectionist that that makes you necessarily automatically unlikable.
+ - Women should take care of each other, not tear each other down.
+ - I have this internal battle between, I need to work, I need to work, I need to work and I need to be home with my kids. And the kids win.
+ - I’m still really close with everyone at home and their parents – and their brothers and sisters. I was so, so, so lucky to grow up as part of a community and I don’t take that for granted. I try very hard to stay part of it.
+ - You stick to the script, the script is Bible.
+ - My world was a community ballet school, a marching band, my two sisters and my girlfriends. I played saxophone in the band and was a bit nerdy.
+ - My mom grew up in poverty in Oklahoma – like Dust Bowl, nine people in one room kind of place – and the way she got out of poverty was through education. My dad grew up without a dad, with very little and he also made his way out through education.
+ - I certainly never expected to be in front of a camera one day of my life.
+ - I don’t have this fantasy about marriage anymore. Everyone says it takes hard work. Well, it kind of does – and I’m much more pragmatic about romance than I used to be.
+ - My big sister Melissa, is such a stud and my little sister Suzanna, has always had a perfect body and big blue eyes. We were a force.
+ - My parents started with very little and were the only ones in their families to graduate from college. As parents, they focused on education, but did not stop at academics – they made sure that we knew music, saw art and theatre and traveled – even though it meant budgeting like crazy.
+ - You can do a lot with Scotch tape. Almost anything! I love that you can hem a dress, and its an instant remedy in a fashion crises.
+ - I am not pregnant, but I’ve had three kids, and there is a ‘bump.’ From now on, ladies, I will have a ‘bump’ and it will be my ‘baby bump,’ and let’s just all settle in and get used to it. It’s not going anywhere.
+ - I hoped, hoped, that maybe I’d be lucky enough to do something on Broadway, in the chorus.
+ - I think all of us have our inner 13-year-old a lot closer to the surface than we’re willing to admit even to ourselves.
+ - My mom gave me a good piece of advice. She said never marry a man thinking you can change him, and I think that starts from your first date when you’re in the seventh grade onwards. Women are fixers so we have to just not fix. Don’t fix.
+ - I am lucky to have had an attentive, curious and loving dad and heart-smart, down-to-earth, gifted mother. They changed the outlooks of their own lives and have never forgotten the people and organizations that helped them dream bigger than their circumstances should have allowed.
+ - I would roll up pennies to take the subway to work in Times Square. I was broke, but I was happy.
+ - I try to eat in a way that makes me feel good. If that means a little bite of chocolate I do that, but I try not to use food as a reward for myself.
+ - I’ve always been attracted to humor and funny people in general. It’s a joy to make people laugh, but it’s not as fun as laughing yourself.
+ - I’ve found out that I cannot pass up pizza without having some. I just can’t! my kids have a lot of pizza. I can’t go to a kid’s birthday party without having a slice.
+ - I’d rather be the bloke laughing at other people. I don’t need to make people laugh. I surround myself with funny people. I laugh all the time.
+ - I feel lucky, though, because even when ‘Alias’ was popular, I was still sent scripts against type. I’ve never felt like the world only sees me one way. But yes, it’s been really fun to be bad.
+ - I don’t understand how women can manage to get back in shape with a new baby and a job.
+ - The outside world can be very tough.
+ - My mother and father always supported my passion for acting. I think they just kind of expected me to move to New York and become an actress and have all these adventures.
+ - But I’ll never be one of those women who feel that they always have to wear earrings and aren’t properly dressed without them.
+ - I just try work out at least twice a week if I can.
+ - I know I live a charmed, beautiful life and nobody wants to hear a celebrity whine. The last thing I want to do is complain; I love what I do and I know every job comes with a downside.
+ - I was a ballet dancer and that kind of bled into musical theater. I was constantly in rehearsal for one thing or another.
+ - My mom has always said that the one thing she wishes she had done differently is have a job. She felt like the single-mindedness made her a little nuts sometimes, and she could have used an outlet for herself when we were little.
+ - I have always been drawn to child-related causes. I find that people listen to me more when I advocate for children now that I have my own.
+ - I never had a problem resisting somebody that I knew was going to break my heart.
+ - I mean, I didn’t ever watch ‘Gilligan’s Island’ and think, ‘Those people are actors.’ I lived in West Virginia. Hollywood just felt like this total other universe.
+ - I thought the divorce statistics would never apply to me. I was beyond heartbroken when they did. But I got up and got on with it. I also kept my belief in marriage.
+ - We all have a responsibility to volunteer somewhere and I’m lucky that I get the education and get taken to places to see what’s out there and see what’s happening and to then be a part of it in hopefully an impactful way.
+ - I love the feeling of being on a team, rehearsing together, sharing a dressing room – I love that so much.
+ - No matter what, it is very tricky and difficult just to be a good parent at all. I have a lot of help. And for that I’m very grateful.
+ - I love being physical and acting at the same time.
+ - I don’t know anyone who was never a geek, really, when they look at their own lives. I think that from the outside looking in, you think that you weren’t necessarily a tragic geek, but yes, you did lean in that direction.
+ - I do think about aging. I have those moments of panic and vanity, but life keeps getting better, so you can’t worry about it too much.
+ - I wasn’t a woman who stayed tiny like I thought I would. I definitely gave myself the freedom to eat what I wanted.
+ - It’s not a bad thing, is it, to be strong in some ways and fragile and vulnerable in others?
+ - You know how as a kid you picture yourself with a tall, handsome husband, and you imagine him cuddling your baby? Ben is like that, like, on crack.
+ - My mom was really vigorous about making sure that we saw things and that we questioned things. Education was so important to both of my parents.
+ - To become a classical ballerina, you have to move to New York when you’re 12 or 11 and that becomes your life. I just wanted to be good in my company in Charleston and I wanted it to always be part of my life.
+ - I think that baseball games are like soap operas. If you watch five in a row, you know enough to get hooked.
+ - And you can’t hide in a comedy scene either. You have to give in to the scene and commit.
+ - I’ve made my mind up that I will only do a film that I really, really love. I’m determined to lie low until a role comes along that really makes me want to work.
+ - Going after ‘the bad guy’ has not been a real issue for me.
+ - I’m privileged, because I have a lot of freedom. I want to use it to make as warm and normal a life as I can for our daughters.
+ - You’re supposed to look a certain way when you’re a celebrity, but I want to take care of my baby, and those two things don’t mesh very well.
+ - I always, always meant to be on stage. I only ended up even auditioning for television and movies because I was understudying a Turgenev play on Broadway and was so broke that, when I got a mini-series, I had to take it and was so ashamed because I was such a snob.
+ - You can choose to be civil or not be civil. What is the point of going through the day and think it’s cool to wear your honesty on your sleeve at the expense of everyone around you?
+ - I am usually part of any disaster at a wedding if I’m a bridesmaid, which I’ve been lucky enough to be several times.
+ - I think that it’s not as crazily different, my job, from anyone else’s, as people let themselves believe. I think people get wrapped up in their own idea of what it is, but it’s really not that.
+ - The rule with marriage is the less you talk about it the better, as far as I can tell.
+ - I knew we were going to marry someday, but I was absolutely surprised when he actually proposed. And surprised he had bought a ring. I ran around the yard screaming.
+ - I mean, the Men in Hollywood event is every day. It’s called Hollywood.
+ - I mean, any time an actress gets to work with another actress, it’s like, ‘Oh, there are two of us in a movie! How are you? Let’s sit in the hair chair together!’ We’re lonely women.
+ - I will tell you what I can’t abide – and I think the Internet has really created a space for it – women criticizing other women and mothers criticizing other mothers.
+ - Well, you can’t be trying to achieve success of any kind in this business without accepting that there’s going to be a flip side to it.
+
+75 quotes

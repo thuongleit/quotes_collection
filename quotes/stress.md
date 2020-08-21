@@ -1,0 +1,42 @@
+ - Ten years from now you’ll laugh at whatever’s stressing you out today. So why not laugh now? ~~Tony Robbins
+ - Its not stress that kills us, it is our reaction to it. ~~Hans Selye
+ - Working hard for something we don’t care about is called stress; working hard for somthing we love is called passion. ~~Simon Sinek
+ - All stress begins with one negative thought. ~~Rhonda Byrne
+ - If you’re doing your best, you won’t have any time to worry about failure. ~~H. Jackson Brown Jr.
+ - Here’s a two step formula for handling stress. Step number one: Don’t sweat the small stuff. Step number two: Remember it’s all small stuff. ~~Tony Robbins
+ - In order to realize the worth of the anchor we need to feel the stress of the storm. ~~Corrie ten Boom
+ - I have no stress, because I am the best. ~~Lil Wayne
+ - Make jokes. No stress. Love. Live Life. Proceed. Progress. ~~Lil Wayne
+ - Take the shortest route. The one that nature planned – to speak and act in the healthiest way. Do that, and be free of pain and stress, free of all calculations and pretension. ~~Marcus Aurelius
+ - Continuous learning is the minimum requirement for success in any field. ~~Brian Tracy
+ - Go after what it is that creates meaning in your life and then trust yourself to handle the stress that follows. ~~Kelly McGonigal
+ - Remove stress from the body and the body regenerates itself. You can heal yourself. ~~Rhonda Byrne
+ - The adrenaline and stress of an adventure are better than a thousand peaceful days. ~~Paulo Coelho
+ - One of the symptoms of an approaching nervous breakdown is the belief that one’s work is terribly important. ~~Bertrand Russell
+ - To be totally without stress is to be dead. ~~Hans Selye
+ - I realise that stress is only fear. I now release all fears. ~~Louise Hay
+ - Getting stress out of your life takes more than prayer alone. You must take action to make changes and stop doing whatever is causing the stress. You can learn to calm down in the way you handle things. ~~Joyce Meyer
+ - Make the decision and say, “I’m not letting that worry in. I’m done being upset when my plans don’t work out. I’m not letting that stress in.” Negative thoughts will still come to your mind, but you don’t have to let them into your spirit. ~~Joel Osteen
+ - Drop Thy still dews of quietness, Till all our strivings cease; Take from our souls the strain and stress, And let our ordered lives confess The beauty of Thy peace. ~~John Greenleaf Whittier
+ - Stress comes from within; it is your reaction to circumstances, not the circumstances themselves. ~~Brian Tracy
+ - For fast-acting relief try slowing down. ~~Lily Tomlin
+ - Stress is caused by being here but wanting to be there, or being in the present but wanting to be in the future. It’s a split that tears you apart inside. ~~Eckhart Tolle
+ - Sometimes we need to let go of things in our lives to make room for better things. Stress less and live more. Don’t waste your energy, when you have the choice to be happy. ~~Brian Tracy
+ - The human mind has a primitive ego defense mechanism that negates all realities that produce too much stress for the brain to handle. It’s called Denial. ~~Dan Brown
+ - When pressure builds up, don’t panic. Pray! Prayer is a tremendous stress reliever. It can be your safety valve. ~~Rick Warren
+ - After a certain point, a heart with so many stress fractures can never be anything but broken. ~~Jodi Picoult
+ - The ties that bind us are stronger than the occasional stresses that separate us. ~~Colin Powell
+ - Adopting the right attitude can convert a negative stress into a positive one. ~~Hans Selye
+ - Dear God, I give this time of quiet to You. Please dissolve my thoughts of stress and fear And deliver me to the inner place Where all is peace and love. Amen. ~~Marianne Williamson
+ - Entertainment is about taking people away from the regular order of things when there is some chaos and pain and stress. ~~Michael Jackson
+ - Letting go helps us to live in a more peaceful state of mind and helps restore our balance. It allows others to be responsible for themselves and for us to take our hands off situations that do not belong to us. This frees us from unnecessary stress. ~~Melody Beattie
+ - Alcohol and marijuana, if used in moderation, plus loud, usually low-class music, make stress and boredom infinitely more bearable. ~~Kurt Vonnegut
+ - I could imagine God saying to a lot of us, “Hey, I’m God, and you’re not. You’re not the general manager of the universe.” And the greatest stress reliever is take God seriously, but don’t take yourself seriously. ~~Rick Warren
+ - The biggest killer on the planet is stress and I still think the best medicine is and always has been cannabis. ~~Willie Nelson
+ - I’m a person who has a lot of energy. So, yes, I don’t really stop to rest or de-stress. I just keep going. I figure that if you don’t stop, then you’ll never notice how tired you are. ~~Zooey Deschanel
+ - I don’t want to take a pill. Go to Africa, go follow some bushman around. He’s being chased by a lion. That’s stress. You’re not going to find a pygmy on Paxil, I’ll tell you that right now. ~~Ellen DeGeneres
+ - An entrepreneur assumes the risk and is dedicated and committed to the success of whatever he or she undertakes. ~~Victor Kiam
+ - Before anything else, preparation is the key to success. ~~Alexander Graham Bell
+ - A big part of financial freedom is having your heart and mind free from worry about the what-ifs of life. ~~Suze Orman
+
+40 quotes

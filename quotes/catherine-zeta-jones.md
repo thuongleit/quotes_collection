@@ -1,0 +1,69 @@
+ - I try and stay positive; being negative isn’t good for my personality. I don’t just bring myself down, I bring everyone around me down. It’s like a dark cloud, ‘Uh oh, here we go,’ and have to snap out of it.
+ - There is no need to suffer silently and there is no shame in seeking help.
+ - I was really hyperactive as a kid and no one knew how or where I got all this energy.
+ - If my revelation of having bipolar II has encouraged one person to seek help, then it is worth it. There is no need to suffer silently and there is no shame in seeking help.
+ - I think egg boiling is the hardest thing I’ve ever done, but I can make a tiramisu anytime you want.
+ - I get a bit gloomy when it’s gloomy.
+ - A great politician has great charisma.
+ - Being glamorous is about strength and confidence. It’s black and white – dramatic. You have to be strong.
+ - I’m quite a broad girl, not at all delicate. I watch what I eat to stay in shape, but I’m against diets. I eat when I’m hungry, three meals a day.
+ - I used to go around looking as frumpy as possible because it was inconceivable you could be attractive as well as be smart. It wasn’t until I started being myself, the way I like to turn out to meet people that I started to get any work.
+ - I love my job but it takes a lot for me to leave my kids, leave my husband and leave my dogs.
+ - Motherhood to me is something that I always wanted, but never quite knew how it was going to happen.
+ - I do a lot of swimming, both in the ocean and in the pool.
+ - I grew up in a small, strictly-Catholic fishing village on the coast of Wales. The people there have a different attitude to life than those in Hollywood – people stick together more.
+ - I think, especially in our business we meet a lot of people, and sometimes you spend so much time being nice to strangers, and so, you know, keeping a clear head and just being nice to each other. And that’s all the advice I can give.
+ - I have a ballet barre in my gym. I turn the music up so loud that the walls are pulsating, and I go for it for an hour.
+ - I hated grunge. No one’s more feminist than me, but you don’t have to look as if you don’t give a – you know. You can be smart, bright, and attractive aesthetically to others – and to yourself.
+ - I don’t know, ‘Zorro’ was just so great for me because, knowing where I came from, everyone spoke Spanish to me, like, forever after that. And I’m, like, from Wales.
+ - After Zorro, people spoke Spanish to me for ages. I’m Welsh but that movie instantly gave me a new ethnicity.
+ - I love my lawyer. I have to say that of course!
+ - I like ‘Zorro.’ I like people you can believe that don’t have those stupid powers. That is the beauty of Zorro. He’s just a guy working for the people, to save the people.
+ - I buy shoes sometimes and use them as bookends. They’re too beautiful to wear.
+ - I am strong-willed, which can be annoying sometimes. And from that I think people assume I have confidence and Hollywood glamour and all that stuff, when actually, in my personal life, sometimes I’m just a goofball.
+ - Yes, I was in love with my husband at first sight and still am. We have the most solid relationship.
+ - I love to eat an apple after a meal, just to cleanse my teeth – they always look polished afterwards.
+ - I don’t deny myself food. I’m no saint. I love butter and cream, but I also eat lots of grains and fruits.
+ - I’m more insecure than I ever let anyone know. Sometimes you protect yourself with this kind of armor that people see more than they see you.
+ - I do condition my hair with honey and beer. I smell like the bottom of a beer barrel for days afterwards, but it’s very good for the hair.
+ - I may be the first actress to admit that beauty doesn’t hold you back. I think beauty is a gift that you have to make the most of. I’ve worked hard at trying to look my best.
+ - In Wales it’s brilliant. I go to the pub and see everybody who I went to school with. And everybody goes ‘So what you doing now?’ And I go, ‘Oh, I’m doing a film with Antonio Banderas and Anthony Hopkins.’ And they go, ‘Ooh, good.’ And that’s it.
+ - I wish I was born in that era: dancing with Fred Astaire and Gene Kelly, going to work at the studio dressed in beautiful pants, head scarves, and sunglasses.
+ - The smartest thing I did was to stop going online. I’m the sort of person who will just look for the negative – Michael really can’t understand it, but that’s just the way I am. And with my bipolar thing, that’s poison. So I just stopped. Cold turkey. And it’s so liberating.
+ - It’s true, I don’t like the whole cutoff-shorts-and-T-shirt look, but I think you can look fantastic in casual clothes.
+ - He taught me the difference between a good single malt whisky and a bad one.
+ - I eat like a horse – my mother still brings me Cadbury’s chocolate from Britain; I do have a very healthy appetite – but I work out.
+ - I’m obsessed with hula-hooping. I do it for 20 minutes a day. I don’t use the old-fashioned hollow plastic kind we had when we were kids, but I discovered a new one at Danskin that’s smaller and weighted.
+ - I’m a terrible cook. I am not allowed to go in the kitchen anymore after I almost burned down the apartment in New York.
+ - I came out of the womb wearing make-up!
+ - I do think I’m lucky I met Michael. Not just Michael Douglas the actor and producer with two Oscars on the shelf, but Michael Douglas, the love of my life. I really do think it was meant to happen.
+ - Words impress me. If a man can speak eloquently and beautifully to me, I just melt on the floor.
+ - I don’t eat carbs after 17h00 and I drink skimmed milk.
+ - When I first met Sean Connery he was as charming and wonderful as I first anticipated. I left Rome thinking: even if I don’t do this, at least I have had a day with Sean.
+ - If I’m going to leave my family for any length of time, it had better be for a role that I haven’t played before, with great people. It had better be fun.
+ - I find divorces repulsive. I will never get divorced, never.
+ - I think pre-nups are brilliant. I get very well taken care of.
+ - My mother always told me that no matter how late it is, you take your makeup off. Take it off!
+ - I rub a mixture of honey and salt all over my body to moisturise and exfoliate. You wash it off and your skin is gorgeous.
+ - I believe I was born to breed.
+ - I’ve always wanted to hunt another human being for sport, even though I know his fear will taint the taste of the meat.
+ - All of a sudden I had a baby, because it went really quick. It was like, ‘Oh! I have a baby!’ So, it’s great. I’m just having a great time with my children. They’re here in New York with me.
+ - For marriage to be a success, every woman and every man should have her and his own bathroom. The end.
+ - I was like any new bride, who said, ‘I’m going to cook for my man.’ In fact, once I started a small kitchen fire in a pan. Smoke was pouring from the pan, and I got really scared. Right next to our stove is a small fire extinguisher. You know, easy access.
+ - If my husband’s going to kiss anybody, let it be Matt Damon.
+ - I’m intimidated every day I go on the stage and everyday I go on a movie set. It’s terrifying and I always want to reshoot the first day or the first week, I’m so terrified.
+ - Everyone knows we get paid a lot of money, so why pretend otherwise?
+ - I didn’t even think about movies where I came from. I wanted to be on the stage.
+ - I remember growing up knowing I wanted to be on the stage. I wanted to get to London as soon as possible and start auditioning for theater.
+ - When you are 20, 40 looks really old. When I was nearing 30, that seemed like a major milestone.
+ - I don’t have a trainer. Crazy, right? But I don’t need anyone to motivate me. I love exercise, even things like the elliptical and stretching.
+ - I have siblings. And there are certain things I know that I can push their buttons. And they know they have certain things where they can push mine.
+ - There are a lot of women who live with pot-bellied pigs.
+ - We recently had an extension built, to house a closet. It’s like the Tardis – I go in there and never come out.
+ - I’d love to do a show in Vegas with drag queens. The tackier the better.
+ - There are people who expect me to look the way I do on-screen, where I have a great director of photography and fantastic lighting. I’m sorry to disappoint people, but I don’t look like that all the time – no actress does.
+ - In Hollywood everything is so documented. If you go for a drink with somebody, it’s passed around the world so quickly. So, yes, divorce is talked about a lot, but it’s so much more fun to be able to spin it with dark humour, rather than talk about real people’s divorces.
+ - I had – along with my singing and dancing, I was very happy to be born in the hometown of Dylan Thomas. So the government was financing dramatic groups and amateur dramatics and stuff like that.
+ - I love ‘The War Of The Roses,’ especially as my husband is in it! I’ve often said to him it would be great to remake that with me and him in it, because then we could really get down to some serious business.
+
+67 quotes

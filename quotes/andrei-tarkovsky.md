@@ -1,0 +1,60 @@
+ - Unspoken feelings are unforgettable.
+ - An artist who has no faith is like a painter who was born blind.
+ - If you try to please audiences, uncritically accepting their tastes, it can only mean that you have no respect for them: that you simply want to collect their money.
+ - Unlike all the other art forms, film is able to seize and render the passage of time, to stop it, almost to possess it in infinity. I’d say that film is the sculpting of time.
+ - If the regular length of a shot is increased, one becomes bored, but if you keep on making it longer, it piques your interest, and if you make it even longer, a new quality emerges, a special intensity of attention.
+ - The death of childhood is the beginning of poetry.
+ - Relating a person to the whole world: that is the meaning of cinema.
+ - Of course life has no point. If it had, man would not be free.
+ - If you look for a meaning, you’ll miss everything that happens.
+ - Where am I when I’m not in reality or in my imagination?
+ - A man writes because he is tormented, because he doubts. He needs to constantly prove to himself and the others that he’s worth something. And if I know for sure that I’m a genius? Why write then? What the hell for?
+ - Being silent for a while is good. Words can’t really express a person’s emotions.
+ - A book read by a thousand different people is a thousand different books.
+ - Never try to convey your idea to the audience – it is a thankless and senseless task. Show them life, and they’ll find within themselves the means to assess and appreciate it.
+ - Art would be useless if the world were perfect.
+ - The meaning of religious truth is hope.
+ - I think a person needs to learn from childhood to find himself alone. It means to not be bored when you’re by yourself, because a person who finds himself bored when alone –as it seems to me– is in danger.
+ - We have forgotten to observe. Instead of observing, we do things according to patterns.
+ - Some sort of pressure must exist; the artist exists because the world is not perfect. Art would be useless if the world were perfect, as man wouldn’t look for harmony but would simply live in it. Art is born out of an ill-designed world.
+ - The artist is always a servant, and is perpetually trying to pay for the gift that has been given to him as if by miracle. Modern man, however, does not want to make any sacrifice, even though true affirmation of self can only be expressed in sacrifice.
+ - Above all, I feel that the sounds of this world are so beautiful in themselves that if only we could listen to them properly, cinema would have no need for music at all.
+ - My purpose is to make films that will help people to live, even if they sometimes cause unhappiness.
+ - The Stalker seems to be weak, but essentially it is he who is invincible because of his faith and his will to serve others.
+ - Art is born out of an ill-designed world.
+ - Art is born and takes hold wherever there is a timeless and insatiable longing for the spiritual.
+ - My function is to make whoever sees my films aware of his need to love and to give his love, and aware the beauty is summoning him.
+ - All of us are infected today with an extraordinary egoism. And that is not freedom; freedom means learning to demand only of oneself, not of life and others, and knowing how to give: sacrifice in the name of love.
+ - I think in fact that unless there is an organic link between the subjective impressions of the author and his objective representation of reality, he will not achieve even superficial credibility, let alone authenticity and inner truth.
+ - A literary work can only be received through symbols, through concepts – for that is what words are; but cinema, like music, allows for utterly direct, emotional, sensuous perception of the work.
+ - History is not Time; nor is evolution. They are both consequences. Time is a state: the flame in which there lives the salamander of the human soul.
+ - I know only one thing. when i sleep, i know no fear, no, trouble no bliss. blessing on him who invented sleep. the common coin that purchases all things, the balance that levels shepherd and king, fool and wise man. there is only one bad thing about sound sleep. they say it closely resembles death.
+ - I am only interested in the views of two people: one is called Bresson and one called Bergman.
+ - Art is realistic when it strives to express an ethical ideal. Realism is striving for truth, and truth is always beautiful. Here the aesthetic coincides with the ethical.
+ - Never trouble anyone else with what you can do yourself.
+ - Poetry is an awareness of the world, a particular way of relating to reality.
+ - People who grow bored in their own company seem to me in danger.
+ - The artist has a duty to be calm. He has no right to show his emotion, his involvement, to go pouring it all out at the audience. Any excitement over a subject must be sublimated into an Olympian calm of form. That is the only way in which an artist can tell of the things that excite him.
+ - For me the most interesting characters are outwardly static, but inwardly charged by an overriding passion.
+ - An artist needs knowledge and the power of observation only so that he can tell from what he is abstaining, and to be sure that his abstention will not appear artificial or false.
+ - We know perfectly well that neither love nor peace of mind can be bought with any currency.
+ - Objectivity can only be the author’s and therefore subjective, even if he is editing a newsreel.
+ - When I speak of poetry I am not thinking of it as a genre. Poetry is an awareness of the world, a particular way of relating to reality. So poetry becomes a philosophy to guide a man throughout his life.
+ - The idea of infinity cannot be expressed in words or even described, but it can be apprehended through art, which makes infinity tangible. The absolute is only attainable through faith and in the creative act.
+ - Perhaps the meaning of all human activity lies in artistic consciousness, in the pointless and selfless creative act? Perhaps our capacity to create is evidence that we ourselves were created in the image and likeness of God?
+ - I am convinced that any attempt to restore harmony in the world can only rest on the renewal of personal responsibility.
+ - I have a horror of tags and labels. I don’t understand, for instance, how people can talk about Bergman’s “symbolism”. Far from being symbolic, be seems to me, through and almost biological naturalism, to arrive at the spiritual truth about human life that is important to him.
+ - The allotted function of art is not, as is often assumed, to put across ideas, to propagate thoughts, to serve as an example. The aim of art is to prepare a person for death, to plough and harrow his soul, rendering it capable of turning to good.
+ - Man has, since the Enlightenment, dealt with things he should have ignored.
+ - Juxtaposing a person with an environment that is boundless, collating him with a countless number of people passing by close to him and far away, relating a person to the whole world, that is the meaning of cinema.
+ - The only condition of fighting for the right to create is faith in your own vocation, readiness to serve, and refusal to compromise.
+ - If we succeed with something, that is only because others are in need of what e have produced. And the more success we have with something, the more people require that we express it. So it goes without saying, as a result of this we in principle never win out, others win. We always lose.
+ - Knowledge is truthful only if it’s based in morality.
+ - It is perfectly possible to be a professional director or a professional writer and not to be an artist: merely a sort of executor of other people’s ideas.
+ - It is obvious that art cannot teach anyone anything, since in four thousand years humanity has learnt nothing at all.
+ - I have to say from the outset that not all prose can be transferred to the screen.
+ - Art could be said to be a symbol of the universe, being linked with that absolute spiritual truth which is hidden from us in our positivistic, pragmatic activities.
+ - An artist cannot be partially sincere any more than art can be an approximation of beauty.
+ - Becoming an artist does not merely mean learning something, acquiring professional techniques and methods. Indeed, as someone has said, in order to write well you have to forget the grammar.
+
+58 quotes

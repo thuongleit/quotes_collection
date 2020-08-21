@@ -1,0 +1,90 @@
+ - The telling of stories creates the real world.
+ - The starting point is a question.
+ - In the light, we read the inventions of others; in the darkness we invent our own stories.
+ - The love of libraries, like most loves, must be learned.
+ - Life happened because I turned the pages.
+ - At one magical instant in your early childhood, the page of a book – that string of confused, alien ciphers – shivered into meaning. Words spoke to you, gave up their secrets; at that moment, whole universes opened. You became, irrevocably, a reader.
+ - Not until I came to Canada did I realize that snow was a four-letter word.
+ - Ultimately, the number of books always exceeds the space they are granted.
+ - Maybe this is why we read, and why in moments of darkness we return to books: to find words for what we already know.
+ - Each book was a world unto itself, and in it I took refuge.
+ - As centuries of dictators have known, an illiterate crowd is the easiest to rule; since the craft of reading cannot be untaught once it has been acquired, the second-best recourse is to limit its scope.
+ - At night, here in the library, the ghosts have voices.
+ - In every literate society, learning to read is something of an initiation, a ritualized passage out of a state of dependency and rudimentary communication.
+ - But at night, when the library lamps are lit, the outside world disappears and nothing but the space of books remains in existence.
+ - If the library in the morning suggests an echo of the severe and reasonable wishful order of the world, the library at night seems to rejoice in the world’s essential, joyful muddle.
+ - If the Library of Alexandria was the emblem of our ambition of omniscience, the Web is the emblem of our ambition of omnipresence; the library that contained everything has become the library that contains anything.
+ - There is a line of poetry, a sentence in a fable, a word in an essay, by which my existence is justified; find that line, and immortality is assured.
+ - I have no feelings of guilt regarding the books I have not read and perhaps will never read; I know that my books have unlimited patience. They will wait for me till the end of my days.
+ - In a library, no empty shelf remains empty for long.
+ - A writer stops writing the moment he or she puts the last full stop to their text, and at that point the book is in limbo and doesn’t come to life until the reader picks it up and the reader flips the pages.
+ - A society can exist – many do exist – without writing, but no society can exist without reading.
+ - To say that an author is a reader or a reader an author, to see a book as a human being or a human being a book, to describe the world as text or a text as the world, are ways of naming the readers craft.
+ - One can transform a place by reading in it.
+ - In our day, computer technology and the proliferation of books on CD-ROM have not affected – as far as statistics show – the production and sale of books in their old-fashioned codex form.
+ - In the books by Ruy-Sanchez we find again the erotic conviction that allows us to read with all the skin. The erotic, in his narratives is not a subject or a phrase, it is the clay of what they are made. In his novels every experience, trivial or extraordinary, breaths through the erotic.
+ - Reading is the occupation of the insomniac par excellence.
+ - For Borges, the core of reality lay in books; reading books, writing books, talking about books. In a visceral way, he was conscious of continuing a dialogue begun thousands of years before and which he believed would never end.
+ - Slothful, feeble, pretentious, pedantic, elitist – these are some of the epithets that eventually become associated with the absent minded scholar, the poor sighted reader, the book worm, the nerd.
+ - The shelves of books we haven’t written, like those of books we haven’t read, stretches out into the darkness of the universal library’s farthest space. We are always at the beginning of the beginning of the letter A.
+ - In my fool hardy youth, when my friends were dreaming of heroic deeds in the realms of engineering and law, finance and national politics, I dreamt of becoming a librarian.
+ - During the day, the library is a realm of order.
+ - Every reader exists to ensure for a certain book a modest immortality. Reading is, in this sense, a ritual of rebirth.
+ - Reading in bed is a self-centered act, immobile, free from ordinary social conventions, invisible to the world, and one that, because it takes place between the sheets, in the realm of lust and sinful idleness, has something of the thrill of things forbidden.
+ - Every library is a library of preferences, and every chosen category implies an exclusion.
+ - Old books that we have known but not possessed cross our path and invite themselves over. New books try to seduce us daily with tempting titles and tantalizing covers.
+ - I know that something dies when i give up my books, and that my memory keeps going back to them with mournful nostalgia.
+ - Unicorns, dragons, witches may be creatures conjured up in dreams, but on the page their needs, joys, anguishes, and redemptions should be just as true as those of Madame Bovary or Martin Chuzzlewit.
+ - We read to understand, or to begin to understand. We cannot do but to read. Reading almost as much as breathing, is our essential function.
+ - In the dark, with the windows lit and the rows of books glittering, the library is a closed space, a universe of self-serving rules that pretend to replace or translate those of the shapeless universe beyond.
+ - Unpacking books is a revelatory activity.
+ - If every library is in some sense a reflection of its readers, it is also an image of that which we are not, and cannot be.
+ - Digestion of words as well; I often read aloud to myself in my writing corner in the library, where no one can hear me, for the sake of better savouring the text, so as to make it all the more mine.
+ - Our books will bear witness for or against us, our books reflect who we are and who we have been, our books hold the share of pages granted to us from the Book of Life. By the books we call ours we will be judged.
+ - My books hold between their covers every story I’ve ever known and still remember, or have now forgotten, or may one day read; they fill the space around me with ancient and new voices.
+ - We are losing our common vocabulary, built over thousands of years to help and delight and instruct us, for the sake of what we take to be the new technology’s virtues.
+ - The readers who commited suicide after reading ‘Werther’ were not ideal but merely sentimental readers.
+ - I don’t remember ever feeling lonely; in fact, on the rare occasions when I met other children I found their games and their talk far less interesting than the adventures and dialogues I read in my books.
+ - As readers, we have gone from learning a precious craft whose secret was held by a jealous few, to taking for granted a skin that has become subordinate to principles of mindless financial profit or mechanical efficiency, a skill for which governments care almost nothing.
+ - A book brings its own history to the reader.
+ - I like to imagine that, on the day after my last, my library and I will crumble together, so that even when I am no more I’ll still be with my books.
+ - I can understand that there are those who can think and imagine the world without words, but I think that once you find the words that name your experience, then suddenly that experience becomes grounded, and you can use it and you can try to understand it.
+ - Every reader has found charms by which to secure possession of a page that, by magic, becomes as if never read before, fresh and immaculate.
+ - From fire, water, the passage of time, neglectful readers, and the hand of the censor, each of my books has escaped to tell me its story.
+ - I wanted to live among books.
+ - One book calls to another unexpectedly, creating alliances across different cultures and centuries.
+ - The world encyclopedia, the universal library, exists, and it is the world itself.
+ - The listeners who buy books after a reading multiply that reading; the author who realizes that he or she may be writing on a blank page but is at least not speaking to a blank wall may be encouraged by the experience, and write more.
+ - The association of books with their readers is unlike any other between objects and their users.
+ - Existing libraries, in their very being, seem to question the authority of those in power.
+ - If justice takes place, there may be hope, even in the face of a seemingly capricious divinity.
+ - In no way am I demeaning writing or any other form of art because it’s popular. What I’m saying is that anything fed into the industrial machinery to comply with rules of size and length and shelf-life has a hard time surviving as art.
+ - Reality deals in specifics under the guise of generalities. Literature does the contrary...
+ - Readers are bullied in schoolyards and in locker-rooms as much as in government offices and prisons.
+ - Books read in a public library never have the same flavour as books read in the attic or the kitchen.
+ - Through ignorance, through faith, through intelligence, through trickery and cunning, through illumination, the reader rewrites the text with the same words of the original but under another heading, re-creating it, as it were, in the very act of bringing it into being.
+ - I never talked to anyone about my reading; the need to share came afterwords.
+ - Every text assumes a reader.
+ - I always knew that I wanted to live with books, even as a child, because we traveled a lot. Home was the book to which I came back every evening.
+ - Readers, censors know, are defined by the books they read.
+ - A library is an ever-growing entity; it multiples seemingly unaided, it reproduces itself by purchase, theft, borrowings, gifts, by suggesting gaps through association, by demanding completion of sorts.
+ - The world that is a book is devoured bya reader who is a letter in the world’s text; thus a circular metaphor is created for the endlessness of reading; We are what we read.
+ - Socrates affirmed that only that which the reader already knows can be sparked by a reading, and that the knowledge cannot be acquired through dead letters.
+ - Deserted libraries hold the shades of writers who worked within, and are haunted by their absence.
+ - Darkness promotes speech.
+ - At different times and in different places I have come to expect certain books to look a certain way, and, as in all fashions, these changing features fix a precise quality onto a book’s definition. I judge a book by its cover; I judge a book by its shape.
+ - This morning I looked at the books on my shelves and thought that they have no knowledge of my existence. They come to life because I open them and turn their pages, and yet they don’t know that I am their reader.
+ - As we read a text in our own language, the text itself becomes a barrier.
+ - Entering a library, I am always stuck by the way in which a certain vision of the world is imposed upon the reader through its categories and its order.
+ - Nothing moves except my eyes and my hand occasionally turning a page, and yet something not exactly defined by the word “text” unfurls, progresses, grows and takes root as I read. But how does this process take place?
+ - All these are readers, and their gestures, their craft, the pleasure, the responsibility and the power they derive from reading, are common with mine. I am not alone.
+ - I’ve never really understood attachment to a place for reasons of birth. That my mother happened to give birth to me in a certain place doesn’t, to my mind, justify any thankfulness towards that place. It could have been anywhere.
+ - Evil requires no reason.
+ - It is in the translation that the innocence lost after the first reading is restored under another guise, since the reader is once again faced with a new text and its attendant mystery. That is the inescapable paradox of translation, and also its wealth.
+ - But a reader’s ambition knows no bounds.
+ - Our society accepts the book as a given, but the act of reading – once considered useful and important, as well as potentially dangerous and subversive – is now condescendingly accepted as a pastime, a slow pastime that lacks efficiency and does not contribute to the common good.
+ - I quickly learned that reading is cumulative and proceeds by geometrical progression: each new reading builds upon whatever the reader has read before.
+ - In any of my pages in any of my books may life a perfect account of my secret experience of the world.
+ - Most readers, then and now, have at some time experienced the humiliation of being told that their occupation is reprehensible.
+
+88 quotes

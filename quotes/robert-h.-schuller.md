@@ -1,0 +1,130 @@
+ - Tough times never last, but tough people do.
+ - Problems are not stop signs, they are guidelines.
+ - Let your hopes, not your hurts, shape your future.
+ - I’d rather attempt to do something great and fail than to attempt to do nothing and succeed.
+ - You will never win if you never begin.
+ - Today’s accomplishments were yesterday’s impossibilities.
+ - Build a dream and the dream will build you.
+ - Never cut a tree down in the wintertime. Never make a negative decision in the low time. Never make your most important decisions when you are in your worst moods. Wait. Be patient. The storm will pass. The spring will come.
+ - If you listen to your fears, you will die never knowing what a great person you might have been.
+ - Always look at what you have left. Never look at what you have lost.
+ - God’s delays are not God’s denials.
+ - The truth of the matter is that you always know the right thing to do. The hard part is doing it.
+ - The only place where your dream becomes impossible is in your own thinking.
+ - Spectacular achievement is always preceded by unspectacular preparation.
+ - Winning starts with beginning.
+ - Grace is God’s love in action for those who don’t deserve it.
+ - The secret of success is to find a need and fill it, to find a hurt and heal it, to find somebody with a problem and offer to help solve it.
+ - I love my son and am proud of my son.
+ - Never bring the problem solving stage into the decision making stage. Otherwise, you surrender yourself to the problem rather than the solution.
+ - Turn your scars into stars.
+ - Yes, you can be a dreamer and a doer too, if you will remove one word from your vocabulary: impossible.
+ - Start small; Think possibilities; Reach beyond your known abilities; Invest all you have in your dream; Visualize miracles; Expect to experience success.
+ - Success is never ending, failure is never final.
+ - Better to do something imperfectly than to do nothing perfectly.
+ - Press on. Obstacles are seldom the same size tomorrow as they are today.
+ - Failure doesn’t mean you are a failure it just means you haven’t succeeded yet.
+ - It is difficult to say what is impossible, for the dream of yesterday is the hope of today and the reality of tomorrow.
+ - High achievers spot rich opportunities swiftly, make big decisions quickly and move into action immediately. Follow these principles and you can make your dreams come true.
+ - Optimism refuses to believe that the road ends without options.
+ - When you are in your worst moods. Wait. Be patient. The storm will pass. The spring will come.
+ - Faith is the courage to face reality with hope.
+ - All it takes is one idea to solve an impossible problem.
+ - The good news is that the bad news can be turned into good news when you change your attitude.
+ - It takes but one positive thought when given a chance to survive and thrive to overpower an entire army of negative thoughts.
+ - I see the invisible. I believe the incredible. I attempt the impossible.
+ - Tough times never last, but tough people do. You might add, “You’re tougher than you give yourself credit for.”
+ - Never sell tomorrow short. There’s plenty to get excited about. Be filled with expectation, hope and confidence. Believe something good is going to happen – and it usually will.
+ - For every mountain, there is a miracle.
+ - Goals are not only absolutely necessary to motivate us. They are essential to really keep us alive.
+ - I believe that Christians believe in salvation by grace through faith in Jesus Christ, not by works. And we believe that if you’re saved, Jesus becomes your savior. He makes a promise to you. You can trust his promises. You can bank on that word.
+ - Inch by inch, it’s a cinch.
+ - Nothing is more important than honesty in prayer. There are no pretensions in prayer, so the best place to begin is wherever you are.
+ - It’s unfulfilled dreams that keep you alive.
+ - It takes guts to get out of the ruts.
+ - It’s impossible to fail completely and it’s impossible to succeed perfectly.
+ - Daring to dream means daring to live.
+ - I will! I am! I can! I will actualize my dream. I will press ahead. I will settle down and see it through. I will solve the problems. I will pay the price. I will never walk away from my dream until I see my dream walk away: Alert! Alive! Achieved!
+ - Never underestimate your problem or your ability to deal with it.
+ - Impossible situations can become possible miracles.
+ - Every problem has a limited life span.
+ - Anyone can count the seeds in an apple, but only God can count the number of apples in a seed.
+ - Big egos have little ears.
+ - Turn your scars into stars by realising how lucky you are that things aren’t worse.
+ - What appears to be the end of the road may simply be a bend in the road.
+ - Have faith in your faith-and doubt your doubts.
+ - Since it doesn’t cost a dime to dream, you’ll never shortchange yourself when you stretch your imagination.
+ - Todays impossibilities are tomorrows miracles.
+ - Be the artist you were born to be.
+ - When you can’t solve the problem, manage it.
+ - Commit yourself to a dream. Nobody who tries to do something great, but fails, is a total failure. Why? Because he can always be assured that he succeeded in life’s most important battle; he defeated the battle of not trying.
+ - Every burden is a blessing.
+ - Let your imagination release your imprisoned possibilities.
+ - Some people are at the top of the ladder, some are in the middle, still more are at the bottom, and a whole lot more don’t even know there is a ladder.
+ - The world of tomorrow belongs to the person who has the vision for today.
+ - The hardest struggle of all is to be something different from what the average man is.
+ - Creative words generate energy; negative words drain out energy.
+ - Faith is reacting positively to a negative situation.
+ - Again and again, the impossible problem is solved when we see that the problem is only a tough decision waiting to be made.
+ - You can think negatively or positively. If you are a positive thinker, you will base your decisions on faith rather than fear.
+ - Never make your most important decisions when you are in your worst moods.
+ - The only thing that stands between you and grand success in living are these two things: getting started and never quitting!
+ - Giving never moves in a straight line – it always moves in circles.
+ - If you are creative enough to imagine a problem, you’re clever enough to discover a solution.
+ - Possibility-thinking is the long sought-after fountain of youth.
+ - Lord, make my life A window for Your light To shine through And a mirror to reflect Your love To all I meet. Amen.
+ - As we grow as unique persons, we learn to respect the uniqueness of others.
+ - When the sun is shining I can do anything; no mountain is too high, no trouble too difficult to overcome. Only those who have learned the power of sincere and selfless contribution experience life’s deepest joy: true fulfillment. What great thing would you attempt if you knew you could not fail?
+ - I have discovered that you can go from nowhere to somewhere, from nothing to something, from a nobody to a somebody, from an empty person to a fulfilled one, if you have faith in God.
+ - Most people who succeed in the face of seemingly impossible conditions are people who simply don’t know how to quit.
+ - Never cut a tree down in the wintertime. Never make a negative decision in the low time.
+ - You never suffer from a money problem, you always suffer from an idea problem.
+ - Every human being is born without faith. Faith comes only through the process of making decisions to change before we can be sure it’s the right move.
+ - You will suddenly realize that the reason you never changed before was because you didn’t want to.
+ - If you will make a deliberate decision to develop a positive attitude toward opportunities and obstacles, you are on your way toward having what is the most important quality in education: the power of positive thinking.
+ - To be born again means that we must be changed from a negative to a positive self-image – from inferiority to self-esteem, from fear to love, from doubt to trust.
+ - When you are down to nothing, God is up to somethng. It is up to you to reach out to find what God is up to for you.
+ - God’s forgiving grace is incomplete until he gives me – and I accept – a new kingdom-building dream and opportunity.
+ - Doomed are the hotheads! Unhappy are they who lose their cool and are too proud to say, I’m sorry.
+ - If there exists no possibility of failure, then victory is meaningless.
+ - Now – find God’s dream for your life and go all out for it!
+ - Life is but a moment, death also is but another.
+ - You didn’t think that when you got up this morning that this would be the day your life would change did you? But it’s going to happen because the only thing that stands between you and grand success are getting started and not stopping.
+ - We all know that a church is not a building.
+ - Tremendous human energy is needed to walk God’s walk, work God’s work, fulfill God’s will, and complete his dream for our self-esteem.
+ - You know how many seeds are in an apple. But you don’t know how many apples are in a seed.
+ - I was called to start a mission, not a church. There is a difference.
+ - A mission is a place where you ask nonbelievers to come and find faith and hope and feel love.
+ - I am humanly unable to correct my negative self-image until I encounter a life-changing experience with non-judgmental love bestowed upon me by a Person whom I admire so much that to be unconditionally accepted by Him is to be born again.
+ - What we need is a theology of salvation that begins and ends with a recognition of every person’s hunger for glory.
+ - If the gospel of Jesus Christ can be proclaimed as a theology of self-esteem, imagine the health this could generate in society!
+ - Goals must never be from your ego, but problems that cry for a solution.
+ - Quitting is never an option. The cows have to be milked come Hell or High Water.
+ - Marriage may restrict your activity, but it increases your pleasure. It permits sex without shame, fear, or guilt.
+ - You can often measure a person by the size of his dream.
+ - How we express ourselves in worship remains up in the air.
+ - Any analysis of ‘sin’ or ‘evil’ or ‘demonic influence’ or ‘negative thinking’ or ‘systemic evil’ or ‘antisocial behavior’ that fails to see the lack of self-dignity as the core of the problem will prove to be too shallow.
+ - Never underestimate the value of an idea. Every positive idea has within its potential for success if it is managed properly.
+ - Jesus Christ went to the cross to magnify his ego.
+ - Nobody has a money problem – there are only idea problems.
+ - I found myself immediately attracted to Pope John Paul II when, upon his election to the Papacy, his published speeches invariably called attention to the need for recognizing the dignity of the human being as a child of God.
+ - Possibilitizing is overcoming while you’re undergoing.
+ - Impossible? The word is a roadblock to progress!
+ - The very word possibility creates a mental climate conducive to creativity.
+ - Faith is making claims to victory before it is achieved.
+ - We are all children starving to experience and know the heart of reality.
+ - Our greatest lack is not money for any undertaking, but rather ideas, If the ideas are good, cash will somehow flow to where it is needed.
+ - Through faith, the weak times can become peak times.
+ - Pessimism drops the curtain on tomorrow.
+ - We are the Love, loving.
+ - The Cross sanctifies the ego trip. For the Cross protected our Lord’s perfect self-esteem from turning into sinful pride.
+ - Every person is responsible for all the good within the scope of his abilities, and for no more, and none can tell whose sphere is the largest.
+ - The subconscious is ahead of the conscious, and we never know what really drives us.
+ - Success may or may not mean that you’ve acquired a lot. It does mean that you have become a generous person.
+ - The classical error of historical Christianity is that we have never started with the value of the person. Rather, we have started from the ‘unworthiness of the sinner,’ and that starting point has set the stage for the glorification of human shame in Christian theology.
+ - The Roman Catholic Church isn’t going to change its theologies.
+ - My family and I would never receive royalties on the revenue that my materials brought into the church; materials that were created on our own personal time.
+ - The real minister’s name that we honor is Jesus, not Schuller.
+ - God flourished my ministry and my career of creative thinking, communicating and writing back 50 years.
+
+128 quotes

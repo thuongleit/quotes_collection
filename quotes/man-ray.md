@@ -1,0 +1,47 @@
+ - I do not photograph nature. I photograph my visions.
+ - I believe in the relation between photography and music; And thats my inspiration.
+ - An original is a creation motivated by desire.
+ - I would photograph an idea rather than an object, a dream rather than an idea.
+ - Dada cannot live in New York. All New York is dada, and will not tolerate a rival.
+ - Oh, yes, I was a great retoucher. A retoucher is an esthetic surgeon !
+ - One of the satisfactions of a genius is his will-power and obstinacy.
+ - I have been accused of being a joker. But the most successful art to me involves humor.
+ - It has never been my object to record my dreams, just the determination to realize them.
+ - In the same spirit, when the automobile arrived, there were those that declared the horse to be the most perfect form of locomotion.
+ - The complicated engines manufactured by men demand, if one really wants to use them, much calm. Ever since our love for machines replaced the love we used to have for our fellow man, catastrophes proceed to increase.
+ - You don’t ask a writer what typewriter he uses.
+ - There is no progress in art, any more than there is progress in making love.
+ - Nature does not create works of art. It is we, and the faculty of interpretation peculiar to the human mind, that see art.
+ - The tricks of today are the truths of tomorrow.
+ - When I saw I was under attack from all sides, I knew I was on the right track.
+ - Just as I work with paints, brushes, and canvas, I work with the light, pieces of glass and chemistry.
+ - I never knew what I was doing until I was done.
+ - My works were designed to amuse, annoy, bewilder, mystify and inspire reflection.
+ - A certain amount of contempt for the material employed to express an idea is indispensable to the purest realization of this idea.
+ - Lipstick is the red badge of courage.
+ - Reality is fabricated out of desire.
+ - Cut out the eye from a photograph of one who has been loved but is seen no more. Attach the eye to the pendulum of a metronome and regulate the weight to suit the tempo desired. Keep going to the limit of endurance. With a hammer well-aimed, try to destroy the whole at a single blow.
+ - All critics should be assassinated.
+ - A camera alone does not make a picture. To make a picture you need a camera, a photographer and above all a subject. It is the subject that determines the interest of the photograph.
+ - The streets are full of admirable craftsmen, but so few practical dreamers.
+ - Thanks to my effort in the last 40 years, there has been more paper and film wasted.
+ - An original is a creation motivated by desire. Any reproduction of an originals motivated be necessity. It is marvelous that we are the only species that creates gratuitous forms. To create is divine, to reproduce is human.
+ - Speaking of nudes, I have always had a great fondness for this subject, both in my paintings and in my photos, and I must admit, not for purely artistic reasons.
+ - To create is divine, to reproduce is human.
+ - A creator needs only one enthusiast to justify him.
+ - Is photography an art? There is no point in trying to find out if it is an art. Art is old-fashioned. We need something else.
+ - Quote me as much as you like; as a matter of fact I don’t even mind if you misquote me !
+ - Personally, I have always preferred inspiration to information.
+ - I paint what cannot be photographed, that which comes from the imagination or from dreams, or from an unconscious drive.
+ - If I’d had the nerve, I’d have become a thief or a gangster, but since I didn’t, I became a photographer.
+ - An effort impelled by desire must also have an automatic or subconscious energy to aid its realization.
+ - I like contradictions. We have never attained the infinite variety and contradictions that exist in nature. Tomorrow I shall contradict myself. That is the one way I have of asserting my liberty, the real liberty one does not find as a member of society.
+ - I paint when I cannot photograph.
+ - If the affairs of the world were put in the hands of the screwball artists, it couldn’t be in a worse state than it is now !
+ - I photograph the things that I do not wish to paint, the things which already have an existence.
+ - I am an economic person; I judge the amount of work involved with the amount of worth attained.
+ - I have never painted a recent picture.
+ - To me, a painter, if not the most useful, is the least harmful member of our society.
+ - I am not going to be dictated to by the size of the camera. I use everything from an 8 x 10 to a 35-mm. But I don’t use these modern cameras which break down all the time !
+
+45 quotes

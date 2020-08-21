@@ -1,0 +1,94 @@
+ - If you practice hard, you can win every battle.
+ - Life is meant to be a challenge, because challenges make you grow.
+ - Don’t make training easy. Make it harder so that you will get better.
+ - Thank you to every person who has told me I can’t. You are just another reason I will.
+ - It’s just a game. Sometimes you win, sometimes you lose. 
+ - I’m just a regular person who believes life is simple, and I like a simple life.
+ - Nothing personal – I am just doing my job.
+ - Success is sweet and sweeter if long delayed and gotten through many struggles and defeats.
+ - Sometimes I don’t feel good, but when you get in the ring, you can’t say “oh, I feel bad, can we stop?”
+ - All those who are around me are the bridge to my success, so they are all important. 
+ - Nobody can say that I’m lazy in training.
+ - Boxing is not about your feelings. It’s about performance.
+ - I wanted to be a world champion.
+ - No notes. You speak from deep in your heart. It’s easy. 
+ - Boxing is not about killing each other.
+ - Only in death will I relinquish my belts.
+ - I will do my best, and I promise I will give this guy a fight, and I have to win this fight.
+ - Boxing is a sport. We allow each other to hit each other, but I’m not treating my opponent like my enemy. We’re doing a job to entertain people.
+ - For those who exalt themselves will be humbled, and those who humble themselves will be exalted.
+ - I have to give people time to take a picture, and sign autographs. I have to be generous to people. It is in my heart. Without that, I would not be Manny Pacquiao.
+ - I’m happy to help people.
+ - I did my best. I guess my best wasn’t good enough.
+ - Obey God’s law first before considering the laws of man.
+ - Being a Christian means accepting Christ as your savior, your God. Thats why you are called a Christian. If you remove Christ, theres only ian and that means I am nothing.
+ - If you don’t have God in your life, you are nothing.
+ - You’re still my idol.
+ - Faith is my motivation to win.
+ - You train hard and I’ll train hard, and may the best man win, and good luck to both of us.
+ - I know what poverty is.
+ - My heart wants to read the Bible, wants to obey God. When you have Jesus in your life, when you have God in your life, like the thing in this world is not important to your heart. The more important is God in your heart. That’s how God changed my life.
+ - I live my life like everyday is my last.
+ - Even in my prime, I need God in my life because without God, we’re nothing.
+ - Theres 3 things you need to remember in boxing, work hard, work harder, and work hardest.
+ - We pray everyday. We read the bible everyday, so everybody’s happy.
+ - I always ask myself, what do I need to prove? I won the fight.
+ - Only God knows that. He is the only one who knows. He is only one who will know. And he is the only one who does know.
+ - Anyone will succeed in whatever field of endeavor in life by acquiring the same virtues and character that boxing world champions do – dedication, perseverance, courage, extreme self-discipline and prayers.
+ - Being a public servant, this is a serious job, not like a boxer, you’re entertaining people.
+ - I remember as a little boy I ate one meal a day and sometimes slept in the street. I will never forget that and it inspires me to fight hard, stay strong and remember all the people of my country, trying to achieve better for themselves.
+ - The biggest fight in my life is not in boxing. The biggest fight in my life is how to end poverty in my country.
+ - Human anger does not produce the righteousness that God desires.
+ - I was just doing my job in the ring and doing my best to make people happy.
+ - Most of leaders in Philippine politics come from rich family.
+ - I hate politicians. I hate politics. But if I start to go into politics, I think I believe that I can serve more, I can help more people.
+ - The most important thing as a leader is your relationship with God.
+ - I’m always having fun in training and in boxing. I think it’s because boxing is my passion.
+ - I eat the same foods almost every day. I have my favorites like Filipino beef broth, chicken soup with lots and lots of rice.
+ - I want the people of the Philippines to be happy, even if they have nothing.
+ - I was raised Catholic and now I am a Christian and follow of the Lord Jesus Christ. I made the change because the Holy Spirit revealed a truth to me.
+ - I come from a poor family.
+ - I don’t have secrets in my life. Everything is out there.
+ - My family moved to the Philippines when I was 14. While living there, I learned that my mom grew up very poor. Seeing that kind of abject poverty firsthand during my travels deeply shaped my life. Seeing those living conditions motivated me to want to tell inspiring stories of struggle and triumph.
+ - I have to adjust. I have to be nice to all the people. Because of the people I have become a famous person. My responsibility is to fulfill my responsibility as a famous person.
+ - I can’t walk down the streets. It’s very difficult. I can’t go to the mall. I have to go to hotels just to have a meal. Everybody wants to say hi and say thank you and congratulate me, so it’s very difficult.
+ - For me, boxing isn’t about hurting each other. Boxing is entertainment and making people happy.
+ - I’m doing this for my family and my country.
+ - I never broke up with my girlfriends, they broke up with me.
+ - I don’t even remember if he hurt me with even one punch. Amazing what the result is.
+ - I’m just going to punch him and do my best. If the knockout comes, it comes.
+ - I’ve worked in construction, in a factory sewing clothes. I also sold flowers and doughnuts – just odd jobs to try to make 10 pesos, which is equivalent to 20 cents.
+ - God only expects man and woman to be together and to be legally married, only if they so are in love with each other.
+ - I know everyone in the Philippines is happy.
+ - Right now I’m inspired to fight for the honour of my country.
+ - My concern is what fight we can give to the fans. My first concern as a boxer is to try hard and give a good fight for the fans.
+ - I want them to make peace with the love of God.
+ - I was in tailoring business, I sold flowers on the street, I worked construction and many odd jobs.
+ - Imagine what I would have done with my fire-breathing fists.
+ - I want to prove that he’s wrong – he’s wearing a t-shirt that says he won the last two fights.
+ - I don’t mind having these relatives. I’ll give them a little, since they all prayed for my victory.
+ - We have a job to do. After the fight, I’ll love him.
+ - In boxing, you never know who you’re going to face in the ring.
+ - I never compare myself to anybody. I don’t look at my accomplishments compared to anyone. I’m happy with what I’ve accomplished in boxing.
+ - Mosley is bigger than me. He’s fast and his hand speed is still there. He’s faster than most of my opponents. He’s also preparing hard and he’s also good, so we never underestimate our opponent.
+ - My success is not about the wealth and fame. I am most concerned with my relationship to God, which is the most important.
+ - I grew up in the Philippines, and I don’t think there is a problem with the typhoon. It’s normal for us.
+ - As for me, I always train for 12 rounds just in case. I don’t train for three, four, one, or 10 rounds. I have to train for 12 because you never know what will happen that night.
+ - It’s important for me to win the fight, but it’s not the most important thing. The most important thing is to show people who spend their hard-earned money that they can be entertained by the way I fight.
+ - It depends on my promoter, Bob Arum.
+ - The religion is a personal thing in my life and fighting in the ring, it’s boxing. It’s my profession. God always gives me strength.
+ - I’m not aiming for a knockout. I focus on doing my best. If the knockout comes, fine. If not, that’s okay.
+ - Being Manny Pacquiao’s wife is not easy. It’s fun for me and my guys but it’s very difficult for her.
+ - I’ve always fought for my country, in my own way, showing that Filipinos are a strong people and can do anything that they put their minds to.
+ - I want to be the best fighter. I would like to fight in the biggest fights.
+ - I can be a champion and a public servant also.
+ - I’m surprised that the fight was kind of easy.
+ - In the ring I can tell right away what his style is and I can adapt to it. I’m adjusting to life as a politician. It’s different in training but I can stay focused on both.
+ - With experience in boxing, you learn how to be a scientific boxer and how to fight easy.
+ - I could see he was having problems taking my punches. I had no problem taking his.
+ - Even the president is watching the fight.
+ - Well you know it’s dangerous in politics, because especially in the Philippines there’s a lot of killing in politics.
+ - I would only spend a week or two in the Philippines, most probably the week during my birthday because I am planning to give away Christmas gifts to the poor people of General Santos just like what I did last year.
+ - It’s very relaxing for me to sing. It’s a good break from the hard training and the fighting.
+
+92 quotes

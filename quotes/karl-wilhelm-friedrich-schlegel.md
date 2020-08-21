@@ -1,0 +1,160 @@
+ - Whoever does not philosophize for the sake of philosophy, but rather uses philosophy as a means, is a sophist.
+ - About no subject is there less philosophizing than about philosophy.
+ - Combine the extremes, and you will have the true center.
+ - Honor is the mysticism of legality.
+ - Irony is a clear consciousness of an eternal agility, of the infinitely abundant chaos.
+ - An aphorism ought to be entirely isolated from the surrounding world like a little work of art and complete in itself like a hedgehog.
+ - Where there is politics or economics, there is no morality.
+ - Poetry should describe itself, and always be simultaneously poetry and the poetry of poetry.
+ - Like Leibniz’s possible worlds, most men are only equally entitled pretenders to existence. There are few existences.
+ - Original love never appears in pure form, but in manifold veils and shapes, such as confidence, humility, reverence, serenity, asfaithfulness and modesty, as gratefulness; but primarily as longing and wistful melancholy.
+ - The German national character is a favorite subject of character experts, probably because the less mature a nation, the more she is an object of criticism and not of history.
+ - Every uneducated person is a caricature of himself.
+ - Laziness is the one divine fragment of a godlike existence left to man from paradise.
+ - Many a witty inspiration is like the surprising reunion of befriended thoughts after a long separation.
+ - Ideas are infinite, original, and lively divine thoughts.
+ - Mathematics is, as it were, a sensuous logic, and relates to philosophy as do the arts, music, and plastic art to poetry.
+ - Mysteries are feminine; they like to veil themselves but still want to be seen and divined.
+ - All the great truths are basically trivial and so we have to find new ways, preferably paradoxical ways, of expressing them, in order to keep them from falling into oblivion.
+ - The subject of history is the gradual realization of all that is practically necessary.
+ - Aphorisms are the true form of the universal philosophy.
+ - Only through religion can logic develop into philosophy, only from this source stems that which makes philosophy more than science. And without religion we will have only novels, or the triviality today called belles lettres instead of an eternally rich and infinite poetry.
+ - Set religion free, and a new humanity will begin.
+ - Versatility of education can be found in our best poetry, but the depth of mankind should be found in the philosopher.
+ - Reason is mechanical, wit chemical, and genius organic spirit.
+ - There is no self-knowledge but an historical one. No one knows what he himself is who does not know his fellow men, especially the most prominent one of the community, the master’s master, the genius of the age.
+ - Wit as an instrument of revenge is as infamous as art is as a means of sensual titillation.
+ - The symmetry and organization of history teaches us that mankind, during its existence and development, genuinely was and became an individual, a person. In this great personality of mankind, God became man.
+ - The history of imitation of the older literature, particularly abroad, has among other advantages this one, that the important concepts of unintentional parody and passive wit can be deduced from it most easily and comprehensively.
+ - A family can develop only with a loving woman as its center.
+ - The whole history of modern poetry is a continuous commentary on the short text of philosophy: every art should become science, and every science should become art; poetry and philosophy should be united.
+ - There are three kinds of explanation in science: explanations which throw a light upon, or give a hint at a matter; explanations which do not explain anything; and explanations which obscure everything.
+ - Without poetry, religion becomes obscure, false, and malignant; without philosophy, licentious in all wantonness, and lascivious to the point of self-castration.
+ - What is called good society is usually nothing but a mosaic of polished caricatures.
+ - Both in their origins and effects, boredom and stuffy air resemble each other. They are usually generated whenever a large number of people gather together in a closed room.
+ - Wit is the appearance, the external flash of imagination. Thus its divinity, and the witty character of mysticism.
+ - In the ancients, one sees the accomplished letter of entire poetry: in the moderns, one has the presentiment of the spirit in becoming.
+ - Every form of life is in its origin not natural, but divine and human; for it must spring from love, just as there can be no reason without spirit.
+ - When reason and unreason come into contact, an electrical shock occurs. This is called polemics.
+ - Separate religion from morality, and you have the true energy for evil within man, the terrible, cruel, devastating, and inhuman principle which naturally lies in his spirit. Here the division of the indivisible punishes itself most awfully.
+ - Genius is, to be sure, not a matter of arbitrariness, but rather of freedom, just as wit, love, and faith, which once shall become arts and disciplines. We should demand genius from everybody, without, however, expecting it.
+ - The surest method of being incomprehensible or, moreover, to be misunderstood is to use words in their original sense; especially words from the ancient languages.
+ - Religion and morals are symmetrically opposed, just like poetry and philosophy.
+ - Wit is an explosion of the compound spirit.
+ - Because Christianity is a religion of death, it could be treated with the utmost realism, and it could have its orgies, just likethe old religion of nature and life.
+ - What is lost in the good or excellent translation is precisely the best.
+ - Every relationship of man to the infinite is religion, namely of a man in the full abundance of his humanity. Whenever a mathematician calculates infinity, that, to be sure, is not religion. Infinity conceived in this abundance is the Godhead.
+ - A so-called happy marriage corresponds to love as a correct poem to an improvised song.
+ - There are writers in Germany who drink the Absolute like water; and there are books in which even the dogs make references to the Infinite.
+ - Beauty is that which is simultaneously attractive and sublime.
+ - Form your life humanly, and you have done enough: but you will never reach the height of art and the depth of science without something divine.
+ - Religion is absolutely unfathomable. Always and everywhere one can dig more deeply into infinities.
+ - The naive is what is or appears to be natural, individual, or classical to the point of irony or to the point of continuous alternation of self-creation and self-destruction. If it is only instinct, then it is childlike, childish, or silly; if it is only intention, it becomes affectation.
+ - Every good man progressively becomes God. To become God, to be man, and to educate oneself, are expressions that are synonymous.
+ - All men are somewhat ridiculous and grotesque, just because they are men; and in this respect artists might well be regarded as man multiplied by two. So it is, was, and shall be.
+ - Philosophy is the true home of irony, which might be defined as logical beauty: for wherever men are philosophizing in spoken or written dialogues, and provided they are not entirely systematic, irony ought to be produced and postulated; even the Stoics regarded urbanity as a virtue.
+ - God is each truly and exalted thing, therefore the individual himself to the highest degree. But are not nature and the world individuals?
+ - Religion is not only a part of education, an element of humanity, but the center of everything else, always the first and the ultimate, the absolutely original.
+ - Many works of the ancients have become fragments. Many works of the moderns are fragments at the time of their origin.
+ - No idea is isolated, but is only what it is among all ideas.
+ - A definition of poetry can only determine what poetry should be and not what poetry actually was and is; otherwise the most concise formula would be: Poetry is that which at some time and some place was thus named.
+ - Only he who possesses a personal religion, an original view of infinity, can be an artist.
+ - The need to raise itself above humanity is humanity’s main characteristic.
+ - In true prose everything must be underlined.
+ - Gracefulness is a correct life: sensuality which contemplates and forms itself.
+ - True love should be, according to its origin, entirely arbitrary and entirely accidental at the same time; it should seem both necessary and free; in keeping with its nature, however, it should be both destiny and virtue and appear as a mystery and a miracle.
+ - There is no self-knowledge except historical self-knowledge. No one knows what he is if he doesn’t know what his contemporaries are.
+ - How many authors are there among writers? Author means originator.
+ - Religion must completely encircle the spirit of ethical man like his element, and this luminous chaos of divine thoughts and feelings is called enthusiasm.
+ - Just as the Romans were the only nation that was truly a nation, so our age is the first genuine age.
+ - The main thing is to know something and to say it.
+ - Since philosophy now criticizes everything it comes across, a critique of philosophy would be nothing less than a just reprisal.
+ - Novels tend to end as the Paternoster begins: with the kingdom of God on earth.
+ - I can no longer say my love and your love; they are both alike in their perfect mutuality.
+ - I have expressed some ideas that point to the center; I have saluted the dawn in my way, from my point of view. He who knows the way should do the same, in his way, and from his point of view.
+ - Every complete man has his genius. True virtue is genius.
+ - It is peculiar to mankind to transcend mankind.
+ - The difference between religion and morality lies simply in the classical division of things into the divine and the human, if one only interprets this correctly.
+ - Prudishness is pretense of innocence without innocence. Women have to remain prudish as long as men are sentimental, dense, and evil enough to demand of them eternal innocence and lack of education. For innocence is the only thing which can ennoble lack of education.
+ - Whoever could properly characterize Goethe’s Meister would have actually expressed what is the timely trend in literature. He would be able, as far as literary criticism is concerned, to rest.
+ - Some speak of the public as if it were someone with whom they have had dinner at the Leipzig Fair in the Hotel de Saxe. Who is this public? The public is not a thing, but rather an idea, a postulate, like the Church.
+ - Man is free whenever he produces or manifests God, and through this he becomes immortal.
+ - Religion can emerge in all forms of feeling: here wild anger, there the sweetest pain; here consuming hatred, there the childlike smile of serene humility.
+ - Duty is for Kant the One and All. Out of the duty of gratitude, he claims, one has to defend and esteem the ancients; and only out of duty has he become a great man.
+ - If you want to penetrate into the heart of physics, then let yourself be initiated into the mysteries of poetry.
+ - Irony is the form of paradox. Paradox is what is good and great at the same time.
+ - Think of something finite molded into the infinite, and you think of man.
+ - One can only become a philosopher, but not be one. As one believes he is a philosopher, he stops being one.
+ - Every philosophical review ought to be a philosophy of reviews at the same time.
+ - When ideas become gods, consciousness of harmony becomes devotion, humility, and hope.
+ - If one writes or reads novels from the point of view of psychology, it is very inconsistent and petty to want to shy away from even the slowest and most detailed analysis of the most unnatural lusts, gruesome tortures, shocking infamy, and disgusting sensual or spiritual impotence.
+ - A critic is a reader who ruminates. Thus, he should have more than one stomach.
+ - One of the two is almost always a prevailing tendency of every author: either not to say some things which certainly should be said, or to say many things which did not need to be said. The first is the original sin of synthetic natures, the latter of analytical natures.
+ - Women do not have as great a need for poetry because their own essence is poetry.
+ - From what the moderns want, we must learn what poetry should become; from what the ancients did, what poetry must be.
+ - Virtue is reason which has become energy.
+ - The genuine priest always feels something higher than compassion.
+ - In every good poem everything must be both deliberate and instinctive. That is how the poem becomes ideal.
+ - The essential point of view of Christianity is sin.
+ - Philosophy still moves too much straight ahead, and is not yet cyclical enough.
+ - A genuinely free and educated man should be able to tune himself, as one tunes a musical instrument, absolutely arbitrarily, at his convenience at any time and to any degree, philosophically or philologically, critically or poetically, historically or rhetorically, in ancient or modern form.
+ - One mentions many artists who are actually art works of nature.
+ - Just as a child is really a thing that wants to become a man, so is the poem an object of nature that wants to become an object ofart.
+ - There is so much poetry, and yet nothing is more rare than a poetic work. This is what the masses make out of poetical sketches, studies, aphorisms, trends, ruins, and raw material.
+ - The life and vigor of poetry consists of the fact that it steps out of itself, tears out a section of religion, then withdraws into itself to assimilate it. The same is true of philosophy.
+ - In the world of language, or in other words in the world of art and liberal education, religion necessarily appears as mythology or as Bible.
+ - God the father, and even more often the devil himself, appears at times in the place of fate in the modern tragedy. Why is it thatthis has not induced any scholar to develop a theory of the diabolical genre?
+ - All thinking of the religious man is etymological, a reduction of all concepts to the original intuition, to the characteristic.
+ - One of two things is usually lacking in the so-called Philosophy of Art: either philosophy or art.
+ - If you want to see mankind fully, look at a family. Within the family minds become organically one, and for this reason the family is total poetry.
+ - All the classical genres are now ridiculous in their rigorous purity.
+ - Morality without a sense of paradox is mean.
+ - Witty inspirations are the proverbs of the educated.
+ - Publication is to thinking as childbirth is to the first kiss.
+ - A good preface must be the root and the square of the book at the same time.
+ - With respect to ingenious subconsciousness, I think, philosophers might well rival poets.
+ - The highest good and solely useful is liberal education.
+ - Nothing is more piquant than when a man of genius possesses mannerisms; not so when they possess him – this leads to spiritual petrification.
+ - He who does not become familiar with nature through love will never know her.
+ - Nothing is more witty and grotesque than ancient mythology and Christianity; that is because they are so mystical.
+ - The obsession with moderation is the spirit of castrated narrow-mindedness.
+ - Those works whose ideal has not as much living reality and, as it were, personality as the beloved one or a friend had better remain unwritten. They would at least never become works of art.
+ - To disrespect the masses is moral; to honor them, lawful.
+ - In many a poetic work, one gets here and there, instead of representation merely a title indicating that this or that was supposedto be represented here, that the artist has been prevented from doing it and most humbly asks to be kindly excused.
+ - Poetry and philosophy are, according to how you take them, different spheres, different forms, or factors of religion. Try to really combine both, and you will have nothing but religion.
+ - The historian is a prophet looking backward.
+ - Kant introduced the concept of the negative into philosophy. Would it not also be worthwhile to try to introduce the concept of the positive into philosophy?
+ - It is individuality which is the original and eternal within man; personality doesn’t matter so much. To pursue the education anddevelopment of this individuality as one’s highest vocation would be a divine egoism.
+ - Most thoughts are only profiles of thoughts. They must be inverted and synthesized with their antipodes. Thus many philosophical writings become very interesting which would not have been so otherwise.
+ - Can we expect the redemption of the world from scholars? I doubt it. But the time has come for all artists to join together as a confederation in an eternal league.
+ - A priest is he who lives solely in the realm of the invisible, for whom all that is visible has only the truth of an allegory.
+ - One has only as much morality as one has philosophy and poetry.
+ - One should have wit, but not wish to have it; otherwise there will be witticism, the Alexandrian style of wit.
+ - As the ancient commander addressed his soldiers before battle, so should the moralist speak to men in the struggle of the era.
+ - He who has religion will speak poetry. But philosophy is the tool with which to seek and discover religion.
+ - Women are treated as unjustly in poetry as in life. The feminine ones are not idealistic, and the idealistic not feminine.
+ - The poetry of this one is called philosophical, of that one philological, of a third rhetorical, and so on. Which is then the poetic poetry?
+ - When the author has no idea of what to reply to a critic, he then likes to say: you could not do it better anyway. This is the same as if a dogmatic philosopher reproached a skeptic for not being able to devise a system.
+ - An artist is he for whom the goal and center of life is to form his mind.
+ - The few existing writings against Kantian philosophy are the most important documents in the case history of sound common sense.
+ - Considered subjectively, philosophy always begins in the middle, like an epic poem.
+ - A classical work doesn’t ever have to be understood entirely. But those who are educated and who are still educating themselves must desire to learn more and more from it.
+ - Strictly speaking, the idea of a scientific poem is probably as nonsensical as that of a poetic science.
+ - Plato’s philosophy is a dignified preface to future religion.
+ - In order to be able to write well upon a subject, one must have ceased to be interested in it; the thought which is to be soberlyexpressed must already be entirely past and no longer be one’s actual concern.
+ - Life is writing. The sole purpose of mankind is to engrave the thoughts of divinity onto the tablets of nature.
+ - Wit is absolutely sociable spirit or aphoristic genius.
+ - Religion is usually nothing but a supplement to or even a substitute for education, and nothing is religious in the strict sense which is not a product of freedom. Thus one can say: The freer, the more religious; and the more education, the less religion.
+ - It is as deadly for a mind to have a system as to have none. Therefore it will have to decide to combine both.
+ - Nothing truly convincing – which would possess thoroughness, vigor, and skill – has been written against the ancients as yet; especially not against their poetry.
+ - Through artists mankind becomes an individual, in that they unite the past and the future in the present. They are the higher organ of the soul, where the life spirits of entire external mankind meet and in which inner mankind first acts.
+ - You wanted to destroy philosophy and poetry in order to make room for religion and morality which you misunderstood: but you wereable to destroy only yourself.
+ - The life of the artist should be distinguished from that of all other people, even in external habits. They are Brahmins, a highercaste, not ennobled by birth, however, but by deliberate self-initiation.
+ - Is it not superfluous to write more than one novel if the writer has not become, say, a new man? Obviously, all the novels of an author not infrequently belong together and are to a certain degree only one novel.
+ - Art and works of art do not make an artist; sense and enthusiasm and instinct do.
+ - Man is a creative retrospection of nature upon itself.
+ - Eternal life and the invisible world are only to be sought in God. Only within Him do all spirits dwell. He is an abyss of individuality, the only infinite plenitude.
+ - Novels are the Socratic dialogues of our time. Practical wisdom fled from school wisdom into this liberal form.
+ - A classification is a definition comprising a system of definitions.
+
+158 quotes

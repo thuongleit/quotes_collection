@@ -1,0 +1,22 @@
+ - When you don’t talk, there’s a lot of stuff that ends up not getting said.
+ - She says you’re not truly human until you’ve had your heart broken and you’ve broken someone’s heart.
+ - I swear, every person I know gets far more satisfaction from doing good deeds than receiving them. Maybe that’s the whole point in the end, all of us putting up with good deeds, tolerating them as best we can, counting the minutes until we have the opportunity to reciprocate.
+ - And if I didn’t, I’d spend the rest of my life wondering who I could have turned into if only I’d had the guts to try.
+ - I ultimately decided to hold my tongue and settle instead for the comfort of ignorance. Not knowing the truth, I retained hope, and that hope I held like a smooth warm stone against my heart.
+ - I hate it when people make fun of me and it turns out they’re right.
+ - That which is priceless has no cost.
+ - How could I pretend to be someone else when I was already failing at being the person I already was?
+ - What is a staircase, but a corridor improved by elevation?
+ - But it turns out that even if I don’t talk a lot, when it’s something that matters I still have a lot to say.
+ - You can’t think about how much you have left to do because that’s just one thought, one sad thought, that’ll make you bummed out all day long. Instead you’ve got to think about how much you’ve already done.
+ - It was like he was in a contest to see who could do the least work, only he was the only contestant.
+ - And have your mother put my head on a stake? Do you have any notion what that would do to my handsome good looks?
+ - It kind of struck me how great it would be to go out with a guy that size. And if you, you know, got tired of dating him, you could always use him as a house or something.
+ - I could not but wonder at the queen’s unprecedented civility, until I realized with a flush of shame that it was my own improved behavior that motivated hers. So it is that we in life determine our own treatment.
+ - Today exists between yesterday and tomorrow.
+ - Everyone I looked at, their whole lives, did exactly what they were supposed to do without even questioning it, without even wondering if they could do something different.
+ - I milked, of course, and did some work around the barn, and tried not to think about Brian, which was like trying not to breathe.
+ - I’d promised myself that I’d really work on talking more, talking about uncomfortable things, because I could see from Brian how well things could work out if you did.
+ - Why was it that jam always coated me so?
+
+20 quotes

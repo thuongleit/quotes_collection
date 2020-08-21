@@ -1,0 +1,74 @@
+ - Having a Christian worldview means being utterly convinced that biblical principles are not only true but also work better in the grit and grime of the real world.
+ - Redemption is as comprehensive as Creation and Fall. God does not save our souls while leaving our minds to function on their own. He redeems the whole person. Conversion is meant to give new direction to our thoughts, emotions, wills and habits.
+ - Competition is always a good thing. It forces us to do our best. A monopoly renders people complacent and satisfied with mediocrity.
+ - America is a knowledge-based society, where information counts as much as material resources. Therefore those with the power to define what qualifies as knowledge – to determine what are the accepted facts – wield the greatest social and political power.
+ - My aim in homeschooling is to give my children the ability to be an adult learner, a skill set that will last the rest of their lives.
+ - In Gnosticism, the physical world did not ultimately matter – which meant physical suffering did not matter either. Seeking ‘enlightenment’ meant cultivating an attitude of detachment, even indifference.
+ - In high school, I came to realize I had a second-hand faith, derived from my parents and family background. I had no actual reasons for believing it.
+ - An idol is anything put in the place of God as the ultimate reality – the eternal, self-existent, uncaused cause of everything else.
+ - For many women today, on a personal level, the problem is not male dominance so much as male desertion.
+ - The sense of all stylistic change is that the underlying view of the world changes.
+ - The best organizations regard the nurturing of their employees as a spiritual mandate.
+ - The loss of objectivity in moral thought does not lead to liberation. It leads to oppression. Secular ideologies preach liberty, but they practice tyranny.
+ - Beginning under the Roman Empire, intellectual leadership in the West had been provided by Christianity. In the middle ages, who invented the first universities – in Paris, Oxford, Cambridge? The church.
+ - Developing a Christian worldview means submitting our entire self to God, in an act of devotion and service to Him.
+ - Christian adults need to think about talking to our own children as a form of cross-cultural missions. Cultural change happens so quickly that teens are exposed to ideas and worldviews very different from those of previous generations.
+ - During the first 13 centuries after the birth of Jesus in Bethlehem, no one thought of setting up a creche to celebrate Christmas. The pre-eminent Christian holiday was Easter, not Christmas.
+ - The costs of marriage breakdown are borne by the entire society, and therefore it is reasonable for the entire society to demand support for marriage – to insist that it is privileged both culturally and legally.
+ - In many churches, the message of justification- how to get right with God- is preached over and over again. But much less is said about sanctification- how to live after you’re converted.
+ - A merely symbolic religion does not threaten the ruling regime of materialistic science.
+ - The Rosetta Stone of Christian social thought is the Trinity.
+ - Artists are often the barometers of society.
+ - The only way to drive out bad culture is with good culture.
+ - Knowing the truth has meaning only as a first step to living the truth day by day.
+ - To adapt a phrase, idols have consequences.
+ - Morality is always derivative. It stems from one’s worldview.
+ - To use biblical language, those who exchange the glory of God for something in creation will also exchange the image of God for something in creation – and because it is something less than God, it always leads to a lower view of humanity.
+ - The most consistent versions of materialism deny the reality of anything beyond matter – no soul, no spirit, no will, no mind. This is called reductionism: Humans are reduced to biochemical machines.
+ - Christians must go beyond criticizing the degradation of American culture, roll up their sleeves, and get to work on positive solutions. The only way to drive out bad culture is with good culture.
+ - There are unprecedented numbers of movements for human rights and freedoms. But the dominant worldviews in academia, like materialism and naturalism, deny the reality of freedom, reducing humans to robots. So where does the concept of human rights come from?
+ - Literary theory has become a parody of science, generating its own arcane jargon. In the process, tragically, it discourages love of literature for its own sake.
+ - Darwinism has become our culture’s official creation myth, protected by a priesthood as dogmatic as any religious curia.
+ - When people commit themselves to a certain vision of reality, it becomes their ultimate explainer. It serves to interpret the universe for them, to guide their moral decisions, to give meaning and purpose to life, and all the other functions normally associated with a religion.
+ - The word ‘tolerance’ once meant we all have the right to argue rationally for our deepest convictions in the public arena. Now it means those convictions are not even subject to rational debate.
+ - Because humans are capable of choosing, the first cause that created them must have a will.
+ - No one lives like a robot. We all make choices from the moment we wake up in the morning.
+ - If people deny free will, then when ordering at a restaurant they should say, “Just bring me whatever the laws of nature have determined that I will get.”
+ - But things that are intrinsically good can also become idols-if we allow them to take over any of God’s functions in our lives.
+ - To be intellectual does not require one to be alienated and oppositional.
+ - All of science is largely formalized common sense.
+ - We need to understand enough of modern thought to identify the ways it blocks us from living out the Gospel the way God intends, both in terms of intellectual roadblocks and in terms of economic and structural changes that make it harder to live by Scriptural principles.
+ - The whole point of building theoretical systems is to explain what humans know by pre-theoretical experience. That is the starting point for any philosophy. That is the data it seeks to explain. If it fails to explain the data of experience, then it has failed the test. It has been falsified.
+ - Mitchell claimed that her materialist view leads to “humbleness.” But it is not humbling; it is dehumanizing. It essentially reduces humans to robots.
+ - A part is always too limited to explain the whole. You might picture a worldview as trying to stuff the entire universe into a box. Invariably, something will stick out of the box. Its categories are too “small” to explain the world.
+ - We do not create marriage from scratch. Instead, in the elegant language of the marriage ceremony, we ’enter into the holy estate of matrimony.
+ - Can reason be an idol? Certainly. The philosophy of rationalism puts human reason in the place of God as the source and standard of all truth.
+ - The more we learn about life, the less plausible is any evolutionary theory that relies on blind, undirected, piece-by-piece change.
+ - Urban areas tend to attract members of the ‘knowledge class’ – people who work with ideas, data, information.
+ - Clearly, Enlightenment thinkers were seeking a God substitute.
+ - When the only form of cultural commentary Christians offer is moral condemnation, no wonder we come across to non-believers as angry and scolding.
+ - An idol is not necessarily something concrete, like a golden calf. It can also be something abstract, like matter. Is matter part of the created order? Sure it is. So the philosophy of materialism qualifies as an idol in the biblical sense.
+ - Atheists often denounce Christianity as harsh and negative. But in reality it offers a much more positive view of the human person than any competing religion or worldview. It is so appealing that adherents of other worldviews keep free-loading the parts they like best.
+ - You don’t have to be a Christian to recognize that materialism does not match reality. Materialism is not true to universal human experience – what we all know about ourselves.
+ - Homeschoolers are the ultimate do-it-yourselfers. They are self-motivated and self-directed, independent-minded and creative. They are not content to turn their education of their children over to the government.
+ - I discovered that Christianity does have the resources to meet the challenges posed by competing worldviews after all.
+ - The human mind inherently seeks intelligible order. Thus the conviction that such an order exists to be found is a crucial assumption.
+ - America faces a fundamental choice: either the blessings of liberty or the servitude of liberalism. In the political struggle for survival, one or the other is headed for extinction.
+ - Yet church youth groups rarely teach apologetics, majoring instead on games and goodies.
+ - The White House should always be a friend to American freedom.
+ - The Tea Party has imparted political energy to common-sense American constitutionalism.
+ - Public education grants secular worldviews an exclusive monopoly in the classroom.
+ - I began asking, ‘How can we know Christianity is true?’ Sadly, none of the adults in my life offered an answer. Eventually I decided Christianity must not have any answers, and I became an agnostic.
+ - No matter how much you like your local school teacher, he or she is a government agent.
+ - In every historical period, the religious groups that grow most rapidly are those that set believers at odds with the surrounding culture.
+ - Indigenous people have discovered that Christianity is not inherently Western but universal – ‘translatable’ into any cultural idiom.
+ - America has always welcomed anyone willing to assimilate to its national character. But radical Islam rejects assimilation and is bent on the conquest of our national character.
+ - Schools ought to teach students to challenge secular ideologies masquerading as science in the classroom.
+ - Americans have grown impatient with the relentless politicizing of every area of life.
+ - The defense of marriage is the defense of freedom. Neither of which is obsolete.
+ - In many cases students are never exposed to competing ideas within their families, churches, or Christian schools, and as a result they go out into the world unprepared for the intellectual battles they are about to encounter, especially on secular college campuses.
+ - When we encounter the world of ideas for the first time, we easily get overwhelmed. Scripture is telling us, ‘Don’t be distracted by the details. Cut to the core by asking, What is its idol?’ Whatever functions as its God substitute will shape everything else.
+ - Because a human is a someone and not a something, the source of human life must also be a Someone – not the blind, automatic forces of nature, as philosophies like naturalism and materialism tell us.
+ - Many journalists are influenced by a myopic multiculturalism that is suspicious of anything Western, while giving the benefit of the doubt to non-Western societies.
+
+72 quotes

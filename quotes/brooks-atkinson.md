@@ -1,0 +1,37 @@
+ - This nation was built by men who took risks-pioneers who were not afraid of the wilderness, businessmen who were not afraid of failure, scientists who were not afraid of the truth, thinkers who were not afraid of progress, dreamers who were not afraid of action.
+ - Although the theater is not life, it is composed of fragments or imitations of life, and people on both sides of the footlight have to unite to make the fragments whole and the imitations genuine.
+ - The virtue of the camera is not the power it has to transform the photographer into an artist, but the impulse it gives him to keep on looking.
+ - After each war there is a little less democracy left to save.
+ - The most fatal illusion is the settled point of view. Since life is growth and motion, a fixed point of view kills anybody who has one.
+ - We tolerate differences of opinion in people who are familiar to us. But differences of opinion in people we do not know sound like heresy or plots.
+ - The perfect bureaucrat everywhere is the man who manages to make no decisions and escape all responsibility.
+ - The evil that men do lives on the front pages of greedy newspapers, but the good is oft interred apathetically inside.
+ - Land was created to provide a place for boats to visit.
+ - People everywhere enjoy believing things that they know are not true. It spares them the ordeal of thinking for themselves and taking responsibility for what they know.
+ - The cult of nature is a form of patronage by people who have declared their materialistic independence from nature and do not have to struggle with nature every day of their lives.
+ - Everyone in daily life carries such a heavy mixed burden on his own conscience that he is reluctant to penalize those who have been caught.
+ - Every man with an idea has at least two or three followers.
+ - Don’t be condescending to unskilled labor. Try it for a half a day first.
+ - I have no objections to churches so long as they do not interfere with God’s work.
+ - It seems not to have been written. It is the quintessence of life. It is the basic truth.
+ - In the ideal sense nothing is uninteresting; there are only uninterested people.
+ - The humorous man recognizes that absolute purity, absolute justice, absolute logic and perfection are beyond human achievement and that men have been able to live happily for thousands of years in a state of genial frailty.
+ - Materialism is decadent and degenerate only if the spirit of the nation has withered and if individual people are so unimaginative that they wallow in it.
+ - Say “Yes” to the seedlings and a giant forest cleaves the sky. Say “Yes” to the universe and the planets become your neighbors. Say “Yes” to dreams of love and freedom. It is the password to utopia.
+ - Real art is illumination, it adds stature to life.
+ - Writing is not an end in itself but life transmuted into radiance.
+ - Nobody is fully alive who cannot apply to art as much discrimination and appreciation as he applies to the work by which he earns his living.
+ - New Yorkers are inclined to assume it will never rain, and certainly not on New Yorkers.
+ - Bureaucracies are designed to perform public business. But as soon as a bureaucracy is established, it develops an autonomous spiritual life and comes to regard the public as its enemy.
+ - Life is seldom as unendurable as, to judge by the facts, it logically ought to be.
+ - There is a good deal of solemn cant about the common interests of capital and labor. As matters stand, their only common interest is that of cutting each others throat.
+ - Poetry is as vital to thinking as knowledge.
+ - We cheerfully assume that in some mystic way love conquers all, that good outweighs evil in the just balances of the universe and at the 11th hour something gloriously triumphant will prevent the worst before it happens.
+ - Good plays drive bad playgoers crazy.
+ - There is no joy so great as that of reporting that a good play has come to town.
+ - It takes most men five years to recover from a college education, and to learn that poetry is as vital to thinking as knowledge.
+ - Nothing a man writes can please him as profoundly as something he does with his back, shoulders and hands. For writing is an artificial activity. It is a lonely and private substitute for conversation.
+ - In the 1920s dramatists attacked their subjects as if the inequities could be resolved. Some of the traditional optimism of America lurked behind most of the early plays. But not now. There is no conviction now that the problem will be solved.
+ - There should be a dash of the amateur in criticism. For the amateur is a man of enthusiasm who has not settled down and is not habit bound.
+
+35 quotes

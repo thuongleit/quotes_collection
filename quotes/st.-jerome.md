@@ -1,0 +1,115 @@
+ - The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.
+ - Ignorance of the Scriptures is ignorance of Christ.
+ - There are things in life that are bigger than ourselves. Life is short, live it well.
+ - Woman is the root of all evil.
+ - Shun, as you would the plague, a cleric who from being poor has become wealthy, or who, from being nobody has become a celebrity.
+ - Haste is of the Devil.
+ - No one cares to speak to an unwilling listener. An arrow never lodges in a stone: often it recoils upon the sender of it.
+ - The Scriptures are shallow enough for a babe to come and drink without fear of drowning and deep enough for theologians to swim in without ever reaching the bottom.
+ - Small minds can never handle great themes.
+ - We need more music that is passionate and meaningful and honest.
+ - A man who is well grounded in the testimonies of the Scripture is the bulwark of the Church.
+ - We must love Christ and always seek Christ’s embraces. Then everything difficult will seem easy.
+ - It is easier to mend neglect than to quicken love.
+ - If it is good not to touch a woman, then it is bad to touch a woman always and in every case.
+ - Why do you not practice what you preach.
+ - A false interpretation of Scripture causes that the gospel of the Lord becomes the gospel of man, or, which is worse, of the devil.
+ - Beauty when unadorned is adorned the most.
+ - Martyrdom does not consist only in dying for one’s faith. Martyrdom also consists in serving God with love and purity of heart every day of one’s life.
+ - Malice swallows the greatest part of its own venom.
+ - It is worse still to be ignorant of your ignorance.
+ - Even while living in the world, the heart of Mary was so filled with motherly tenderness and compassion for men that no-one ever suffered so much for their own pains, as Mary suffered for the pains of her children.
+ - Woman is the gate of the devil, the road to iniquity, the sting of the scorpion, in a word, a dangerous species.
+ - Thank God I am deemed worthy to be hated by the world.
+ - If then you remain constant in faith in the face of trial, the Lord will give you peace and rest for a time in this world, and forever in the next.
+ - Even brute beasts and wandering birds do not fall into the same traps or nets twice.
+ - Be at peace with your own soul, then heaven and earth will be at peace with you.
+ - The scars of others should teach us caution.
+ - Marriage is good for those who are afraid to sleep alone at night.
+ - When the stomach is full, it is easy to talk of fasting.
+ - To read without writing is to sleep.
+ - Vanity is truly the motive power that moves humanity, and it is flattery that greases the wheels.
+ - Failure is the inspiration of tomorrow’s entrepreneurs.
+ - So valuable to heaven is the dignity of the human soul that every member of the human race has a guardian angel from the moment the person begins to be.
+ - My speech is too fast; my oration confused; love knows no order.
+ - Either we must speak as we dress, or dress as we speak. Why do we profess one thing and display another? The tongue talks of chastity, but the whole body reveals impurity.
+ - Music to me is a voice, my voice, it’s my way of expressing what colours can I bring in, what emotions, what feel. What ideas can I bring out from these instruments that would make this song come alive.
+ - While truth is always bitter, pleasantness waits upon evildoing.
+ - Avoid, as you would the plague, a clergyman who is also a man of business.
+ - Be ever engaged, so that whenever the devil calls he may find you occupied.
+ - I praise wedlock, I praise marital union, but only because they produce me virgins.
+ - Virginity can be lost by a thought.
+ - Out of one hundred thousand sinners who continue in sin until death, scarcely one will be saved.
+ - No athlete is crowned but in the sweat of his brow.
+ - What good is speed if the brain has oozed out on the way.
+ - The friendship that can cease has never been real.
+ - Neither Britain, a land fertile in tyrants, nor the people of Ireland, knew Moses and the prophets.
+ - Every day we are changing, every day we are dying, and yet we fancy ourselves eternal.
+ - Instead of speaking saintly words we must act them.
+ - If Christ did not want to dismiss the Jews without food in the desert for fear that they would collapse on the way, it was to teach us that it is dangerous to try to get to heaven without the Bread of Heaven.
+ - It is idle to play the lyre for an ass.
+ - Keep always busy so that the devil will find you always engaged.
+ - Without doubt, the Lord grants all favors which are asked of Him in Mass, provided they be fitting for us.
+ - To saints their very slumber is a prayer.
+ - The truly miserable have a timbre in their voices strong enough to erase smiles from the faces and souls of the contented.
+ - Being over seventy is like being engaged in a war. All our friends are going or gone and we survive amongst the dead and the dying as on a battlefield.
+ - To perceive is to categorize, to conceptualize is to categorize, to learn is to form categories, to make decisions is to categorize.
+ - The charges we bring against others often come home to ourselves; we inveigh against faults which are as much ours as theirs; and so our eloquence ends by telling against ourselves.
+ - Keep doing some kind of work, that the devil may always find you employed.
+ - The tired ox treads with a firmer step.
+ - True friendship ought never to conceal what it thinks.
+ - They talk like angels but they live like men.
+ - Whoever eats the Lamb outside this House is profane.
+ - The enemy of reflection is the breakneck pace – the thousand pictures.
+ - It is not being in Jerusalem, but living a good life there that is praiseworthy.
+ - Marriage fills the Earth, virginity Heaven.
+ - Everything must have in it a sharp seasoning of truth.
+ - The line, often adopted by strong men in controversy, of justifying the means by the end.
+ - When I could not see the light with my blind eyes, I blamed not my eyes, but the sun.
+ - Among us, what is not allowed to women is equally not allowed to men.
+ - A friend is long sought, hardly found, and with difficulty kept.
+ - A fat stomach never breeds fine thoughts.
+ - A vice in the heart is an idol on the altar.
+ - If a soul is not clothed with the teachings of the Church he cannot merit to have Jesus seated in him.
+ - Sometimes the character of the mistress is inferred from the dress of her maids.
+ - Let your daughter have first of all the book of Psalms for holiness of heart, and be instructed in the Proverbs of Solomon for her godly life.
+ - Seek to learn on earth those truths which will remain ever valid in Heaven.
+ - And as regards Adam and Eve we must maintain that before the fall they were virgins in Paradise: but after they sinned, and were cast out of Paradise, they were immediately married.
+ - Preferring to store her money in the stomachs of the needy rather than hide it in a purse.
+ - Matrimony is always a vice, all that can be done is to excuse it and sanctify it; therefore it was made a religious sacrament.
+ - Catch, then, O catch the transient hour; Improve each moment as it flies!
+ - That rain is the best which falls steadily on the earth. A sudden and excessive downpour ruins the fields.
+ - No created mind, no created heart, no human force is capable of knowing how much love the Heart of Mary had for the Lord.
+ - Quick enough, if good enough.
+ - Honest speech does not seek secret places.
+ - Love knows nothing of order.
+ - Wine is the first weapon that devils use in attacking the young.
+ - Nothing is hard for lovers, no labor is difficult for those who wish it.
+ - Early impressions are hard to eradicate from the mind. When once wool has been dyed purple, who can restore it to its previous whiteness?
+ - Nothing gives us a greater idea of our soul, than that God has given us, at the moment of our birth, an angel to take care of it.
+ - He is rich enough who does not want bread.
+ - Everything has its drawbacks, as the man said when his mother-in-law died, and they came down upon him for the funeral expenses.
+ - No one loves to tell of scandal except to him who loves to hear it. Learn, then, to rebuke and check the detracting tongue by showing that you do not listen to it with pleasure.
+ - The laws of Caesar are one thing, those of Christ, another. Papinianus judges one way, our Paul another.
+ - If there is but little water in the stream, it is the fault, not of the channel, but of the source.
+ - What cannot be changed cannot be blamed.
+ - It is hard for the human soul not to love something, and our mind must of necessity be drawn to some kind of affection.
+ - They please the world most, who please Christ least.
+ - For the preservation of chastity, an empty and rumbling stomach and fevered lungs are indispensable.
+ - The Church of Christ has been founded by shedding its own blood, not that of others; by enduring outrage, not by inflicting it. Persecutions have made it grow; martyrdoms have crowned it.
+ - The most base of men can be civilized through suffering.
+ - The Roman world is in collapse but we do not bend our neck.
+ - It is no fault of Christianity that a hypocrite falls into sin.
+ - Strictly speaking, one should not even rightly compare virginity to marriage because you cannot make a comparison between two things if one is good and the other evil.
+ - Endeavor to have always in your hand a pious book, that with this shield you may defend yourself against bad thoughts.
+ - Time would fail me were I to try to lay before you in order all the passages in the Holy Scriptures which relate to the efficacy of baptism or to explain the mysterious doctrine of that second birth which though it is our second is yet our first in Christ.
+ - Do not marvel at the novelty of the thing, if a Virgin gives birth to God.
+ - For all riches come from iniquity, and unless one were to lose another could not gain. Hence the common adage seems to me to be very true: The rich man is unjust or the heir of an unjust one.
+ - Athletes as a rule are stronger than their backers; yet the weaker presses the stronger to put forth all his efforts.
+ - An ethic is not an ethic, and a value not a value without somesacrifice for it. Something given up, something not gained.
+ - The fact is that my native land is a prey to barbarism, that in it men’s only God is their belly, that they live only for the present, and that the richer a man is the holier he is held to be.
+ - That clergyman soon becomes an object of contempt who being often asked out to dinner never refuses to go.
+ - Playing keys is more than just knowing what notes to play. You have to know about the buttons too.
+ - Love is not to be purchased, and affection has no price.
+
+113 quotes

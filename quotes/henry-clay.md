@@ -1,0 +1,30 @@
+ - The time will come when winter will ask what you were doing all summer.
+ - Statistics are no substitute for judgment.
+ - All religions united with government are more or less inimical to liberty. All, separated from government, are compatible with liberty.
+ - Of all the properties which belong to honorable men, not one is so highly prized as that of character.
+ - Courtesies of a small and trivial character are the ones which strike deepest in the grateful and appreciating heart.
+ - The arts of power and its minions are the same in all countries and in all ages. It marks its victim; denounces it; and excites the public odium and the public hatred, to conceal its own abuses and encroachments.
+ - Of all human powers operating on the affairs of mankind, none is greater than that of competition.
+ - If you wish to avoid foreign collision, you had better abandon the ocean.
+ - All legislation is founded upon the principle of mutual concession.
+ - Political parties serve to keep each other in check, one keenly watching the other.
+ - I have heard something said about allegiance to the South. I know no South, no North, no East, no West, to which I owe any allegiance.
+ - Government is a trust, and the officers of the government are trustees. And both the trust and the trustees are created for the benefit of the people.
+ - Peaceably if we can, forcibly if we must.
+ - By competition the total amount of supply is increased, and by increase of the supply a competition in the sale ensues, and this enables the consumer to buy at lower rates. Of all human powers operating on the affairs of mankind, none is greater than that of competition.
+ - I cannot believe that the killing of 2,000 Englishmen at New Orleans qualifies a person for the various difficult and complicated duties of the Presidency.
+ - A man must be a born fool who voluntarily engages in controversy with Mr. Adams on a question of fact. I doubt whether he was ever mistaken in his life.
+ - I always have had, and always shall have, a profound regard for Christianity, the religion of my fathers, and for its rights, its usages and observances.
+ - An oppressed people are authorized whenever they can to rise and break their fetters.
+ - Honor and good faith and justice are equally due from this country toward the weak as toward the strong.
+ - The Constitution of the United States was made not merely for the generation that then existed, but for posterity- unlimited, undefined, endless, perpetual posterity.
+ - The gentleman cannot have forgotten his own sentiment, uttered even on the floor of this House, Peaceably if we can, forcibly if we must.
+ - The measure of the wealth of a nation is indicated by the measure of its protection of its industry; the measure of the poverty of a nation is marked by the degree in which it neglects and abandons the care of its own industry, leaving it exposed to the action of foreign powers.
+ - How often are we forced to charge fortune with partiality towards the unjust!
+ - A nation’s character is the sum of its splendid deeds; they constitute one common patrimony, the nation’s inheritance. They awe foreign powers, they arouse and animate our own people.
+ - Whether we assert our rights by sea, or attempt their maintenance by land whithersoever we turn ourselves, this phantom incessantly pursues us. Already has it had too much influence on the councils of the nation.
+ - I’d rather be right than President.
+ - In a scheme of policy which is devised for a nation, we should not limit our views to its operation during a single year, or even for a short term of years. We should look at its operation for a considerable time, and in war as well as in peace.
+ - We have had good and bad Presidents, and it is a consoling reflection that the American Nation possesses such elements of prosperity that the bad Presidents cannot destroy it, and have been able to do no more than slightly to retard the public’s advancement.
+
+28 quotes

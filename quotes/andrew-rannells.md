@@ -1,0 +1,21 @@
+ - I am mildly addicted to Mucinex-D. I feel like I should just come clean about that.
+ - Always my fallback is – I’m gonna move to a poor town and open a scone shop.
+ - At a very early age I knew I wanted to be an actor and then more specifically that I wanted to be on Broadway and be in musicals.
+ - Luckily for me I have a very supportive family and a loving group of friends.
+ - Always my fallback is – I’m gonna move to a poor town and open a scone shop. Sometimes after some bad auditions I think, you know what – time to open that scone shop! Let’s start baking.
+ - I still can’t shake the Nebraska off of me.
+ - As an actor, particularly in theatre, you’re trying to get jobs on TV; but you’re also losing jobs in theatre to people who are on television.
+ - As an actor, you generally don’t get to choose what projects you are part of, so I’ve been very fortunate that ‘The Book of Mormon’ was something I got to be part of. I don’t want to be lofty, but it was groundbreaking, in many ways, for musical theater, so that was really thrilling to be part of.
+ - I think as a young person, you’re kind of game for whatever sometimes.
+ - I haven’t really made up my mind concretely about having kids.
+ - If you get into multicultural sort of casting for no other reason than to diversify, then it seems false.
+ - I live in the East Village, and occasionally people will recognize me there. When I’m in Williamsburg, I always get recognized. Midtown, not so much.
+ - I’ve certainly played those leading man or male juvenile roles, where you’re not supposed to make people laugh.
+ - I love doing both theater and television.
+ - I used to do community theater with Conor Oberst.
+ - My mother was predominately a stay-at-home mom.
+ - I’ve been pretty career-focused since moving to New York.
+ - The majority of celebrities that come to the show actually don’t come backstage. Because they don’t know that they can.
+ - I can’t wake up at all without caffeine.
+
+19 quotes

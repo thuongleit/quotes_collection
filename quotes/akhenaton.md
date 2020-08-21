@@ -1,0 +1,25 @@
+ - Know thyself as the pride of His creation, the link uniting divinity and matter; behold a part of God Himself within thee; remember thine own dignity nor dare descend to evil or meanness.
+ - In all thy undertakings, let a reasonable assurance animate thy endeavors if thou despairest of success, thou shalt not succeed.
+ - Honor is the inner garment of the Soul; the first thing put on by it with the flesh, and the last it layeth down at its separation from it.
+ - Thinking, understanding, reasoning, willing, call not these Soul They are its actions, but they are not its essence.
+ - The ambitious will always be first in the crowd; he presseth forward, he looketh not behind him. More anguish is it to his mind to see one before him, than joy to leave thousands at a distance.
+ - As a rock on the seashore he standeth firm, and the dashing of the waves disturbeth him not. He raiseth his head like a tower on a hill, and the arrows of fortune drop at his feet. In the instant of danger, the courage of his heart here, and scorn to fly.
+ - Say not unto thyself, Behold, truth breedeth hatred, and I will avoid it; dissimulation raiseth friends, and I will follow it. Are not the enemies made by truth, better than the friends obtained by flattery?
+ - A contented mind is a hidden treasure, and trouble findeth it not.
+ - As the moon retaineth her nature, though darkness spread itself before her face as a curtain, so the Soul remaineth perfect even in the bosom of the fool.
+ - The lips of the wise are as the doors of a cabinet; no sooner are they opened, but treasures are poured out before thee.
+ - What is the source of sadness, but feebleness of the mind? What giveth it power but the want of reason? Rouse thyself to the combat, and she quitteth the field before thou strikest.
+ - Scorn also to depress thy competitor by any dishonest or unworthy method; strive to raise thyself above him only by excelling him; so shall thy contest for superiority be crowned with honour, if not with success.
+ - True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.
+ - Why seeketh thou revenge, O man! with what purpose is it that thou pursuest it? Thinkest thou to pain thine adversary by it? Know that thou thyself feelest its greatest torments.
+ - Say not that honor is the child of boldness, nor believe thou that the hazard of life alone can pay the price of it: it is not to the action that it is due, but to the manner of performing it.
+ - Contemplate thy powers, contemplate thy wants and thy connections; so shalt thou discover the duties of life, and be directed in all thy ways.
+ - As the whirlwind in its fury teareth up trees, and deformeth the face of nature, or as an earthquake in its convulsions overturneth whole cities; so the rage of an angry man throweth mischief around him.
+ - The heart of the hypocrite is hid in his breast he masketh his words in the semblance of truth, while the business of his life is only to deceive.
+ - To be satisfied with a little, is the greatest wisdom; and he that increaseth his riches, increaseth his cares; but a contented mind is a hidden treasure, and trouble findeth it not.
+ - Though thou art far away, thy rays are on Earth; Though thou art in their faces, no one knows thy going.
+ - Be thou incapable of change in that which is right, and men will rely upon thee. Establish unto thyself principles of action; and see that thou ever act according to them. First know that thy principles are just, and then be thou.
+ - As a camel beareth labor, and heat, and hunger, and thirst, through deserts of sand, and fainteth not; so the fortitude of a man shall sustain him through all perils.
+ - Those who gave thee a body, furnished it with weakness; but He who gave thee Soul, armed thee with resolution. Employ it, and thou art wise; be wise and thou art happy.
+
+23 quotes

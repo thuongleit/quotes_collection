@@ -1,0 +1,22 @@
+ - The boundary between science fiction and social reality is an optical illusion.
+ - Feminist objectivity means quite simply situated knowledges.
+ - I’d rather be a Cyborg than a Goddess.
+ - Single vision produces worse illusions than double vision or many-headed monsters.
+ - The cyborg is a kind of disassembled and reassembled, postmodern collective and personal self. This is the self feminists must code.
+ - Though both are bound in the spiral dance, I would rather be a cyborg than a goddess.
+ - A cyborg is a cybernetic organism, a hybrid of machine and organism, a creature of social reality as well as a creature of fiction.
+ - By the late twentieth century, our time, a mythic time, we are all chimeras, theorized and fabricated hybrids of machine and organism; in short, we are cyborgs.
+ - We have all been injured, profoundly. We require regeneration, not rebirth, and the possibilities for our reconstitution include the utopian dream of the hope for a monstrous world without gender.
+ - Our machines are disturbingly lively, and we ourselves frighteningly inert.
+ - Grammar is politics by other means.
+ - Why should our bodies end at the skin, or include at best other beings encapsulated by skin?
+ - Consciousness of exclusion through naming is acute. Identities seem contradictory, partial, and strategic.
+ - Technology is not neutral. We’re inside of what we make, and it’s inside of us. We’re living in a world of connections – and it matters which ones get made and unmade.
+ - It is not just that science and technology are possible means of great human satisfaction, as well as a matrix of complex dominations. Cyborg imagery can suggest a way out of the maze of dualisms in which we have explained our bodies and our tools to ourselves.
+ - In a sense, a cyborg has no origin story in the Western sense – a ‘final’ irony since the cyborg is also the awful apocalyptic telos of the ‘West’s’ escalating dominations of abstract individuation, an ultimate self untied at last from all dependency, a man in space.
+ - The cyborg would not recognize the garden of Eden; it is not made of mud and cannot dream of returning to dust.
+ - Myth and tool mutually constitute each other.
+ - From this point of view, science – the real game in town – is rhetoric, a series of efforts to persuade relevant social actors that one’s manufactured knowledge is a route to a desired form of very objective power.
+ - Blasphemy has always seemed to require taking things very seriously.
+
+20 quotes

@@ -1,0 +1,44 @@
+ - Duty is ours; consequences are God’s.
+ - Never take counsel of your fears.
+ - You may be whatever you resolve to be.
+ - What is life without honor? Degradation is worse than death.
+ - I want my army to be an army of the living God.
+ - The patriot volunteer, fighting for country and his rights, makes the most reliable soldier on earth.
+ - We are all but instruments of God.
+ - Died of wounds inflicted in error by his own troops at the battle of Chancellorsville during the US Civil War. Let us cross over the river and sit in the shade of the trees.
+ - The only winner today is big business.
+ - My duty is to obey orders.
+ - Shoot the brave officers, and the cowards will run away and take the men with them.
+ - It is painful enough to discover with what unconcern they speak of war and threaten it. I have seen enough of it to make me look upon it as the sum of all evils.
+ - I find I like it too much.
+ - My religious beliefs teach me to feel as safe in battle as in bed.
+ - I am more anxious than I can express that my men should be not only good soldiers of their country, but also good soldiers of the cross.
+ - I like liquor – its taste and its effects – and that is just the reason why I never drink it.
+ - Then, Sir, we will give them the bayonet!
+ - My religious belief teaches me to feel as safe in battle as in bed. God has fixed the time for my death. I do not concern myself about that, but to always be ready, no matter when it may overtake me.
+ - Don’t say it’s impossible! Turn your command over to the next officer. If he can’t do it, I’ll find someone who can, even if I have to take him from the ranks!
+ - I was afraid the fire would not be hot enough for me to distinguish myself.
+ - I yield to no man in sympathy for the gallant men under my command; but I am obliged to sweat them tonight, so that I may save their blood tomorrow.
+ - Do your duty and leave the rest to Providence.
+ - Press on, press on, men.
+ - All I am and all I have is at the service of my country.
+ - Always mystify, mislead and surprise the enemy if possible.
+ - Arms is a profession that, if its principles are adhered to for success, requires an officer do what he fears may be wrong, and yet, according to military experience, must be done, if success is to be attained.
+ - The hardships of forced marches are often more painful than the dangers of battle.
+ - I am more afraid of alcohol than of all the bullets of the enemy.
+ - My troops may fail to take a position, but are never driven from one!
+ - People who are anxious to bring on war don’t know what they are bargaining for; they don’t see all the horrors that must accompany such an event.
+ - This army stays here until the last wounded man is removed. Before I leave them to the enemy, I will lose many more men.
+ - He is cautious. He ought to be. But he is NOT slow. Lee is a phenomenon. He is the only man whom I would follow blindfolded.
+ - The only true rule for cavalry is to follow the enemy as long as he retreats.
+ - Under divine blessing, we must rely on the bayonet when firearms cannot be furnished.
+ - Sir! Men who desert their comrades in war deserve to be shot! And Officers who intrude for them deserve to be hung!
+ - Madam, if your son were to come home and try to shirk duty, you ought to shut your door in his face and treat him as a renegade unworthy of your name or regard.
+ - Our God was my shield. His protecting care is an additional cause for gratitude.
+ - Through life let your principal object be the discharge of duty.
+ - There are but few commanders who properly appreciate the value of celerity.
+ - Let us go over, and sit in the shade of the trees.
+ - Who could not conquer with such troops as these?
+ - If officers desire to have control over their commands, they must remain habitually with them, industriously attend to their instruction and comfort, and in battle lead them well.
+
+42 quotes

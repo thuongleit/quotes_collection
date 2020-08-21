@@ -1,0 +1,209 @@
+ - True friendship resists time, distance and silence.
+ - Silence before being born, silence after death: life is nothing but noise between two unfathomable silences.
+ - We only have what we give.
+ - You are the storyteller of your own life, and you can create your own legend, or not.
+ - Writing is a calling, not a choice.
+ - Fear is inevitable, I have to accept that, but I cannot allow it to paralyze me.
+ - I think I was a feminist before the word was invented.
+ - For real change, we need feminine energy in the management of the world. We need a critical number of women in positions of power, and we need to nurture the feminine energy in men.
+ - Those who seek the truth run the risk of finding it.
+ - There is no light without shadow, just as there is no happiness without pain.
+ - Write what should not be forgotten.
+ - We don’t even know how strong we are until we are forced to bring that hidden strength forward. In times of tragedy, of war, of necessity, people do amazing things. The human capacity for survival and renewal is awesome.
+ - Show up, show up, show up, and after a while the muse shows up, too.
+ - Peace requires everyone to be in the circle – wholeness, inclusion.
+ - Writing is like making love. Don’t worry about the orgasm, just concentrate on the process.
+ - The hardest thing of love is to let go.
+ - We all have an unsuspected reserve of strength inside that emerges when life puts us to the test.
+ - We only appreciate what we have when we lose it.
+ - The library is inhabited by spirits that come out of the pages at night.
+ - What is truer than truth? Answer: the story.
+ - Writing is a process, a journey into memory and the soul.
+ - I can promise you that women working together – linked, informed and educated – can bring peace and prosperity to this forsaken planet.
+ - A man does what he can; a woman does what a man cannot.
+ - Empowering women means trusting them.
+ - Roots are not in landscape or a country, or a people, they are inside you.
+ - Write to register history, and name each thing. Write what should not be forgotten.
+ - Life is very mysterious and there are many things we don’t know. And there are elements of magic realism in every culture, everywhere. It’s just accepting that we don’t know everything and everything is possible.
+ - The fear is not real, Dil Bahadur; it is only in your mind, like all other things. Our thoughts form what we believe to be reality.
+ - You can’t find someone who doesn’t want to be found.
+ - For women, the best aphrodisiacs are words. The G-spot is in the ears. He who looks for it below there is wasting his time.
+ - Youth is not a period in life but a state of mind.
+ - When love exists, nothing else matters, not life’s predicaments, not the fury of the years, not a physical winding down or scarcity of opportunity.
+ - You are my angel and my damnation; in your presence I reach divine ecstasy and in your absence I descent to hell.
+ - Conceit is a privilege of the ignorant; the wise man is humble because he knows how little he knows.
+ - It is a wonderful truth that things we want most in life-a sense of purpose, happiness and hope-are most easily attained by giving them to others.
+ - I don’t want an uneventful and safe life, I prefer an adventurous one.
+ - A novel is achieved with hard work, the short story with inspiration.
+ - Words are not that important when you recognize intentions.
+ - Feminism has never been sexy, but let me assure you that it never stopped me from flirting, and I have seldom suffered from lack of men.
+ - What I fear most is power with impunity. I fear abuse of power, and the power to abuse.
+ - Aphrodite is about lust and gluttony – the only two sins worth committing, in my opinion.
+ - The pain of losing my child was a cleansing experience. I had to throw overboard all excess baggage and keep only what is essential.
+ - Perhaps we are in this world to search for love, find it and lose it, again and again. With each love, we are born anew, and with each love that ends we collect a new wound. I am covered with proud scars.
+ - Heart is what drives us and determines our fate. That is what I need for my characters in my books: a passionate heart. I need mavericks, dissidents, adventurers, outsiders and rebels, who ask questions, bend the rules and take risks.
+ - In my lifetime, the world has become better, not worse. And the world is moving, very slowly but surely with more democracy and more liberal way of thinking, more inclusion and more diversity.
+ - Just as when we come into the world, when we die we are afraid of the unknown. But the fear is something from within us that has nothing to do with reality. Dying is like being born: just a change.
+ - My life is about ups and downs, great joys and great losses.
+ - When my daughter Paula died, I was in the deepest pain, and my mother said, “This kind of sorrow is like a long, narrow, dark channel. You have to walk this channel alone and be sure that there is light at the other ending. Just keep walking.”
+ - We don’t have an explanation for everything that happens. We don’t control almost anything. And if we are not open to that mystery, life becomes so small.
+ - In times of conflict, war, poverty or religious fundamentalism, women and children are the first and most numerous victims. Women need all their courage today.
+ - Accept the children the way we accept trees – with gratitude, because they are a blessing – but do not have expectations or desires. You don’t expect trees to change, you love them as they are.
+ - I don’t read thrillers, romance or mystery, and I don’t read self-help books because I don’t believe in shortcuts and loopholes.
+ - That is the best part of writing: finding the hidden treasures, giving sparkle to worn out events, invigorating the tired soul with imagination, creating some kind of truth with many lies.
+ - All stories interest me, and some haunt me until I end up writing them.
+ - She sowed in my mind the idea that reality is not only what we see on the surface; it has a magical dimension as well and, if we so desire, it is legitimate to enhance it and color it to make our journey through life less trying.
+ - You have the health you deserve.
+ - I was born in the middle of World War II, the middle of the Holocaust; I was born when there was no declaration of human rights, when feminism was not an issue, when children were working in factories. I mean, today’s world is a better place!
+ - I was a very bad journalist. Awful. I would just invent everything. If I did an interview, I had a preconception of what that person should say and I would put my words in his mouth.
+ - At the most difficult moments of my life, when it seemed that every door was closed to me, the taste of those apricots comes back to comfort me with the notion that abundance is always within reach, if only one knows how to find it.
+ - The names of persons and living creatures demand respect, because when we speak to them we touch their heart and become a part of thier life force.
+ - If you change the way you tell your own story, you can change the colour and create a life in technicolour.
+ - You write a book and it’s like putting a message in a bottle and throwing it in the ocean. You don’t know if it will ever reach any shores. And there, you see, sometimes it falls in the hands of the right person.
+ - I seek truth and beauty in the transparency of an autumn leaf, in the perfect form of a seashell on the beach, in the curve of a woman’s back, in the texture of an ancient tree trunk, but also in the elusive forms of reality.
+ - My writing comes not from the happy moments, but from struggle and grief.
+ - He was not oppressed by a crowd because in the midst of all the hullabaloo he always found a quiet place for his soul.
+ - I learned very quickly that when you emigrate, you lose the crutches that have been your support; you must begin from zero, because the past is erased with a single stroke and no one cares where you’re from or what you did before.
+ - Eros is very close to death. And both things, in a way, balance each other.
+ - He had only to touch me to turn my tears into sighs and my anger to desire. How accomodating love is; it forgives everything.
+ - Fiction happens in the womb. It doesn’t get processed in the mind until you do the editing.
+ - I was such a sullen, angry, sad kid. I’m sure there are writers who have had happy childhoods, but what are you going to write about? No ghosts, no fear. I’m very happy that I had an unhappy and uncomfortable childhood.
+ - If this world is going to be a better place for our grandchildren and great-grandchildren, it will be women who make it so.
+ - Barrabas came to us by sea, the child Clara wrote in her delicate calligraphy.
+ - Americans have a warrior’s mentality, most of them. That’s how this society was built. The fact that you own a gun and shoot to defend your life is a very American way of thinking.
+ - The world is a very unjust, unfair place and we have to live with that. Historically, there is impunity for most crimes.
+ - I’m aware of the mystery around us, so I write about coincidences, premonitions, emotions, dreams, the power of nature, magic.
+ - How many times have I told you not to believe everything you hear? Seek truth for yourself.
+ - I do not put myself in a box and say, for instance, I’m writing post-colonial literature. I don’t know what I’m writing. That’s the business of professors and critics. My job is to tell a story, and that’s it.
+ - Music is a wind that blows away the years, memories, and fear, that crouching animal I carry inside me.
+ - I’m living in California but I have a place that is mine in Chile and I belong there. I am no longer an exile.
+ - Today’s girls are tomorrow’s women – and leaders.
+ - And I am not one of those women who trips twice over the same stone.
+ - Barrabas came to us by the sea.
+ - Humanity has this need to hear stories because they connect us with other people, they teach us about our own feelings. We feel less lonely when we see other people going through the same things, even if they’re fictional characters.
+ - Do you truly believe that life is fair, Senor de la Vega? -No, maestro, but I plan to do everything in my power to make it so.
+ - Everyone in his place and a place for everyone.
+ - Nations should be governed by a council of learned men who must answer to the people for their actions.
+ - The fact that I am a writer comes from the experience of being cut away from my roots and living in Venezuela, where I couldn’t find a place for myself, for years and years.
+ - Dying is not easy. It’s a very hard transition.
+ - The writer of good will carries a lamp to illuminate the dark corners.
+ - I like Hillary Clinton a lot. I know her.
+ - I’ve been a foreigner for the past twenty years. I don’t have roots anymore. My roots are in my memory and my writing. That’s why memory is so important. Who are you but what you can remember?
+ - We are too connected. There’s noise in our heads all the time.
+ - It is common knowledge that no man that women flock to boasts of his conquests. Those who do, lie.
+ - I don’t think I would be a writer if I had stayed in Chile. I would be trapped in the chores, in the family, in the person that people expected me to be.
+ - I am happier when I love than when I am loved. I adore my husband, my son, my grandchildren, my mother, my dog, and frankly, I don’t know if they even like me. But who cares? Loving them is my joy.
+ - You only have what you give. It’s by spending yourself that you become rich.
+ - I had a very rough childhood and not a happy one and by age 15 I was an old person in many ways. I knew that I had to take care of myself, I um and I always did.
+ - Erotica is using a feather; pornograpy is using the whole chicken.
+ - I think that my life changed at 50. Many things happened. Menopause, the end of youth and my daughter died that year after being a whole year in a coma. So I think that I changed and I became an elder at 50.
+ - We live in an era where masses of people come and go across a hostile planet, desolate and violent. Refugees, emigrants, exiles, deportees. We are a tragic contingent.
+ - It’s going to go away because we all need silence. We all need time to reflect and think. I am not at all pessimistic about this.
+ - That was a good time in my life, in spite of having the sensation of floating on a cloud, surrounded by both lies and things left unspoken. Occasionally I thought I glimpsed the truth, but soon found myself once again lost in a forest of ambiguities.
+ - I’m open to love, and I think that I will fall in love with a wonderful man.
+ - Only that, nothing more – a tiny beam of light to show some hidden aspect of reality, to help decipher and understand it and thus to initiate, if possible, a change in the conscience of some readers.
+ - Society decides when we get old. But the spirit never ages.
+ - My son, the Holy Church is on the right, but Jesus Christ was always on the left.
+ - At my age days dissolve like salt in water; the day’s gone and I don’t even know what I’ve done with the hours.
+ - I would like to be with my husband together sitting somewhere in a lonely place in the woods and take something, maybe some pills or something, a magic potion and die together.
+ - When I started working in a feminist feminine magazine all my life was about rebelling against male authority, which is authority in general is male, so it was rebelling against everything. Everything that was around me made me angry.
+ - My father says that fear is good; it’s the body’s alarm system, it warns us of danger. But sometimes danger can’t be avoided, and then you have to forget about being afraid.
+ - We want a world where life is preserved, and the quality of life is enriched for everybody, not only for the privileged.
+ - With women the best aphrodisiac is words.
+ - Photographs deceive time, freezing it on a piece of cardboard where the soul is silent.
+ - I was born in ancient times, at the end of the world, in a patriarchal Catholic and conservative family. No wonder that by age five I was a raging feminist – although the term had not reached Chile yet, so nobody knew what the heck was wrong with me.
+ - Give, give, give-what is the point of having experience, knowledge or talent if I don’t give it away?
+ - We’ve lost our sense of ethics; we live in a world of small-mindedness, of gratification without happiness and actions without meaning.
+ - The fact people think that when you sell a lot of books you are not a serious writer is a great insult to the readership. I get a little angry when people try to say such a thing.
+ - Nothing changes; we humans repeat the same sins over and over, eternally.
+ - Cooking can be like foreplay.
+ - Wishes and fears are illusions, Dil Bahadur, not realities. You must practice detachment.
+ - How accommodating love is; it forgives everything.
+ - Twittering and blogging and all that is fine, but there is no idea of how to phrase something beautifully; how to use language to create an emotion. It’s just passing information and sometimes very superficial information.
+ - I’m not above anybody. I’m, I’m not better than anybody. I am made of the same material that everybody else is and if somebody can be a saint, so can I and if somebody can be a torturer, so can I.
+ - His calls for justice were lost at the mercy of the wind and human indifference.
+ - The longer I live, the more uninformed I feel. Only the young have an explanation for everything.
+ - Be careful what you ask of Heaven; it might be granted.
+ - Memory is fiction. We select the brightest and the darkest, ignoring what we are ashamed of, and so embroider the broad tapestry of our lives.
+ - I tend to see the similarities in people and not the differences.
+ - Everyone has a story, the air is full of stories. The creative process is mysterious, I don’t know why it is that suddenly a theme will take hold of me and refuse to leave me in peace until I investigate it and write it.
+ - Land is something one should never sell. It is the only thing left when all else is gone.
+ - Someone has said that conversation is sex for the soul.
+ - I’m such a control freak. I want to control even my own death. Decide when I will die and how.
+ - I have learned many things in the 30 years that I have been writing.
+ - The two moments are much alike: birth and death are made of the same fabric.
+ - The connection that I have with my readers makes me very happy, and gives meaning to the strange profession of writing.
+ - Literary characters, like my grandmother’s apparitions, are fragile beings, easily frightened; they must be treated with care so they will feel comfortable in my pages.
+ - When I write fiction, I never try to deliver a message; I just want to tell a story. But I admit that I want the story to be memorable and the characters to touch the reader’s heart.
+ - Sisters: talk to each other, be connected and informed, form women’s circles, share your stories, work together, and take risks. Together we are invincible.
+ - At times I felt that the universe fabricated from the power of the imagination had stronger and more lasting contours than the blurred realm of the flesh-and-blood creatures around me.
+ - My books are written from personal experience, from memories, and from stories that come to me from all places.
+ - Love is a free contract that begins with a spark and can end the same way.
+ - Heart is what drives us and determines our fate.
+ - I try to let go of the intellect and just tell the story. I only read the page I have in front of me on the screen. Then when the whole story is told, I print it, wait a week and read it.
+ - People are afraid of falling in love because they don’t want to suffer.
+ - If I didn’t write my soul would dry up and die.
+ - I don’t want posterity, I don’t want anybody to remember me in any way. I don’t care about that because I’ll be dead. I think the spirit will move to some other state.
+ - Affection is like the noonday sun; it does not need the presence of another to be manifest.
+ - I have travelled all over the world and one thing that amazes me is that I can communicate with people. My story may be different but emotionally we are all the same.
+ - In terrible moments, in moments of revolution, of war or repression, of illness or death, people react with incredible strength.
+ - At my age, people prefer to stay in a relationship that is not working. I do not understand that. I think it takes a lot of courage to separate. But it takes more energy to stay in something that is not working.
+ - I like historical fiction. I fell in love with New Orleans the first time I visited it. And I wanted to place a story in New Orleans.
+ - The first two, three, four weeks are wasted. I just show up in front of the computer. Show up, show up, show up, and after a while the muse shows up, too. If she doesn’t show up invited, eventually she just shows up.
+ - No complaining about how hard it is to write, we are all so, so lucky to write, to sit down, inside, and write words on paper. There is no greater freedom, no greater good, nothing that brings more joy.
+ - Happiness is pure kitch; we come into the world to suffer and learn.
+ - I should say that I’m not conscious of any particular style or any particular literary device when I am writing. I have written 22 books, and they are all very different. I have tried all kinds of genres.
+ - The success occurs in a place outside of me, and doesn’t touch me on an intimate level. I live in my own skin, I have not changed greatly, I remain the same woman.
+ - People think that they will sit down and produce the great American novel in one sitting. It doesn’t work that way. This is a very patient and meticulous work, and you have to do it with joy and love for the process, not for the outcome.
+ - How can one not speak about war, poverty, and inequality when people who suffer from these afflictions don’t have a voice to speak?
+ - If I write something, I fear it will happen, and if I love too much, I fear I will lose that person; nevertheless, I cannot stop writing or loving...
+ - I write to understand my circumstances, to sort out the confusion of reality, to exorcise my demons. But most of all, I write because I love it!
+ - They could not understand the advantage of living contrary to their inclinations in this world in order to enjoy a hypothetical well-being in another.
+ - A novel is like a window, open to an infinite landscape.
+ - My worst flaw is that I tell secrets, my own and everybody else’s.
+ - A book is not an end in itself; it is only a way to touch someone – a bridge extended across a space of loneliness and obscurity – and sometimes it is a way of winning other people to our causes.
+ - Just as Daniel Balalcazar said, it makes no sense to suffer in advance a misfortune that may never occur.
+ - I have been a woman for 46 years and I only recently realized I can’t change it and I like it.
+ - I need to remember to overcome.
+ - The first lie of fiction is that the author gives some order to the chaos of life: chronological order, or whatever order the author chooses.
+ - Nice people with common sense do not make interesting characters. They only make good former spouses.
+ - When you tell a story in the kitchen to a friend, it’s full of mistakes and repetitions. It’s good to avoid that in literature, but still, a story should feel like a conversation. It’s not a lecture.
+ - I don’t think of literature as an end in itself. It’s just a way of communicating something.
+ - I’ve been a story-teller all my life but I realized it only recently.
+ - Catholics form a majority in Chile, although there are more and more Evangelicals and Pentacostals who irritate everyone because they have a direct understanding with God while everyone else must pass through the priestly bureaucracy.
+ - I need to tell a story. It’s an obsession. Each story is a seed inside of me that starts to grow and grow, like a tumor, and I have to deal with it sooner or later.
+ - Agosins poetic language engages the reader in a mesmerizing journey of inward reflection and exile.
+ - I feel that my life and therefore my writing accept the possibility of all the mystery. Everything we don’t know; everything that can possibly happen.
+ - Writers speak for those who are kept in silence.
+ - I’m interested in people who have to overcome obstacles, people who are not sheltered by the umbrella of the establishment, marginals.
+ - In the United States, the fact that you can start again gives a lot of energy and strength and youth to this country. That is why it’s so powerful in many ways, and so creative.
+ - The most poor and backward areas in the world are those in which women are subjugated and exploited. Improving the situation of the woman improves the family, the community, and by extension the whole country.
+ - Writing is a constant exercise in longing.
+ - My books are based on emotions, feelings, relationships. In these areas women are experts, so it’s not strange that the main characters of my novels are females.
+ - Although women do two-thirds of the world’s labor, they own less than one percent of the world’s assets.
+ - Women are the only ones who will be able to eliminate the patriarchy, and when that happens all of us will win, men as much as women.
+ - I have more freedom when I write fiction, but my memoirs have had a much stronger impact on my readers. Somehow the ‘message,’ even if I am not even aware that there is one, is conveyed better in this form.
+ - All stories interest me, and some haunt me until I end up writing them. Certain themes keep coming up: justice, loyalty, violence, death, political and social issues, freedom.
+ - Heroism is a badly remunerated occupation, and often it leads to an early end, which is why it appeals to fanatics or persons with an unhealthy fascination with death.
+ - Remember that all the others are more afraid than you.
+ - I was a lousy journalist. I could never be objective. Sometimes I invented the whole story.
+ - There is room in the human heart for all the divinities.
+ - When a man’s earning his living doing things he doesn’t like, he feels like a slave; when he’s doing what he loves, he feels like a prince.
+ - In my book tours I get to meet an audience every night. And I see that there are mostly young people, and there are a lot of more men than before, but always young, I don’t get older men. As I’m getting older, my audience gets younger!
+ - But I don’t want more things than I need, either.
+ - Boredom, Timothy Duane assured me, is nothing more than anger without passion.
+ - Real soup is to the body what peace is to the soul.
+ - I was not supposed to be in any way a liberated person. I was a female born in the ’40s in a patriarchal family; I was supposed to marry and make everyone around me happy.
+ - I don’t think that we have to look like the models in the magazines because they are 19 year olds and they have been photo shopped extensively, not but given what I, we have as the raw material, take care of it.
+ - And the truth is that if a writer is successful, you gain readers. It benefits all the writers. It’s important for all the writers that as many of us as possible be successful.
+ - She intended to swallow the world and he lived crushed by reality.
+ - More and more books are published every year. If people were not reading them, they wouldn’t be published. We are now reading electronic books or whatever else, but people are still reading, and people still need stories.
+ - I’m surrounded by the scene of aging. I myself am in my 70s and not getting any younger. Although I’m very healthy, and I have a lot of energy, and I still feel 50, I’m over 70 and I understand that I am preparing for later.
+ - I have seen these persons speak unthinkingly, not realizing that to speak is also to be. Word and gesture are man’s thought. We should not speak without reason.
+ - Writing is my job. I don’t think of it as art.
+ - The world starts to exist, for Americans, when we are in conflict with a place. And then all of a sudden, Afghanistan pops up on the TV screen and it becomes a place. And it exists for three weeks and then it disappears into thin air.
+ - I’m very optimistic because I think that the real strength of a nation like the United States comes from blending cultures. There’s no way that you can close the frontiers anywhere. The borders are there to be violated permanently.
+ - What happens in the world affects me. Sometimes, that’s part of the writing.
+ - When you make an omelet, as when you make love, affection counts for more than technique.
+
+207 quotes

@@ -1,0 +1,64 @@
+ - God is a hacker, not an engineer.
+ - A busy life is a wasted life.
+ - You can do reverse engineering, but you can’t do reverse hacking.
+ - A good scientist values criticism almost higher than friendship: no, in science criticism is the height and measure of friendship.
+ - You’re nothing but a pack of neurons.
+ - An honest man, armed with all the knowledge available to us now, could only state that in some sense, the origin of life appears at the moment to be almost a miracle, so many are the conditions which would have had to have been satisfied to get it going.
+ - The dangerous man is the one who has only one idea, because then he’ll fight and die for it.
+ - Rather than believe that Watson and Crick made the DNA structure, I would rather stress that the structure made Watson and Crick.
+ - Evolution is cleverer than you are.
+ - Trying to determine the structure of a protein by UV spectroscopy was like trying to determine the structure of a piano by listening to the sound it made while being dropped down a flight of stairs.
+ - While Occam’s razor is a useful tool in the physical sciences, it can be a very dangerous implement in biology. It is thus very rash to use simplicity and elegance as a guide in biological research.
+ - Protein synthesis is a central problem for the whole of biology, and that it is in all probability closely related to gene action.
+ - There is no scientific study more vital to man than the study of his own brain. Our entire view of the universe depends on it.
+ - Exact knowledge is the enemy of vitalism.
+ - The ultimate aim of the modern movement in biology is in fact to explain all biology in terms of physics and chemistry.
+ - Biologists must constantly keep in mind that what they see was not designed, but rather evolved.
+ - Almost all aspects of life are engineered at the molecular level, and without understanding molecules we can only have a very sketchy understanding of life itself.
+ - Exploratory research is really like working in a fog. You don’t know where you’re going. You’re just groping. Then people learn about it afterwards and think how straightforward it was.
+ - Christianity may be OK between consenting adults in private but should not be taught to young children.
+ - One of the most frightening things in the Western world, and in this country in particular, is the number of people who believe in things that are scientifically false. If someone tells me that the earth is less than 10,000 years old, in my opinion he should see a psychiatrist.
+ - One can say, looking at the papers in this symposium, that the elucidation of the genetic code is indeed a great achievement. It is, in a sense, the key to molecular biology because it shows how the great polymer languages, the nucleic acid language and the protein language, are linked together.
+ - It has not escaped our notice that the specific pairing we have postulated immediately suggests a possible copying mechanism for the genetic material.
+ - Again the message to experimentalists is: Be sensible but don’t be impressed too much by negative arguments. If at all possible, try it and see what turns up. Theorists almost always dislike this sort of approach.
+ - Chance is the only source of true novelty.
+ - Do codons overlap? In other words, as we read along the genetic message do we find a base which is a member of two or more codons? It now seems fairly certain that codons do not overlap.
+ - There is no form of prose more difficult to understand and more tedious to read than the average scientific paper.
+ - In the fullness of time, educated people will believe there is no soul independent of the body, and hence no life after death.
+ - The meaning of this observation is unclear, but it raises the unfortunate possibility of ambiguous triplets; that is, triplets which may code more than one amino acid. However one would certainly expect such triplets to be in a minority.
+ - Free will is located in or near the anterior cingulate sulcus.
+ - In my experience most mathematicians are intellectually lazy.
+ - Avoid the temptation to work so hard that there is no time left for serious thinking.
+ - It seems likely that most if not all the genetic information in any organism is carried by nucleic acid – usually by DNA, although certain small viruses use RNA as their genetic material.
+ - A theory should not attempt to explain all the facts, because some of the facts are wrong.
+ - If revealed religions have revealed anything it is that they are usually wrong.
+ - In my experience most mathematicians are intellectually lazy and especially dislike reading experimental papers. He seemed to have very strong biological intuitions but unfortunately of negative sign.
+ - It is not easy to convey, unless one has experienced it, the dramatic feeling of sudden enlightenment that floods the mind when the right idea finally clinches into place.
+ - It is notoriously difficult to define the word living.
+ - It is essential to understand our brains in some detail if we are to assess correctly our place in this vast and complicated universe we see all around us.
+ - We have to take away from humans in the long run their reproductive autonomy as the only way to guarantee the advancement of mankind.
+ - The balance of evidence both from the cell-free system and from the study of mutation, suggests that this does not occur at random, and that triplets coding the same amino acid may well be rather similar.
+ - A knowledge of the true age of the Earth and of the fossil record makes it impossible for any balanced intellect to believe in the literal truth of every part of the Bible in the way that fundamentalists do.
+ - A final proof of our ideas can only be obtained by detailed studies on the alterations produced in the amino acid sequence of a protein by mutations of the type discussed here.
+ - A man who is right every time is not likely to do very much.
+ - The major credit I think Jim and I deserve is for selecting the right problem and sticking to it. It’s true that by blundering about we stumbled on gold, but the fact remains that we were looking for gold.
+ - How is the base sequence, divided into codons? There is nothing in the backbone of the nucleic acid, which is perfectly regular, to show us how to group the bases into codons.
+ - If, for example, all the codons are triplets, then in addition to the correct reading of the message, there are two incorrect readings which we shall obtain if we do not start the grouping into sets of three at the right place.
+ - Since I essentially knew nothing, I had an almost completely free choice.
+ - Moreover the incorporation requires the same components needed for protein synthesis, and is inhibited by the same inhibitors. Thus the system is most unlikely to be a complete artefact and is very probably closely related to genuine protein synthesis.
+ - If poly A is added to poly U, to form a double or triple helix, the combination is inactive.
+ - A comparison between the triplets tentatively deduced by these methods with the changes in amino acid sequence produced by mutation shows a fair measure of agreement.
+ - This seems highly likely, especially as it has been shown that in several systems mutations affecting the same amino acid are extremely near together on the genetic map.
+ - It now seems certain that the amino acid sequence of any protein is determined by the sequence of bases in some region of a particular nucleic acid molecule.
+ - It would appear that the number of nonsense triplets is rather low, since we only occasionally come across them. However this conclusion is less secure than our other deductions about the general nature of the genetic code.
+ - Anybody who believes that the earth is less than 10,000 years old needs psychiatric help.
+ - It now seems very likely that many of the 64 triplets, possibly most of them, may code one amino acid or another, and that in general several distinct triplets may code one amino acid.
+ - It has yet to be shown by direct biochemical methods, as opposed to the indirect genetic evidence mentioned earlier, that the code is indeed a triplet code.
+ - What could be more foolish than to base one’s entire view of life on ideas that, however plausible at the time, now appear to be quite erroneous? And what would be more important than to find our true place in the universe by removing one by one these unfortunate vestiges of earlier beliefs?
+ - Jim and I hit it off immediately, partly because our interests were astonishingly similar and partly, I suspect, because a certain youthful arrogance, a ruthlessness, an impatience with sloppy thinking can naturally to both of us.
+ - If the code does indeed have some logical foundation then it is legitimate to consider all the evidence, both good and bad, in any attempt to deduce it.
+ - Attempts have been made from a study of the changes produced by mutation to obtain the relative order of the bases within various triplets, but my own view is that these are premature until there is more extensive and more reliable data on the composition of the triplets.
+ - Unfortunately it makes the unambiguous determination of triplets by these methods much more difficult than would be the case if there were only one triplet for each amino acid.
+ - It is one of the more striking generalizations of biochemistry – which surprisingly is hardly ever mentioned in the biochemical textbooks – that the twenty amino acids and the four bases, are, with minor reservations, the same throughout Nature.
+
+62 quotes

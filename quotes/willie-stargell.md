@@ -1,0 +1,58 @@
+ - Life is one big transition.
+ - Don’t be sharp or flat; just be natural.
+ - Helping someone is what life is all about.
+ - To be successful, one must take chances.
+ - Be honest and work hard to get what you want. Don’t take shortcuts; you only cheat yourself in the long run. Success is not measured by money or fame, but by how you feel about your own goals and accomplishments and the time and effort you put into them.
+ - When they start the game, they don’t yell, “Work ball.” They say, “Play ball.”
+ - I flailed my arm in a throwing motion before I could even walk.
+ - It’s supposed to be fun, the man says ‘Play Ball’ not ‘Work Ball’ you know.
+ - Trying to hit Sandy Koufax was like trying to drink coffee with a fork.
+ - Throwing a knuckleball for a strike is like throwing a butterfly with hiccups across the street into your neighbor’s mailbox.
+ - That’s where the future lies, in the youth of today.
+ - There’s nothing I value more than the closeness of friends and family, a smile as I pass someone on the street.
+ - People like us are afraid to leave ball. What else is there to do? When baseball has been your whole life, you can’t think about a future without it, so you hang on as long as you can.
+ - They give you a round bat and they throw you a round ball. And they tell you to hit it square.
+ - To me, baseball has always been a reflection of life. Like life, it adjusts. It survives everything.
+ - Vietnam helped me realize who the true heroes really are in this world. It’s not the home-run hitters.
+ - I’ve always been a slave to my heart.
+ - I found myself in a race with Mother Nature to play as much baseball as I could before she forced me to stop.
+ - When we make a mistake, it becomes front-page news. We don’t need any reporter telling us how badly we played.
+ - I eventually became proud of my strikeouts, because each one represented another learning experience.
+ - I’m a God-fearing man who worships with my heart and with my life.
+ - Pittsburgh isn’t fancy, but it is real. It’s a working town and money doesn’t come easy. I feel as much a part of this city as the cobblestone streets and the steel mills, people in this town expect an honest day’s work, and I’ve it to them for a long, long time.
+ - Oakland revolved around Forbes Field. Nothing in the city could match that atmosphere.
+ - I love September, especially when we’re in it.
+ - I would always reserve a special place in my heart for Pittsburgh.
+ - The bat is gone, but the smile remains.
+ - Judgment traps you within the limitations of your comparisons. It inhibits freedom.
+ - I never search for a reason why – I have faith in the Lord’s purpose.
+ - A World Series trophy is a wonderful thing to behold.
+ - My first job after my retirement from baseball was as a narrator for the Eastman Philharmonica.
+ - I’m always amazed when a pitcher becomes angry at a hitter for hitting a home run off him. When I strike out, I don’t get angry at the pitcher, I get angry at myself. I would think that if a pitcher threw up a home run ball, he should be angry at himself.
+ - Unfortunately, inner feelings and potential are often stunted by our parents, relatives or peers.
+ - To middle-class parents, the project team may have seemed unfit for children, but it was exactly what I needed.
+ - Love soothes wounds, while hatred and violence deepen them.
+ - I wasn’t out drinking and abusing my body. I simply loved to go out and dance.
+ - Baseball for me was instinctive, born within me, given to me as a gift from God.
+ - We all wore a 21 patch that one season as a silent tribute to our deceased teammate Roberto.
+ - I owe a large part of my success to Joe Brown, who helped me both as a player and a person.
+ - The Giants were a good team, but our biggest enemy was said to be Candlestick Park.
+ - I never did allow anything to keep me from my kids. They’re the most important part of my life.
+ - I gave out stars whenever an appropriate situation presented itself.
+ - Human beings are pampered by the Lord. Their real tests don’t come until later in life.
+ - I don’t really feel that I deserve all my applause.
+ - I was the most powerful left-handed hitter in the Alameda area.
+ - Reporters often forget that athletes are human beings.
+ - I was always a self-proclaimed poor slider.
+ - I’m proud of the fact that I’m the only player to hit a ball completely out of Dodger Stadium.
+ - We devote our entire lives to becoming good ball players. We take batting practice until our hands bleed.
+ - I always said that when it was time to retire, I would know it, and I would just tip my hat to the crowds.
+ - You only have a few years to play this game and you can’t play it if you’re all tied up in knots.
+ - Playing baseball was my dream, and no amount of money could sway my opinion.
+ - Never had I had so many friends and so much fun as I did in the projects.
+ - I loved to hit with men on base and with the game on the line.
+ - I’ve witnessed thousands of superior athletes try to becomes hitters and fail at it.
+ - Simple pleasures were all the pleasures that I knew as a child.
+ - If a reporter doesn’t like the person he’s writing about, it shows up in his article.
+
+56 quotes

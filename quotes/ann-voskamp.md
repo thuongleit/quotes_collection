@@ -1,0 +1,163 @@
+ - Busy is a choice. Stress is a choice. Joy is a choice. Choose well.
+ - Practice is the hardest part of learning, and training is the essence of transformation.
+ - Faith thanks God in the middle of the story.
+ - There is unwavering peace today when an uncertain tomorrow is trusted to an unchanging God.
+ - Being joyful isn’t what makes you grateful. Being grateful is what makes you joyful.
+ - Joy is always a function of gratitude – and gratitude is always a function of perspective.
+ - God gives us time. And who has time for God?
+ - Your naked body deserves the honor of being shared only with someone who is covenanted to never stop loving your naked soul.
+ - The answer to deep anxiety is the deep adoration of God.
+ - What was intended to harm, God intended it all for good. And no matter what intends to harm you, God’s arms have you. You can never be undone.
+ - God’s purposes are not for me to understand His plans: His plan is for me to understand Who He is.
+ - As long as thanks is possible, then joy is always possible.
+ - Thanksgiving creates abundance.
+ - Instead of giving someone a piece of your mind, it turns out far better if you give them a piece of your heart.
+ - You love as well as you are willing to be inconvenienced.
+ - Joy and pain, they are but two arteries of the one heart that pumps through all those who don’t numb themselves to really living.
+ - On the night He was betrayed Jesus broke bread and lifted it up and gave THANKS. If Jesus can give thanks in that, can we not give thanks in all?
+ - Motherhood is a hallowed place because children aren’t commonplace. Co-laboring over the sculpting of souls is a sacred vocation, a humbling privilege. Never forget.
+ - When grief is deepest, words are fewest.
+ - There is a way to live the big of giving thanks in all things. It is this: to give thanks in this one small thing. The moments will add up.
+ - Rejecting joy to stand in solidarity with the suffering doesn’t rescue the suffering.
+ - Gratitude for the seemingly insignificant – a seed – this plants the giant miracle.
+ - God is good and I am always loved.
+ - Satan prowls but he’s a lion on a leash.
+ - Fullness of joy is discovered only in the emptying of will.
+ - Life is so urgent it necessitates living slow.
+ - Real joy is not found in having the best of everything but in trusting that God is making the best of everything.
+ - Eucharisteo – thanksgiving – always precedes the miracle.
+ - Worry is belief gone wrong. Because you don’t believe that God will get it right. But peace – peace is belief that exhales. Because you believe that God’s provision is everywhere – like air.
+ - Gratitude is not only a response to God in good times – it’s ultimately the very will of God in hard times. Gratitude isn’t only a celebration when good things happen. It’s a declaration that God is good no matter what happens.
+ - The joy of the Lord is your strength and the person of Christ is your unassailable joy – and the battle for joy is nothing less than fighting the good fight of faith.
+ - We want clarity – and God gives a call. We want a road map – and God gives a relationship. We want answers – and God gives His hand.
+ - Gratitude’s not a natural posture. The prince of darkness is ultimately a spoiled ingrate, and I’ve spent most of my life as kin to the fist-shaker.
+ - Joy is the realest reality, the fullest life, and joy is always given, never grasped. God gives gifts and I give thanks and I unwrap the gift given: joy.
+ - Satan’s sin becomes the first sin of all humanity: the sin of ingratitude. Adam and Eve are, simply, painfully ungrateful for what God gave.
+ - Pick up a yardstick to measure your life against anyone else’s, and you’ve just picked up a stick and beaten up your own soul.
+ - How long does it take your soul to realize that your life is full? The slower the living, the greater the sense of fullness and satisfaction.
+ - We give thanks to God not because of how we feel, but because of Who He is.
+ - Are stress and worry evidence of a soul too lazy, too undisciplined, to keep gaze fixed on God?
+ - Can God be counted on? Count blessings and find out how many of His bridges have already held.
+ - It’s impossible to give thanks and simultaneously feel fear.
+ - Manna today or I starve.
+ - I want to see beauty. In the ugly, in the sink, in the suffering, in the daily, in all the days before I die, the moments before I sleep.
+ - I fly to Paris and discover how to make love to God.
+ - All fear is but the notion that God’s love ends.
+ - Thanksgiving creates abundance; and the miracle of multiplying happens when I give thanks-take the just one loaf, say it is enough, and give thanks-and He miraculously makes it more than enough.
+ - Comparison is a thug that robs your joy. But its even more than that – Comparison makes you a thug who beats down somebody – or your soul.
+ - God appoints people who do disappoint – to point to a God who never disappoints.
+ - The Word God wastes nothing and He heals two broken hearts with one story – the reader and the writer.
+ - I don’t want a Christmas you can buy. I don’t want a Christmas you can make. What I want is a Christmas you can hold. A Christmas that holds me, remakes me, revives me. I want a Christmas that whispers, Jesus.
+ - Who would ever know the greater graces of comfort and perserverance, mercy and forgiveness, patience and courage, if no shadows fell over a life?
+ - God can enter into me, even me, and use these hands, these feet, to be His love, a love that goes on and on and on forever, endless cycle of grace.
+ - Thanksgiving-giving thanks in everything-prepares the way that God might show us His fullest salvation in Christ.
+ - God only allows pain if He’s allowing something new to be born.
+ - Is the height of my chara joy dependent on the depths of my eucharisteo thanks?
+ - In naming that which is right before me, that which I’d otherwise miss, the invisible becomes visible.
+ - Grace is the only thing that is ever enough.
+ - We were made to live in a posture of grateful worship, and when we live in praise we live our purpose, and all the pieces fall in place, us all falling down in thanks.
+ - The prayers we weave into the matching of socks, the stirring of oatmeal, the reading of stories, they survive fire.
+ - A life contemplating the blessings of Christ becomes a life acting the love of Christ.
+ - It’s habits that can imprison you and it’s habits that can free you. But when thanks to God becomes a habit – so joy in God becomes your life.
+ - The brave who focus on all things good and all things beautiful and all things true, even in the small, who give thanks for it and discover joy even in the here and now, they are the change agents who bring fullest light to all the world.
+ - In our rushing, bulls in china shops, we break our own lives.
+ - I don’t really want more time; I just want enough time. Time to breathe deep and time to see real and time to laugh long, time to give You glory and rest deep and sing joy and just enough time in a day not to feel hounded, pressed, driven, or wild to get it all done-yesterday.
+ - God reveals Himself in rearview mirrors.
+ - Simplicity is ultimately a matter of focus.
+ - Every time I surrender to stress, aren’t I advertising the unreliability of God?
+ - Sometimes you don’t know when you’re taking the first step through a door until you’re already inside.
+ - Hurry always empties a soul.
+ - Lament is a cry of belief in a good God, a God who has His ear to our hearts, a God who transfigures the ugly into beauty. Complaint is the bitter howl of unbelief in any benevolent God in this moment, a distrust in the love-beat of the Father’s heart.
+ - Sometimes, too often, I don’t want to muster the energy. Stress and anxiety seem easier.
+ - Poor communication doesn’t disconnect souls. It’s the disconnected souls who poorly communicate.
+ - Every moment I live, I live bowed to something. And if I don’t see God, I’ll bow down before something else.
+ - Living radical isn’t about where you live – it’s about how you love.
+ - The busyness of your life leaves little room for the source of your life.
+ - Once you have tasted conviction, you can’t bear to keep swallowing complacency.
+ - And when I give thanks for the seemingly microscopic, I make a place for God to grow within me.
+ - God gives the world enough of what it needs. All He asks is that we distribute what He gives.
+ - God’s not out to get you – He’s out to give to you.
+ - Until we call attention to the moments of our lives, we miss our lives.
+ - Our fall was, has always been, and always will be, that we aren’t satisfied in God and what He gives. We hunger for something more, something other.
+ - In a world addicted to speed, I blur the moments into one unholy smear.
+ - The message of Christmas is not that we can make peace. Or that we can make love, make light, make gifts, or make this world save itself. The message of Christmas is that this world’s a mess and we can never save ourselves from ourselves and we need a Messiah.
+ - Only speak words that make souls stronger.
+ - The only way to care for the disadvantaged – is to disadvantage yourself -which is guaranteed to turn out for your advantage.
+ - How do I wake up to joy and grace and beauty and all that is the fullest life when I must stay numb to losses and crushed dreams and all that empties me out?
+ - Parenting is about preparing children to get along with each other, to get along with you and without you, and that it’s impossible to get along without God.
+ - In counting gifts, to one thousand, more, I discover that slapping a sloppy brush of thanksgiving over everything in my life leaves me deeply thankful for very few things in my life.
+ - Christian hands never clasp and He doesn’t give gifts for gain because a gift can never stop being a gift – it is always meant to be given.
+ - I am a hunter of beauty and I move slow and I keep the eyes wide, every fiber of every muscle sensing all wonder and this is the thrill of the hunt and I could be an expert on the life full, the beauty meat that lurks in every moment. I hunger to taste life. God.
+ - A lack of doxology leads to depravity.
+ - When the heart and mind focus on things unseen – that’s when there’s a visible change in us.
+ - Gratitude is at the center of a life of faith. It sounds to simple to be true, but isn’t that the sign of all deep truth: so simple we’re tempted to dismiss it, and so hard, it is exactly what God uses to change our hard lives.
+ - Without God’s Word as a lens, the world warps.
+ - If trust must be earned, hasn’t God unequivocally earned our trust with the bark on the raw wounds, the thorns pressed into the brow, your name on the cracked lips.
+ - The fear is suffocating, terrorizing, and I want the remedy, and it is trust. Trust is everything.
+ - More important than a clean house is a close family.
+ - When we lay the soil of our hard lives open to the rain of grace and let joy penetrate our cracked and dry places, let joy soak into our broken skin and deep crevices, life grows. How can this not be the best thing for the world? For us?
+ - I don’t think of myself as an author. But simply as a grateful child of God. John 3:27 has long been a life verse: “A man can receive nothing unless it has been given him from heaven.” Any more words will only be solely a gift from Him. I can only faithfully wait.
+ - In a storm of struggles, I have tried to control the elements, clasp the fist tight so as to protect self and happiness. But stress can be an addiction, and worry can be our lunge for control, and we forget the answer to this moment is always yes because of Christ.
+ - Worry is the facade of taking action when prayer really is.
+ - What if I gave thanks in the trouble, for the trouble, because the trouble is a gift that causes me to turn? What if I loved God not for His goods but for His love itself that is goodness enough?
+ - Stress isn’t only a joy stealer. The way we respond to it can be sin.
+ - The true Love Dare. To move into His presence and listen to His love unending and know the grace uncontainable. This is the vault of the miracles. The only thing that can change us, the world, is this- all His love.
+ - Going ahead in the midst of the stressful circumstances and giving thanks in that moment – you can’t simultaneously feel stress and gratitude at the same time. So as a parent, to go ahead and start to give thanks to God resets the whole family.
+ - God reveals Himself in rearview mirrors. And I’ve an inkling that there are times when we need to drive a long, long distance, before we can look back and see God’s back in the rearview mirror. Maybe sometimes about as far as heaven – that kind of distance.
+ - Praying with eyes wide open is the only way to pray without ceasing.
+ - The moment when you are most repelled by a child’s behavior, that is your warning light to draw the very closest to that child.
+ - Love doesn’t necessarily mean bless or agree with, it means sacrifice for and suffer with.
+ - This day is not a sieve, losing time. With each passing minute, each passing year, there’s this deepening awareness that I am filling, gaining time. We stand on the brink of eternity.
+ - I want a life that makes music – not just practices the piano.
+ - If the Church is a body, and the body is a business, isn’t that the same thing as prostitution?
+ - We only enter into the full life if our faith gives thanks. Because how else do we accept His free gift of salvation if not with thanksgiving? Thanksgiving is the evidence of our acceptance of whatever He gives. Thanksgiving is the manifestation of our Yes! to His grace.
+ - Life isn’t an emergency. Christ is in charge of every moment of the day; nothing catches Him off guard.
+ - Homemaking is about making a home, not about making perfection.
+ - The frame of a soul was never made for fame. The frame of a soul was made to serve.
+ - There are two kinds of doubt: one that fully lives into the questions, and one that uses the questions as weapons against fully living.
+ - When you’re most wounded by words run to the only Word that always brings healing.
+ - Life-changing gratitude does not fasten to a life unless nailed through with one very specific nail at a time.
+ - From all of our beginnings, we keep reliving the Garden story.
+ - Our fall is always first a failure to give thanks.
+ - You’ve got to use the life you’ve been given to give others life.
+ - Remembering with thanks is what causes us to trust – to really believe.
+ - Losses do that. One life-loss can infect the whole of a life. Like a rash that wears through our days, our sight becomes peppered with black voids. Now everywhere we look, we only see all that isn’t: holes, lack, deficiency.
+ - The only way to fight a feeling is with a feeling.
+ - I only live the full life when I live fully in the moment.
+ - You, who were made by Love, made for love – be still and know and watch love come down.
+ - Isn’t falling in love always the fullest life?
+ - Any kind of love that lacks the iron of the Cross in it, is anemic love.
+ - The life that counts blessings discovers its yielding more than it seems.
+ - Gratitude is the most fruitful way of deepening your consciousness that you are a divine choice.
+ - Real Love truthfully sees the flaws – and still really loves fully.
+ - At the last, this is what will determine a fulfilling, meaningful life, a life that, behind all the facades, every one of us longs to live: gratitude for the blessings that expresses itself by becoming the blessing.
+ - I know the theological answers, but do my blood and my pulse?
+ - Like the wind, Grace finds us wherever we are and won’t leave us however we were found.
+ - Learning slowly to not be so reactionary while inserting verbal gratitude into stressful situations is almost like being healed of mental blindness.
+ - Real Womanhood isn’t a function of becoming a great mother, but of being loved by your Great Father.
+ - You will be most remembered-by what brought you most joy.
+ - But, someone, please give me – who is born again but still so much in need of being born anew – give me the details of how to live in the waiting cocoon before the forever begins?
+ - Really good writing, from my perspective, runs a lot like a visual on the screen. You need to create that kind of detail and have credibility with the reader, so the reader knows that you were really there, that you really experienced it, that you know the details. That comes out of seeing.
+ - When I fully enter time’s swift current, enter into the current moment with the weight of all my attention, I slow the torrent with the weight of me all here.
+ - Giving thanks is that: making the canyon of pain into a megaphone to proclaim the ultimate goodness of God when Satan and all the world would sneer at us to recant.
+ - Pantheism, seeing the natural world as divine, is a very different thing than seeing divine God present in all things.
+ - God is patiently transfiguring all the notes of my life into the song of His Son.
+ - Every day, with every word, we get to decide: Do we mar the world, or mark the world?
+ - Where ever you are be all there.
+ - What is time for if not to bless?
+ - When your ethnicity is heaven, then all adversity offers the gift of intimacy, driving you into the home of His heart.
+ - I hunger for filling in a world that is starved.
+ - But wells don’t come without first begging to see the wells; wells don’t come without first splitting open hard earth, cracking back the lids. There’s no seeing God face-to-face without first the ripping.
+ - We can worship Christ in our sanctuaries and we can pray to God on our knees, but how we treat – or neglect – the person next door, the poor, every human being, this is how we truly speak to Christ and this is how we really treat Jesus.
+ - All God makes is good. Can it be that that which seems to oppose the will of God actually is used of Him to accomplish the will of God?
+ - Because nothing is greater and we have no greater need, God gives God.
+ - You can give up the need to compete in the world- when you accept being complete in Christ.
+ - No one told me that it would all happen at the same hallowed time: Mothering is at once the hardest and the holiest and the happiest.
+ - God doesn’t want your leftovers. God wants your love overtures, your first-overs, because He is your first love.
+ - We’re called to do more than believe in God, we’re called to live in God.
+ - That which tears open our souls, those holes that splatter our sight, may actually become the thin, open places to see through the mess of this place to the heart-aching beauty beyond. To Him. To the God whom we endlessly crave.
+ - Life is so urgent and necessitates living slow. It’s only the amateurs-and that I’ve been, and it’s been ugly-who thinks slow and urgent are contradictory.
+ - Every mountain that every Christian ever faces, the Lord levels with sufficient grace.
+ - Holy joy lies in the habit of murmuring thanks to God for the smallest of graces.
+
+161 quotes

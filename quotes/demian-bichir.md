@@ -1,0 +1,37 @@
+ - I believe in creative work.
+ - Don’t complicate whatever is not complicated.
+ - The immigration issue is about the separation of families, and that is not human, in any country in the world, but especially in the United States. We should not root for a law that separates families.
+ - The real secret to guacamole is that you use exactly the elements that you need, which is cilantro, onion, tomato, and jalapenos. And, of course, avocado.
+ - There’s good and bad everywhere in any aspect in life. The only people who we can’t really trust are politicians. Because those guys lie to everybody and constantly.
+ - We all have that capacity, to be two things. And after all I was named for both the devil and the angel. Demonio y angel. Dem-y-an.
+ - There are some actors that are so gifted, that move you in such a way that every time you see their names again, you go and pay another ticket because you want to have that experience again.
+ - One wants to think that – and this is really a stupid thought – that through your art or whatever you do as an actor you can actually affect someone else’s lives and thoughts or whatever.
+ - I don’t believe in bad and good, I believe we are all a mix of both.
+ - We have a demon, we have an angel inside, within our souls, and you just play with it, and sometimes the evil part of you wins the battle, in a very important decision, or in a bedtime, with your lover. Sometimes you win, sometimes you lose.
+ - One of my dreams is to become sufficiently famous that I can play this charity match that happens every year or two with celebrities at Old Trafford, at the house of Manchester United.
+ - I’m an old-fashioned guy.
+ - I don’t hide or play stupid games.
+ - So, whenever you hear or see violence, there is violence on both sides of the border, or it’s both country’s responsibility. When we talk about trafficking with weapons, with human beings or with drugs, we talk about it on both sides of the border.
+ - My two brothers and I grew up in the theater, going everywhere with my parents when they performed.
+ - Scarlett Johansson. I think people don’t really realize how great of an actress that girl is. She’s so beautiful and that distracts you from what she can do as an actor.
+ - I wanted to give my actor a break. I wanted to live and to learn English. I wanted to be anything, a cabdriver, a busboy, anything to keep me away from acting for a while.
+ - I grew up in the theater. I began my career at 3. That was the first time I stepped onto a provisional stage.
+ - I believe in characters that can be tangible, and that you can actually relate to.
+ - I hope people can stop believing everything politicians say about Mexico and the United States, and the problems that we share.
+ - I open my eyes and my ears, and that’s why I work.
+ - When you do a film, all you want is to make the best film possible. You don’t think about Oscars. But it’s really flattering. Please, bring it on!
+ - It’s a really, really hard life when you don’t have a document that actually gives you a name and a face.
+ - You don’t need tons of money to create art. You do need tons of money to be a part of show business. They are two different things.
+ - When you have great scripts, everything is very easy and fun.
+ - I have been in the business long enough to know what an intense amount of work it takes to operate a theater company.
+ - There is a film called ‘A Separation.’ If you see it playing, go see it. It’s beautiful. It’s so well written and the acting is amazing. It’s one of those films that you would love to be a part of.
+ - We need to know the facts, in order to tell the politicians, “Excuse me, I don’t want you to use my money on building a wall that is not going to solve any problems. We have to go this direction instead.”
+ - Can you imagine saying ‘Hi’ to Sam Jackson and he goes and gives you a hug? It’s like being hugged by a lion.
+ - When you shoot a film, you have very little time to waste, and I try to go into the character as soon as possible and stay there as much as I can.
+ - I was lucky that audiences in Mexico liked my work. I was even luckier when I got to do movies and plays with my brothers.
+ - Cinema serves as a constant reminder to us of who we are and what we are made of.
+ - I think it’s very interesting how an American network chooses to tell this story. We don’t name one country the good guy and the other country the bad guy. We talk about this co-responsibility that we share, in everything.
+ - I try to be as clear as I can be.
+ - I’m an actor who’s accustomed to bringing a lot of stuff to the table, and you have to be ready because some of them will be accepted and some of them will be rejected. Then you need a generous, free, fearless, loving director like Tarantino to allow you to take those risks.
+
+35 quotes

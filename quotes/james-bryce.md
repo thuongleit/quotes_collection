@@ -1,0 +1,24 @@
+ - Communication is the key to education, understanding and peace.
+ - The national park is the best idea America ever had.
+ - The worth of a book is to be measured by what you can carry away from it.
+ - Medicine, the only profession that labors incessantly to destroy the reason for its own existence.
+ - No government demands so much from the citizens as democracy and none gives back so much.
+ - The chief practical use of history is to deliver us from plausible historical analogies.
+ - The ordinary American voter does not object to mediocrity. He likes his candidate to be sensible, vigorous, and, above all, what he calls ‘magnetic,’ and does not value, because he sees no need for, originality or profundity, a fine culture or a wide knowledge.
+ - Perhaps the most typically American place in America.
+ - Our country is not the only thing to which we owe our allegiance. It is also owed to justice and to humanity.
+ - Individualism, the love of enterprise, and the pride in personal freedom, have been deemed by Americans not only as their choicest, but their peculiar and exclusive possessions.
+ - To most people, nothing is more troublesome than the effort of thinking.
+ - A political career brings out the basest qualities in human nature.
+ - California, more than any other part of the Union, is a country by itself, and San Francisco a capital.
+ - There is a hearty Puritanism in the view of human nature which pervades the instrument of 1787. It is the work of men who believed in original sin, and were resolved to leave open for transgressors no door which they could possibly shut.
+ - The People, though we think of a great entity when we use the word, means nothing more than so many millions of individual men.
+ - Three-fourths of the mistakes a man makes are made because he does not really know the things he thinks he knows.
+ - If you have enough room for your books, you don’t have enough books.
+ - The tendency everywhere in America to concentrate power and responsibility in one man is unmistakable.
+ - In Europe we have cities wealthier and more populous than yours and we are not happy. You dream of your posterity; but your posterity will look back to yours as the golden age, and envy those who first burst into this silent, splendid Nature...
+ - No wonder that, when a political career is so precarious, men of worth and capacity hesitate to embrace it. They cannot afford to be thrown out of their life’s course by a mere accident.
+ - Life is too short to read inferior books.
+ - It is accepted as an axiom by all Americans that the civil power ought to be not only neutral and impartial as between different forms of faith, but ought to leave these matters entirely on one side, regarding them no more than it regards the artistic or literary pursuits of the citizens.
+
+22 quotes

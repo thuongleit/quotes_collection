@@ -1,0 +1,53 @@
+ - But make sure you don’t make the same mistake twice.
+ - Curiosity is the key to creativity.
+ - In the long run, no matter how good or successful you are or how clever or crafty, your business and its future are in the hands of the people you hire.
+ - Never break another man’s rice bowl.
+ - The “patron saint” of Japanese quality control, ironically, is an American named W. Edwards Deming, who was virtually unknown in his own country until his ideas of quality control began to make such a big impact on Japanese companies.
+ - The public does not know what is possible. We do.
+ - If we face recession, we should not lay off employees; the company should sacrifice a profit. It’s management’s risk and management’s responsibility. Employees are not guilty; why should they suffer?
+ - There are three creativities: creativity in technology, in product planning, and in marketing. To have any one of these without the others is self defeating in business.
+ - I believe people work for satisfaction.
+ - My solution to the problem of unleashing creativity is always to set up a target. The best example of this was the Apollo project in the United States.
+ - I believe one of the reasons we went through such a remarkable growth period was that we had this atmosphere of free discussion.
+ - Once you have a staff of prepared, intelligent, and energetic people, the next step is to motivate them to be creative.
+ - If we do our best and make efforts, a peaceful and great future will become ours without fail. Whether we succeed or not depends on the strength of our resolve and the amount of our endeavor.
+ - Japanese attitudes toward work seem to be critically different from American attitudes.
+ - There is no secret ingredient or hidden formula responsible for the success of the best Japanese companies.
+ - The important thing in my view is not to pin the blame for a mistake on somebody, but rather to find out what caused the mistake.
+ - We want to keep the company healthy and its employees happy, and we want to keep them on the job and productive.
+ - All you need is the best product in the world, the most efficient production in the world and global marketing.
+ - I knew we needed a weapon to break through to the US market, and it had to be something different, something that nobody else was making.
+ - Amenities are not of great concern to management in Japan.
+ - The remarkable thing about management is that a manager can go on for years making mistakes that nobody is aware of, which means that management can be a kind of a con job.
+ - We will try to create conditions where persons could come together in a spirit of teamwork, and exercise to their heart’s desire their technological capacity.
+ - Executives of the company must have the necessary qualities to direct the personnel by showing them the way to do things.
+ - The most important mission for a Japanese manager is to develop a healthy relationship with his employees, to create a familylike feeling within the corporation, a feeling that employees and managers share the same fate.
+ - Carefully watch how people live, get an intuitive sense as to what they might want and then go with it. Don’t do market research.
+ - To gain profit is important, but you must invest to build up assets that you can cash in in the future.
+ - We don’t believe in market research for a new product unknown to the public. So we never do any.
+ - If you go through life convinced that your way is always best, all the new ideas in the world will pass you by.
+ - While the United States has been busy creating lawyers, we have been busier creating engineers.
+ - America looks 10 minutes ahead; Japan looks 10 years.
+ - Japanese people tend to be much better adjusted to the notion of work, any kind of work, as honorable.
+ - We treat employees as a member of the family. If management take the risk of hiring them, we have to take the responsibility for them.
+ - You can be totally rational with a machine. But if you work with people, sometimes logic often has to take a backseat to understanding.
+ - A company will get nowhere if all of the thinking is left to management.
+ - I often say to my assistants, “Never trust anybody,” but what I mean is that you should never trust someone else to do a job exactly the way you would want it done.
+ - When I find an employee who turns out to be wrong for the job, I feel it is my fault because I made the decision to hire him.
+ - My chief job is to constantly stir or rekindle the curiosity of people that gets driven out by bureaucracy and formal schooling systems.
+ - I believe it is a big mistake to think that money is the only way to compensate a person for his work. People need money, but they also want to be happy in their work and proud of it.
+ - If you don’t want Japan to buy it, don’t sell it.
+ - Management of an industrial company must be giving targets to the engineers constantly; that may be the most important job management has in dealing with its engineers.
+ - In the United States businessmen often do not trust their colleagues. If you trust your colleague today, he may be your competitor tomorrow, because people frequently move from one company to another.
+ - From a management standpoint, it is very important to know how to unleash people’s inborn creativity. My concept is that anybody has creative ability, but very few people know how to use it.
+ - More people are interested in trying to shuffle paper assets around than building lasting assets by producing real goods.
+ - We want everybody to have the best facilities in which to work, but we do not believe in posh and impressive private offices.
+ - Of course we have to make a profit, but we have to make a profit over the long haul, not just the short term, and that means we must keep investing in research and development – it has run consistently about 6 percent of sales at Sony – and in service.
+ - I established the rule that once we hire an employee, his school records are a matter of the past and are no longer used to evaluate his work or decide on his promotion.
+ - An enemy of innovation could be your own sales force.
+ - I have always made it a point to know our employees, to visit every facility of our company, and to try to meet and know every single employee.
+ - We all learn by imitating, as children, as students, as novices in the world of business. And then we grow up and learn to blend our innate abilities with the rules or principles we have learned.
+ - Advertising and promotion alone will not sustain a bad product or a product that is not right for the times.
+ - The only sure thing is that in business there are no sure things.
+
+51 quotes

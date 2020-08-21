@@ -1,0 +1,28 @@
+ - Learn from everyone. Follow no one. Watch for patterns. Work like hell.
+ - Creator and reader are partners in the invisible creating something out of nothing, time and time again.
+ - My dad was an inventor, and I think I’ve always had a rosy view of technology, or at least its potential.
+ - The idea that comics stores, distributors and publishers simply ‘give the customers what they want’ is nonsense. What the customers wanted they didn’t get – and they left.
+ - A medium is a bridge between two minds.
+ - My dad was an engineer and so I had this picture of science and technology and pursuits of the mind as being more impressive than artistic pursuits, which I saw a as kind of frivolous.
+ - To kill a man between panels is to condemn him to a thousand deaths.
+ - Form and content must never apologize for each other.
+ - By stripping down an image to essential meaning, an artist can simplify that meaning.
+ - When you’re free of editorial control, you owe it to yourself to obtain feedback from friends and readers. Some take those criticisms to heart and incorporate it into their work, and some ignore them.
+ - I’ve always been very forward-looking, and it was actually kind of difficult to turn my gaze backwards to look at comics history.
+ - Space does for comics what time does for film!
+ - Today, comics is one of the very few forms of mass communication in which individual voices still have a chance to be heard.
+ - As I see it, mainstream comics now speak only to the hardcore few who stayed; conversing in a weird, garbled, visual pig latin only they can understand – rendering the term ‘mainstream’ a hollow joke – while the true mainstream, the other 99.9% of the populace, find enjoyment elsewhere.
+ - The notion of getting under the hood and explaining how something works, that’s fairly familiar territory to me.
+ - Webcomics are much bigger than any one scene can circumscribe.
+ - If you just write the kinds of stories you think others will want to read, you’ll be competing with cartoonists who are far more enthusiastic for that kind of comic than you are, and they’ll kick your ass every time.
+ - I don’t think the potential for comics in nonfiction has been exploited nearly as much as it could be.
+ - All through my comics career, I was always trying to reinvent the form.
+ - It wasn’t until I discovered comics that I actually began to approach drawing as a possible career.
+ - It would take a lifetime to read all the webcomics published in one year.
+ - I wouldn’t necessarily have been making books about how to make comics if I’d really felt I knew how to make comics.
+ - There’s a very big part of me that just wants to take all of comics history and toss it on the bonfire. I’d sort of like to get on to the future.
+ - If a comic comes out on the scene and it’s really knock-out brilliant, the community is pretty good about getting the word about good newcomers.
+ - And what better way to reinvent the form than to toss virtually 99% of everything that’s been done with it and start with a brand-new canvas, reinvent it from the ground up? Digital comics gave me the opportunity to do that, and producing things digitally gave me the opportunity to do that.
+ - My first influences were superhero artists.
+
+26 quotes

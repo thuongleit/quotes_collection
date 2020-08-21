@@ -1,0 +1,52 @@
+ - I am not designed to come second or third. I am designed to win.
+ - I have no idols. I admire work, dedication and competence.
+ - Being second is to be the first of the ones who lose.
+ - If you no longer go for a gap that exists, you are no longer a racing driver.
+ - Fear is exciting for me.
+ - If you have God on your side, everything becomes clear.
+ - And so you touch this limit, something happens and you suddenly can go a little bit further. With your mind power, your determination, your instinct, and the experience as well, you can fly very high.
+ - Nothing can separate me from the love of God.
+ - I believe that we start to see our true personalities when we go through the most difficult moments. This is when we get stronger.
+ - If a person has no dreams, they no longer have any reason to live. Dreaming is necessary, although in the dream reality should be glimpsed. For me this is a principle of life.
+ - The past is just data. I only see the future.
+ - Once you are in it you are in it, you have to go all the way to the end because you commit yourself to such a level where there is no compromise. You give everything you have absolutely everything. Sometimes you find even more because you require more if you want to stay ahead and you want to win.
+ - We are made of emotions. We are all looking for emotions, basically. It’s only a question of finding the way to experience them.
+ - Because in a split second, it’s gone.
+ - I continuously go further and further learning about my own limitations, my body limitation, psychological limitations. It’s a way of life for me.
+ - Winning is the most important. Everything is consequence of that.
+ - I cannot live on an island of prosperity when I’m surrounded by a sea of misery.
+ - I want to live fully, very intensely. I would never want to live partially, suffering from illness or injury. If I ever happen to have an accident that eventually costs my life, I hope it happens in one instant.
+ - I don’t know driving in another way which isn’t risky. Each one has to improve himself. Each driver has its limit. My limit is a little bit further than other’s.
+ - You commit yourself to such a level where there is no compromise. You give everything you have, everything, absolutely everything.
+ - You either commit yourself as a professional racing driver that’s designed to win races or you come second or you come third or fifth and am not design to come third, fourth or fifth, I? race to win.
+ - Money is a strange business. People who haven’t got it aim it strongly. People who have are full of troubles.
+ - With regard to performance, commitment, effort, dedication, there is no middle ground. Or you do something very well or not at all.
+ - You must take the compromise to win, or else nothing. That means: you race or you do not.
+ - By being a racing driver means you are racing with other people. And if you no longer go for a gap that exists, you are no longer a racing driver because we are competing – competing to win.
+ - When you are fitted in a racing car and you race to win, second or third place is not enough.
+ - The main thing is to be yourself. Many times its through a mistake that you learn. And the main thing is to make sure you learn through your mistakes and get better.
+ - When you’re not happy, you need to be strong to change, resisting the temptation of turning back. The weak goes nowhere.
+ - Just because I believe in God, just because I have faith in God, it doesn’t mean that I’m immune. It doesn’t mean that I’m immortal.
+ - These things bring you to reality as to how fragile you are; at the same moment you are doing something that nobody else is able to do. The same moment that you are seen as the best, the fastest and somebody that cannot be touched, you are enormously fragile.
+ - I started racing go-karts. And I love karts. It’s the most breath taking sport in the world. More than F1, indeed, I used to like it most.
+ - Women – always in trouble with them, but can’t live without them.
+ - And suddenly I realised that I was no longer driving the car consciously. I was driving it by a kind of instinct, only I was in a different dimension.
+ - On a given day, a given circumstance, you think you have a limit.
+ - I believe if you are doing something like competing, like motor racing, you either do well or forget it.
+ - You will never know the feeling of a driver when winning a race. The helmet hides feelings that cannot be understood.
+ - Racing, competing, it’s in my blood. It’s part of me, it’s part of my life; I have been doing it all my life and it stands out above everything else.
+ - My biggest error? Something that is to happen yet.
+ - There are no small accidents on this circuit.
+ - If you think I’m fast, just wait until you see my nephew Bruno.
+ - When a man holds you round the throat, I don’t think he has come to apologise.
+ - Wealthy men can’t live in an island that is encircled by poverty. We all breathe the same air. We must give a chance to everyone, at least a basic chance.
+ - The danger sensation is exciting. The challenge is to find new dangers.
+ - It was like I was in a tunnel. Not only the tunnel under the hotel but the whole circuit was a tunnel. I was just going and going, more and more and more and more. I was way over the limit but still able to find even more.
+ - It’s going to be a season with lots of accidents, and I’ll risk saying that we’ll be lucky if something really serious doesn’t happen.
+ - In many ways we are a dream for people, not a reality. That counts in your mind. It shows how much you can touch people, and as much as you can try to give those people somehow it is nothing compared to what they live in their own mind, in their dreams, for you.
+ - Then suddenly something just kicked me. I kind of woke up and realised that I was in a different atmosphere than you normally are. My immediate reaction was to back off, slow down.
+ - Of course there are moments that you wonder how long you should be doing it because there are other aspects which are not nice, of this lifestyle. But I just love winning.
+ - I was already on pole, then by half a second and then one second and I just kept going. Suddenly I was nearly two seconds faster than anybody else, including my team mate with the same car.
+ - It’s important that the drivers stay together, because in difficult moments we have each other. If we are not together the financial and political interests of the organisers and constructors come to the fore.
+
+50 quotes

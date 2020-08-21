@@ -1,0 +1,23 @@
+ - Every man is his own worst enemy.
+ - Ignorance is not innocence.
+ - It would not be difficult to be a better ruler than I was: for I admit that I ruled badly; and even if I was fortunate enough to satisfy my subjects, I was not fortunate enough to satisfy myself.
+ - Dignity is like a perfume; those who use it are scarcely conscious of it.
+ - As you know, no one over thirty years of age is afraid of tittle-tattle. I myself find it much less difficult to strangle a man than to fear him.
+ - Other things titillate me more keenly than the pale pleasures of marriage.
+ - Great armies are nothing but a collection of weakness.
+ - I was born, have lived, and will die free.
+ - One can really love only once.
+ - You should be more afraid of a stupid man than of an evil one.
+ - There is a star above us which unites souls of the first order, though worlds and ages separate them.
+ - It is quite as ignominious to allow oneself to be deceived as to deceive.
+ - Nuns and married women are equally unhappy, if in different ways.
+ - Life is too short to be able to love as one should.
+ - To some people everything is permitted.
+ - God has neither form nor shape under which we can know Him; when he speaks of Himself in metaphors and similes, He is adapting Himself to our foolishness, our limited capacity.
+ - We read for instruction, for correction, and for consolation.
+ - It is a far greater happiness to obey no one than to rule the whole world.
+ - I love men, not because they are men, but because they are not women.
+ - There are few prisoners more closely guarded than princes.
+ - We grow old more through indolence, than through age.
+
+21 quotes

@@ -1,0 +1,33 @@
+ - Take responsibility for the energy you bring.
+ - To experience peace does not mean that your life is always blissful. It means that you are capable of tapping into a blissful state of mind amidst the normal chaos of a hectic life.
+ - My favorite definition of fear is: False Expectations Appearing Real.
+ - Who are we? We are the life force power of the universe.
+ - Emotion only lasts in our bodies for about 90 seconds. After that, the physical reaction dissipates, UNLESS our cognitive brain kicks in and starts connecting our anger with past events.
+ - I am the life-force power of the universe. I am the life-force power of the 50 trillion beautiful molecular geniuses that make up my form, at one with all that is.
+ - Although many of us may think of ourselves as thinking creatures that feel, biologically we are feeling creatures that think.
+ - Just like children, emotions heal when they are heard and validated.
+ - I’m an advocate for whole brain thinking. I’m not an advocate for the right brain or the left brain.
+ - My stroke of insight would be: peace is only a thought away, and all we have to do to access it is silence the voice of our dominating left mind.
+ - In the course of four hours, I watched my brain completely deteriorate in its ability to process all information. On the morning of the hemorrhage, I could not walk, talk, read, write or recall any of my life. I essentially became an infant in a woman’s body.
+ - The better we understand the choices we have been making, either consciously or unconsciously, the more say we will have in the world we create. Neurocircuitry may be neurocircuitry, but we don’t have to run on automatic.
+ - I am always in quest of being open to what the universe will bring me.
+ - It takes 90 seconds from the time we have a thought that is going to stimulate an emotional response. When we have an emotional response it results in a physiological dumpage into our bloodstream. It flushes through and out of our body in less than 90 seconds.
+ - Peace is only a thought away.
+ - We can all learn that we can take full responsibility for what thoughts we are thinking and what emotional circuitry we are feeling. Knowing this and acting on this can lead us into feeling a wonderful sense of well-being and peacefulness.
+ - I believe that the more time we spend choosing to run the deep inner circuitries of our right hemispheres, the more peace we will project into the world and the more peaceful our planet will be.
+ - My left brain is doing the best job it can with the information it has to work with. I need to remember, however, that there are enormous gaps between what I know and what I think I know.
+ - Most of the circuits in our brains run on automatic. The more you think a thought, the more energy goes into that circuit. Eventually it gets enough energy to run the thought automatically without us needing to put more energy into it.
+ - The two hemispheres of the brain are two very different places and they don’t share any cell bodies. They are completely separate entities.
+ - The easiest way I have found to humble myself back into a state of peaceful grace is through the act of gratitude.
+ - I have the ability to make a choice in how I respond. My natural response does not have to be the only response I have.
+ - Can we think more than one thought at the same time? Most of us know we can’t do that. Both hemispheres are always working all of the time. But one of them is always dominant.
+ - If I can choose who I am in the moment, then I can choose to come in as my left brain personality and all of the skill sets that goes with that.
+ - We have the power to chose, moment by moment, who and how we want to be in the world.
+ - I can choose to come into the world as my right brain personality, which is more compassionate, more open, more loving, and more right here, right now available.
+ - I love knowing that I am simultaneously as big as the universe and yet merely a heap of star dust.
+ - I don’t have time for a stroke!
+ - I realized, ‘Oh my gosh! I’m having a stroke! I’m having a stroke!’ The next thing my brain says to me is, ‘Wow! This is so cool! How many brain scientists have the opportunity to study their own brain from the inside out?’
+ - We actually do generate some new cells, some new neurons. So in the case of trauma there is the potential for there to be some new neural development which gives the person the chance to create new circuitry.
+ - Then it crosses my mind, ‘But I’m a very busy woman! I don’t have time for a stroke!’
+
+31 quotes

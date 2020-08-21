@@ -1,0 +1,25 @@
+ - Is it security you want? There is no security at the top of the world.
+ - If people cannot limit government they will not for long be free.
+ - Government is the natural enemy of freedom.
+ - The idea of imposing universal peace on the world by force is a barbarian fantasy.
+ - The New Deal was going to redistribute the national income according to ideals of social and economic justice.
+ - If the great Government of the United States were a private corporation no bank would take its name on a piece of paper, because it has cynically repudiated the words engraved upon its bonds.
+ - There was endless controversy as to whether the acts of the New Deal did actually move recovery or retard it, and nothing final could ever come of that bitter debate because it is forever impossible to prove what might have happened in place of what did.
+ - There is in government a living impulse to extend itself indefinitely; and there is in freedom a necessity to resist that impulse.
+ - Business is in itself a power.
+ - To the revolutionary mind the American vista must have been almost as incredible as Genghis Khan’s first view of China – so rich, so soft, so unaware.
+ - The winds that blow our billions away return burdened with themes of scorn and dispraise.
+ - This is the problem for which revolutionary theory has yet to find the right solution, if there is one. The difficulty is that the economic interests of the two classes are antagonistic.
+ - Formerly government was the responsibility of people; now people were the responsibility of government.
+ - You do not defend a world that is already lost.
+ - There is a long history of monetary experience. It tells us that government is at heart a counterfeiter and therefore cannot be trusted to control money, and that this is true of both autocratic and popular government.
+ - There are those who still think they are holding the pass against a revolution that may be coming up the road. But they are gazing in the wrong direction. The revolution is behind them. It went by in the Night of Depression, singing songs to freedom.
+ - The New Deals enmity for that system of free and competitive private enterprise which we call capitalism was fundamental.
+ - It is the function of the President, representing the executive principle, to execute the laws.
+ - Revolution in the modern case is no longer an uncouth business.
+ - The spectacle of a great, solvent government paying a fictitious price for gold it did not want and did not need and doing it on purpose to debase the value of its own paper currency was one to astonish the world.
+ - Loyalty of the law-making power to the executive power was one of the dangers the political fathers foretold.
+ - Well, where there is freedom doubt itself must be free.
+ - Lenin, the greatest theorist of them all, did not know what he was going to do after he had got the power.
+
+23 quotes

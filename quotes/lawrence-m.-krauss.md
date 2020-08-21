@@ -1,0 +1,57 @@
+ - Forget Jesus. The stars died so that you could be here today.
+ - The purpose of education is not to validate ignorance but to overcome it.
+ - Without science, everything is a miracle.
+ - The universe has a much greater imagination than we do, which is why the real story of the universe is far more interesting than any of the fairy tales we have invented to describe it.
+ - The lack of understanding of something is not evidence for God. It’s evidence of a lack of understanding.
+ - A truly open mind means forcing our imaginations to conform to the evidence of reality, and not vice versa.
+ - The amazing thing is that every atom in your body came from a star that exploded.
+ - You shouldn’t be afraid of science. Accepting the reality of nature makes life more exciting and even more precious.
+ - Empty space is a boiling, bubbling brew of virtual particles that pop in and out of existence in a time scale so short that you can’t even measure them.
+ - 90% of the mass in your body comes from empty space.
+ - Science is not just there for technology. It’s part of what addressing who you are in the universe and understanding your place in the cosmos. Good art, good literature, good music – all of that is for that and science is a part of it.
+ - As a scientist, I don’t believe anything. Science shouldn’t use the word belief. There are things more likely and less likely. Science can say nothing with absolute certainty.
+ - The illusion of purpose and design is perhaps the most pervasive illusion about nature that science has to confront on a daily basis.
+ - Celebrate our brief moment in the sun.
+ - Lack of comfort means we are on the threshold of new insights.
+ - Religious leaders need to be held accountable for their ideas.
+ - If you have nothing in quantum mechanics, you will always have something.
+ - I can’t prove that God doesn’t exist, but I’d much rather live in a universe without one.
+ - The universe does not care what we want.
+ - It is a shame when nonsense can substitute for fact with impunity.
+ - The ultimate arbiter of truth is experiment, not the comfort one derives from one’s a priori beliefs, nor the beauty or elegance one ascribes to one’s theoretical models.
+ - You are all stardust.
+ - In 5 billion years, the expansion of the universe will have progressed to the point where all other galaxies will have receded beyond detection.
+ - It really is the most poetic thing i know about physics: you are all stardust.
+ - The real thing that physics tell us about the universe is that it’s big, rare event happens all the time – including life – and that doesn’t mean it’s special.
+ - We all trust each other to some extent. We have to rely on experts to some extent, but we should learn to be sceptical.
+ - For many, to live in a universe that may have no purpose, and no creator, is unthinkable.
+ - The universe is the way it is, whether we like it or not.
+ - If our species is to survive, our future will probably require outposts beyond our own planet.
+ - Keeping religion immune from criticism is both unwarranted and dangerous.
+ - Most people don’t base their morality on religion in spite what they say. If you ask people, “If you didn’t believe in God, would you go out and kill your neighbour?” Most people will say, “No”.
+ - The one experience that I hope every student has at some point in their lives is to have some belief you profoundly, deeply hold, proved to be wrong because that is the most eye-opening experience you can have, and as a scientist, to me, is the most exciting experience I can ever have.
+ - I cannot stress often enough that what science is all about is not proving things to be true but proving them to be false.
+ - Nothing can create something all the time due to the laws of quantum mechanics, and it’s – it’s fascinatingly interesting.
+ - In this sense, science, as physicist Steven Weinberg has emphasized, does not make it impossible to believe in God, but rather makes it possible to not believe in God.
+ - Science is only truly consistent with an atheistic worldview with regards to the claimed miracles of the gods of Judaism, Christianity and Islam.
+ - Organized religion, wielding power over the community, is antithetical to the process of what modern democracy should define as liberty. The sooner we are without it, the better.
+ - The fact is that people would rather cling when they’re afraid of something to a priori beliefs than rather open their minds about it.
+ - Aside from communications satellites, space is devoid of industry.
+ - At the heart of quantum mechanics is a rule that sometimes governs politicians or CEOs-as long as no one is watching, anything goes.
+ - The really important thing is learning how to sceptically question and rely on empirical evidence.
+ - Empirical explorations ultimately change our understanding of which questions are important and fruitful and which are not.
+ - There are a lot of legislators who are afraid that kids will learn science and lose their faith.
+ - We should provide the meaning of the universe in the meaning of our own lives. So I think science doesn’t necessarily have to get in the way of kind of spiritual fulfillment.
+ - For the record: Quantum mechanics does not deny the existence of objective reality. Nor does it imply that mere thoughts can change external events. Effects still require causes, so if you want to change the universe, you need to act on it.
+ - Whatever the evolutionary basis of religion, the xenophobia it now generates is clearly maladaptive.
+ - What science is all about is a process. It’s like saying, “Well, is it important for people to know that World War II happened?” Well it’s part of what makes us who we are. And so, there’s basic bits of science we need to know.
+ - What people believe impacts on what they do. And it’s not as if religion is universally bad. Of course it’s responsible for many peoples doing good actions.
+ - There is a maxim about the universe which I always tell my students: That which is not explicitly forbidden is guaranteed to occur.
+ - People are interested in science, but they don’t always know they’re interested in science, and so I try to find a way to get them interested.
+ - I like to say that while antimatter may seem strange, it is strange in the sense that Belgians are strange. They are not really strange; it is just that one rarely meets them.
+ - When a person’s religious beliefs cause him to deny the evidence of science, or for whom public policy morphs into a battle with the devil, shouldn’t that be a subject for discussion and debate?
+ - Neutrinos alone, among all the known particles, have ethereal properties that are striking and romantic enough both to have inspired a poem by John Updike and to have sent teams of scientists deep underground for 50 years to build huge science-fiction-like contraptions to unravel their mysteries.
+ - Metaphysical speculation is independent of the physical validity of the Big Bang itself and is irrelevant to our understanding of it.
+ - Teaching and writing, to me, is really just seduction; you go to where people are and you find something that they’re interested in and you try and use that to convince them that they should be interested in what you have to say.
+
+55 quotes

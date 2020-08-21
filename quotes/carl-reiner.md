@@ -1,0 +1,26 @@
+ - I am an atheist. I have a very different take on who God is. Man invented God because he needed him. God is us.
+ - The absolute truth is the thing that makes people laugh.
+ - A lot of people like snow. I find it to be an unnecessary freezing of water.
+ - I only please myself. I figure I’m just one of many people. I’m not that different from anybody else and I don’t have great language – I’m very ordinary.
+ - Give yourself an impossible task and solve it – then you’ve got a really good story.
+ - Improvisation is just writing in front of an audience.
+ - I write books that way – I put a first line down and say, “Where does this go?”
+ - You’d only write what you know and what you know is what you do and the people you know. So you’d write about them or the people you have met casually. It’s part of your life.
+ - Lust is easy. Love is hard. Life is most important.
+ - Inviting people to laugh with you while you are laughing at yourself is a good thing to do. You may be a fool but you’re the fool in charge.
+ - My father was a watchmaker and an inventor. I saw him working in the house every day. The work ethic, I got from him. He worked hard and he never complained about it.
+ - I’m not a believer, I call myself an atheist. It was man who invented God. I once wrote that there are 15 things I know about God, and one is that he is allergic to shellfish. There are far too many commandments and you really only need one: Do not hurt anybody.
+ - I’m a charming coward; I fight with words.
+ - I love tweeting. I tweet every day. I stay in contact, I tell them what I’m doing. I’ve posted pictures of my books on there and they buy the books. It’s a very good way to communicate with people, but I can’t go to bed without tweeting something. I have to tweet something.
+ - If you can get a laugh out of a name, you’re ahead of the game.
+ - When you denigrate people, they have two ways to fight back – with their fists and guns, or their mouths. And mouths are seemingly the easiest way to not get hit back. If people are laughing, they’re not going to hit you.
+ - I certainly have warm relationships with people, but you choose the people you have those relationships with. There are some people I don’t bother with.
+ - I’ve done everything I’ve wanted to do. I have three children, I have grandchildren, I have books, I did movies, I’ve directed movies, I’ve done almost everything I’ve wanted to do.
+ - An attitude will give you heft.
+ - When I found out I could write I was shocked! I didn’t know I could write.
+ - A fellow who has a funny bone can learn to hone his skills, but I don’t think you can develop a funny bone – you either have it or you don’t. And by the way – when you get it, we don’t know it.
+ - Id like to acknowledge three people who early on knew Mel Brooks was one of the funniest people in the world: Sid Caesar, me, and Mel Brooks.
+ - I’m an entertainer and I entertain people and they entertain me back by asking questions. And some of them I answer.
+ - I think that comedy really tells you how it is. The other thing about comedy is that – you don’t even know if you’re failing in drama, but you do know when you’re failing in comedy. When you go to a comedy and you don’t hear anybody laughing, you know that you’ve failed.
+
+24 quotes

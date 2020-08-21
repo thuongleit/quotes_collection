@@ -1,0 +1,42 @@
+ - I don’t believe we own our children, they’re their own souls who make their own choices, we just guide and support them.
+ - I feel beautiful when I’m at peace with myself.
+ - I try to meditate every morning. It relaxes me, clears my mind, and sets my day off on the right foot before things get too manic.
+ - Focusing on the way I look makes me uncomfortable. I try to focus on the way I feel – I know what makes me feel better about myself. Reading my child a story makes me feel great, doing my hair nicely doesn’t.
+ - Having children is my greatest achievement. It was my saviour. It switched my focus from the outside to the inside. My children are gifts, they remind me of what’s important.
+ - G-strings are uncomfortable. Girls want real knickers now.
+ - I feel beautiful when I’m at peace with myself. When I’m serene, when I’m a good person, when I’ve been considerate of others.
+ - I don’t have a problem with nudity. I never have. I was born naked. I’d like to buried naked. It’s a way of life in Australia.
+ - You have nothing to sell except for the image: The image is everything.
+ - I’ve always found it very difficult to understand the laws as far as nudity in America – how some things are pornographic and some things are not pornographic. It’s against the law to go topless on the beach, but you can go buy a gun. That just seems so absurd to me.
+ - If I have a choice between putting my kids to bed and going to a party, I’ll put my kids to bed. If I have a choice of going to a restaurant or having friends round, I’ll have friends round. Every time.
+ - It’s not vanity to feel you have a right to be beautiful. Women are taught to feel we’re not good enough, that we must live up to someone else’s standards. But my aim is to cherish myself as I am.
+ - I like colourful knickers, but most importantly a great pair of knickers should be taken off with more joy than they were put on.
+ - I come from a country where you don’t wear clothes most of the year. Nudity is the most natural state.
+ - I don’t look at myself in the mirror. I’ll flash past a mirror in the morning to check how I’m dressed, that’s it.
+ - For me, just being on the cover of a magazine wasn’t enough. I began to think, what value is there in doing something in which you have no creative input?
+ - I like to make movies I like to watch.
+ - But I do know focusing on the exterior doesn’t make me happy. If I want peace and serenity, it won’t be reached by getting thinner or fatter.
+ - Acting and modeling have nothing to do with each other.
+ - People in the fashion industry have used the press a lot more than people in the film industry, because you have nothing to sell except for the image: The image is everything.
+ - It’s always been very clear to me that I was going to be a mother and that my purpose in life was to give life.
+ - If your wearing lingerie that makes you feel glamorous, you’re halfway thereto turning heads.
+ - I used to wear heels because I wanted to show people I wasn’t ashamed of being tall. But I don’t wear them any more because you don’t have to wear heels to be beautiful. I can’t even remember the last time I wore heels.
+ - Underwear is such an emotional thing.
+ - I went to America on holiday when I was 17 and, before I knew it, I’d been signed up by an agency and had these obligations I didn’t understand, but which I couldn’t say no to. This industry chose me. But I did choose to make it fulfilling.
+ - I just happen to like the work. I like preparing for a role. I like reading. I like analyzing. I like literature. I like emotions. I like working with other actors.
+ - For a while I was on the cover of every Sports Illustrated swimsuit issue, which was regarded as the pinnacle of success in America.
+ - I wanted so badly to study ballet, but it was really all about wearing the tutu.
+ - I choose movies, I never choose roles. I look at the script. I look at the director. I look at the other actors – and then the role.
+ - I’ve had two children and no surgery. My body is the result of good genes and a healthy attitude.
+ - As long as people want to see me in movies, and as long as I find it interesting, I’ll keep working.
+ - A few pounds show a lot on my body. But it’s okay. I believe women look good with a bit of softness to them.
+ - I don’t like everybody knowing what I’m doing, unless it’s related to a movie. I don’t like speaking to the press. I never did.
+ - It was like a big family, since so many of us brought our kids. We all went surfing. It was so relaxed and easy.
+ - You check to see the facts are correct where business is concerned but if I read everything that was written about me, I’d end up feeling totally insecure about myself.
+ - Everything I do is about women honouring themselves, treating themselves and taking care of themselves.
+ - Being a public person doesn’t necessarily mean you’re a piece of meat for everybody.
+ - Anyway, I believe you don’t fix the inside by putting something on the outside.
+ - The image is where you have dinner at night, who you’re seeing. It’s what car you drive and how you dress. People in the industry sell that, and it creates a dream. There’s nothing else.
+ - I used to wear heels because I wanted to show people I wasn’t ashamed of being tall.
+
+40 quotes

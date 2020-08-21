@@ -1,0 +1,352 @@
+ - There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.
+ - It’s not what happens to you, but how you react to it that matters.
+ - Don’t explain your philosophy. Embody it.
+ - We cannot choose our external circumstances, but we can always choose how we respond to them.
+ - We have two ears and one mouth so that we can listen twice as much as we speak.
+ - No man is free who is not master of himself.
+ - Keep silence for the most part, and speak only when you must, and then briefly.
+ - If anyone is unhappy, remember that his unhappiness is his own fault. Nothing else is the cause of anxiety or loss of tranquility except our own opinion.
+ - No great thing is created suddenly.
+ - If you wish to be a writer, write.
+ - Happiness and freedom begin with a clear understanding of one principle: Some things are within our control, and some things are not.
+ - First say to yourself what you would be; and then do what you have to do.
+ - If you want to improve, be content to be thought foolish and stupid.
+ - Wealth consists not in having great possessions, but in having few wants.
+ - Know, first, who you are, and then adorn yourself accordingly.
+ - When you are offended at any man’s fault, turn to yourself and study your own failings. Then you will forget your anger.
+ - The world turns aside to let any man pass who knows where he is going.
+ - Man is not worried by real problems so much as by his imagined anxieties about real problems.
+ - Books are the training weights of the mind.
+ - Circumstances don’t make the man, they only reveal him to himself.
+ - Progress is not achieved by luck or accident, but by working on yourself daily.
+ - Man is not fully free unless he is master of himself.
+ - It is not events that disturb the minds of men, but the view they take of them.
+ - The greater the difficulty the more glory in surmounting it. Skillful pilots gain their reputation from storms and tempests.
+ - An ignorant person is inclined to blame others for his own misfortune. To blame oneself is proof of progress. But the wise man never has to blame another or himself.
+ - It’s so simple really: If you say you’re going to do something, do it. If you start something, finish it.
+ - No matter what happens, it is within my power to turn it to my advantage.
+ - Make the best use of what is in your power, and take the rest as it happens.
+ - I have to die. If it is now, well then I die now; if later, then now I will take my lunch, since the hour for lunch has arrived – and dying I will tend to later.
+ - Tentative efforts lead to tentative outcome.
+ - It is impossible for a man to learn what he thinks he already knows.
+ - Men are disturbed not by the things that happen, but by their opinion of the things that happen.
+ - Don’t seek to have events happen as you wish, but wish them to happen as they do happen, and all will be well with you.
+ - Try not to react merely in the moment. Pull back from the situation. Take a wider view. Compose yourself.
+ - He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has.
+ - Other people’s views and troubles can be contagious. Don’t sabotage yourself by unwittingly adopting negative, unproductive attitudes through your associations with others.
+ - Every difficulty in life presents us with an opportunity to turn inward and to invoke our own submerged inner resources. The trials we endure can and should introduce us to our strengths.
+ - God has entrusted me with myself. No man is free who is not master of himself. A man should so live that his happiness shall depend as little as possible on external things. The world turns aside to let any man pass who knows where he is going.
+ - If you hear that someone is speaking ill of you, instead of trying to defend yourself you should say: ‘He obviously does not know me very well, since there are so many other faults he could have mentioned.’
+ - It is our attitude toward events, not events themselves, which we can control. Nothing is by its own nature calamitous – even death is terrible only if we fear it.
+ - To live a life of virtue, match up your thoughts, words, and deeds.
+ - Nothing truly stops you. Nothing truly holds you back. For your own will is always within your control.
+ - The best place to get help is from yourself.
+ - The key is to keep company only with people who uplift you, whose presence calls forth your best.
+ - Freedom and happiness are won by disregarding things that lie beyond our control.
+ - You are a little soul carrying around a corpse.
+ - Learn to distinguish what you can and can’t control. Within our control are our own opinions, aspirations, desires and the things that repel us. They are directly subject to our influence.
+ - It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
+ - Only the educated are free.
+ - I laugh at those who think they can damage me. They do not know who I am, they do not know what I think, they cannot even touch the things which are really mine and with which I live.
+ - Don’t demand or expect that events happen as you would wish them do. Accept events as they actually happen. That way, peace is possible.
+ - No great thing is created suddenly. There must be time. Give your best and always be kind.
+ - Man is troubled not by events, but by the meaning he gives them.
+ - The Beginning of Philosophy is a Consciousness of your own Weakness and inability in necessary things.
+ - Seek to be the purple thread in the long white gown.
+ - It is not things in themselves which trouble us, but our opinions of things.
+ - On the occasion of every accident that befalls you, remember to turn to yourself and inquire what power you have for turning it to use.
+ - Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control. Stop aspiring to be anyone other than your own best self: for that does fall within your control.
+ - Seek not that the things which happen should happen as you wish; but wish the things which happen to be as they are, and you will have a tranquil flow of life.
+ - The essence of philosophy is that a man should so live that his happiness shall depend as little as possible on external things.
+ - You have been given your own work to do. Get to it right now, do your best at it, and don’t be concerned with who is watching you. Create your own merit.
+ - It is the part of an uneducated person to blame others where he himself fares ill; to blame himself is the part of one whose education has begun; to blame neither another nor his own self is the part of one whose education is already complete.
+ - We can’t control the impressions others form about us, and the effort to do so only debases our character.
+ - Happiness and personal fulfillment are the natural consequences of doing the right thing.
+ - In life our first job is this, to divide and distinguish things into two categories: externals I cannot control, but the choices I make with regard to them I do control. Where will I find good and bad? In me, in my choices.
+ - Suffering arises from trying to control what is uncontrollable, or from neglecting what is within our power.
+ - Practice yourself, for heaven’s sake in little things, and then proceed to greater.
+ - What disturbs people’s minds are not events but their judgments on events.
+ - Never say of anything I have lost it, only say that I have given it back.
+ - What is it to be a philosopher? Is it not to be prepared against events?
+ - We all carry the seeds of greatness within us, but we need an image as a point of focus in order that they may sprout.
+ - It is unreasonable to think we can earn rewards without being willing to pay their true price. It is always our choice whether or not we wish to pay the price for life’s rewards.
+ - Desire and happiness cannot live together.
+ - No greater thing is created suddenly, any more than a bunch of grapes or a fig. If you tell me that you desire a fig, I answer you that there must be time. Let it first blossom, then bear fruit, then ripen.
+ - Preach not to others what they should eat, but eat as becomes you and be silent.
+ - You lose only the things you have.
+ - You are but an appearance, and not absolutely the thing you appear to be.
+ - Know you not that a good man does nothing for appearance sake, but for the sake of having done right?
+ - Be careful to leave your sons well instructed rather than rich, for the hopes of the instructed are better than the wealth of the ignorant.
+ - Freedom is not procured by a full enjoyment of what is desired, but by controlling the desire.
+ - The flourishing life cannot be achieved until we moderate our desires and see how superficial and fleeting they are.
+ - I must die. Must I then die lamenting? I must be put in chains. Must I then also lament? I must go into exile. Does any man then hinder me from going with smiles and cheerfulness and contentment?
+ - Fortify yourself with contentment, for this is an impregnable fortress.
+ - Contentment comes not so much from great wealth as from few wants.
+ - To pay homage to beauty is to admire Nature; to admire Nature is to worship God.
+ - One that desires to excel should endeavor in those things that are in themselves most excellent.
+ - Men are not afraid of things, but of how they view them.
+ - To be getting an education means this: to be learning what is your own, and what is not your own.
+ - Nothing great is created suddenly, any more than a bunch of grapes or a fig.
+ - You can be invincible, if you enter into no contest in which it is not in your power to conquer.
+ - If one oversteps the bounds of moderation, the greatest pleasures cease to please.
+ - Cowardice, the dread of what will happen.
+ - Confident because of our caution.
+ - When any person treats you ill or speaks ill of you, remember that he does this or says this because he thinks it is his duty. It is not possible, then, for him to follow that which seems right to you, but that which seems right to himself.
+ - Be not swept off your feet by the vividness of the impression, but say, Impression, wait for me a little. Let me see what you are and what you represent. Let me try you.
+ - The foolish and the uneducated have little use for freedom. Only the educated are free.
+ - Renew every day your conversation with God: Do this even in preference to eating. Think more often of God than you breathe.
+ - What thou avoidest suffering thyself seek not to impose on others.
+ - We should not moor a ship with one anchor, or our life with one hope.
+ - Do not give sentence in another tribunal till you have been yourself judged in the tribunal of Justice.
+ - God has entrusted me with myself.
+ - Fight against yourself, recover yourself to decency, to modesty, to freedom. And, in the first place, condemn your actions; but when you have condemned them, do not despair of yourself. For both ruin and recovery are from within.
+ - Caretake this moment. Immerse yourself in its particulars. Respond to this person, this challenge, this deed. Quit evasions. Stop giving yourself needless trouble. It is time to really live; to fully inhabit the situation you happen to be in now.
+ - When your thoughts, words, and deeds form a seamless fabric, you streamline your efforts and thus eliminate worry and dread.
+ - Never say about anything, “I have lost it,” but only “I have given it back.” Is your child dead? It has been given back. Is your wife dead? She has been returned.
+ - Let silence be your general rule; or say only what is necessary and in few words.
+ - If you think you control things that are in the control of others, you will lament. You will be disturbed and you will blame both gods and men.
+ - It is impossible that happiness, and yearning for what is not present, should ever be united.
+ - A half-hearted spirit has no power. Tentative efforts lead to tentative outcomes. Average people enter into their endeavors headlong and without care.
+ - Keep your attention focused entirely on what is truly your own concern, and be clear that what belongs to others is their business and none of yours.
+ - First learn the meaning of what you say, and then speak.
+ - Don’t be concerned with other people’s impressions of you. They are dazzled and deluded by appearances. Stick with your purpose. This alone will strengthen your will and give your life coherence.
+ - Any person capable of angering you becomes your master.
+ - From this instant on, vow to stop disappointing yourself. Separate yourself from the mob. Decide to be extraordinary and do what you need to do – now.
+ - When we blather about trivial things, we ourselves become trivial, for our attention gets taken up with trivialities. You become what you give your attention to.
+ - Authentic happiness is always independent of external conditions.
+ - Nature hath given men one tongue but two ears, that we may hear from others twice as much as we speak.
+ - Whatever you would make habitual, practice it; and if you would not make a thing habitual, do not practice it, but accustom yourself to something else.
+ - To a longer and worse life, a shorter and better is by all means to be preferred.
+ - Be careful whom you associate with. It is human to imitate the habits of those with whom we interact. We inadvertently adopt their interests, their opinions, their values, and their habit of interpreting events.
+ - He who laughs at himself never runs out of things to laugh at.
+ - All philosophy lies in two words, sustain and abstain.
+ - If evil be spoken of you and it be true, correct yourself, if it be a lie, laugh at it.
+ - The pleasure which we most rarely experience gives us greatest delight.
+ - What ought one to say then as each hardship comes? I was practicing for this, I was training for this.
+ - He is a drunkard who takes more than three glasses though he be not drunk.
+ - Do not seek to bring things to pass in accordance with your wishes, but wish for them as they are, and you will find them.
+ - When something happens, the only thing in your power is your attitude toward it; you can either accept it or resent it.
+ - If you would cure anger, do not feed it. Say to yourself: ‘I used to be angry every day; then every other day; now only every third or fourth day.’ When you reach thirty days offer a sacrifice of thanksgiving to the gods.
+ - The people have a right to the truth as they have a right to life, liberty and the pursuit of happiness.
+ - What really frightens and dismays us is not external events themselves, but the way in which we think about them. It is not things that disturb us, but our interpretation of their significance.
+ - Silence is safer than speech.
+ - It is not he who reviles or strikes you who insults you, but your opinion that these things are insulting.
+ - What concerns me is not the way things are, but rather the way people think things are.
+ - The origin of sorrow is this: to wish for something that does not come to pass.
+ - All religions must be tolerated for every man must get to heaven in his own way.
+ - Whoever then wishes to be free, let him neither wish for anything nor avoid anything which depends on others: if he does not observe this rule, he must be a slave.
+ - Difficulties are things that show a person what they are.
+ - Why, do you not know, then, that the origin of all human evils, and of baseness, and cowardice, is not death, but rather the fear of death?
+ - Everything has two handles,-one by which it may be borne; another by which it cannot.
+ - There is but one way to tranquility of mind and happiness, and that is to account no external things thine own, but to commit all to God.
+ - A ship should not be held by a single anchor; neither should life depend upon a single hope.
+ - Give yourself fully to your endeavors. Decide to construct your character through excellent actions and determine to pay the price of a worthy goal. The trials you encounter will introduce you to your strengths.
+ - It’s time to stop being vague. If you wish to be an extraordinary person, if you wish to be wise, then you should explicitly identify the kind of person you aspire to become.
+ - If someone irritates you, it is only your own response that is irritating you. Therefore, when anyone seems to be provoking you, remember that it is only your judgment of the incident that provokes you. -.
+ - Let death be daily before your eyes, and you will never entertain any abject thought, nor too eagerly covet anything.
+ - If a person had delivered up your body to some passer-by, you would certainly be angry. And do you feel no shame in delivering up your own mind to any reviler, to be disconcerted and confounded?
+ - Confidence in nonsense is a requirement for the creative process.
+ - Attach yourself to what is spiritually superior, regardless of what other people think or do. Hold to your true aspirations no matter what is going on around you.
+ - Men are not worried by things, but by their ideas about things. When we meet with difficulties, become anxious or troubled, let us not blame others, but rather ourselves. That is: our ideas about things.
+ - You may fetter my leg, but Zeus himself cannot get the better of my free will.
+ - Make it your business to draw out the best in others by being an exemplar yourself.
+ - I am always content with what happens; for I know that what God chooses is better than what I choose.
+ - If you seek truth you will not seek victory by dishonorable means, and if you find truth you will become invincible.
+ - Liars are the cause of all the sins and crimes in the world.
+ - If thy brother wrongs thee, remember not so much his wrong-doing, but more than ever that he is thy brother.
+ - Act your part with honor.
+ - Forgiveness is better than revenge, for forgiveness is the sign of a gentle nature, but revenge is the sign of a savage nature. the forgiveness of our trespasses, according to the riches of his grace.
+ - Whenever you are angry, be assured that it is not only a present evil, but that you have increased a habit.
+ - You may be always victorious if you will never enter into any contest where the issue does not wholly depend upon yourself.
+ - We must be afraid of neither poverty nor exile nor imprisonment; of fear itself only should we be afraid.
+ - Events do not just happen, but arrive by appointment.
+ - It is better to die of hunger having lived without grief and fear, than to live with a troubled spirit, amid abundance.
+ - Learn to wish that everything should come to pass exactly as it does.
+ - Nothing great comes into being all at once.
+ - As it is pleasant to see the sea from the land, so it is pleasant for him who has escaped from troubles to think of them.
+ - He who is not happy with little will never be happy with much.
+ - In trying to please other people, we find ourselves misdirected toward what lies outside our sphere of influence. In doing so, we lose our hold on our lifes purpose.
+ - In every affair consider what precedes and what follows, and then undertake it.
+ - If you do not wish to be prone to anger, do not feed the habit; give it nothing which may tend to its increase.
+ - To make anything a habit, do it; to not make it a habit, do not do it; to unmake a habit, do something else in place of it.
+ - Pleasure, like a kind of bait, is thrown before everything which is really bad, and easily allures greedy souls to the hook of perdition.
+ - The two powers which in my opinion constitute a wise man are those of bearing and forbearing.
+ - It takes more than just a good looking body. You’ve got to have the heart and soul to go with it.
+ - Against specious appearances we must set clear convictions, bright and ready for use. When death appears as an evil, we ought immediately to remember that evils are things to be avoided, but death is inevitable.
+ - It is not death or pain that is to be dreaded, but the fear of pain or death.
+ - Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.
+ - Bear in mind that you should conduct yourself in life as at a feast.
+ - It is no easy thing for a principle to become a man’s own unless each day he maintains it and works it out in his life.
+ - We should do everything both cautiously and confidently at the same time.
+ - God has made all men to be happy.
+ - Bid a singer in a chorus, Know Thyself; and will he not turn for the knowledge to the others, his fellows in the chorus, and to his harmony with them?
+ - Do not try to seem wise to others.
+ - It is not the events but our viewpoint toward events that is the determining factor. We ought to be more concerned about removing wrong thoughts from the mind than removing tumors and abscesses from the body.
+ - Consider first the nature of the business in hand; then examine thy own nature, whether thou hast strength to undertake it.
+ - The good or ill of a man lies within his own will.
+ - You bear God within you, poor wretch, and know it not.
+ - It is your own convictions which compels you; that is, choice compels choice.
+ - Try to enjoy the great festival of life with other men!
+ - The beginning of philosophy is the recognition of the conflict between opinions.
+ - One of the best ways to elevate your character is to emulate worthy role models.
+ - Unremarkable lives are marked by the fear of not looking capable when trying something new.
+ - Don’t be prideful with any excellence that is not your own.
+ - Living a good life leads to enduring happiness. Goodness in and of itself is the practice AND the reward.
+ - When you close your doors, and make darkness within, remember never to say that you are alone, for you are not alone; nay, God is within, and your genius is within. And what need have they of light to see what you are doing?
+ - Nothing is in reality either pleasant or unpleasant by nature but all things become so through habit.
+ - It is not a demonstration of kindness or friendship to the people we care about to join them in indulging in wrongheaded, negative feelings. We do a better service to ourselves and others by remaining detached and avoiding melodramatic reactions.
+ - Never in any case say I have lost such a thing, but I have returned it. Is your child dead? It is a return. Is your wife dead? It is a return. Are you deprived of your estate? Is not this also a return?
+ - It is unlikely that the good of a snail should reside in its shell: so is it likely that the good of a man should?
+ - If I was a nightingale I would sing like a nightingale; if a swan, like a swan. But since I am a rational creature my role is to praise God.
+ - These are the signs of a wise man: to reprove nobody, to praise nobody, to blame nobody, nor even to speak of himself or his own merits.
+ - Do not laugh much or often or unrestrainedly.
+ - What is learned without pleasure is forgotten without remorse.
+ - If your heart is quite set upon a crown, make and put on one of roses, for it will make the prettier appearance.
+ - Is freedom anything else than the right to live as we wish? Nothing else.
+ - In the long run, every man will pay the penalty for this own misdeeds.
+ - No matter where you find yourself, comport yourself as if you were a distinguished person.
+ - Lampis the ship owner, on being asked how he acquired his great wealth, replied, My great wealth was acquired with no difficulty, but my small wealth, my first gains, with much labor.
+ - Contentment, as it is a short road and pleasant, has great delight and little trouble.
+ - It is the sign of a dull mind to dwell upon the cares of the body, to prolong exercise, eating and drinking and other bodily functions. These things are best done by the way; all your attention must be given to the mind.
+ - By accepting life’s limits and inevitabilities and working with them rather than fighting them, we become free.
+ - If you see anybody wail and complain, call him a slave, though he be clad in purple.
+ - In him we have redemption through his blood, the forgiveness of our trespasses, according to the riches of his grace.
+ - To adorn our characters by the charm of an amiable nature shows at once a lover of beauty and a lover of man.
+ - Envy is the antagonist of the fortunate.
+ - Ask yourself, “How are my thoughts, words and deeds affecting my friends, my spouse, my neighbour, my child, my employer, my subordinates, my fellow citizens?”
+ - What is a child? Ignorance. What is a child? Want of instruction.
+ - Don’t consent to be hurt and you won’t be hurt – this is a choice over which you have control.
+ - There are some faults which men readily admit, but others not so readily.
+ - As a man, casting off worn out garments taketh new ones, so the dweller in the body, entereth into ones that are new.
+ - If you have assumed a character above your strength, you have both acted in this matter in an unbecoming way, and you have neglected that which you might have fulfilled.
+ - To accuse others for one’s own misfortunes is a sign of want of education. To accuse oneself shows that one’s education has begun. To accuse neither oneself nor others shows that one’s education is complete.
+ - Act well your given part; the choice rests not with you.
+ - Do nothing in a depressed mood, nor as one afflicted, nor as thinking that you are in misery, for no one compels you to that.
+ - Common and vulgar people ascribe all ills that they feel to others; people of little wisdom ascribe to themselves; people of much wisdom, to no one.
+ - To live a life of virtue, you have to become consistent, even when it isn’t convenient, comfortable, or easy.
+ - When one maintains his proper attitude in life, he does not long after externals.
+ - When you let go of your attention for a little while, do not think you may recover it whenever you please.
+ - Either God wants to abolish evil, and cannot; or he can, but does not want to.
+ - We must ever bear in mind – that apart from the will there is nothing good or bad, and that we must not try to anticipate or to direct events, but merely to accept them with intelligence.
+ - Let thy speech of God be renewed day by day, aye, rather than thy meat and drink.
+ - In prosperity it is very easy to find a friend; but in adversity it is the most difficult of all things.
+ - Focus not on what he or she does, but on keeping to your higher purpose. Your own purpose should seek harmony with nature itself. For this is the true road to freedom.
+ - When the idea of any pleasure strikes your imagination, make a just computation between the duration of the pleasure and that of the repentance that is likely to follow it.
+ - We should not have either a blunt knife or a freedom of speech which is ill-managed.
+ - Covetousness like jealousy, when it has taken root, never leaves a person, but with their life. Cowardice is the dread of what will happen.
+ - From now on practice saying to everything that appears unpleasant: You are merely an appearance and NOT what you appear to be.
+ - No man is able to make progress when he is wavering between opposite things.
+ - What is a good person? One who achieves tranquillity by having formed the habit of asking on every occasion, “what is the right thing to do now?”
+ - In a word, neither death, nor exile, nor pain, nor anything of this kind is the real cause of our doing or not doing any action, but our inward opinions and principles.
+ - The essence of good and evil is a certain disposition of the will.
+ - Exceed due measure, and the most delightful things become the least delightful.
+ - What is death? A scary mask. Take it off-see, it doesn’t bite.
+ - It was the first and most striking characteristic of Socrates never to become heated in discourse, never to utter an injurious or insulting word – on the contrary, he persistently bore insult from others and thus put an end to the fray.
+ - If you desire to be good, begin by believing that you are wicked.
+ - I am not eternity, but a man; a part of the whole, as an hour is of the day.
+ - You will do the greatest service to the state if you shall raise, not the roofs of the houses, but the souls of the citizens: for it is better that great souls should dwell in small houses rather than for mean slaves to lurk in great houses.
+ - Be not diverted from your duty by any idle reflections the silly world may make upon you, for their censures are not in your power and should not be at all your concerns.
+ - A thing either is what it appears to be; or it is not, but yet appears to be; or it is, but does not appear to be; or it is not, and does not appear to be.
+ - We tell lies, yet it is easy to show that lying is immoral.
+ - Imagine for yourself a character, a model personality, whose example you determine to follow, in private as well as in public.
+ - If you would be well spoken of, learn to be well-spoken; and having learnt to be well- spoken, strive also to be well-doing; so shall you succeed in being well spoken of.
+ - A man that seeks truth and loves it must be reckoned precious to any human society.
+ - The soul that companies with virtue is like an ever-flowing source. It is a pure, clear, and wholesome draught, sweet, rich and generous of its store, that injures not, neither destroys.
+ - A vulgar man, in any ill that happens to him, blames others; a novice in philosophy blames himself; and a philosopher blames neither, the one nor the other.
+ - Seek not good from without; seek it within yourselves, or you will never find it.
+ - Think of God more often than thou breathest.
+ - It is better by assenting to truth to conquer opinion, than by assenting to opinion to be conquered by truth.
+ - It is the act of an ill-instructed man to blame others for his own bad condition; it is the act of one who has begun to be instructed, to lay the blame on himself; and of one whose instruction is completed, neither to blame another, nor himself.
+ - Survey and test a prospective action before undertaking it. Before you proceed, step back and look at the big picture, lest you act rashly on raw impulse.
+ - No one who is in a state of fear or sorrow or tension is free, but whosoever is delivered from sorrows or fears or anxieties is at the same time delivered from servitude.
+ - If you would improve, submit to be considered wihout sense and foolish with respect to externals. Wish to be considered to know nothing; and if you shall seem to someone to be a person of importance, distrust yourself.
+ - Every habit and faculty is preserved and increased by correspondent actions, as the habit of walking, by walking; of running, by running.
+ - Control thy passions lest they take vengence on thee.
+ - And have you not received faculties which will enable you to bear all that happens to you? Have you not received greatness of spirit? Have you not received courage? Have you not received endurance?
+ - What will the world be quite overturned when you die?
+ - It is my business, to manage carefully and dexterously whatever happens.
+ - Have the wisdom to know what cannot be changed, and the strength to change what can.
+ - No living being is held by anything so strongly as by its own needs. Whatever therefore appears a hindrance to these, be it brother, or father, or child, or mistress, or friend, is hated, abhorred, execrated.
+ - Dare to look up to God and say, Deal with me in the future as Thou wilt; I am of the same mind as Thou art; I am Thine; I refuse nothing that pleases Thee; lead me where Thou wilt; clothe me in any dress Thou choosest.
+ - The appearance of things to the mind is the standard of every action to man.
+ - What disturbs and alarms man are not the things, but his opinions and fancies about the things.
+ - Law intends indeed to do service to human life, but it is not able when men do not choose to accept her services; for it is only in those who are obedient to her that she displays her special virtue.
+ - The soul’s impurity consists in bad judgments, and purification consists in producing in it right judgments, and the pure soul is one which has right judgments.
+ - There is nothing good or evil save in the will.
+ - Reason is not measured by size or height, but by principle.
+ - When our friends are present we ought to treat them well; and when they are absent, to speak of them well.
+ - Were I a nightingale, I would act the part of a nightingale; were I a swan, the part of a swan.
+ - In theory it is easy to convince an ignorant person; in actual life, men not only object to offer themselves to be convinced, but hate the man who has convinced them.
+ - Whoever does not regard what he has as most ample wealth, is unhappy, though he be master of the world.
+ - If I can acquire money and also keep myself modest and faithful and magnanimous, point out the way, and I will acquire it.
+ - The universe is but one great city, full of beloved ones, divine and human, by nature endeared to each other.
+ - Fortune is an evil chain to the body, and vice to the soul.
+ - Whoever is going to listen to the philosophers needs a considerable practice in listening.
+ - Do not so much be ashamed of that disgrace which proceeds from men’s opinion as fly from that which comes from the truth.
+ - We ought to flee the friendship of the wicked, and the enmity of the good.
+ - Every place is safe to him who lives with justice.
+ - To a reasonable creature, that alone is insupportable which is unreasonable; but everything reasonable may be supported.
+ - You ought to choose both physician and friend, not the most agreeable, but the most useful.
+ - The soul is unwillingly deprived of truth.
+ - What is yours is to play the assigned part well. But to choose it belongs to someone else.
+ - Pain or pleasure? I say pleasure.
+ - Things true and evident must of necessity be recognized by those who would contradict them.
+ - Never look for your work in one place and your progress in another.
+ - If virtue promises happiness, prosperity and peace, then progress in virtue is progress in each of these for to whatever point the perfection of anything brings us, progress is always an approach toward it.
+ - Freedom and slavery, the one is the name of virtue, and the other of vice, and both are acts of the will.
+ - Ruin and recovering are both from within.
+ - Be free from grief not through insensibility like the irrational animals, nor through want of thought like the foolish, but like a man of virtue by having reason as the consolation of grief.
+ - Give me by all means the shorter and nobler life, instead of one that is longer but of less account!
+ - We do not choose our own parts in life, and have nothing to do with those parts. Our duty is confined to playing them well.
+ - The materials are indifferent, but the use we make of them is not a matter of indifference.
+ - If you have anything better to be doing when death overtakes you, get to work on that.
+ - Wherever any one is against his will, that is to him a prison.
+ - Anything worth putting off is worth abandoning altogether.
+ - What is it that every man seeks? To be secure, to be happy, to do what he pleases without restraint and without compulsion.
+ - We all dread a bodily paralysis, and would make use of every contrivance to avoid it; but none of us is troubled about a paralysis of the soul.
+ - Two principles we should always have ready – that there is nothing good or evil save in the will; and that we are not to lead events, but to follow them.
+ - Once you know who you are and to whom you are linked, you will know what to do.
+ - Your master is he who controls that on which you have set your heart or wish to avoid.
+ - Shall I show you the sinews of a philosopher? What sinews are those? – A will undisappointed; evils avoided; powers daily exercised; careful resolutions; unerring decisions.
+ - Not things, but opinions about things, trouble men.
+ - He is free who lives as he wishes to live; who is neither subject to compulsion nor to hindrance, nor to force; whose movements to action are not impeded, whose desires attain their purpose, and who does not fall into that which he would avoid.
+ - A soul that makes virtue its companion is like an over-flowing well, for it is clean and pellucid, sweet and wholesome, open to all, rich, blameless and indestructible.
+ - It is better to advise than upbraid, for the one corrects the erring; the other only convicts them.
+ - If we are not stupid or insincere when we say that the good or ill of man lies within his own will, and that all beside is nothing to us, why are we still troubled?
+ - The cause of all human evils is the not being able to apply general principles to special cases.
+ - Watch yourself as you go about your daily business and later reflect on what you saw, trying to identify the sources of distress in your life and thinking about how to avoid that distress.
+ - If you wish to live a life free from sorrow, think of what is going to happen as if it had already happened.
+ - Crows pick out the eyes of the dead, when the dead have no longer need of them; but flatterers mar the soul of the living, and her eyes they blind.
+ - There is only one thing for which God has sent me into the world, and that is to develop every kind of virtue or strength, and there is nothing in all the world that I cannot use for this purpose.
+ - To the rational being only the irrational is unendurable, but the rational is endurable.
+ - Appear to know only this – never to fail nor fall.
+ - If any be unhappy, let him remember that he is unhappy by reason of himself alone. For God hath made all men to enjoy felicity and constancy of good.
+ - It is not he who gives abuse that affronts, but the view that we take of it as insulting; so that when one provokes you it is your own opinion which is provoking.
+ - With ills unending strives the putter off.
+ - It is wicked to withdraw from being useful to the needy, and cowardly to give way to the worthless.
+ - We are not to give credit to the many, who say that none ought to be educated but the free; but rather to the philosophers, who say that the well-educated alone are free.
+ - Let no man think that he is loved by any who loveth none.
+ - Who are those people by whom you wish to be admired? Are they not these whom you are in the habit of saying that they are mad? What then? Do you wish to be admired by the mad?
+ - Happiness is an equivalent for all troublesome things.
+ - It were no slight attainment could we merely fulfil what the nature of man implies.
+ - To get or not to get what we desire can be equally disappointing.
+ - When a man is proud because he can understand and explain the writings of Chrysippus, say to yourself, ‘if Chrysippus had not written obscurely, this man would have had nothing to be proud of.’
+ - To know that you do not know and to be willing to admit that you do not know without sheepishly apologizing is real strength and sets the stage for learning and progress in any endeavor.
+ - If what charms you is nothing but abstract principles, sit down and turn them over quietly in your mind: but never dub yourself a Philosopher.
+ - Choose the life that is noblest, for custom can make it sweet to thee.
+ - What is the first business of one who practices philosophy? To get rid of self-conceit. For it is impossible for anyone to begin to learn that which he thinks he already knows.
+ - It doesn’t take much to lose everything, just a little departure from reason.
+ - He who exercises wisdom exercises the knowledge which is about God.
+ - Don’t regard what anyone says of you, for this, after all, is no concern of yours.
+ - Every art and every faculty contemplates certain things as its principal objects.
+ - Since it is Reason which shapes and regulates all other things, it ought not itself to be left in disorder.
+ - Each man’s life is a kind of campaign, and a long and complicated one at that. You have to maintain the character of a soldier, and do each separate act at the bidding of the General.
+ - No living being is held by anything so strongly as its own needs.
+ - Unless we place our religion and our treasure in the same thing, religion will always be sacrificed.
+ - We are not to lead events, but to follow them.
+ - In order to please others, we loose our hold on our life’s purpose.
+ - Any one thing in the creation is sufficient to demonstrate a Providence to a humble and grateful mind.
+ - If thou rememberest that God standeth by to behold and visit all that thou doest; whether in the body or in the soul, thou surely wilt not err in any prayer or deed; and thou shalt have God to dwell with thee.
+ - Who is not attracted by bright and pleasant children, to prattle, to creep, and to play with them?
+
+350 quotes

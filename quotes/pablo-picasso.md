@@ -1,0 +1,316 @@
+ - Everything you can imagine is real.
+ - Action is the foundational key to all success. 
+ - The meaning of life is to find your gift. The purpose of life is to give it away.
+ - Good artists copy. Great artists steal.
+ - Learn the rules like a pro, so you can break them like an artist.
+ - Inspiration exists, but it has to find you working.
+ - Only put off until tomorrow what you are willing to die having left undone.
+ - If I don't have red, I use blue.
+ - I am always doing that which I can not do, in order that I may learn how to do it.
+ - Art is the lie that enables us to realize the truth.
+ - Others have seen what is and asked why. I have seen what could be and asked why not. 
+ - Art washes away from the soul the dust of everyday life.
+ - Computers are useless. They can only give you answers.
+ - The chief enemy of creativity is good sense.
+ - The world doesn't make sense, so why should I paint pictures that do?
+ - If only we could pull out our brain and use only our eyes.
+ - There is no abstract art. You must always start with something. Afterward you can remove all traces of reality.
+ - God is really only another artist. He invented the giraffe, the elephant and the cat. He has no real style, He just goes on trying other things.
+ - We artists are indestructible; even in a prison, or in a concentration camp, I would be almighty in my own world of art, even if I had to paint my pictures with my wet tongue on the dusty floor of my cell.
+ - Without great solitude no serious work is possible.
+ - There are painters who transform the sun to a yellow spot, but there are others who with the help of their art and their intelligence, transform a yellow spot into sun.
+ - My mother said to me, ‘If you are a soldier, you will become a general. If you are a monk, you will become the Pope.’ Instead, I was a painter, and became Picasso.
+ - Every act of creation is first an act of destruction.
+ - Don’t waste your youth growing up.
+ - I do not seek. I find.
+ - Paradise is to love many things with a passion.
+ - All Children are Artists.
+ - Music and art are the guiding lights of the world.
+ - Youth has no age.
+ - Lord, protect me from what I want!
+ - Go and do the things you can’t. That is how you get to do them.
+ - The first half of life is learning to be an adult-the second half is learning to be a child.
+ - It took me four years to paint like Raphael, but a lifetime to paint like a child.
+ - To draw you must close your eyes and sing.
+ - Painting is just another way of keeping a diary.
+ - There are more copies than originals among people.
+ - Art is the elimination of the unnecessary.
+ - The important thing is to create. Nothing else matters; creation is all.
+ - Never permit a dichotomy to rule your life, a dichotomy in which you hate what you do so you can have pleasure in your spare time. Look for a situation in which your work will give you as much happiness as your spare time.
+ - I am exhausted if I don’t work.
+ - There is only one way to see things, until someone shows us how to look at them with different eyes.
+ - I don’t believe in accidents. There are only encounters in history. There are no accidents.
+ - It takes a long time to become young.
+ - I begin with an idea and then it becomes something else.
+ - Through education comes understanding. Through understanding comes true appreciation. All children are artists. The problem is how to remain an artist once he grows up.
+ - An artist must forget painting when he paints. That’s the only way he will do original work.
+ - In drawing, nothing is better than the first attempt.
+ - He can who thinks he can, and he can’t who thinks he can’t. This is an inexorable, indisputable law.
+ - Reality is to be found in lightness and darkness.
+ - Our goals can only be reached through a vehicle of a plan, in which we must fervently believe, and upon which we must vigorously act. There is no other route to success.
+ - The urge to destroy is also a creative urge.
+ - If you’re stuck in a painting, then stop and draw something else. Draw a flower and put your love into that flower. Then your powers will come back again.
+ - Give me a museum and I’ll fill it.
+ - Sex and art are the same thing.
+ - When it comes right down to it, all you have is your self. Your Self is a sun with a thousand rays...
+ - When I haven’t any blue I use red.
+ - We are all born children- the trick is remaining one.
+ - Motivation is in the world around us. We have an infinite amount of material at our disposal, in the lives of those we meet, in what we see and feel, in what we discuss and from the passion of every woman.
+ - I don’t say everything, but I paint everything.
+ - While I am working I am not conscious of what I am putting on the canvas.
+ - When I enter the studio, I leave my body at the door the way the Moslems leave their shoes when they enter the mosque, and I only allow my spirit to go in there and paint.
+ - If you have five elements available use only four. If you have four elements use three.
+ - If I knew what the meaning of art was, I wouldn’t tell you.
+ - Computers are stupid.
+ - A painter is a man who paints what he sells; an artist, on the other hand, is a man who sells what he paints.
+ - Forcing yourself to use restricted means is the sort of restraint that liberates invention. It obliges you to make a kind of progress that you can’t even imagine in advance.
+ - I am always making that what I am not capable, in an attempt to learn how to doing it.
+ - People who read are people who dream.
+ - We have learned nothing.
+ - I don’t develop; I am.
+ - When I work I relax; doing nothing or entertaining visitors makes me tired.
+ - The older you get the stronger the wind gets and it’s always in your face.
+ - Who sees the human face correctly: the photographer, the mirror, or the painter?
+ - I hate that aesthetic game of the eye and the mind, played by these connoisseurs, these mandarins who “appreciate” beauty. What is beauty, anyway? There’s no such thing. I never “appreciate,” any more than I “like.” I love it or I hate.
+ - Every child is an artist. The problem is how to remain an artist while still achieving milestones and outcomes as required by certain funders and policy-makers.
+ - To find is the thing.
+ - You don’t make art, you find it.
+ - Everyone wants to understand art. Why don’t we try to understand the song of a bird? Why do we love the night, the flowers, everything around us, without trying to understand them? But in the case of a painting, people think they have to understand.
+ - Braque always said that the only thing that counts, in painting, is the intention, and it’s true. What counts is what one wants to do, and not what one does. That’s what’s important.
+ - If it’s good, it’s mine. If it’s bad, it’s a fake.
+ - If one knows exactly what is going to be done, why do it?
+ - Painting isn’t an aesthetic operation; it’s a form of magic designed as mediator between this strange hostile world and us.
+ - Age only matters when one is aging. Now that I have arrived at a great age, I might as well be twenty.
+ - Style is besides the point. Nobody would pay attention if one always said the same thing, in the same words and the same tone of voice.
+ - If I had known there was such a thing as Islamic Calligraphy, I would never have started to paint. I have strived to reach the highest levels of artistic mastery, but I found that Islamic Calligraphy was there ages before I was.
+ - Every now and then one paints a picture that seems to have opened a door and serves as a stepping stone to other things.
+ - Are we to paint what’s on the face, what’s inside the face, or what’s behind it?
+ - What a trade! Poor painters! They always wish to be understood, and they are analysed instead.
+ - People don’t realize what they have when they own a picture by me. Each picture is a phial with my blood. That is what has gone into it.
+ - I consider a work of art as a product of calculations, calculations that are frequently unknown to the author himself.
+ - Through art we express our conception of what nature is not.
+ - Drink to me. Drink to my health. You know I can’t drink any more.
+ - Painting is not done to decorate apartments. It is an instrument of war.
+ - When art critics get together they talk about Form and Structure and Meaning. When artists get together they talk about where you can buy cheap turpentine.
+ - When you’re really young, you’re young for life.
+ - Disciples be damned. It’s not interesting. It’s only the masters that matter. Those who create.
+ - For those who know how to read, I have painted my autobiography.
+ - If I paint a hammer and sickle people may think it is a representation of Communism, but for me it is only a hammer and sickle. I just want to reproduce the objects for what they are, not for what they mean.
+ - Painting is a blind man’s profession. He paints not what he sees, but what he feels, what he tells himself about what he has seen.
+ - As far as I am concerned, a painting speaks for itself. What is the use of giving explanations, when all is said and done? A painter has only one language.
+ - Basically the French are all peasants.
+ - Colors, like features, follow the changes of the emotions.
+ - Art is not the application of a canon of beauty but what the instinct and the brain can conceive beyond any canon. When we love a woman we don’t start measuring her limbs.
+ - Paintings are but research and experiment. I never do a painting as a work of art. All of them are researches. I search constantly and there is a logical sequence in all this research.
+ - It means nothing to me. I have no opinion about it, and I don’t care.
+ - You have to start somewhere. You can always erase reality later on.
+ - The genius of Einstein leads to Hiroshima.
+ - We all know that Art is not truth. Art is a lie that makes us realize truth at least the truth that is given us to understand. The artist must know the manner whereby to convince others of the truthfulness of his lies.
+ - To know what you’re going to draw, you have to begin drawing.
+ - The purpose of art is washing the dust of daily life off our souls.
+ - I have discovered photography. Now I can kill myself. I have nothing else to learn.
+ - I’d like to live as a poor man with lots of money.
+ - Style is often something which locks the painter into the same vision, the same technique, the same formula during years and years, sometimes during one’s whole lifetime.
+ - If there were only one truth, you couldn’t paint a hundred canvases on the same theme.
+ - Why should I copy this owl, this sea urchin? Why should I try to imitate nature? I might just as well try to trace a perfect circle.
+ - Cubism is not a reality you can take in your hand. It’s more like a perfume, in front of you, behind you, to the sides, the scent is everywhere but you don’t quite know where it comes from.
+ - What one does is what counts. Not what one had the intention of doing.
+ - We don’t grow older, we grow riper.
+ - I paint objects as I think them, not as I see them.
+ - There’s nothing so similar to one poodle dog as another poodle dog, and that goes for women, too.
+ - Why do you try to understand art? Do you try to understand the song of a bird?
+ - That inspiration comes, does not depend on me. The only thing I can do is make sure it catches me working.
+ - When we discovered cubism, we did not have the aim of discovering cubism. We only wanted to express what was in us.
+ - I have always believed and still believe that artists who live and work with spiritual values cannot and should not remain indifferent to the conflict in which the highest values of humanity and civilization are at stake.
+ - Everything is a miracle. It is a miracle that one does not dissolve in one’s bath like a lump of sugar.
+ - Different themes inevitably require different methods of expression. This does not imply either evolution or progress; it is a matter of following the idea one wants to express and the way in which one wants to express it.
+ - Sculpture is the art of the intelligence.
+ - It is the object which aroused the artist, stimulated his ideas and set of his emotions. These ideas and emotions will be imprisoned in his work for good.
+ - Love must be proven by facts and not by reasons.
+ - When the individuality of the artist begins to express itself, what the artist gains in the way of liberty he loses in the way of order.
+ - All art is subversive.
+ - Two of the most frustrated trades are dentists and photographers – dentists because they want to be doctors, and photographers because they want to be painters.
+ - Everything exists in limited quantity – especially happiness.
+ - Success is dangerous. One begins to copy oneself, and to copy oneself is more dangerous than to copy others. It leads to sterility.
+ - You cannot go against nature. She is stronger than the strongest of men. We can permit ourselves some liberties, but in details only.
+ - I am only a public entertainer who understands his time.
+ - When I was a kid I drew like Michelangelo. It took me years to learn to draw like a kid.
+ - Sculpture is the best comment that a painter can make on painting.
+ - One starts to get young at the age of sixty and then it is too late.
+ - All children paint like geniuses. What do we do to them that so quickly dulls this ability?
+ - When I am told I am too old to do something, I try to do it right away.
+ - It is important to remember that great things have no fear of time. We’ve got to let go of the idea that what we want to manifest has to be done on our time schedule.
+ - To finish a work? To finish a picture? What nonsense! To finish it means to be through with it, to kill it, to rid it of its soul, to give it its final blow the coup de grace for the painter as well as for the picture.
+ - For being a bad student I was banished to the ‘calaboose’ – a bare cell with whitewashed walls and a bench to sit on. I liked it there, because I took along a sketch pad and drew incessantly I could have stayed there forever drawing without stopping.
+ - To make oneself hated is more difficult than to make oneself loved.
+ - Drawing is a kind of hypnotism: one looks in such a way at the model, that he comes and takes a seat on the paper.
+ - Ah, good taste! What a dreadful thing! Taste is the enemy of creativeness.
+ - The artist is a receptacle for emotions that come from all over the place: from the sky, from the earth, from a scrap of paper, from a passing shape, from a spider’s web.
+ - A picture lives by its legend – not by anything else.
+ - A plagiarist steals from one person. A true artist steals from everybody.
+ - I try to paint what I have found and not what I look for. In art, intentions are of little importance.
+ - Art is a finger up the bourgeoisie ass.
+ - I paint the way someone bites his fingernails; for me, painting is a bad habit because I don’t know nor can I do anything else.
+ - I am a communist and my painting is a communist painting. But if I were a shoemaker, Royalist or Communist or anything else, I would not necessarily hammer my shoes in any special way to show my politics.
+ - You can’t run a without taking risks.
+ - One never knows what one is going to do. One starts a painting and then it becomes something quite different.
+ - It is your work in life that is the ultimate seduction.
+ - The Parthenon is really only a farmyard over which someone put a roof; colonades and sculptures were added because there were people in Athens who happened to be working and wanted to express themselves.
+ - I have never had time for the idea of searching. Whenever I wanted to express something, I did so without thinking of the past or the future.
+ - I’ve reached the moment where the movement of my thought interests me more than the thought itself.
+ - If you take my sayings and explode them in the air, they remain only sayings. But if you fit them together in their correct places, you will have the whole story.
+ - When you start with a portrait and search for a pure form, a clear volume, through successive eliminations, you arrive inevitably at the egg. Likewise, starting with the egg and following the same process in reverse, one finishes with the portrait.
+ - I would like to manage to prevent people from ever seeing how a picture of mine has been done. What can it possibly matter? What I want is that the only thing emanating from my pictures should be emotion.
+ - I draw like other people bite their nails.
+ - They’ll sell you thousands of greens. Veronese green and emerald green and cadmium green and any sort of green you like; but that particular green, never.
+ - In the end there is only Matisse.
+ - In life you throw a ball. You hope it will reach a wall and bounce back so you can throw it again. You hope your friends will provide that wall.
+ - A picture is not thought out and settled beforehand. While it is being done it changes as one’s thoughts change.
+ - The hidden harmony is better than the obvious.
+ - It’s always necessary to seek for perfection. Obviously, for us, this word no longer has the same meaning. To me, it means: from one canvas to the next, always go further, further...
+ - People want to find a meaning in everything and everyone. That’s the disease of our age...
+ - Titian, Rembrandt and Goya were the great painters. I am only a public clown.
+ - If I spit, they will take my spit and frame it as great art.
+ - There’s no such thing as a bad Picasso, but some are less good than others.
+ - I deal with painting as I deal with things, I paint a window just as I look out of a window. If an open window looks wrong in a picture, I draw the curtain and shut it, just as I would in my own room. In painting, as in life, you must act directly.
+ - In art, practice always comes before theory.
+ - I go for a walk in the forest of Fontainebleau. I get ‘green’ indigestion. I must get rid of this sensation into a picture. Green rules it. A painter paints to unload himself of feelings and visions.
+ - Nothing can be done without solitude. I’ve created my own solitude which nobody suspects.
+ - Painting isn’t a question of sensibility; it’s a matter of seizing the power, taking over from nature, not expecting her to supply you with information and good advice.
+ - Art isn’t done to decorate apartments, but to wage war against the enemy.
+ - Why do two colors, put one next to the other, sing?
+ - The path to youth takes a lifetime.
+ - Never copy yourself, always copy someone else.
+ - I paint the way some people write an autobiography. The paintings, finished or not, are the pages from my diary.
+ - My whole life has been nothing more than a continuous struggle against Reaction and the death of art.
+ - A painting only lives in the eye of the beholder.
+ - This idea of art for art’s sake is a hoax.
+ - I’m a joker who has understood his epoch and has extracted all he possibly could from the stupidity, greed and vanity of his contemporaries.
+ - One does a whole painting for one peach and people think just the opposite – that particular peach is but a detail.
+ - It isn’t up to the painter to define the symbols. Otherwise it would be better if he wrote them out in so many words! The public who look at the picture must interpret the symbols as they understand them.
+ - To arrive at abstraction, it is always necessary to begin with a concrete reality.
+ - To me there is no past or future in art. If a work of art does not live in the present, it must not be considered at all.
+ - For a long time I limited myself to one colour – as a form of discipline.
+ - What I capture in spite of myself interests me more than my own ideas.
+ - The essential in this time of moral poverty is to create enthusiasm.
+ - If everyone would paint, political re-education would be unnecessary.
+ - Painting is stronger than me, it makes me do it’s bidding.
+ - When I paint a woman in an armchair, the armchair is there to show illness and death-or as a protection.
+ - When I die, it will be a shipwreck, and as when a huge ship sinks, many people all around will be sucked down with it.
+ - Painting is a jeu d’esprit.
+ - I want to know one thing, what is color?
+ - I have had no true friends, only lovers.
+ - There’s nothing more difficult than a line.
+ - You can go to the moon or walk under the sea, or anything else you like, but painting remains painting because it eludes such investigation. It remains there like a question. And it alone gives the answer.
+ - You mustn’t expect me to repeat myself. My past doesn’t interest me. I would rather copy others than copy myself. In that way I should at least be giving them something new. I love discovering things.
+ - To copy others is necessary, but to copy oneself is pathetic.
+ - In art, there is neither past nor future. The art that is not in the present will never be.
+ - You have to have an idea of what you are going to do, but it should be a vague idea.
+ - In art intentions are not sufficient and, as we say in Spanish, love must be proved by deeds and not by reasons. What one does is what counts and not what one had the intention of doing.
+ - A good picture, any picture, has to be bristling with razor blades.
+ - When I am finished painting, I paint again for relaxation.
+ - Unless your work gives you trouble, it is no good.
+ - When you start with a portrait and try to find pure form by abstracting more and more, you must end up with an egg.
+ - The people no longer seek consolation in art. But the refined people, the rich, the idlers seek the new, the extraordinary, the extravagant, the scandalous.
+ - They are not men, they are not women, they are Americans.
+ - Why do two colors, put one next to the other, sing? Can one really explain this? no. Just as one can never learn how to paint.
+ - Art is the best possible introduction to the culture of the world. I love it for the buried hopes, the garnered memories, the tender feelings it can summon at a touch. It washes away from the soul the dust of everyday life.
+ - The connoisseur of painting gives only bad advice to the painter. For that reason I have given up trying to judge myself.
+ - A painting is not thought out in advance. While it is being done, it changes as one’s thoughts change. And when it’s finished, it goes on changing, according to the state of mind of whoever is looking at it.
+ - The more technique you have, the less you have to worry about it. The more technique there is, the less there is.
+ - Academic training in beauty is a sham. We have been so deceived, but so well deceived that we can scarcely get back even a shadow of the truth.
+ - If I could say this I wouldn’t have to paint.
+ - I don’t own any of my own paintings because a Picasso original costs several thousand dollars and that’s a luxury I cannot afford.
+ - To blossom forth, a work of art must ignore or rather forget all the rules.
+ - The trouble is, we’ve been taught what to see and how to render what we see. If only we could be in the position of those men who did those wonderful drawings in Lascaux and Altimira!
+ - A painter paints to unload himself of feelings and visions.
+ - One cannot be a sorcerer all the time. How could one live?
+ - Even if the painting is green, well then! The ‘subject’ is the green. There is always a subject; it’s a joke to suppress the subject, it’s impossible.
+ - The painter goes through states of fullness and evaluation. That is the whole secret of art.
+ - All human beings are born with the same creative potential. Most people squander theirs away on a million superfluous things. I expend mine on one thing and one thing only: my art.
+ - It is personality with a penny’s worth of talent. Error which chances to rise above the commonplace.
+ - You see these thick curtains shut out the daylight: artificial light suits me a great deal better; it’s absolutely steady, and much more exciting.
+ - From the point of view of art, there are no concrete or abstract forms, but only forms which are more or less convincing lies.
+ - Whatever is most abstract may perhaps be the summit of reality.
+ - No doubt, it is useful for an artist to know all the forms of art which have preceded or which accompany his. That is a sign of strength if it is a question of looking for a stimulus or recognizing mistakes he must avoid.
+ - I have never made radically different experiments. Whenever I wanted to say something, I said it the way I believed I should.
+ - Photographers, along with dentists, are the two professions never satisfied with what they do. Every dentist would like to be a doctor and inside every photographer is a painter trying to get out.
+ - I must keep on trying, just to keep the experiment going until I get tired of it all. Even if the last result is not necessarily the best, I stop when my interest in the problem wanes.
+ - Nature does many things the way I do, but she hides them!
+ - Because I cannot work except in solitude, it is necessary that I live my work and that is impossible except in solitude.
+ - Art is not chaste. Those ill prepared should be allowed no contact with art. Art is dangerous. If it is chaste, it is not art.
+ - The revolutionary artist does not only focus on the negative aspects of capitalist lives, but also creates visions of a revolutionary future.
+ - Art sweeps the everyday dust from your soul.
+ - The different styles I have been using in my art must not be seen as an evolution, or as steps towards an unknown ideal of painting. Everything I have ever made was made for the present and with the hope that it would always remain in the present.
+ - Variation does not mean evolution. If an artist varies his mode of expression this only means that he has changed his manner of thinking, and in changing, it might be for the better or it might be for the worse.
+ - When I paint I feel that all the artists of the past are behind me.
+ - I like all paintings. I always look at the paintings, good or bad, in barbershops, furniture stores, provincial hotels. I’m like a drinker who needs wine. As long as it is wine, it doesn’t matter which wine.
+ - People want Art. And they are given it. But the less Art there is in painting the more painting there is.
+ - Imitators? All right! Disciples if you like. But disciples be damned. It’s not interesting.
+ - As an artist, all I need is my paints and brushes – and someone to drag me away when the canvas is done.
+ - I never calculate. That is why those who do, calculate so much less accurately than I.
+ - You can’t escape your own period. Whether you take sides for or against, you’re always in it.
+ - An idea is a point of departure and no more. As soon as you elaborate it, it becomes transformed by thought.
+ - I who have been involved with all styles of painting can assure you that the only things that fluctuate are the waves of fashion which carry the snobs and speculators; the number of true connoisseurs remains more or less the same.
+ - You mustn’t always believe what I say. Questions tempt you to tell lies, particularly when there is no answer.
+ - I work with few colors, what creates the illusion of quantity is that they fell in the right place.
+ - I want to get to the stage where nobody can tell how a picture of mine is done. What’s the point of that? Simply that I want nothing but emotion given off by it.
+ - I don’t work from nature, I work like nature.
+ - The quality of a painter depends on the amount of past he carries with him.
+ - Why assume that to look is to see?
+ - Is there anything more dangerous than sympathetic understanding?
+ - Let them understand above all that the artist works from necessity; that he, too, is a minute element of the world to whom one should ascribe no more importance than so many things in nature which charm us but which we do not explain to ourselves.
+ - It is a well-known fact that we see the faults in other’s works more readily than we do in our own.
+ - The only pictorial matter that is of interest to me is the matter and sentiments brought about by the work itself.
+ - The more technique there is, the less there is.
+ - And fame, for a painter means sales, gains, fortune, riches. And today, as you know, I am celebrated. I am rich.
+ - We have a definite but unknown quantity of experience at our disposal. As soon as the hourglass is turned, the sand will begin to run out and once it starts, it cannot stop until it’s all gone.
+ - I simply painted images of what was before my eyes; it is for others to find hidden meaning in them.
+ - Whether he wants it or not, man is the instrument of nature; she imposes on him character and appearance.
+ - I have a horror of people who speak about the beautiful. What is the beautiful? One must speak of problems in painting!
+ - Each time I undertake to paint a picture I have a sensation of leaping into space. I never know whether I shall fall on my feet. It is only later that I begin to estimate more exactly the the effect of my work.
+ - The only thing emanating from my pictures should be emotion.
+ - In every photographer there was a painter, a true artist, awaiting expression.
+ - It’s a poor artist who borrows – a good artist steals.
+ - The people who make art their business are mostly imposters.
+ - What I achieve the first day can be perfectly valid, but it is not satisfying. If I can go that far spontaneously, then I must shed that result as an old skin and inquire further into the unknown, or at least the not-yet-known-to-myself.
+ - Now there is fame! Of all – hunger, misery, the incomprehension by the public – fame is by far the worst. It is the castigation of God by the artist. It is sad. It is true.
+ - Those trying to explain pictures are as a rule completely mistaken.
+ - I imitate everyone except myself.
+ - Something sacred, that’s it. We ought to be able to say that such and such a painting is as it is, with its capacity for power, because it is “touched by God.”
+ - If there is something to steal, I steal it.
+ - I put in my pictures everything I like. So much the worse for the things – they have to get along with one another.
+ - If all the ways I have been along were marked on a map and joined up with a line, it might represent a minotaur.
+ - Today we haven’t the heart to expel the painters and poets from society because we refuse to admit to ourselves that there is any danger in keeping them in our midst.
+ - Anything new, anything worth doing, can’t be recognized.
+ - It’s not what the artist does that counts; it’s what he is.
+ - The only thing that’s important is the legend created by the picture, and not whether it continues to exist itself.
+ - Manifesting takes place from Spirit. It doesn’t take place from form, from the physical world. You’ve got to know that what you want to manifest will occur.
+ - How often have I found that wanting to use blue, I didn’t have it so I used a red instead of the blue.
+ - What I want is that my picture should evoke nothing but emotion.
+ - We must not discriminate between things. Where things are concerned there are no class distinctions. We must pick out what is good for us where we can find it.
+ - Enough of Art. It’s Art that kills us. People no longer want to do painting: they make art.
+ - The artist spends the first part of his life with the dead, the second with the living, and the third with himself.
+ - The artist must know the manner whereby to convince others of the truthfulness of his lies.
+ - If you are trying to find something, it means you haven’t got it. And if you find it simply by looking for it, that means it’s false.
+ - One must act in painting as in life, directly.
+ - Work is a necessity for man. Man invented the alarm clock.
+ - They ought to put out the eyes of painters as they do goldfinches in order that they can sing better.
+ - To be young, really young, takes a very long time.
+ - For my part, I can’t do anything else but what I am doing.
+ - Those who attempts to explain a picture are on the wrong track most of the time.
+ - So there’s only one tactic for the state: kill the seers.
+ - For me painting is a dramatic action in the course of which reality finds itself split apart.
+ - An artist must be very careful not to look for models. As soon as one artist takes another as model, he is lost. There is no other point of departure than reality.
+ - We have a lot of reasons but only one real one.
+ - Only when painting isn’t painting can there be an affront to modesty.
+ - The earth doesn’t have a housekeeper to do the dusting.
+ - When you see what you express through photography, you realize all the things that can no longer be the objectives of painting. Why should an artist persist in treating subjects that can be established so clearly with the lens of a camera?
+ - To model an object is to possess it.
+ - There are chemists who spend their whole lives trying to find out what’s in a lump of sugar. I want to know one thing. What is color?
+ - I don’t know in advance what I am going to put on canvas any more than I decide beforehand what colours I am going to use.
+ - We must pick out what is good for us where we can find it.
+ - I understand my own pictures best six months after I have done them.
+ - For me, there are two kinds of women – goddesses and doormats.
+
+314 quotes

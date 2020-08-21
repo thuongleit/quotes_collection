@@ -1,0 +1,21 @@
+ - If you look around the room, and you’re the smartest person in the room, you’re in the wrong room.
+ - Sometimes the wheel turns slowly, but it turns.
+ - Talented people are restless at their core.
+ - Fatigue is your friend. Through exhaustion and through people just being so depleted, the stuff around the nerve endings gets worn away and other things begin to emerge and you take way bigger risks.
+ - To me there’s no creativity without boundaries. If you’re gonna write a sonnet, it’s 14 lines, so it’s solving the problem within the container.
+ - People go to the zoo and they like the lion because it’s scary. And the bear because it’s intense, but the monkey makes people laugh.
+ - You can tell a lot from someone’s eyes.
+ - Some people, their whole lives, are just injustice collectors. They’re going to find new injustices every day. That’s what they do, and that’s what they are.
+ - One of the nice things about being busy is it makes you focus on what’s important to you and how you use your time.
+ - I think that Canadians have an incredible reverence for authority and regard for authority, and I think one of the healthy ways that it’s challenged is through questioning it, through the polite hostility of comedy.
+ - Everybody blows their first money.
+ - I can’t concern myself with how viewers feel.
+ - When I’m scrambling between dress and air, there are people I like more than other people.
+ - A guy comes home from college to find his mother sleeping with his uncle, and there’s a ghost running around. Write it good, it’s Hamlet; write it bad, it’s Gilligan’s Island.
+ - I am always looking for what I think are original voices.
+ - One advantage of getting older is knowing when to worry.
+ - I don’t tweet for a very simple reason, which is that I drink.
+ - Even the most powerful people at a given point in terms of class, will all play by the same rules.
+ - If the way they make the show makes it fresh, then it’s worthwhile. I think all of these forms have to be blown up every now and then and start again.
+
+19 quotes

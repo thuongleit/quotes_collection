@@ -1,0 +1,101 @@
+ - I love my job, I’ve always loved my job.
+ - As I get older I’m more and more comfortable being alone.
+ - I’m stupidly proud of myself.
+ - I’m full of curiosity.
+ - I love cigarettes. Love them. I think the more positive approach you have to smoking, the less harmful it is.
+ - I feel like I experienced my 20s in all their glory and all their disastrousness.
+ - People on the edge of love go with their heart and not their head.
+ - I was blinded by being a romantic person.
+ - I think love is a really hard thing to define. I think it’s multifaceted.
+ - I have a good brain on me, but I’ve never really used it when it came to making decisions about love, which has been a blessing and a curse.
+ - I have the same group of friends I’ve had since I was three.
+ - I do think sometimes people get morally superior without understanding situations.
+ - When you have your heart broken for the first time, you gain depth.
+ - I’ve made apologies to people I needed to, but I can’t apologise to people I don’t know for things they don’t understand.
+ - I would often find myself, at the age of 21, at midnight, running down a dark street on my own with 10 men chasing me. And the fact they had cameras in their hands made that legal.
+ - I once used henna to dye my hair brown for an audition, thinking I was being clever as it’s all natural.
+ - I am very lucky, I have a very tight group of friends and a very supportive family, and to this date no-one has ever sold a story on me.
+ - It’s judgement day. I’m nervous. My films are finally being released!
+ - I lived my twenties in a very public manner and if anyone’s twenties are documented it’s not always going to be pretty.
+ - I think, if you put a camera in anyone’s life and document it daily from the age of 21 to 27, there are going to be things that aren’t always pretty.
+ - But there is something seductive and the character, Alfie is so charming, and does make you think like you are the most important thing in the world but he’s not that nice, is he.
+ - I’m not high maintenance.
+ - You become very known for being someone’s girlfriend, and all of a sudden there’s all this hype and buzz for all the wrong reasons.
+ - I’m a real relationship person – contrary to public perception. I’m either in one or I’m not.
+ - I’m not coping very well with all the attention, if I’m honest.
+ - Teenage girls like certain things I wear – or certainly did when that whole boho thing happened.
+ - I want a big church wedding.
+ - I quite love sequins; I think it’s the drag queen in me.
+ - The big thing I’ve discovered, the big secret, is that it’s all about how happy you are. It’s the ultimate thing. People forget your flaws and imperfections if they see you’re happy.
+ - When I have a child, it will be probably become my whole life, so I don’t want to have any regrets that I should have done more.
+ - I think American men are more conscious of putting up a good impression. There’s more of an earthiness to Englishmen. But Americans aren’t afraid to come up and say, ‘Hi, I’d like to go out with you.’ Englishmen are far more sheepish about it.
+ - I once made the mistake of going for a whole row of false eyelashes, which was just wrong as it gave me a sad, puppy-eyed look.
+ - I need my food to keep my energy up, so I can’t really diet.
+ - I’m not about hair and makeup.
+ - I’ve said things and meant them, but I’m obviously a very confused person who has no idea how they feel about things.
+ - I never Google myself. Only if I want to feel really terrible about myself would I do that.
+ - I’m supposed to be this complete slapper, that’s my reputation.
+ - I don’t go to a gym. I find that really hard to do.
+ - You want to feel that you can do something creative that you love without being picked apart and mutilated for other people’s pleasure.
+ - I’m very lucky that I get to make a living out of acting, which is what I love, and the level of attention I receive has sometimes been my own fault and sometimes not been.
+ - I bite the skin on the side of my fingernails.
+ - I sometimes get very protective of the people I play.
+ - My parents were quite liberal with us, always encouraging us to be our own person and be creative.
+ - I’m living my dream, and that’s all you can ask for. At a certain point you have to ignore all the rest.
+ - It was a really fun idea to have a fashion label with my sister but I don’t have an awful lot of time for it because my first love and job is to be an actress.
+ - I don’t lead a particularly exciting life away from work.
+ - I like being able to walk into an old town and find good local food.
+ - It’s hard sometimes to not want to know what people are saying behind your back and to ignore certain things that are being written.
+ - The amount of speculation surrounding my romantic life is astounding. It’s strange how involved people get: invested and angry, really disappointed.
+ - With acting, there is a level of anonymity which is conducive to your profession. There are examples of very public people who are on the cover of every celebrity magazine but can’t open a film.
+ - It’s wonderful to feel supported, but there’s a lot of negative energy towards me as well. So I ignore it, to be honest. If I started to read it all it would completely mess up my head.
+ - It’s really exciting to be in a film that people actually want to go and see! I was having to pay people to see my movies!
+ - I’ve realised that when I don’t play people who are complex I get very, very bored, and then lazy, and end up being rubbish.
+ - I think as a young actress, it’s very rare that you read something where you’re not either ‘the girl’ or there to serve some romantic purpose in a male dominated cast.
+ - If each one of us does our bit, we will be helping to keep global warming from harming our countries.
+ - I half-punched a paparazzo once. I’ve hit a few people.
+ - I’m English, definitely. I don’t feel like I’m American in any way.
+ - The newspapers turn a blind eye to how they get their material as long as they have great photographs.
+ - I’m no longer interested in being in big commercial films.
+ - I’m lucky I have good metabolism and I’m very grateful for that.
+ - I have met a few Casanovas I like and a few I have not liked – and I hope to meet a few more.
+ - I don’t think we live in a particularly equal society.
+ - Everyone I’ve worked with on any film will say I’m the hardest worker.
+ - I really want bubbies – I always have.
+ - I’ve had somebody on the end of the phone, maybe, but I haven’t been living with anyone or been in a proper relationship, and it’s been really great. And now I’m completely on my own. I think I’ve grown up a lot.
+ - All the legal action I’ve taken against newspapers has had a massively positive effect on my life and achieved exactly what I wanted, which is privacy and non-harassment.
+ - I’ve wanted to be an actress for as long as I can remember, and I can say I was almost born in the theatre. My mum went into labour while she was watching the Nut-Cracker Suite in New York – apparently I was kicking like mad.
+ - I think all humans are essentially proud and I certainly am.
+ - I find it very hard not to be myself and maybe that does attract attention, but I’d be miserable if I wasn’t.
+ - I definitely have been foolish.
+ - Human nature is such that monogamy is a really hard thing to achieve.
+ - I’ve had some real hair disasters.
+ - I can’t wait to be seen as a woman. But I know I probably have to contribute to that with behaviour.
+ - I just want to work, and learn from people I respect and admire.
+ - I went to an all-girls boarding school for most of my youth.
+ - I feel we live in the kind of culture now where you have to be very smart to navigate the right way, and I just don’t have those smarts. I think with age and time it will change, but I can’t obsess about it.
+ - I’ve actually never been taken on a date in my whole life.
+ - I think the media has changed, not just in England but in the world.
+ - I don’t know, monogamy is a weird thing for me.
+ - I don’t normally look like a twig and I do eat like a pig but the weight has just dropped off me.
+ - I’ve always kind of done exactly what my instincts said.
+ - I just want to creatively grow and be inspired. I don’t want to do anything generic or dumb.
+ - I felt like I was living in some sort of video game and people pre-empting every move I made, obviously as a result of accessing my private information.
+ - I feel very blessed. I have had, and am having, such a lovely life.
+ - I would rather have not gone through any of the litigation that I’ve had to go through.
+ - I experienced the judgement of a lot of people – and deservedly so.
+ - I was very nervous about taking on an empire that was richer and far more powerful than I will ever be. It was very daunting.
+ - I think I underestimated the way people bracket you.
+ - People are terrified for their own reputations. They want the press on their side.
+ - I’m really grounded and quite hippie, wanting to nurture and have children and be quiet.
+ - I just worry because I know I say a lot, often. It doesn’t bother me, it’s more about the people that get affected around me.
+ - It’s reached this point where people are fascinated by every intricate detail of other people’s lives. And some people are willing to give up their lives like that.
+ - As an actress I feel that if you start to impose your own inhibitions, then you are not doing your job.
+ - It’s just so weird when an entire nation knows what you are going through.
+ - I’m free-spirited, and it gets me into trouble.
+ - I’m far too low maintenance to ever spend more than five minutes getting ready to go out.
+ - I don’t even know what an ‘It’ girl is. As far as I’m concerned, an ‘It’ girl is somebody who doesn’t do anything except go to parties and get her photograph taken.
+ - I probably seem like not a particularly nice person, not a girl’s girl.
+ - I’m really not good at dressing up and being glamorous.
+
+99 quotes

@@ -1,0 +1,52 @@
+ - Once you get that addiction of realizing what you can do, you want to take that to the next level.
+ - I am always training because I love it.
+ - People want to put you in the box, and you just have to fight past their preconceived notions.
+ - When you do things for the right reasons, eventually no matter how long it takes, people will take notice of it and can’t help but respect it.
+ - I know I’m always rooting for the underdog in a fight, and I love to be constantly surprised.
+ - You shouldn’t be greedy. You should feel good about yourself and not be greedy of what other people have.
+ - The guys I date always want to test my strength and wrestle around. By the end, they’re drenched in sweat.
+ - When you dream big, you eventually attract big things.
+ - Since I’ve started fighting it has taught me a lot about self respect, self confidence and self control.
+ - There’s so much I want to do. I love emotions, I love drama, I love comedy and I also want to take action up to another level, I love comics.
+ - I am not a violent person. I actually don’t like to hurt people.
+ - My first fight. I fought a girl that was a little bit heavier, a little bit more experienced and I was petrified because I didn’t know what I was getting myself into. And I did really well against her and nobody believed it was my first fight.
+ - There’s nothing that can teach you more than experience.
+ - Fighting’s given me confidence but it’s also broken me down and kept me humble.
+ - I didn’t really watch action films growing up! I grew up on stuff like ‘Anne of Green Gables’ – that was more when I was in elementary school. It was all I ever watched.
+ - I was always bigger than the other girls. My sisters are very, very beautiful and very skinny, and I’ve always had a more muscular body. So I grew up with a different mentality.
+ - It’s a very big deal to me to remain the same person because I know all of this is going to be gone one day and I’m just going to have myself.
+ - You want to get better even after people smash you down. You want to be better than you were before.
+ - I wake up every morning and I surprise myself. I wake up to a new me.
+ - I’m afraid of pretty much everything, but there’s something inside me that is addicted to scaring myself.
+ - Everybody is their own critic.
+ - I like to break down barriers and I think that Hollywood is doing the same thing over and over. I want to do something new and say, “Let’s evolve as artists!”
+ - A lot of people enjoyed the film ‘Haywire’ and a lot of people have mixed feelings on it but regardless, a lot of people have said really wonderful things about it being my first experience, that the fighting they absolutely enjoyed. So I think I’ve gotten a lot more fans, actually.
+ - I know I don’t look like the skinny slender model. I know I look a little different but people like to watch me for some reason. It feels good and I’m humbled by it.
+ - Sometimes, you get portrayed the way you don’t want to be portrayed.
+ - I find that whoever you are as a person is how you’re gonna fight, and every basic instinct kind of comes out at that moment.
+ - Fighting is my career, it’s what I love to do, but I am taking offers and trying to expand because the more I expand myself, the more valuable I become to promoters.
+ - Fighting is very physical and extreme and you’re very vulnerable. It’s a very mental type of thing.
+ - It’s something that I’ve always loved to do and it’s been such a genuine expression for me.
+ - Of course, fighting is not going to be as graceful as movie fighting. I don’t like it to be ugly and I don’t like it to be one big brawl or people clobbering each other.
+ - When you fight someone, you share the experience with that one person, and you’re never going to have that experience with someone else-even in another fight.
+ - On ‘American Gladiators,’ I got to pummel a lot of people off a pyramid with a giant Q-tip. It was so much fun to wrestle people with no risk of getting knocked out or choked out.
+ - If a good visionary wants to jump on board with that and I see their vision correctly and I like it and I like the script, I would absolutely do it but I have to read the script first.
+ - I love it. It’s something I can do that makes everything else disappear.
+ - I was destined to express myself.
+ - There are certain things that I always dreamed of, like fighting in the UFC. There’s just certain things that I feel like haven’t been accomplished there. There’s such great women coming up in the sport; seems like a wonderful time to be in women’s MMA.
+ - I don’t get paid what people think I get paid for fighting.
+ - In acting, you get to explore such an artistic side with different characters to research and learn and explore different things inside yourself and I do that anyway, so I might as well be doing something that I already do, as in a second nature to me, on film.
+ - When I enjoy doing something, I don’t mind if it hurts.
+ - I definitely don’t want to be one of those athletes who turns into a cheesy actress.
+ - Fight night is all about believing in yourself, believing in what you can do, and doing it.
+ - I think there’s a part in each one of us that wants the impossible to happen, and that’s what surprises are.
+ - I think I came up in fighting in a really technical way. If you’ve ever seen my fights, you know I love distance, I love technique.
+ - I like fighting because it’s honest.
+ - I don’t mind answering any questions, because I’m not just a fighter. I’m a lot more than that.
+ - I’ve had cameras on me since I started the art of fighting and I think that I’m used to having cameras on me in adrenaline-type situations.
+ - I cannot say where I will be in 5 yearsscratch that, tomorrowBut I know that wherever you find me, I will remain true to myself with a genuine smile on my face and happiness in my heart.
+ - I want people to see me for who I am and not for how someone else is trying to promote me.
+ - The ultimate first date? Something that is completely out of the ordinary – go crazy, because first dates are always a little awkward, so do something a little extreme.
+ - I’m attracted to any type of endeavor that gives me the chance to express what’s going on inside me.
+
+50 quotes

@@ -1,0 +1,37 @@
+ - Everything starts with the inner being, your inner self – it all comes from you and we so often forget that. We think, “He made me angry.” He didn’t make you angry; you made yourself angry. Don’t allow him to get to your inner space.
+ - I love my family and I miss them very much but I’m a new person now. I know a lot of people will not agree with what I’ve done, but it was right for me.
+ - As far as I’m concerned, my life is just beginning. It’s never too late to start over, so this is what I’ve been doing.
+ - Listening to soft music and the sound of the ocean is quite relaxing to me.
+ - Don’t close the book when bad things happen in your life! Just turn the page and start a new chapter!
+ - I can’t say it’s not painful being estranged from most of my family. I wish it could be otherwise.
+ - I’ll never stop dreaming that one day we can be a real family, together, all of us laughing and talking, loving and understanding, not looking at the past but only to the future.
+ - Liz Taylor was an amazing woman and screen legend. She was an incredible friend to my brother, at his side through some of his most difficult times and of course loved by his children and our family. She will live on in our hearts forever, my prayers go out to her family.
+ - I posed nude to show my parents they couldn’t dictate to me any more – that I control my life.
+ - I can honestly say that I am happier now than I have ever been. For the first time in my life I feel free.
+ - No one thought I would be successful. Everyone thought I would fail. You have no idea how much courage it took for me to do this.
+ - When people are in love, I don’t see anything wrong with it in the world. If they choose to live their lives and get married, why should we interfere? A lot of people don’t agree with me, but that’s how I feel.
+ - I married him because he told me it was the only way he could protect me. If we were just manager and client, my family could do whatever they wanted to get me back, but if I was his wife, they couldn’t.
+ - I’ll be honest with you: love is not always what we think it is. It is a roller coaster ride going through this, and it’s beautiful at the same time.
+ - It was so strange. I knew that Josephine Baker had performed on the same stage but that night I felt it. Many of the same people who worked with Josephine Baker are still here. They know what they’re doing. And that was a very comfortable feeling.
+ - It is so difficult in the world for people to find love, true love.
+ - I love songs that people can dance to and enjoy at the same time.
+ - J has told me about his past. I know what happened and why. But he is the one person who made me believe in my talent and whatever happened in the past, he’s been a wonderful manager to me.
+ - This is a very big victory for Michael and we are all very proud that he has been completely and totally vindicated in court, as we were certain he would be.
+ - The end of the trial and the ‘not guilty’ verdicts on all counts, clearing Michael of all charges, mean that he can now concentrate on the future and his art.
+ - He will be beginning a brand new chapter in the Michael Jackson legend.
+ - I can count the number of dates I’ve had on one hand. I wish that guys would approach me, but they don’t.
+ - People had this image of the Jacksons as the perfect American family and I destroyed that image. But what people have to understand is writing that book was very healing for me.
+ - For so long, I was controlled and manipulated by other people. Whatever people think of me, I’m finally doing what I want to do.
+ - I would love to have a rapper on one of my songs, like Ludacris, or the ‘it’s so hot in here’ guy, Nelly.
+ - I knew that there was an underlying thing there that I was never really able to come face to face with. There’s a part of me that wants to always protect myself because of what I had gone through. But I learned that you have to let people in. Going to the therapist kind of helped me with that.
+ - I think the deepest problem is between my parents and me. I just don’t know if it will ever be the same.
+ - Black people were very angry with me for writing the book. A lot of people didn’t believe me, or didn’t want to believe me, and that used to really bother me. It was a very painful and difficult time.
+ - When I’m ready, I plan to adopt. I still believe in family.
+ - When I finally decided to do the show, I only had two weeks to learn the choreography and the songs in French.
+ - Our marriage is strictly in name only. It has never been consummated.
+ - I am pleased to tell you that he is finally getting some rest and is regaining his appetite as well.
+ - Michael and I talk at least every two weeks. He understands why I’ve done the things I have.
+ - I’ve learned what Trump has taught – we need to put our best foot forward and don’t let anybody block us from anything that we wish to do or want to do.
+ - I realize now I didn’t really want to die. I just wanted to stop the hurt and pain.
+
+35 quotes

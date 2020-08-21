@@ -1,0 +1,70 @@
+ - The only way to find your voice is to use it.
+ - Write the book you want to read.
+ - Today isn’t just another day. Today I’ll create something beautiful.
+ - So go on, get angry. But keep your mouth shut and go do your work.
+ - If you ever find that you’re the most talented person in the room, you need to find another room.
+ - Google everything. I mean everything. Google your dreams, Google your problems. Don’t ask a question before you Google it. You’ll either find the answer or you’ll come up with a better question.
+ - Copying is about reverse-engineering.
+ - Draw the art you want to see, start the business you want to run, play the music you want to hear, write the books you want to read, build the products you want to use – do the work you want to see done.
+ - Don’t wait until you know who you are to get started.
+ - You’re ready. Start making stuff.
+ - Inertia is the death of creativity.
+ - Don’t worry about doing research. Just search.
+ - The more good ideas you collect, the more you can choose from to be influenced by.
+ - Be curious about the world in which you live. Look things up. Chase down every reference. Go deeper than anybody else – that’s how you’ll get ahead.
+ - Read deeply. Stay open. Continue to wonder.
+ - Keep all your passions in your life.
+ - Every new idea is just a mashup or a remix of one or more previous ideas.
+ - Not everybody will get it. People will misinterpret you and what you do. They might even call you names. So get comfortable with being misunderstood, disparaged, or ignored – the trick is to be too busy doing your work to care.
+ - Your brain gets too comfortable in your everyday surroundings. You need to make it uncomfortable. You need to spend some time in another land, among people that do things differently than you. Travel makes the world look new, and when the world looks new, our brains work harder.
+ - In order to be found, you have to be findable.
+ - Nothing is more paralyzing than the idea of limitless possibilities.
+ - Dig into almost every overnight success story and you’ll find about a decade’s worth of hard work and perseverance.
+ - The best way to get started on the path of sharing your work is to think about what you want to learn, and make a commitment to learning it in front of others.
+ - It’s in the act of making things that we figure out who we are.
+ - Don’t think of your website as a self-promotion machine, think of it as a self-invention machine.
+ - School is one thing. Education is another. The two don’t always overlap. Whether you’re in school or not, it’s always your job to get yourself an education.
+ - Collect books, even if you don’t plan on reading them right away. Filmmaker John Waters has said, “Nothing is more important than an unread library.”
+ - The only way to find your voice is to use it. It’s hardwired, built into you. Talk about the things you love. Your voice will follow.
+ - Creative people need time to just sit around and do nothing.
+ - Usually, when we talk about creativity, it’s about self-expression, which is great, but for work to be art or design, there has to be someone on the other end. The audience makes the work come alive.
+ - Do good work and share it with people.
+ - You are, in fact, a mashup of what you choose to let into your life. You are the sum of your influences. The German writer Goethe said, ‘We are shaped and fashioned by what we love.’
+ - What a good artist understands is that nothing comes from nowhere. All creative work builds on what came before. Nothing is completely original.
+ - Show your work, and when the right people show up, pay close attention to them, because they’ll have a lot to show you.
+ - The computer brings out the uptight perfectionist in us – we start editing ideas before we have them.
+ - In the end, creativity isn’t just the things we choose to put in, it’s the things we choose to leave out.
+ - You can’t be content with mastery; you have to push yourself to become a student again.
+ - Travel makes the world look new, and when the world looks new, our brains work harder.
+ - Art that only comes from the head isn’t any good. Watch any good musician and you’ll see what I mean.
+ - Pretend to be making something until you actually make something.
+ - Eat breakfast. Do some push-ups. Go for long walks. Get plenty of sleep.
+ - The minute you learn something, turn around and teach it to others.
+ - The thing is: It takes a lot of energy to be creative. You don’t have that energy if you waste it on other stuff.
+ - The best advice is not to write what you know, it’s to write what you like. Write the kind of story you like best – write the story you want to read. The same principle applies to your life and your career:.
+ - The best advice is not to write what you know, it’s to write what you like.
+ - It sounds a little extreme, but in this day and age, if your work isn’t online, it doesn’t exist.
+ - You are, in fact, a mashup of what you choose to let into your life.
+ - Genealogy of ideas. You don’t get to pick your family, but you can pick your teachers and you can pick your friends and you can pick the music you listen to and you can pick the books you read and you can pick the movies you see.
+ - Unless you are actually a ninja, a guru, or a rock star, don’t ever use any of those terms in your bio. Ever.
+ - The artist is a collector. Not a hoarder, mind you, there’s a difference: Hoarders collect indiscriminately, artists collect selectively. They only collect things that they really love.
+ - Amateurs know that contributing something is better than contributing nothing.
+ - We found the future, like birds fly into windows.
+ - Every artist gets asked the question, ‘Where do you get your ideas?’ The honest artist answers, ‘I steal them.’
+ - Marriage is two people in love standing in the same bathroom.
+ - Obituaries are like near-death experiences for cowards.
+ - Become a documentarian of what you do.
+ - When people give advice, they’re really just talking to themselves in the past.
+ - You’re only going to be as good as the stuff you surround yourself with.
+ - The people who get what they’re after are very often the ones who just stick around long enough.
+ - If you want fans, you have to be a fan first.
+ - There’s a balance between what you want to give the world and what it needs. If you’re lucky, your work is in the middle.
+ - Establishing and keeping a routine can be even more important than having a lot of time.
+ - There’s an intuition learned through our work. Teaching others doesn’t mean they can just go out and replicate it.
+ - If you’re worried about giving your secrets away, you can share your dots without connecting them.
+ - You’ll either find the answer or you’ll come up with a better question.
+ - If I’d waited to know who I was or what I was about before I started “being creative,” well, I’d still be sitting around trying to figure myself out instead of making things. In my experience, it’s in the act of making things and doing our work that we figure out who we are.
+ - The biggest task in the morning is to try to keep my headspace from being invaded by the outside world.
+ - Enjoy your obscurity while it lasts.
+
+68 quotes

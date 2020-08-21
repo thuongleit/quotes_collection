@@ -1,0 +1,22 @@
+ - Of course it’s alright for librarians to smell of drink.
+ - There are no sick people in North Oxford. They are either dead or alive. It’s sometimes difficult to tell the difference, that’s all...
+ - Life is cruel and we do terrible things to each other.
+ - My thoughts went round and round and it occurred to me that if I ever wrote a novel it would be of the ‘stream of consciousness’ type and deal with an hour in the life of a woman at the sink.
+ - The burden of keeping three people in toilet paper seemed to me rather a heavy one.
+ - I pulled myself up and told myself to stop these ridiculous thoughts, wondering why it is that we can never stop trying to analyse the motives of people who have no personal interest in us, in the vain hope of finding that perhaps they may have just a little after all.
+ - I was so astonished that I could think of nothing to say, but wondered irrelevantly if I was to be caught with a teapot in my hand on every dramatic occasion.
+ - Once outside the magic circle the writers became their lonely selves, pondering on poems, observing their fellow men ruthlessly, putting people they knew into novels; no wonder they were without friends.
+ - What a good thing there is no marriage or giving in marriage in the after-life; it will certainly help to smooth things out.
+ - How absurd and delicious it is to be in love with somebody younger than yourself. Everybody should try it.
+ - I stretched out my hand towards the little bookshelf where I kept cookery and devotional books, the most comfortable bedside reading.
+ - I realised that one might love him secretly with no hope of encouragement, which can be very enjoyable for the young or inexperienced.
+ - You know Mildred would never do anything wrong or foolish. I reflected a little sadly that this was only too true and hoped I did not appear too much that kind of person to others. Virtue is an excellent thing and we should all strive after it, but it can sometimes be a little depressing.
+ - I love Evensong. There’s something sad and essentially English about it.
+ - There are various ways of mending a broken heart, but perhaps going to a learned conference is one of the more unusual.
+ - Dulcie always found a public library a little upsetting, for one saw so many odd people there...
+ - She had always been an unashamed reader of novels...
+ - I imagine the proverb about too many cooks spoiling the broth can be applied to writing as well as anything else. The poetical or literary broth is better cooked by one person.
+ - It was odd how one found oneself making trivial conversation on important occasions. Perhaps it was because one could not say what was really in one’s mind.
+ - Novel writing is a kind of private pleasure, even if nothing comes of it in worldly terms.
+
+20 quotes

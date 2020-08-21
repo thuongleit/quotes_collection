@@ -1,0 +1,23 @@
+ - Everything Dies. That is the law of life-the bitter unchangeable law.
+ - On his brow a leaf of oaken, Cangeling child shall be his fate. Understanding words strange spoken, Chased by anger, fear, and hate.
+ - Real courage is not to give up hope, even in the most terrible darkness, and to carry on. That if courage and love is deep as despair, deeper, then light may come again.
+ - But life is not a legend or a story. Reality is far more precious than a story...
+ - You are not evil, Fell. You have just been robbed of love. Of light.
+ - Life is wonderful, so revel in its beauty. Be all you can be, and let go of the past. It is nothing but shadows.
+ - Stones are raw, they blunt my paw, but words will never hurt me.
+ - That story placed man above the animals, until man’s fall at Eve’s hand, and linked humans to God himself, fashioned in his image. But now the black wolf was telling the girl a grave secret. That man was an animal too.
+ - To you, Fell. Can’t you feel it? Inside you, as it lies inside all the Lera. Know thyself, wolf.
+ - In that moment she learnt one of the greatest secrets of life: It is often easier to fight for others than it is for yourself.
+ - Fear is an instinct, like hunger or anger. We need it to help us survive, and it is nothing to be ashamed of. It lets us know whether we should fight or flee.
+ - And, Kar, love is not a commandment, it is a need, as real as eating.
+ - Now go away, or I’ll get my friends the Bats to bite you.
+ - Wolves hate farewells,...
+ - The deer hovered by the trees beyond as the sounds of the ravening wolves came to them across the grass, their own senses almost frozen in impotent horror.
+ - But of all the animals, man holds the fate of the world in his hands.
+ - I must try to remember that a boy’s heart is not a man’s, and perhaps a teacher must learn from his pupil, too, eh?
+ - Life itself is dispare, so we must make darkness our ally.
+ - It’s those that fight hardest for freedom who are never free.
+ - I wish the battles of men could be solved in their heads.
+ - Our destinies are our own, if we have the courage to take control of them.
+
+21 quotes

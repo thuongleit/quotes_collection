@@ -1,0 +1,33 @@
+ - I don’t trust air I can’t see.
+ - Like a duck on the pond. On the surface everything looks calm, but beneath the water those little feet are churning a mile a minute.
+ - The difference between a hero and a coward is one step sideways.
+ - Five players on the floor functioning as a single unit: team, team, team-no one more important than the other.
+ - Things parents say to children are oftentimes not heard, but in some cases you pick up on things that your parent would like to see you have done.
+ - I do not like assassins, or men of low character.
+ - That’s the great thing about plankton. It pretty much keeps to itself.
+ - Dysfunctional families have sired a number of pretty good actors.
+ - It really costs me a lot emotionally to watch myself on-screen. I think of myself, and feel like I’m quite young, and then I look at this old man with the baggy chins and the tired eyes and the receding hairline and all that.
+ - I’m disappointed that success hasn’t been a Himalayan feeling.
+ - You go through stages in your career that you feel very good about yourself. Then you feel awful, like, ‘Why didn’t I choose something else?’ But overall I’m pretty satisfied that I made the right choice when I decided to be an actor.
+ - I left home when I was 16 because I was looking for adventure.
+ - My wife and I take what we call our Friday comedy day off. We watch standup comics on TV. The raunchier the better. We love Eddie Izzard.
+ - The worst job I ever had was working nights in the Chrysler Building. I was part of a team of about five guys, and we polished the leather furniture.
+ - Seventy-five per cent of being successful as an actor is pure luck. The rest is just endurance.
+ - I lost touch with my son in terms of advice early on. Maybe it had to do with being gone so much, doing location films when he was at an age where he needed support and guidance.
+ - I was trained to be an actor, not a star. I was trained to play roles, not to deal with fame and agents and lawyers and the press.
+ - Honesty isn’t enough for me. That becomes very boring. If you can convince people what you’re doing is real and it’s also bigger than life – that’s exciting.
+ - I have trouble with direction, because I have trouble with authority. I was not a good Marine.
+ - If you look at yourself as a star, you’ve already lost something in the portrayal of any human being.
+ - My grandfather had been a newspaper reporter, as was my uncle. They were pretty good writers and so I thought maybe somewhere down the line I would do some writing.
+ - I don’t like to talk about myself that much.
+ - Once, I optioned a novel and tried to do a screenplay on it, which was great fun, but I was too respectful. I was only 100 pages into the novel and I had about 90 pages of movie script going. I realized I had a lot to learn.
+ - I’m not a sentimental guy.
+ - I was trained to be an actor, not a star.
+ - I went in the Marines when I was 16. I spent four and a half years in the Marines and then came right to New York to be an actor. And then seven years later, I got my first job.
+ - My early days in Broadway were all comedies. I never did a straight play on Broadway.
+ - I don’t see myself as a violent guy.
+ - I write in the morning from about eight till noon, and sometimes again a bit in the afternoon. In the morning I start off by going over what I had done the previous day, which my wife has happily typed up for me.
+ - Hollywood loves to typecast, and I guess they saw me as a violent guy.
+ - If I start to become a star, I’ll lose contact with the normal guys I play best.
+
+31 quotes

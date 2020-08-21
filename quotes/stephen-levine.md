@@ -1,0 +1,53 @@
+ - Non-attachment is not the elimination of desire. It is the spaciousness to allow any quality of mind, any thought or feeling, to arise without closing around it, without eliminating the pure witness of being. It is an active receptivity to life.
+ - Let there be peace on earth and let it begin with me. There is nothing to do but be.
+ - Nothing is more natural than grief, no emotion more common to our daily experience. It’s an innate response to loss in a world where everything is impermanent.
+ - The mind creates the abyss. The heart crosses over it. Love is the bridge.
+ - To heal is to touch with love that which we previously touched with fear.
+ - Letting go of our suffering is the hardest work we will ever do. It is also the most fruitful. To heal means to meet ourselves in a new way – in the newness of each moment where all is possible and nothing is limited to the old.
+ - Go to the truth beyond the mind. Love is the bridge.
+ - Grief can have a quality of profound healing because we are forced to a depth of feeling that is usually below the threshold of awareness.
+ - Buddha nature, is like the sun which is always shining, always present, though often obscured. We are blocked from our natural light by the clouds of thought and longing and fear; the overcast of the conditioned mind; the hurricane of I am.
+ - If you were going to die soon and had only one phone call to make, who would you call and what would you say? And why are you waiting?
+ - Always try to see yourself through God’s eyes.
+ - It doesn’t matter how long you forget, only how soon you remember!
+ - Healing is bringing mercy and Awareness into that which we have held in judgment and fear.
+ - Healing comes when we meet our wounded places with compassion.
+ - Acting from the appropriateness of the heart, we are freed from the neediness of the mind.
+ - Loss is the absence of something we were once attached to. Grief is the rope burns left behind, when that which is held is pulled beyond our grasp.
+ - Safety is the most unsafe spiritual path you can take. Safety keeps you numb and dead. People are caught by surprise when it is time to die. They have allowed themselves to live so little.
+ - When your fear touches someone’s pain, it becomes pity, when your love touches someone’s pain, it become compassion.
+ - Death is just a change in lifestyles.
+ - Whatever prepares you for death enhances life.
+ - If you can find the God inside yourself, you can find the God inside everybody.
+ - Buddha left a road map, Jesus left a road map, Krishna left a road map, Rand McNally left a road map. But you still have to travel the road yourself.
+ - Our suffering is caused by holding on to how things might have been, should have been, could have been.
+ - When we see all women as the divine mother and all men as the divine father, everyone you meet is sacred.
+ - There is nothing to do but be.
+ - People ask what must they become to be loving. The answer is ‘nothing.’ It is a process of letting go of what you thought you had become and allowing your true nature to float to the surface naturally.
+ - The only service you can do for anyone is to remind them of their true nature.
+ - Meditation allows us to directly participate in our lives instead of living life as an afterthought.
+ - The saddest part about being human is not paying attention. Presence is the gift of life.
+ - Hell is not fire and brimstone, not a place where you are punished for lying or cheating or stealing. Hell is wanting to be something and somewhere different from where you are.
+ - Your distance from your partner is the distance from your heart. The things that make relationships difficult are some of the most precious aspects to us.
+ - Our work is to keep our hearts open in hell.
+ - When we turn to our innate wisdom for the harmony of mind and gut, we heal the entrance to the heart as it seeks to beat in rhythm with the world.
+ - Sometimes pain and illness are not meant to be removed. You can’t second-guess God. Rather than praying for it to go away, it’s often wiser to pray that you learn as much from it as you possibly can.
+ - Oxygen plays a pivotal role in the proper functioning of the immune system. We can look at oxygen deficiency as the single greatest cause of all diseases.
+ - Forgiveness is mental floss! Build the capacity to forgive slowly – start with little unkind acts, otherwise you’ll sabotage yourself. When we forgive, we forgive the actor, not the action.
+ - God is not someone or something separate but is the suchness in each moment, the underlying reality.
+ - Much thought has at its root a dissatisfaction with what is. Wanting is the urge for the next moment to contain what this moment does not. When there is wanting in the mind, that moment feels incomplete. Wanting is seeing elsewhere. Completeness is being right here.
+ - You can call it wisdom, or sanity, or health, or enlightenment. I use the word God as a short-cut. I am comfortable with the word God because I don’t have the foggiest idea of what it means.
+ - What is it like after you die? Just like it was before you were born.
+ - It is trust in our vast ‘don’t know’ that allows room for the truth, that allows the next intuition to float to the surface.
+ - When the heart acknowledges how much pain there is in the mind, it turns like a mother toward a frightened child.
+ - Understanding is the ultimate seduction of the mind. Go to the truth beyond the mind.
+ - If sequestered pain made a sound, the atmosphere would be humming all the time.
+ - In Chinese, the word for heart and mind is the same – Hsin. For when the heart is open and the mind is clear they are of one substance, of one essence.
+ - There is a delicate balance that we need to honor as we try to find meaning in any event or state of mind: Many people confuse finding meaning with finding a reason, putting our finger on something or someone for blame.
+ - If you want the other person more than anything else in the world, you’re in major trouble and the relationship is a wobbly pivot. It’s different if the thing you want most in the world is truth, and your partner is the person you want most in the world.
+ - We are so numb we don’t even know what a direct experience is. We have an experience, then we think about it and we think the thinking about it is the experience.
+ - Meditation isn’t to disappear into the light. Meditation is to see all of what we are.
+ - Love is not what we become but who we already are.
+ - We’ve all been should upon enough.
+
+51 quotes

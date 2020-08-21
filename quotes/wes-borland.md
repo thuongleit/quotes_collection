@@ -1,0 +1,25 @@
+ - I’ve accepted the fact that Limp Bizkit is my band, one that I’m a part of, a band that I’ve built from the beginning. It does me no good to be in somebody else’s band playing their music, like Marilyn Manson or Korn. Being in Limp Bizkit allows me to be myself.
+ - I have nothing to complain about.
+ - Real family values have gone down the drain in modern families.
+ - Guys are idiots, till they’re what, 40 years old.
+ - Music has completely taken over every aspect of my life and ruined everything.
+ - Limp Bizkit is my main priority, but my side project, Black Light Burns, is still a labor of love. We have a record written, so we’ll see when that comes out. When we tour, we go out in a van and trailer with me driving.
+ - I almost shouldnt be in Limp Bizkit, its like I got matched in the factory with the wrong band.
+ - I’ve never really been schooled in music theory. I’m a guitar player, and I attack the guitar in a certain way that it not fully unique to me, but it’s more unique that some other people.
+ - I’m too old to be farting around with stuff that isn’t precisely what I want to do.
+ - It’s always a pleasure when you can compose guitar parts from a strong vocal and not just put the melody on top of guitar riffs.
+ - It took me a long time to find my voice as a singer, and I’m happy that I did.
+ - I could have probably gone on and still played the part of the guitar player of Limp Bizkit, but musically I was kind of bored. If I was to continue, it would have been about the money and not about the true music, and I don’t want to lie to myself, or to them or to fans of Limp Bizkit.
+ - Selling records is fantastic. But if you’re not loving what you do, and if everybody is throwing knives at you, it can get old very fast.
+ - I don’t feel there’s any kind of pain in my life.
+ - There may be something good in silence. It’s a brand new thing. You can hear the funniest little discussions, if you keep turning the volume down. Shut yourself up, and listen out loud.
+ - I would love to put out music that was just stunning or soul-baring or whatever. But I don’t think I have the voice for it.
+ - We’re gonna totally sell out and try to dominate the world.
+ - All I want to do is write songs about funny characters I made up.
+ - It’s weird to try to write lyrics for somebody else. They can’t really get behind what you’re saying or what you want them to say because they didn’t experience it.
+ - When playing any song in front of an audience, you’re watching them experience it, and it changes. In a lot of ways, it’s almost like the music is just the background buzz to what’s happening between you and the audience in the room.
+ - I don’t feel like singing should be taken lightly. It’s one of the hardest things I’ve ever done, but it’s coming along.
+ - I’m always looking at other artists and trying to get inspired by different things.
+ - I’ve always wanted to be a songwriter and a storyteller and somebody who conveys a feeling to the listener or the viewer.
+
+23 quotes

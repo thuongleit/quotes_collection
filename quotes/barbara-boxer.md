@@ -1,0 +1,37 @@
+ - Even if I have to stand alone, I will not be afraid to stand alone. I’m going to fight for you. I’m going to fight for what’s right. I’m going to fight to hold people accountable.
+ - I’m a very big believer in collaboration and teamwork.
+ - We have the greatest hospitals, doctors, and medical technology in the world – we need to make them accessible to every American.
+ - Could you say ‘senator’ instead of ’ma’am? It’s just a thing. I worked so hard to get that title. I’d appreciate it.
+ - We are all different. Yet we are all God’s children. We are all united behind this country and the common cause of freedom, justice, fairness, and equality. That is what unites us.
+ - When service members are discharged, we should express our gratitude for their profound personal sacrifice, not hand them a bill for their hospital food.
+ - The Saudi government’s denial of basic rights to women is not only wrong, it hurts Saudi Arabia’s economic development, modernization and prosperity.
+ - Americans have long recognized the need to protect our public lands and their vast resources.
+ - So when you go up against the Far Right you go up against the big financial special interests like the Halliburtons of the world, the big oil companies, the big energy companies who work so hard to rip us off.
+ - To win the cause we all believe in, the spread of true democracy all over the world, we need to win by example, not just with speeches but by example; not just with military might but by gaining the respect of the world.
+ - Iraq was a war of choice, not necessity.
+ - If you want to be a leader, it doesn’t mean that you have to have an opinion on everything. But if you do have an opinion and it is clear and you feel strongly about it, then you should say it.
+ - In the early stages of a pregnancy, the Government cannot intervene with a woman’s right to choose. That is it, plain and simple. Guess what. We are not going to be big brother or sister, as the case may be. We are going to allow a woman, her doctor, and her God to make that decision.
+ - If you don’t move to protect copyright, if you don’t move to protect our children, it’s not going to sit well.
+ - Iraq made commitments after the Gulf War to completely dismantle all weapons of mass destruction, and unfortunately, Iraq has not lived up to its agreement.
+ - More than anything, I think as our country matures, we recognize that women deserve to be treated with respect and dignity.
+ - The combined efforts of millions of concerned citizens could do wonders to help the impoverished. The American people are ready for action!
+ - I’m hopeful that the energy efficiency and public buildings bill will have their endorsement.
+ - We have to be realistic about what we can achieve in Afghanistan. The notion that the United States can build a Western-style democracy there is a myth.
+ - The difference between the very wealthy and the working poor has grown. We raise that minimum wage and we move forward with the vision of this president that we have, which is everyone pays their fair share.
+ - I was a stock broker once. I think there is an absolute place for market investments. But they should never be the basis of one’s retirement. They should be an additional piece on top of a basic, secure, guaranteed retirement benefit.
+ - The American people need to know the truth. The American people need to see the truth. In a democracy, letting the people know the truth is the essence of what it means to be free.
+ - Since 1980, we’ve used reconciliation 22 times, and out of those times, Republicans used it 16 times. So, earth to my Republican friends, you can have your option but you cannot change these facts. They’re in the Congressional Record.
+ - Our democracy is the centerpiece of who we are as a nation. And it is the fondest hope of all Americans that we can help bring democracy to every corner of the world.
+ - I would not run for president. I really like what I’m doing now. People say I’m giving them energy and hope.
+ - I think the scientists have really caught the attention of the people of this country, and of course, they elected representatives by their very clear pronouncement that if we don’t do something, we’ll be in a lot of trouble.
+ - I have to say that after chemotherapy, Barbara Boxer just isn’t that scary anymore.
+ - Voting against the resolution authorizing the use of military force in Iraq was one of my proudest moments as a senator. It is long past time to close this tragic chapter in American history.
+ - Our message will be that we’re going to make federal government buildings a model – an energy-efficient model – and also start matching grants for cities and counties so that they can also do the same with their government buildings.
+ - The White House has embarked on a mission to convince the people of our country that Social Security is in dire need of drastic change in order to save it for all workers.
+ - I would love to see a march on Washington that says ‘Save our Social Security’
+ - Just look at the Judiciary Committee, You have some people on the Judiciary Committee who may well decide not to send the nomination to the floor, and now it all depends on what Democrats do.
+ - I think Democrats are right. We fight for the American dream, for the environment, for privacy rights, a woman’s right to choose, a good public education system.
+ - Some people play golf. Some are artists, Some jog. I like to write.
+ - Perhaps, one of our greatest challenges as a nation, as a people, as human beings making sure that our grandkids can live on this Earth.
+
+35 quotes

@@ -1,0 +1,42 @@
+ - Volunteers don’t get paid, not because they’re worthless, but because they’re priceless. ~~Sherry Anderson
+ - Without volunteers, we’d be a nation without a soul. ~~Rosalynn Carter
+ - No one is more cherished in this world than someone who lightens the burden of another. Thank you. ~~Joseph Addison
+ - Volunteer. Sometimes the jobs no one wants conceal big opportunities. ~~H. Jackson Brown Jr.
+ - Research has shown that people who volunteer often live longer. ~~Allen Klein
+ - Never underestimate your ability to make someone else’s life better – even if you never know it. ~~Greg Louganis
+ - We don’t recruit volunteers; we release leaders. Volunteers do good things but leaders change the world. ~~Craig Groeschel
+ - To be good, and to do good, is all we have to do. ~~John Adams
+ - Never before has man had such a great capacity to control his own environment, to end hunger, poverty and disease, to banish illiteracy and human misery. We have the power to make the best generation of mankind in the history of the world. ~~John F. Kennedy
+ - Here’s to all volunteers, those dedicated people who believe in all work and no pay. ~~Robert Orben
+ - Living is the art of loving. Loving is the art of caring. Caring is the art of sharing. Sharing is the art of living. If you want to lift yourself up, lift up someone else. ~~Booker T. Washington
+ - We pass through this world but once. ~~Stephen Jay Gould
+ - The deeds you do may be the only sermon some persons will hear today. ~~Francis of Assisi
+ - Doing nothing for others is the undoing of ourselves. ~~Horace Mann
+ - No matter how big and powerful government gets, and the many services it provides, it can never take the place of volunteers. ~~Ronald Reagan
+ - I’m going to help the committee regardless of any position I have. I will volunteer to be a summer intern. ~~Trey Gowdy
+ - It is not enough to merely exist. It’s not enough to say, ‘I’m earning enough to live and support my family. I do my work well. I’m a good parent.’ That’s all very well. But you must do something more. ~~Albert Schweitzer
+ - There are many ways of seeing the world. You can hang upside down from a meteor, volunteer to be the fourth stage of a three-stage rocket, or simply get in a balloon and keep going. But if it’s sheer, unadulterated discomfort you’re looking for, just stay on land. ~~Michael Palin
+ - There are no victims, only volunteers. ~~Robert Anthony
+ - I grew up with the word “volunteer” as a very powerful word in my family. I was inspired by my mother and by how selfless our family was toward others who didn’t have enough. ~~Eva Longoria
+ - Guess what? I have flaws. What are they? Oh I donno, I sing in the shower? Sometimes I spend too much time volunteering. Occasionally I’ll hit somebody with my car. So sue me – no, don’t sue me. That is opposite the point I’m trying to make. ~~Michael Scott
+ - In the knowledge economy everyone is a volunteer, but we have trained our managers to manage conscripts. ~~Peter F. Drucker
+ - Who then can so softly bind up the wound of another as he who has felt the same wound himself. ~~Thomas Jefferson
+ - Not only must we be good, but we must also be good for something. ~~Henry David Thoreau
+ - There are three ways of trying to win the young. There is persuasion, there is compulsion, and there is attraction. You can preach at them: that is a hook without a worm. You can say, You must volunteer, and that is of the devil. You can tell them, You are needed. That appeal hardly ever fails. ~~Kurt Hahn
+ - Give yourself fully to your endeavors. Decide to construct your character through excellent actions and determine to pay the price of a worthy goal. The trials you encounter will introduce you to your strengths. ~~Epictetus
+ - It is true that many of the Sea Shepherd crewmembers are inexperienced, but the fact is that these volunteers bring a passion to the project that cannot be found in a hired crew. ~~Paul Watson
+ - Teach me to feel another’s woe, to hide the fault I see, that mercy I to others show, that mercy show to me. ~~Alexander Pope
+ - It wasn’t the reward that mattered or the recognition you might harvest. It was your depth of commitment, your quality of service, the product of your devotion – these were the things that counted in life. When you gave purely, the honor in giving, and that was honor enough. ~~Scott O'Grady
+ - Men are rich only as they give. He who gives great service gets great rewards. ~~Elbert Hubbard
+ - I’ve seen far too many Christians who are more than willing to travel halfway around the world to volunteer for a week in an orphanage, but who cannot bring themselves to take the personal risk of sharing Jesus with the co-worker who sits day after day in the cubicle right next to them. ~~Lee Strobel
+ - Games are unnecessary obstacles we volunteer to tackle. ~~Jane McGonigal
+ - True discipleship is for volunteers only. Only volunteers will trust the Guide sufficiently to follow Him in the dangerous ascent which only He can lead. ~~Neal A. Maxwell
+ - Exercise your purchasing power as a consumer, volunteer and bring joy to those in need, and share your experiences, tell your stories, and inspire others along the way. ~~Blake Mycoskie
+ - When the citizens of a nation will no longer volunteer to defend it, then it is probably not worth saving. No nation has the right to survive with conscript troops, and in the long run, no nation ever has. ~~Robert A. Heinlein
+ - One of the gratuities about being a director is that you can volunteer yourself out of difficult details. ~~Steven Spielberg
+ - Each one of us should lead a life stirring enough to start a movement. ~~Max Lucado
+ - Im happy to volunteer for the American Red Cross Celebrity Cabinet. The Red Cross is an organization that responds to those in need and it is an honor to help them with the lifesaving role they play everyday in communities nationwide. ~~Peyton Manning
+ - There’s tons of information on the Internet, so if you type in cancer, they’ll give you 15, 000 different options to get involved with cancer. It’s very easy to get involved if you want to get involved, especially to volunteer your time. ~~Chelsea Handler
+ - Any fool can know. The point is to understand. ~~Albert Einstein
+
+40 quotes

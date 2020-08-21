@@ -1,0 +1,107 @@
+ - Execution is everything.
+ - I’m kind of an idea guy.
+ - Memories are not just about the past. They determine our future.
+ - Always maintain a joyful mind. Appreciate the struggles as opportunities to wake up.
+ - Hope’s interesting, isn’t it? I can’t turn hope off, it’s hopeless.
+ - Everyone I meet is in my sangha. I don’t know if that’s the proper definition, but that’s the way I’m going to hold it in my mind.
+ - My brother’s my teacher, my mentor, and we both learnt all the acting basics from our father.
+ - When I’m working, I’m very purposeful and everything else gets out of focus. Something I’ve had to work on together with my wife is how to acknowledge each other in the midst of this and keep the relationship going.
+ - I used to be somebody. Now I’m somebody else.
+ - You’ve got to take care of yourself on the path, not just when you cross the goal line, because don’t forget, wherever you are, that’s the goal line.
+ - You always hear people say that having kids changes everything, but you can’t fully realize it until you have children yourself.
+ - One of the greatest feelings in the world is knowing that we as individuals can make a difference. Ending hunger in America is a goal that is literally within our grasp.
+ - You just have to work with your discomfort. It’s challenging, but you have to dance the dance that the band’s playing. You can’t say: “I came here to Cha Cha and they’re playing a Waltz, godammit!”
+ - It can kind of screw up things if you’re trying to overwork something.
+ - Words fall short sometimes.
+ - Nowadays, in the contract that actors sign, you have to agree that you’re going to do a certain amount of publicity-the hard part they don’t pay you for.
+ - Everybody loses a couple, and you either pack it up and go home or you keep on fighting.
+ - It’s funny. You succeed, but now where are you gonna go from there? I’ve got to keep proving that I can laugh or cry more real each time.
+ - With a labyrinth, you make a choice to go in – and once you’ve chosen, around and around you go. But you always find your way to the center.
+ - I really try hard not to work, not to engage, because I know what that means. What hard work it is; it takes me away from my family.
+ - You don’t want to do what your parents want you to do. You got your own things. And the whole idea of getting a job because of who your father is – that didn’t isn’t right.
+ - I do a lot of ceramics.
+ - If some crazy idea stays in my head for long enough, then there’s no fighting it. I just say, Okay, let’s go.
+ - It’s not enough just to treat women well. We have to work to make sure all men treat women well.
+ - If you open your heart, then the object of your love becomes so precious because you are so open. And that philosophy, that caring, spreads.
+ - A fool and his money are quickly parted.
+ - I don’t know how it is for women or for other guys, but when I was young and in my 20s, I had a fear of marriage.
+ - Your part can be the king, but unless people are treating you like royalty, you ain’t no king, man.
+ - I’ve got to watch my back, so I can’t put on too much weight.
+ - When I was really young, my mom enrolled me in dance classes.
+ - I’m a pretty basic surfer.
+ - I think my love of journalizing my life comes from my mom.
+ - I have no lucky charm. I am 100 percent superstition-free, and I take nothing for granted.
+ - Normally, I love to go to the movies and when I see a character portrayed by different actors at different ages, it kind of pops a little bit for me. It brings me out of the movie experience. Now we have the technology to cure that.
+ - A large part of acting is just pretending. You get to work with these other great make-believers, all making believe as hard as they can.
+ - Mania is a wonderful feeling.
+ - There’s kind of a Zen aspect to bowling. The pins are either staying up or down before you even throw your arm back. It’s kind of a mind-set. You want to be in this perfect mind-set before you released the ball.
+ - All of this high-tech stuff is supposed to set us free and make life easier. To me, it makes it more difficult and demanding.
+ - There are some actors that want you to call them by their character’s name and they have no relationship with you outside of the character. But I like to get to know who I’m working with so that we can relax together, and it’s more fun.
+ - A lot of people don’t really understand what rehearsal’s about. People are afraid they’re gonna leave it in the dressing room, or you’re gonna shoot your wad in rehearsal.
+ - Play doesn’t have to be a frivolous thing. You may think of a Beethoven symphony as something serious, but it’s still being played. I think Oscar Wilde said that life is too important to be taken seriously.
+ - I’ve never been motivated by the award thing. There’s a certain thing that this fame thing does that makes my job harder, in a way. I’m still working with that. I don’t think about it too much until somebody asks me a question, and then I think about it.
+ - You don’t want to vilify your ego.
+ - As far as 3-D goes, I don’t know if that will stay very long because things are moving so rapidly.
+ - You can change things, you can make things better.
+ - I don’t have one movie that is my favorite, I have about 25-30 favorites.
+ - Tightness gets in the way of everything, except tightness.
+ - Every time I walk down one of those red carpets, you think I’d be used to it after all these years, but it’s like it’s happening for the first time.
+ - So I have this word for much of what I do in life: ‘plorking.’ I’m not playing and I’m not working, I’m plorking.
+ - It’s like that perfection thing, trying to be that thing you’re not. You have to feel that discomfort and not try to get rid of it. Accept that aspect and get into it. Acknowledge those feelings and let them be. You are who you are.
+ - Well, there are all kinds of gutters. Life will supply you with gutters.
+ - We’re here for such a short period of time.
+ - I just find my creativity manifesting a bunch of different ways.
+ - I don’t have too much time to jam with the rest of Hollywood.
+ - I haven’t been to Comic-Con.
+ - Well, when we made ‘Tron’ there was no internet, no cellphones.
+ - My father Lloyd Bridges was very versatile in his parts, but he had a hit in the ’60s ‘Sea Hunt,’ where he played a skin diver. And he was so into that role that people actually thought he was a skin-diver.
+ - As you become famous you lose some of your anonymity, which is wonderful for an actor to have because you can observe people and also people don’t have such a strong sense of who you are and that sort of thing.
+ - One thing I want to do is create something called Ring Around Congress. It would be a state deal and also a national thing, where the kids, as a field trip, will go and join hands around Congress and give the politicians report cards on how they’re voting on hunger issues.
+ - For me and my wife, it was love at first sight.
+ - Obviously it’s fun to let yourself go and eat a pint of Haagen Dazs, but being healthy feels the best. Sobriety and health is the greatest thing.
+ - Basically, one of the hardest things about being an actor is getting your first break. I’m a product of nepotism. The doors were open to me. I’d done several movies before I decided what I wanted to do.
+ - During my early years, I thought I might be a musician. Like most kids, I didn’t do what my parents wanted me to do. They were gung-ho that all their kids become actors. They loved showbiz so much. I am a product of nepotism, basically.
+ - I don’t really care about having more fame than I have.
+ - I don’t really consider myself one of those actors who takes his work home with him.
+ - It gives me more breadth as an actor and as an artist to not be pigeonholed.
+ - I want to have all of my faculties.
+ - I’d done about 10 movies before I decided I wanted to make acting the main thrust of my career.
+ - I’ve done several commercials and I’ve done voiceovers for documentaries.
+ - I don’t really think in career terms.
+ - Like most kids, you don’t want to do what your folks want you to do. You’ve got your own thing.
+ - You don’t really have to do the things that your character is doing. But us actors, we use something called sense memory. I’ve certainly been drunk before, and part of my job is to recall that without getting drunk.
+ - I had years of partying, and I was kind of surprised and happy I survived it all. Now, being a parent, I look back on it thinking, Oh God, the things you did!
+ - I’m very manipulative towards directors. My theory is that everyone on the set is directing the film, we’re all receiving art messages from the universe on how we should do the film.
+ - Like most of the movies I get involved with, I resisted as long as possible, I really try to figure out why I shouldn’t do it and this one had plenty of reasons “not to do it”.
+ - I can see how a relationship with a writer would be an easy thing.
+ - That movie, ‘Airplane!,’ what a landmark film it was. It’s a great, great movie.
+ - Generally speaking I would say I enjoy the smaller films more because there’s a less sense of pressure and often the material is more unusual.
+ - I consider myself pretty lazy, but I look back and check out the stuff I’ve done, and I say, ‘God, that’s a lot of stuff for a lazy guy.’ It’s a paradox, I suppose, being both things.
+ - Pretend was a big part of my childhood.
+ - If you’re married you’ll have tough times.
+ - I know how to dance with the wind, I can use its power by sailing this way, then that way, and again this way, till finally I get to you. With rowing, you’re working primarily with your arms and shoulders. But with sailing, you’re making bigger use of the wind and the waves.
+ - As far as the lack of hits goes, I think perhaps it’s because I’ve played a lot of different roles and have not created a persona that the public can latch on to. I have played everything from psychopathic killers to romantic leading men, and in picking such diverse roles I have avoided typecasting.
+ - I remember when I was a kid, with the acting thing, I resented it because, you know, you don’t want to do what your parents want you to do.
+ - I remember being on a black-and-white set all day and then going out into daylight and being amazed by the colour.
+ - Working with my dad was such a gas. We approached the work in a similar way. We only made two films together when I was an adult, Tucker, and Blown Away, but it was so much fun to play with your parent like that.
+ - You prep, you prep, you prep. And on the day that you film, you let all of that go. I try to achieve emptiness as much as possible – the Zen thing – to let the deal come out of that nothing.
+ - I’ve worked with a lot of kids, and when you’re working with kids they have certain hours that they have to work.
+ - The hoopla with all the award season is kind of mind-boggling. It kind of puts you on your heels.
+ - I’m at this time in life when I have to take the opportunities I have left.
+ - I’ve gone out of my way to not take baggage with me from film to film.
+ - Nowadays it seems more and more like the ‘business’ in ‘show business’ is underlined, and there are campaigns, and it’s all part of getting people in to see the movies.
+ - When you start to engage with your creative processes, it shakes up all your impulses, and they all kind of inform one another.
+ - I think there’s a real joy in going to see movies when you discover them yourself.
+ - Myths are wonderful – they really tell the stories that connect all of us and teach us so much.
+ - Well, I’m not a big sports fan.
+ - I look back at my filmography, and I’m pretty jazzed with the stuff I’ve been part of. They’re all movies I’d like to see.
+ - When you truly commit in your life, you start receiving more than you could imagine.
+ - Whenever you’re the child of a famous person, you get judged in odd ways because of that.
+ - I think we’re all hooked, I feel my own hook-ness on immediate gratification you know. I want what I want.
+ - You have that Frank Capra kind of side to it and the characters are really well drawn, so I think everybody tried their best to stay faithful to the script.
+ - There’s a bit of the kid in me.
+ - I’d maybe done about 12 movies when I decided that this was what I was going to do.
+ - One of the things that I find so exciting about life is that you’re constantly surprised. You never know what’s going to happen, and it’s certainly like that making movies; every once in a while, one will come along that transcends all of your expectations.
+ - For me, growing up, the downside of it was that as a kid you don’t want to stand out. You don’t want to have a famous father let alone get a job because of your famous father, you know? But I’m a product of nepotism. That’s how I got my foot in the door, through my dad.
+
+105 quotes

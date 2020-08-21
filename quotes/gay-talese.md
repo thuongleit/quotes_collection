@@ -1,0 +1,24 @@
+ - Listen, then make up your own mind.
+ - Sports is about people who lose and lose and lose. They lose games; then they lose their jobs. It can be very intriguing.
+ - News, if unreported, has no impact. It might as well have not happened at all.
+ - With all of the qualities of the scene-setting, the dialogue, the place and time and the time and place in which your characters move. And I want to move with the characters, move with them and describe the world in which they are living.
+ - Putting on a beautifully designed suit elevates my spirit, extols my sense of self, and helps define me as a man to whom details matter.
+ - Journalism is a voyeuristic vocation that attracts to its employment many people who are often naturally shy and insatiably curious, and each day they are assigned to view the world with a critical eye and a detached sense of intimacy.
+ - People dress up for funerals. Why not dress up to celebrate that you’re alive?
+ - I’ve always had standards about writing well. There is art in this business. There is potentially great art.
+ - Even after they had stopped modeling for Playboy and had settled down with other men to raise families of their own, Hugh Hefner still considered them his women, and in the bound volumes of his magazine he would always possess them.
+ - The Park Avenue of poodles and polished brass; it is cab country, tip-town, glassville, a window-washer’s paradise.
+ - I am a documentarian of what I do.
+ - Restaurants are a wonderful escape for me. And are for a lot of people.
+ - I write and rewrite and rewrite and write and like to turn in what I think is finished work.
+ - It’s true what they say – all the good men are married. But it’s marriage that makes them good.
+ - I am writing about people who are alive in the city of New York during mid-20th-century America. And these people are like a character in a play or they are figures in a short story or a novel.
+ - Yes there is a little group of soccer aficionados, but I am not one of them.
+ - I could come up with 50 stories that I am thinking about.
+ - Thirteen years I took on this last book.
+ - The reporter wrote with the hope that he would get a by-line in the Times, a testimony to his being alive on that day and all the tomorrows of microfilm.
+ - The real problem is what to do with problem solvers after the problem is solved.
+ - People go to restaurants for so many different reasons. To court a girl, to make some deal. Maybe to talk to some lawyer about how to get an alimony settlement better than they got last week.
+ - For example, many colleges in their writing programs teach some of my work.
+
+22 quotes

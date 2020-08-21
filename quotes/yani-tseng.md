@@ -1,0 +1,47 @@
+ - I will keep working hard!
+ - I will keep smiling, be positive and never give up! I will give 100 percent each time I play. These are always my goals and my attitude.
+ - We always learn more from the losing than the winning.
+ - I hope one day I will host my own charity event to give back to society.
+ - You learn from your mistakes, and I think it’s a good thing as long as you learn something.
+ - I am getting more mature and can handle the pressure better.
+ - At that time, I feel sad, and I feel no one knows how hard I work and how many tears. They only know the score. At that time, I feel very lonely because no one understands since they haven’t been world No. 1 before.
+ - I feel very peaceful.
+ - I want to improve my bunker, fairway and putting status because that’s been my weakness over the last three years. If I can just focus on this, then everything else will come.
+ - I have a fearless but neutral personality.
+ - I just want to show the fans my big smile and play the game that I love.
+ - I want to play for my country, play for everybody, and I want to be there. I just feel like I have so many feelings and I want to play in the Olympics and feel how special if I can win that tournament.
+ - Most recently, I learned another hobby: baking. It’s so much fun to mix all the ingredients and to see the cake come out nice. It’s so rewarding when the cake comes out great and tastes great.
+ - I’m just so happy to see my friends and fans in Taiwan, ’cause that’s where I’m from.
+ - I write down inspirational things on cards that I keep in my bag and look at during the round.
+ - I am closer and closer to reaching my childhood dream. This is really exciting! I will continue to work hard, to focus on each tournament I play.
+ - I really want to thank Annika Sorenstam. She helped me a lot about my game, about the mentals, and she told me go step by step.
+ - You know golf is very lonely. When I’m in the States, I feel like if I just think about Taiwan, my friends, my fans, I won’t feel like I’m alone.
+ - I love to show off my ability in a nice way.
+ - When I’m out there, I don’t think about anything. I just grip it and rip it. I don’t like to worry about technique.
+ - I like to smile. I smile even when I’m nervous since it calms me down and shows my friendliness.
+ - It’s hard to always be on top. You go down, you go up.
+ - You need to take care of your time and practice, you need to rest and talk to media. So it’s really important to organize those things.
+ - Annika’s my role model, and I wish in the future I could be like her.
+ - I always believe that every one of us is working hard not only for our own performance but also to give something significant back to the societies we live in.
+ - I feel like every word I say now, I can really inspire people.
+ - Asian players train so hard. Most of the time, on Monday mornings, the only people you see on the range are Asians. I mean, only see Asians.
+ - In golf, it’s almost impossible to be perfect on each shot; that’s the fun and challenge of golf.
+ - It seems to me every one of us is doing something meaningful for this world.
+ - I love various sports, including basketball, tennis and billiards.
+ - I am so honored to be named as one of Time’s 100 most influential people.
+ - It’s easy to have a good season but if you want to have a great season you have got to win a major tournament.
+ - I am very happy since when I am in different cities I can experience and learn different cultures!
+ - As it becomes longer at No. 1, I feel more and more pressure. Everybody is trying to grab every piece of me.
+ - Although I have won many times now, each time when I have a lead, I start to think about winning. It’s very difficult not to think about winning. Every time, there are new challenges. Every time, there are new issues to overcome.
+ - I’m very excited every time I’m at Augusta National. It’s such a beautiful and fabulous golf course.
+ - Not only am I constantly seeking better performance but also to be a better person, to be respected.
+ - I feel I am very fortunate to have a job that I really like.
+ - You learn something when you don’t play well, and I figure that helping people, it makes me very, very happy.
+ - I think to be ‘tough’ means you look relaxed. So you have to be tough to win tournaments. But you don’t want to be so tough on yourself.
+ - People are trying to grab every part of you, so it’s really hard to focus.
+ - I want to be best golfer in the world. But I feel like golf is not everything in my life, but I want to keep doing it, keep working hard, do the best I can on the tour and give back to the tour.
+ - I have the picture in my mind of how emotional I will feel if I win again.
+ - You always learn something from mistakes.
+ - With Tiger Woods, you know everyone is watching. But I think interest in women’s golf is getting better too.
+
+45 quotes

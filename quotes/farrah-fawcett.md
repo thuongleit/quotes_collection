@@ -1,0 +1,36 @@
+ - There are no words to express how sad and devastated I am. I have lost one of my dearest friends, and the industry has lost a giant.
+ - My number one goal is to love, support and be there for my son.
+ - I’m a private person. I’m shy about people knowing things.
+ - I like it when you’re under the ocean, and all you can feel is calm.
+ - The reason the all-American boy prefers beauty over brains is that the all-American boy can see better than he can think.
+ - In the face of excruciating pain and uncertainty, I never lost hope, and it never occurred to me to stop fighting – not ever.
+ - Everything has positive and negative consequences.
+ - Everyday is a good day, just some days are better.
+ - God made man stronger but not necessarily more intelligent. He gave women intuition and femininity. And, used properly, that combination easily jumbles the brain of any man I’ve ever met.
+ - Throughout the journey of my life, I have maintained a strong faith in the power of the human spirit to overcome adversity. I deeply believe in one’s own positive will to overcome even the most daunting challenges.
+ - Stress is what feeds your cancer. Stress is what gives you cancer and then there’s the paparazzi giving you stress.
+ - I’ll do anything to stop my son running out into the street. I’ll take a bullet for him. He’s hit me a few times. He shows no remorse afterward.
+ - Before my mother died, she made me promise to do everything that could be done to make sure my father was not left alone after she was gone.
+ - I’m holding onto the hope that there is some reason that I got cancer and there is something – that may not be very clear to me right now – but that I will do.
+ - I thought Marilyn Monroe was the most beautiful woman in the world and Elizabeth Taylor breathtaking. But when I see myself on the screen I say: ‘Oh shoot! What are they talking about?’
+ - Cancer is a disease that is mysterious, headstrong and makes its own rules. And mine, to this date, is incurable.
+ - I do not want to die of this disease. So I say to God: “It is seriously time for a miracle.”
+ - Cancer is my own private war. The strain, the nausea, the fever take turns challenging my strength, my mind and my spirit...
+ - Marriages that last are with people who do not live in Los Angeles.
+ - Im shy. I can go on a trip for days and not go because I wont sit on a toilet seat on a plane. Im certainly not going to go on somebodys lawn. Could you imagine, in a cocktail dress?
+ - God gave women instinct and womanliness. Utilized appropriately, the combo effortlessly disorders the mind of any man I’ve ever met.
+ - It is seriously time for a miracle.
+ - I became famous almost before I had a craft.
+ - Have I been wiretapped? Yes. But who they said wiretapped me was incorrect.
+ - Looking a certain way is a blessing and a curse.
+ - I feel like a dog who has been to the vet too many times.
+ - Ryan took him out of Betty Ford after Redmond wanted to leave because he met a girl there. The girl was a heroin addict. She was the one who introduced him to the stuff.
+ - I deeply believe in one’s own positive will to overcome even the most daunting challenges.
+ - When you do bad things, bad things happen to you.
+ - I don’t think an actor ever wants to establish an image. That certainly hurt me, and yet that is also what made me successful and eventually able to do more challenging roles.
+ - I am proud of what I have got and I need an audience.
+ - As I’ve gotten older, I’ve found that I can have men as friends. I used to not be able to.
+ - As much as I would have liked to have kept my cancer private, I now realize that I have a certain responsibility to those who are fighting their own fights and may be able to benefit from learning about mine.
+ - What would you do if someone said to you: “You’re so popular right now that you can be on the cover of every magazine, but if you do that, you might get overexposed and a backlash will develop”? That’s life. Everything has positive and negative consequences.
+
+34 quotes

@@ -1,0 +1,44 @@
+ - Nothing worth having was ever achieved without effort. ~~Theodore Roosevelt
+ - If you don’t make bold moves, the world doesn’t move forward. ~~Richard Branson
+ - Stand up and walk. Move forward. ~~Hiromu Arakawa
+ - Life is always at some turning point. ~~Irwin Edman
+ - Let us move forward with strong and active faith. ~~Franklin D. Roosevelt
+ - If we fail to adapt, we fail to move forward. ~~John Wooden
+ - When you’re curious, you find lots of interesting things to do. ~~Walt Disney
+ - You are going somewhere. Every day. Every experience you get. You’re moving forward. ~~Jimmy Chin
+ - Always move forward, going straight will get you nowhere. ~~Billie Joe Armstrong
+ - Don’t surrender all your joy for an idea you used to have about yourself that isn’t true anymore. ~~Cheryl Strayed
+ - Life moves fast. As much as you can learn from your history, you have to move forward. ~~Eddie Vedder
+ - Fear not for the future, weep not for the past. ~~Percy Bysshe Shelley
+ - Let the dead Past bury its dead! ~~Henry Wadsworth Longfellow
+ - I try to avoid looking forward or backward, and try to keep looking upward. ~~Charlotte Brontë
+ - Let the past hold on to itself and let the present move forward into the future. ~~Douglas Adams
+ - I demolish my bridges behind me – then there is no choice but forward. ~~Fridtjof Nansen
+ - A man will be imprisoned in a room with a door that’s unlocked and opens inwards; as long as it does not occur to him to pull rather than push. ~~Ludwig Wittgenstein
+ - One change always leaves the way open for the establishment of others. ~~Niccolò Machiavelli
+ - Work, work, work, but what mark do we leave, what point do we make? People who are too beholden to work become like erasers: as things move forward, they leave in their wake no trace of themselves. ~~Yann Martel
+ - Set your goal and keep moving forward. ~~Georges St-Pierre
+ - For Africa to move forward, you’ve really got to get rid of malaria. ~~Bill Gates
+ - Life shoould be touched, not strangled. You’ve got to relax, let it happen at times, and at other move forward with it. ~~Ray Bradbury
+ - If you’re not moving forward, you’re falling back. ~~Sam Waterston
+ - Move forward with purpose. ~~Sherrilyn Kenyon
+ - Stay on your toes and always move forward. ~~Evander Holyfield
+ - We move forward, but we must stay in the present. ~~Scott Jurek
+ - Entrepreneurship is about turning what excites you in life into capital, so that you can do more of it and move forward with it. ~~Richard Branson
+ - Screenwriting is like ironing. You move forward a little bit and go back and smooth things out. ~~Paul Thomas Anderson
+ - Each new season grows from the leftovers from the past. That is the essence of change, and change is the basic law. ~~Hal Borland
+ - The attitude you have as a parent is what your kids will learn from more than what you tell them. They don’t remember what you try to teach them. They remember what you are. ~~Jim Henson
+ - Stand up and walk out of your history. ~~Phillip C. McGraw
+ - Try to write at least 500 words a day. You may ditch 499 of them tomorrow, but you will still be moving forward. ~~Jojo Moyes
+ - Change means the unknown. ~~Eleanor Roosevelt
+ - We can reach our potential, but to do so, we must reach within ourselves. We must summon the strength, the will, and the faith to move forward – to be bold – to invest in our future. ~~John Hoeven
+ - To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on. ~~Dave Pelzer
+ - We keep moving forward, opening new doors, and doing new things, because we’re curious and curiosity keeps leading us down new paths. ~~Walt Disney
+ - Don’t dwell on what went wrong. Instead, focus on what to do next. Spend your energies on moving forward, toward finding the answer. ~~Denis Waitley
+ - You are responsible for your life. You can’t keep blaming somebody else for your dysfunction. Life is really about moving on. ~~Oprah Winfrey
+ - Man maintains his balance, poise, and sense of security only as he is moving forward. ~~Maxwell Maltz
+ - Fearlessness is like a muscle. I know from my own life that the more I exercise it the more natural it becomes to not let my fears run me. ~~Arianna Huffington
+ - Moving on, is a simple thing, what it leaves behind is hard. ~~Dave Mustaine
+ - I don’t focus on what I’m up against. I focus on my goals and I try to ignore the rest. ~~Venus Williams
+
+42 quotes

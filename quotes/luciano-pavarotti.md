@@ -1,0 +1,48 @@
+ - If children are not introduced to music at an early age, I believe something fundamental is actually being taken from them.
+ - One of the very nicest things about life is the way we must regularly stop whatever it is we are doing and devote our attention to eating.
+ - People think I’m disciplined. It is not discipline. It is devotion. There is a great difference.
+ - I think a life in music is a life beautifully spent, and this is what I have devoted my life to.
+ - Some singers want the audience to love them. I love the audience.
+ - The rivalry is with ourself. I try to be better than is possible. I fight against myself, not against the other.
+ - I am a tenor buff. I hear myself.
+ - I want to reach as many people as possible with the message of music, of wonderful opera.
+ - I was an elementary school teacher.
+ - I am open to everything.
+ - Am I afraid of high notes? Of course I am afraid. What sane man is not?
+ - Above all, I am an opera singer. This is how people will remember me.
+ - There is no prodigy in our profession. If you see all the great singer of the past, none of them are.
+ - As an art form, opera is a rare and remarkable creation. For me, it expresses aspects of the human drama that cannot be expressed in any other way, or certainly not as beautifully.
+ - The better voice doesn’t mean being a better singer.
+ - If I could live my life over again, there is one thing I would change. I would want to be able to eat less.
+ - I am a very simple person. In spite of all that has happened to me, I have tried to remain the simple person I started out.
+ - Nothing that has happened has made me feel gloomy or remain depressed. I love my life.
+ - If I go three days without vocalizing, the voice is gone.
+ - I think an important quality that I have is that if you turn on the radio and hear somebody sing, you know it’s me. You don’t confuse my voice with another voice.
+ - I want to be famous everywhere.
+ - If you see me once, you cannot confuse me with another.
+ - For all three of us, the Caracalla concert was a major event in our lives. I hope I am not immodest to think it was also unforgettable for most of the people who were present.
+ - On the day I’m performing, I don’t hear anything anyone says to me.
+ - I’m a perfectionist, and I always think that I can do better what I have done, even if it’s good.
+ - You don’t need any brains to listen to music.
+ - Why should be elite, music? Excuse me. Music must be for everybody.
+ - Opera is a beautiful and important diversion for me.
+ - In opera, as with any performing art, to be in great demand and to command high fees you must be good of course, but you must also be famous. The two are different things.
+ - It is so important for people at a young age to be invited to embrace classical music and opera.
+ - Children should be given the chance to play instruments, to sing.
+ - I am a very superstitious person.
+ - The reason fat people are happy is that the nerves are well protected.
+ - I received a beautiful welcome to the world of music. I want to give something back to the younger generation.
+ - The music itself could never take the place of my own passion in life.
+ - I remember quite well that 10,000 audience sang with us three on the spot, and ever since then, I always thought the Chinese audience are the greatest audience.
+ - Learning music by reading about it is like making love by mail.
+ - If you know why you fall in love, you aren’t in love.
+ - Music making is the most joyful activity possible, the most perfect expression of any emotion.
+ - It is not always a matter of wild ovations and legendary performances. Sometimes you are just happy to get through an opera without trouble.
+ - Some say the word ‘pop’ is a derogatory word to say ‘not important’ – I do not accept that. If the word ‘classic’ is the word to say ‘boring,’ I do not accept. There is good and bad music.
+ - Opera is one of the most important art forms. It should be listened to and appreciated by everyone.
+ - Sometime to be called Pavarotti is not always an advantage.
+ - I’m not a politician, I’m a musician. I care about giving people a place where they can go to enjoy themselves and to begin to live again. To the man you have to give the spirit, and when you give him the spirit, you have done everything.
+ - It is a very honest world, our work. I think you cannot fake anything.
+ - People have a right to criticize.
+
+46 quotes

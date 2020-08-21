@@ -1,0 +1,102 @@
+ - Don’t count the days, make the days count. ~~Muhammad Ali
+ - Nothing will work unless you do. ~~Maya Angelou
+ - Life isn’t about finding yourself. Life is about creating yourself. ~~George Bernard Shaw
+ - Whatever you are, be a good one. ~~Abraham Lincoln
+ - Today a reader, tomorrow a leader. ~~Margaret Fuller
+ - The two most important days in your life are the day you are born and the day you find out why. ~~Mark Twain
+ - I have not failed. I’ve just found 10,000 ways that won’t work. ~~Thomas A. Edison
+ - If you love life, don’t waste time, for time is what life is made up of. ~~Bruce Lee
+ - Pain is inevitable. Suffering is optional. ~~Haruki Murakami
+ - Build your own dreams, or someone else will hire you to build theirs. ~~Farrah Gray
+ - Don’t wish it were easier. Wish you were better. ~~Jim Rohn
+ - Live as if you were to die tomorrow. Learn as if you were to live forever. ~~Mahatma Gandhi
+ - People will forget what you said, people will forget what you did, but people will never forget how you made them feel. ~~Maya Angelou
+ - I hated every minute of training, but I said, “Don’t quit. Suffer now and live the rest of your life as a champion.” ~~Muhammad Ali
+ - If you really want to do something, you’ll find a way. If you don’t, you’ll find an excuse. ~~Jim Rohn
+ - The greatest pleasure in life is doing what people say you cannot do. ~~Walter Bagehot
+ - It does not matter how slowly you go as long as you do not stop. ~~Confucius
+ - Do what you can, with what you have, where you are. ~~Theodore Roosevelt
+ - Try not to become a man of success. Rather become a man of value. ~~Albert Einstein
+ - First they ignore you, then they ridicule you, then they fight you, and then you win. ~~Mahatma Gandhi
+ - Discipline is the bridge between goals and accomplishment. ~~Jim Rohn
+ - The way to get started is to quit talking and start doing. ~~Walt Disney
+ - Knowledge is power. ~~Francis Bacon
+ - Do one thing every day that scares you. ~~Eleanor Roosevelt
+ - Life is like riding a bicycle. To keep your balance, you must keep moving. ~~Albert Einstein
+ - Intelligence is the ability to adapt to change.  ~~Stephen Hawking
+ - All things are difficult before they are easy. ~~Thomas Fuller
+ - Your time is limited, so don’t waste it living someone else’s life. ~~Steve Jobs
+ - Success is the sum of small efforts, repeated day in and day out. ~~Robert Collier
+ - Choose a job you love, and you will never have to work a day in your life. ~~Confucius
+ - When you want something, all the universe conspires in helping you to achieve it. ~~Paulo Coelho
+ - Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. ~~Earl Nightingale
+ - Anyone who has never made a mistake has never tried anything new. ~~Albert Einstein
+ - Don’t let the noise of others’ opinions drown out your own inner voice. ~~Steve Jobs
+ - Action is the foundational key to all success.  ~~Pablo Picasso
+ - Whether you think you can or you can’t, you’re right. ~~Henry Ford
+ - Either you run the day or the day runs you. ~~Jim Rohn
+ - Inspiration is for amateurs. The rest of us just show up and get to work. ~~Chuck Close
+ - When I'm old and dying, I plan to look back on my life and say, ‘Wow, that was an adventure,’ not, ‘Wow, I sure felt safe.’ ~~Tom Preston-Werner
+ - And those who were seen dancing were thought to be insane by those who could not hear the music. ~~Friedrich Nietzsche
+ - Don’t wait. The time will never be just right. ~~Napoleon Hill
+ - Success is not final, failure is not fatal: it is the courage to continue that counts. ~~Winston Churchill
+ - DO WHAT YOU CAN’T ~~Casey Neistat
+ - Your future is created by what you do today, not tomorrow. ~~Robert T. Kiyosaki
+ - Even dust, if piled up, will become a mountain. ~~Japanese Proverb
+ - The key is not to prioritize what’s on your schedule, but to schedule your priorities. ~~Stephen R. Covey
+ - Life is really simple, but we insist on making it complicated. ~~Confucius
+ - Action will destroy your procrastination. ~~Og Mandino
+ - You may never know what results come of your actions, but if you do nothing, there will be no results. ~~Mahatma Gandhi
+ - Strength does not come from winning. Your struggles develop your strengths. When you go through hardships and decide not to surrender, that is strength. ~~Arnold Schwarzenegger
+ - Someone's sitting in the shade today because someone planted a tree a long time ago. ~~Warren Buffett
+ - I fear not the man who has practiced 10,000 kicks once, but I fear the man who has practiced one kick 10,000 times. ~~Bruce Lee
+ - Go confidently in the direction of your dreams. Live the life you’ve imagined. ~~Henry David Thoreau
+ - Success is nothing more than a few simple disciplines, practiced every day. ~~Jim Rohn
+ - I am the master of my fate; I am the captain of my soul. ~~William Ernest Henley
+ - It’s not over until you win. ~~Les Brown
+ - The man who moves a mountain begins by carrying away small stones. ~~Confucius
+ - When we strive to become better than we are, everything around us becomes better, too. ~~Paulo Coelho
+ - Only I can change my life. No one can do it for me. ~~Carol Burnett
+ - Some people want it to happen, some wish it would happen, and others make it happen. ~~Michael Jordan
+ - I am not a product of my circumstances. I am a product of my decisions. ~~Stephen R. Covey
+ - Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. ~~Samuel Beckett
+ - In order to succeed, your desire for success should be greater than your fear of failure.  ~~Bill Cosby
+ - If you realized how powerful your thoughts are, you would never think a negative thought. ~~Peace Pilgrim
+ - Your life does not get better by chance, it gets better by change. ~~Jim Rohn
+ - It is in your moments of decision that your destiny is shaped. ~~Tony Robbins
+ - The most dangerous thing you can do in life is play it safe. ~~Casey Neistat
+ - Those who dare to fail miserably can achieve greatly. ~~John F. Kennedy
+ - Run when you can, walk if you have to, crawl if you must; just never give up. ~~Dean Karnazes
+ - What you seek is seeking you. ~~Rumi
+ - Be brave. Take risks. Nothing can substitute experience. ~~Paulo Coelho
+ - Not all who wander are lost. ~~J. R. R. Tolkien
+ - The biggest adventure you can ever take is to live the life of your dreams. ~~Oprah Winfrey
+ - What we fear doing most is usually what we most need to do. ~~Tim Ferriss
+ - To bring anything into your life, imagine that it’s already there. ~~Richard Bach
+ - There is only one thing that makes a dream impossible to achieve: the fear of failure. ~~Paulo Coelho
+ - The only person you are destined to become is the person you decide to be. ~~Ralph Waldo Emerson
+ - You don’t learn to walk by following rules. You learn by doing and falling over. ~~Richard Branson
+ - The time is always right to do the right thing. ~~Martin Luther King Jr.
+ - The way I see it, if you want the rainbow, you gotta put up with the rain. ~~Dolly Parton
+ - If you are not willing to risk the unusual, you will have to settle for the ordinary. ~~Jim Rohn
+ - I don't measure a man’s success by how high he climbs but how high he bounces when he hits bottom. ~~George S. Patton Jr.
+ - Adopt the pace of nature: her secret is patience. ~~Ralph Waldo Emerson
+ - You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. ~~Zig Ziglar
+ - Embrace the glorious mess that you are. ~~Elizabeth Gilbert
+ - Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all. ~~Dale Carnegie
+ - The few who do are the envy of the many who only watch. ~~Jim Rohn
+ - Eighty percent of success is showing up. ~~Woody Allen
+ - Setting goals is the first step in turning the invisible into the visible. ~~Tony Robbins
+ - Perfection is not attainable, but if we chase perfection we can catch excellence. ~~Vince Lombardi
+ - The best way out is always through. ~~Robert Frost
+ - To give anything less than your best is to sacrifice the gift. ~~Steve Prefontaine
+ - The brick walls are there for a reason. The brick walls are not there to keep us out. The brick walls are there to give us a chance to show how badly we want something. Because the brick walls are there to stop the people who don’t want it badly enough. They’re there to stop the other people. ~~Randy Pausch
+ - Effort only fully releases its reward after a person refuses to quit. ~~Napoleon Hill
+ - Our deepest fear is not that we are inadequate. Our deepest fear is that we are powerful beyond measure. It is our light, not our darkness that most frightens us. ~~Marianne Williamson
+ - Always be a first rate version of yourself and not a second rate version of someone else. ~~Judy Garland
+ - I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. ~~Og Mandino
+ - Perpetual optimism is a force multiplier. ~~Colin Powell
+ - Be a yardstick of quality. Some people aren’t used to an environment where excellence is expected. ~~Steve Jobs
+ - Between stimulus and response, there is a space. In that space is our power to choose our response. In our response lies our growth and our freedom. ~~Viktor E. Frankl
+
+100 quotes

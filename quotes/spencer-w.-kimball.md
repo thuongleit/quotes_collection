@@ -1,0 +1,146 @@
+ - Do it. Do it right. Do it right now.
+ - Love people, not things; use things, not people.
+ - Learn all you can. Growth comes from setting your goals high and reaching for the stars.
+ - Profanity is the effort of a feeble brain to express itself forcibly.
+ - God does watch over us and does notice us, but it usually through someone else that he meets our needs.
+ - We learn to do by doing.
+ - Dream beautiful dreams and then work to make those dreams come true.
+ - My life is like my shoes, worn out by service.
+ - Sin is the result of deep and unmet needs.
+ - The more we serve our fellowmen in appropriate ways, the more substance there is to our souls. We become more significant individuals as we serve others. We become more substantive as we serve others – indeed, it is easier to “find” ourselves because there is so much more of us to find!
+ - The time will come when only those who believe deeply and actively in the family will be able to preserve their families in the midst of the gathering evil around us.
+ - Humility is royalty without a crown.
+ - Preparedness, when properly pursued, is a way of life, not a sudden, spectacular program.
+ - The best way to resist temptation is to avoid it. Prevention is far, far better than repentance.
+ - As we give, we find that sacrifice brings forth the blessings of heaven, and in the end, we learn that it was no sacrifice at all.
+ - There are great challenges ahead of us, giant opportunities to be met. I welcome that exciting prospect and feel to say to the Lord, humbly, ‘Give me this MOUNTAIN,’ give me these challenges.
+ - Great women and men are always more anxious to serve than to have dominion.
+ - If you have not done so yet, decide to decide.
+ - Only when you lift a burden, God will lift your burden. Divine paradox this! The man who staggers and falls because his burden is too great can lighten that burden by taking on the weight of another’s burden. You get by giving, but your part of giving must be given first.
+ - Any excuse for non-performance, no matter how valid, weakens character.
+ - To be mediocre, when only application and diligence would have netted superiority, is an error akin to sin.
+ - Success is not measured in achievement of goals, but in the stress and strain of meeting those goals.
+ - Life gives to all the choice. You can satisfy yourself with mediocrity if you wish. You can be common, ordinary, dull, colorless, or yyou can channel your life so that it will be clean, vibrant, useful, progressive, colorful, and rich.
+ - Wherever you have a plot of land, however small, plant a garden. Staying close to the soil is good for the soul.
+ - The day obedience becomes a quest and not an irritation is the day you gain power.
+ - Home: The place to save society.
+ - We should be involved in quiet acts of selfless service.
+ - It is through repentance that the Lord Jesus Christ can work his healing miracle, infusing us with strength when we are weak, health when we are sick, hope when we are downhearted, love when we feel empty, and understanding when we search for truth.
+ - When one becomes conscious of his great humility, he has already lost it. When one begins boasting of his humility, it has already become pride-the antithesis of humility.
+ - Marriage can be more an exultant ecstasy than the human mind can conceive. This is within the reach of every couple, every person.
+ - Each of us has more opportunities to do good and to be good than we ever use.
+ - You women are daughters of God. You are precious. You are made in the image of our Heavenly Mother.
+ - To be a mother is a woman’s greatest vocation in life. She is a partner with God. No being has a position of such power and influence. She holds in her hands the destiny of nations, for to her comes the responsibility and opportunity of molding the nation’s citizens.
+ - Strength and struggle travel together.
+ - Do not make small goals because they do not have the magic to stir men’s souls.
+ - Modern idols or false gods can take such forms as clothes, homes, businesses, machines, automobiles, pleasure boats, and numerous other material deflectors...
+ - Sickness sometimes is a great blessing. People become angels through sickness.
+ - Goals are good. Laboring with a distant aim sets the mind in a higher key and puts us at our best.
+ - Make certain decisions only once.
+ - Time cannot be recycled. When a moment has gone, it is really gone. Wise time management is really wise management of ourselves.
+ - The difficulties and hazards of marriage are greatly increased where backgrounds are different.
+ - We are in a position, as musicians, to touch the souls of those who listen.
+ - Your faith will perform miracles, especially when you get your hands and feet involved.
+ - Preparedness, when properly pursued, is a way of life, not a sudden, spectacular program. We could refer to all the components of personal and family preparedness, not in relation to holocaust or disaster, but in cultivating a life-style that is on a day-to-day basis its own reward.
+ - We need to help those we seek to serve, to know for themselves that God not only loves them, but He is ever mindful of them and of their needs.
+ - If we live in such a way that the considerations of eternity press upon us, we will make better decisions. Perhaps this is why President Brigham Young once said that if he could do but one thing to bless the Saints, he believed it would be to give them eyes with which to see things as they are.
+ - Working toward perfection is not a one time decision but a process to be pursued throughout one’s lifetime.
+ - There is never a day in any mans life when repentance is not essential to his well being in eternal progress.
+ - Waste is unjustified, and especially the waste of time limited as that commodity is in our days of probation. One must live, not only exist; he must do, not merely be; he must grow, not just vegetate.
+ - I am not afraid of death. What I am afraid of is that I will meet the Saviour and He will say, ‘You could have done better’
+ - Real craftsmanship, regardless of the skill involved, reflects real caring, and real caring reflects our attitude about ourselves, about our fellowmen, and about life.
+ - Always keep good company. Never waste an hour with anyone who doesn’t lift you up and encourage you.
+ - The essence of the miracle of forgiveness is that it brings peace to the previously anxious, restless, frustrated, perhaps tormented soul.
+ - I believe in goals, but I believe that the individual should set his own. Goal setting should cause us to stretch as we make our way.
+ - Of all treasures of knowledge, the most vital is the knowledge of God, his existence, powers, love, and promises.
+ - Home life, home teaching, parental guidance is the panacea for all the ailments, a cure for all diseases, a remedy for all problems.
+ - One of the most fallacious doctrines originated by Satan and propounded by man is that man is saved alone by the grace of God; that belief in Jesus Christ alone is all that is needed for salvation.
+ - The leaven of true leadership cannot lift others unless we are with and serve those to be led.
+ - It is an act of extreme selfishness for a married couple to refuse to have children when they are able to do so.
+ - They who reach down into the depths of life where, in the stillness, the voice of God is heard, have the stabilizing power which carries them poised and serene through the hurricane of difficulties.
+ - Destroy the seed and the plant will never grow. Man alone, of all creatures of earth, can change his thought pattern and become the architect of his destiny.
+ - If joy and peace and rewards were instantaneously given the doer of good, there would be no evil-all would do good but not because of the rightness of doing good. There would be no test of strength, no development of character, no growth of powers, no free agency, only satanic controls.
+ - We ought to encourage our children to know their relatives. We need to talk of them, make effort to correspond with them, visit them, join family organizations, etc.
+ - It is in the doing that the real blessing comes. Do it! That’s our motto.
+ - I have learned that it is by serving that we learn how to serve. When we engaged in the service of our fellowmen, not only do our deeds assist them but we put our own problems in fresher perspective. When we concern ourselves more with others, there is less time to be concerned with ourselves.
+ - We must lengthen our stride and must do it now because we over ate and feel fat.
+ - Some of the greatest sermons that have ever been preached were preached by the singing of a song.
+ - Suffering can make saints of people as they learn patience, long-suffering and self-mastery.
+ - I am comforted by the assurance that there will be beautiful music in heaven, and for that I am most grateful.
+ - Procrastination-thou wretched thief of time and opportunity!
+ - Every divorce is the result of selfishness on the part of one or both parties to a marriage contract.
+ - How long has it been since you took your children, whatever their size, in your arms and told them that you love them and are glad that they can be yours forever?
+ - Peace, sweet peace finally comes to men when they humbly yield to the gentle pressure of the Spirit.
+ - We want you to be ready with your personal storehouses filled with at least a year’s supply. You don’t argue why it cannot be done; you just plan to organize and get it done.
+ - Marriage is perhaps the most vital of all the decisions and has the most far reaching effects...
+ - Now we ask you to clean up your homes we urge each of you to dress and keep in a beautiful state the property that is in your hands.
+ - We are not measured by the trials we meet – only by those we overcome.
+ - Your life is your own, to develop or to destroy. You can blame others little and yourself almost totally if that life is not a productive, worthy, full, and abundant one.
+ - Above all, I declare that Jesus Christ is the center of our faith; I testify to you that he lives. He leads his Church today; he hears our prayers when we humbly, earnestly, unceasingly seek to know his will, making this, too, a day of miracles and of revelation.
+ - We know so little. Our judgment is so limited. We judge the Lord’s ways from our own narrow view.
+ - I personally regard all of the houses of the Lord as the work of Jehovah, initiated by him, built by him, designed by him, and dedicated to him and his program.
+ - One can hardly help another to the top of the hill without climbing there himself.
+ - One of the best ways to celebrate righteous history is to make more of it, make more righteous history!
+ - When a defiled man is born again, his habits are changed, his thoughts cleansed, his attitudes regenerated and elevated, his activities put in total order, and everything about him that was dirty, degenerate or reprobate is washed and made clean.
+ - There is nothing unholy or degrading about sexuality in itself, for by that means men and women join in a process of creation and in an expression of love.
+ - In true marriage there must be a union of minds as well as of hearts. Emotions must not wholly determine decisions, but the mind and the heart, strengthened by fasting and prayer and serious consideration, will give one a maximum chance of marital happiness.
+ - I ask you, what good is a big picture window and the lavish appointments and a priceless decor in a home if there is no mother there?
+ - Music can act upon our senses to produce or induce feelings of reverence, humility, fervor, assurance, or other feelings attuned to the spirit of worship.
+ - Leadership is the ability to encourage the best efforts of others in working toward a desirable goal.
+ - Wherever women are true to their feminine natures and magnify their opportunities for loving service, they are learning to become more like God.
+ - I am convinced that each of us, at some time in our lives, must discover the scriptures for ourselves – and not just discover them once, but rediscover them again and again.
+ - And you fathers, are you so busy making a living, playing golf, bowling, hunting, that you do not have time to talk to your boys and hold them close to you and win their confidence? Or do you brush them off, so that they dare not come and talk about these things with you?
+ - Man is naturally a religious being. His heart instinctively seeks for God whether he reverences the sacred cow or prays to the sun or moon; whether he kneels before wood and stone images, or prays in secret to his Heavenly Father, he is satisfying an inborn urge.
+ - Language is like music; we rejoice in beauty, range, and quality in both, and we are demeaned by the repetition of a few sour notes.
+ - We pray for a generation of girls who will display their wit, their intelligence, their modest charm, their integrity, their loveliness rather than their bodies and their sexual possibilities.
+ - If men are really humble, they will realize that they discover, but do not create, truth.
+ - Do not pray to marry the one that you love, but to love the one that you marry.
+ - The nation is built upon the foundation of its homes and the home upon its families.
+ - We are on the whole an idolatrous people.
+ - Now is the time to set your life’s goals. Now is the time to set your standards firmly and then hold to them throughout your life.
+ - Why is it that some young folks are almost overly conscientious in their school work, even to neglecting their Church responsibilities, when the spiritual should have priority in the study time of every person if preference must be given? However, there is time for fulfilling every need.
+ - It frequently happens that offenses are committed when the offender is not aware of it. Something he has said or done is misconstrued or misunderstood. The offended one treasures in his heart the offense, adding to it such other things as might give fuel to the fire and justify his conclusions...
+ - We have always understood that the foundations of the family, as an eternal unit, were laid even before this earth was created! Society without basic family life is without foundation and will disintegrate into nothingness.
+ - To hold a testimony, one must bear it often and live worthy of it.
+ - The Lord’s way builds individual self esteem and develops and heals the dignity of the individual, whereas the world’s way depresses the individual’s view of himself and causes deep resentment.
+ - There are many upright and faithful who live all the commandments and whose lives and prayers keep the world from destruction.
+ - Do it.
+ - Racial prejudice is of ignorance. There is no place for it...
+ - There isn’t anything else more important than taking the gospel to the world.
+ - What are we to fear when the Lord is with us? Can we not take the Lord at his word and exercise a particle of faith in him?
+ - Man can be literally transformed by his own repentance and by God’s gift of forgiveness.
+ - Impoverished is the life fenced in with few friends.
+ - One of Satan’s sharpest tools is alcohol, for it blinds and deafens, numbs and manacles, impoverishes and maims, and kills unfortunate victims.
+ - Failure to plan brings barrenness and sterility. Fate brushes man with its wings, but we make our own fate largely.
+ - What relief! What comfort! What joy! Those laden with transgressions and sorrows and sin may be forgiven and cleansed and purified if they will return to their Lord, learn of him, and keep his commandments.
+ - Every Latter-day Saint should sustain, honor, and obey the constitutional law of the land in which he lives.
+ - If you are going to err, err on the side of mercy.
+ - Develop discipline of self so that you do not have to decide and re-decide what you will do when you are confronted with the same temptation time and time again. You need only decide some things once.
+ - We are greatly conscious of the fact that among the Lamanites – as well as among all peoples of other countries – we have a responsibility to see that the gospel touches their hearts and minds and that they understand it.
+ - We can make our houses homes and our homes heavens.
+ - I believe that the telephone and telegraph and other such conveniences were permitted by the Lord to be developed for the express purpose of building the kingdom. Others may use them for business, professional or other purposes, but basically they are to build the kingdom.
+ - One of the most serious human defects in all ages is procrastination, an unwillingness to accept personal responsibilities now.
+ - By one means or another, the swiftest method of rejection of the holy prophets has been to find a pretext, however false or absurd, to dismiss the man so that his message could also be dismissed.
+ - They who get off on tangents and ride hobby horses to death are they who become fanatic. Let them understand that they must be tolerant of others faults but never accept as justifiable their own.
+ - Young men do not usually become inactive in the Church because they are given too many significant things to do.
+ - Let no family go into eternity without having left their memoirs for their children, their grandchildren, and their posterity.
+ - A true Latter–day Saint family is a haven against the storms and struggles of life.
+ - Peace of mind, joy and happiness cannot be purchased with money or worldly goods.
+ - The more we are guided by eternal considerations in our conduct, the better we will manage our mortality.
+ - To be sure your life will be full and abundant, you must plan your life.
+ - The more we serve our fellowmen in appropriate ways, the more substance there is to our souls.
+ - Sin comes when communication lines are down – it always does, sooner or later.
+ - True repentance does not permit repetition.
+ - Goals should always be made to a point that will make us reach and strain.
+ - How could a person possibly become what he is not thinking? Nor is any thought, when persistently entertained, too small to have its effect. The ‘divinity that shapes our ends’ is indeed ourselves.
+ - If we live in such a way that the considerations of eternity press upon us, we will make better decisions.
+ - Success should not necessarily be gauged by always reaching the goal set, but by progress and attainment.
+ - In the kingdom, the greater our responsibilities, the greater is our need to see ourselves as servants.
+ - There is no doubt that the life one leads, and the thoughts one thinks are registered plainly in his face.
+ - No amount of rationalizing can change God’s laws. No amount of fashion designing can turn immodesty into virtue, and no amount of popularity can change sin into righteousness.
+ - No government may remain strong by ignoring the commandments given to Moses on Mount Sinai.
+ - It is not so much what we know that is important, as what we are and what we do.
+ - The only way we can keep our freedom is to work at it. Not some of us. All of us. Not some of the time, but all of the time.
+ - O timid one, awaken, exert yourself, draw back the curtains your training and background have hung over the windows of your soul.
+
+144 quotes

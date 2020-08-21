@@ -1,0 +1,56 @@
+ - You only cry for help if you believe there is help to cry for.
+ - Confidence is at the root of so many attractive qualities, a sense of humor, a sense of style, a willingness to be who you are no matter what anyone else might think or say...
+ - Michael Scofield is someone everyone can relate to, but nobody would want to be in his shoes.
+ - I have very high expectations of myself. I’m a very competitive person but competitive with myself. I want to be the best that I can be and if that means that I’m eventually better than everyone else then so be it.
+ - You have to love what you do, and you have to need it like you need air. And there’s nothing else that would give me the same degree of satisfaction as acting, which is why I can’t walk away from it.
+ - There’s so much we can’t express in our day-to-day interaction with people because it’s considered inappropriate. And acting is all about being inappropriate.
+ - Entertainers are there to entertain. They aren’t there to teach your children the lessons that you haven’t bothered to teach them at home yourself.
+ - I’m neither sexy nor a star.
+ - I feel extremely lucky, extremely grateful, and a little bittersweet, too.
+ - Nobody’s ever asked me to pay for a meal before I’ve eaten it, I’ve never been pulled over just because I was driving the wrong kind of car in the wrong kind of area at the wrong time of night.
+ - I had a brief experience in the food industry. I was a bus boy in a Mexican restaurant in Arizona, scraping re-fried beans off people’s plates. It teaches you a bit of humility and the importance of a good deodorant.
+ - Unfortunately, I’m allergic to all animals and even some people.
+ - I spend my weekends sleeping and watching DVDs, and eating at restaurants within a 2-block radius of my apartment.
+ - My character in ‘Prison Break’ needs to be formidable. In reality, I’m not very tough at all.
+ - I’m pretty much a couch potato.
+ - There’ll be moments when I’m out in the prison yard, chatting with the cast and the crew, getting ready to shoot a scene. And then I’ll remember if I were actually an inmate, I’d only be out there an hour. The other 23 hours of the day, I’d be in my cell. It’s kind of a downer.
+ - I’m kind of a dork. I don’t have much game. I’m not particularly comfortable in bars or clubs. I much prefer being home playing Scrabble, having dinner with a couple friends, going to see a movie, or losing a whole weekend to Season 14 of Law and Order or The Simpsons.
+ - I’m hoping that what I am or what I’m not ethnically doesn’t limit me in anyone else’s eyes. I guarantee you it doesn’t in mine.
+ - I have my own personal wish list.
+ - I had my one guest star on The Flash, and that became several guest stars, and then they mentioned this new show.
+ - Four months of preparation and about 12 hours of shooting turned into about 30 seconds of screen time.
+ - Prison Break is so far-fetched, I had to make viewers believe that Michael is capable of making the impossible possible.
+ - You’re confronted with the quandary: do I grind things to a halt? Ideally you would, but I have better things to do than educate people.
+ - An actor’s job is to embrace emotions and situations that in real life we spend all of our time running away from.
+ - To be honest, I find going out pretty scary and intimidating. Got all those people checking you out, with only one purpose: hooking up. I’m quite the dork, I’d rather sit home and play Scrabble. But that doesn’t get you a girl, does it?
+ - I think that’s the beauty of the current setup, is that Legends is meant to be a bit of a revolving door.
+ - A great book provides escapism for me. The artistry and the creativity in a story are better than any drugs.
+ - Everyone has their challenges.
+ - I think it’s necessary when you’re dealing with a dark show that has explosion and violence to have defined moments of lightness and humor, even romance. It’s important, and it deepens the character, of course.
+ - When I got to college, acting suddenly seemed like a very risky proposition and all my friends were going to law school or med school or Wall Street.
+ - I’m very pleased with being a part of the Bean Pole family. It’s a relationship that makes sense to me. I’m very pleased to have my name associated with Bean Pole Jeans.
+ - On Flash, I thought of myself as a spice character; come in, do a little dance, and I go.
+ - I worked with the same trainer that worked with Denzel Washington in THe Hurricane. It was three months of training, five days a week, 4 to 5 hours a day. This was followed by a month of choreography.
+ - You develop a lot of scars, being interracial.
+ - I hadn’t worked for a year when I had my Prison Break audition and it was the easiest audition I’ve ever had. I got the script on Friday, went to the audition on Monday and got the part on Tuesday. I was shooting the pilot a week later. I didn’t have time to be nervous – it happened so quickly.
+ - It’s very much a back and forth conversation between the fans and the writers, between the writers and the powers that be. Their opinions, especially when expressed online or via correspondence, are important and are taken into consideration.
+ - I feel as though we’re living in a time where there is very little distinction paid between the personal and the professional.
+ - I’ve been spared to a large extent the business end of the race stick.
+ - I’ve never seen American Idol but I am grateful to them. That show is one of Fox’s biggest moneymakers, and some of that money goes to pay for shows like Prison Break. Simon Cowell’s been signing my paychecks and for that I say thanks.
+ - My definition of cool is finding your own definition of cool and not necessarily taking your lead from what other people tell you or from what you might read from magazines or see on TV.
+ - I think ultimately that’s why the audience will tune in longterm, for the characters and the relationships.
+ - This role is more visible, and I grew up without a lot of that sort of modeling so I’m relieved and proud to have done this film.
+ - I didn’t come to Hollywood to get on magazine covers or start my Porsche collection or to enjoy that kind of lifestyle, to go to the right parties and meet the right people.
+ - My father is black and my mother is white. Therefore, I could answer to either, which kind of makes me a racial Lone Ranger, caught between two communities.
+ - I want to aspire to something like what Denzel Washington does, which is try to find scripts written for white actors – or Jodie Foster, who reads scripts for male actors.
+ - If I were to wait only for roles that clarify my racial makeup, I’d be waiting for a very, very long time.
+ - I broke my nose in gym when a ball hit me. I took a girl to her debutante ball the next week wearing a tux and a big, honking bandage. Not the romantic night she had in mind.
+ - In my career as an actor, there is a catchphrase that Scofield always says often in regards to his brother, ‘Have a little faith.’ In my own career as an actor, there were times when I was the only one who believed in myself in the face of the odds.
+ - My family put a lot of emphasis on homework, so there weren’t too many comic books or video games for me, when I was growing up.
+ - It’s the way the business works, you’re not just an actor, you’re a diplomat and a publicist and a politician, and there are certain expectations.
+ - It was just expected that I would go to college. Both my parents are teachers and they tolerated acting, but I was going to go to a school of quality or bust. Which made my downshifting back to acting afterward a little difficult.
+ - A racial community provides not only a sense of identity, that luxury of looking into another’s face and seeing yourself reflected back, but a sense of security and support.
+ - My encounters with racism are sort of second-hand situations where I might be standing around with a group of white friends and someone makes a comment that they wouldn’t make at my family reunion.
+ - I think what you learn, working on a film or TV set, is how to tune certain things out. You’ve got 60-100 people swirling around you, each of them with a very important job to do.
+
+54 quotes

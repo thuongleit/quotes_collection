@@ -1,0 +1,26 @@
+ - Everybody, everybody wants to be loved.
+ - I love you more than I could ever promise because you take me the way I am.
+ - Happy is the Heart that still feels Pain.
+ - If you wait for someone else’s hand, you will surely fall down.
+ - My mother passed away, my marriage ended, and I moved. Those are some pretty big things to let go of. But I find that if you hold on to something too tightly, you strangle it and yourself. If you don’t let go, and let things go through you, it’s toxic – physically.
+ - All the broken hearts in the world still beat.
+ - I didn’t grow up in a naked household, but nudity was not a taboo thing. My mother was an artist and there were naked sculptures and paintings all over the place.
+ - Music to me is something that I didn’t choose; it was a necessity. I grew up with music, my father is a musician. It makes me happy; it makes people happy.
+ - I think just letting go is a really good thing to do in many areas of your life, songwriting included.
+ - What you see online isn’t real. How many likes you get on Instagram doesn’t have any bearing on how good of a person you are, how good your heart is. It’s all for fun; it shouldn’t affect you so deeply.
+ - Maybe I think you’re cute and funny. Maybe I wanna do what bunnies do with you, if you know what I mean.
+ - With Twitter and Instagram and all of these vehicles where fans can directly interact with you and get your attention, there’s a little bit of an entitlement. Like, “Why won’t you follow me or write me back?” Well, if I write you back, then I have to write everyone back.
+ - When I said I was born a feminist, I was born thinking woman are equal to men, if not stronger than men. That’s the way I always was.
+ - It should be like a driver’s license – no one can have an Instagram until they’re 18. It’s the wild, wild west, the internet.
+ - Being in a room with other people’s energy yields such a different result. I love writing by myself still, but there’s something amazing about sharing that experience with someone else.
+ - Sometimes to move forward you have to let go. I figured that out through opening myself up, allowing people into my creative process. It allowed me to write songs that surprised me, and in fact, inspired me.
+ - I think kids who have music in their lives are more focused. They have better attention spans. They excel more in their studies. They have a better sense of self-esteem and self-worth.
+ - The older I get, the more I realize I’m becoming people’s role models and that’s freaky to me. That’s not what you intend to do when you set out to be a musician, to be a little 14-year-old’s role model.
+ - For as long as we can trace back human life, there’s always been some sort of music – ceremonies, rituals. It’s part of the human makeup.
+ - There’s something about having an artistic outlet that is so important to the human mind and development. It’s as important as any other subject in school. I think it should be mandatory. It’s part of our genetic makeup.
+ - That sounds really simplistic, but if I’m in an enclosed space, or my apartment, and I live very close to a park – there’s something about being outside and being near things that are green.
+ - I try to keeps things pretty light, try to make people laugh. I find it difficult to keep trying to promote myself. I know that’s the whole point of it, to promote my music, but I like to use it to be funny and silly.
+ - I’ve never been one to get up on a soapbox and preach. I just live my life the way I live my life.
+ - When you’re writing with someone else it helps you think of things you never would’ve thought of.
+
+24 quotes

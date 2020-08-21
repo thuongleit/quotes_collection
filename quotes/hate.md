@@ -1,0 +1,42 @@
+ - Be patient and tough; someday this pain will be useful to you. ~~Ovid
+ - When you complain, you make yourself a victim. Leave the situation, change the situation, or accept it. All else is madness. ~~Eckhart Tolle
+ - Maybe they hate me because I’m too good! ~~Cristiano Ronaldo
+ - Beat me, hate me, you can never break me. ~~Michael Jackson
+ - Don’t associate yourself with toxic people. It’s better to be alone and love yourself than surrounded by people that make you hate yourself. ~~Robin Williams
+ - Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. ~~Stephen King
+ - It’s so easy to laugh It’s so easy to hate It takes guts to be gentle and kind. ~~Steven Morrissey
+ - Don’t hate what you don’t understand! ~~John Lennon
+ - This is a subtle truth. Whatever you love, you are. ~~Rumi
+ - I have so much that I want to do. I hate wasting time. ~~Stephen Hawking
+ - Trying to get everyone to like you is a sign of mediocrity. ~~Colin Powell
+ - Fear is the path to the dark side. Fear leads to anger. Anger leads to hate. Hate leads to suffering. ~~George Lucas
+ - Elegance is when the inside is as beautiful as the outside. ~~Coco Chanel
+ - The further a society drifts from truth the more it will hate those who speak it. ~~George Orwell
+ - Never value anything as profitable to thyself which shall compel thee to break thy promise, to lose thy self-respect, to hate any man, to suspect, to curse, to act the hypocrite, to desire anything which needs walls and curtains. ~~Marcus Aurelius
+ - Your heart and my heart are very, very old friends. ~~Hafez
+ - Just because you are embarrassed to admit that you’re still living the consequences of bad decisions made 5, 10, 20 years ago shouldn’t stop you from making good decisions now. If you let pride stop you, you will hate life 5, 10, and 20 years from now for the same reasons. ~~Tim Ferriss
+ - Some say the world will end in fire, Some say in ice. From what I’ve tasted of desire, I hold with those who favor fire. But if it had to perish twice I think I know enough of hate To say that for destruction ice Is also great And would suffice. ~~Robert Frost
+ - The world is a fine place and worth the fighting for and I hate very much to leave it. ~~Ernest Hemingway
+ - I’m motivated by fear. Fear of fear. I hate being scared to do something. And I think what developed in my early days was the attitude that I started attacking things that I was scared of. ~~Will Smith
+ - Heal the world! Stop the hate. Lend a helping hand to those in need. ~~Michael Jackson
+ - When I was young I used to have this thing where I wanted to see everything I used to think ‘How can I die without seeing every inch of this world?’ ~~Leonardo DiCaprio
+ - The hijrah to Allah includes abandoning what He hates and doing what He loves and accepts. ~~Ibn Qayyim Al-Jawziyya
+ - Just say yes and you’ll figure it out afterwards. ~~Tina Fey
+ - I don’t care what you say, so don’t even speak. ~~Lil Wayne
+ - Love me or hate me. It’s one or the other. Always has been. Hate my game, my swagger. Hate my fadeaway, my hunger. Hate that I’m a veteran, a champion. Hate that. Hate it with all your heart. And hate that I’m loved for the exact same reasons. ~~Kobe Bryant
+ - I have one problem, I don’t hate people. They disgust me and I want to get away from them. I do not have hatred. I have an escape mechanism. ~~Charles Bukowski
+ - I don’t care if a reader hates one of my stories, just as long as he finishes the book. ~~Roald Dahl
+ - I have found out that there ain't no surer way to find out whether you like people or hate them than to travel with them. ~~Mark Twain
+ - People must learn to hate and if they can learn to hate, they can be taught to love. ~~Nelson Mandela
+ - There’s no such thing as a kid who hates reading. There are kids who love reading, and kids who are reading the wrong books. ~~James Patterson
+ - There are not one hundred people in the United States who hate The Catholic Church, but there are millions who hate what they wrongly perceive the Catholic Church to be. ~~Fulton J. Sheen
+ - I do like to hit people-I like the explosion of power and energy, and the feeling that I am untouchable because I can hurt people. But I hate that part of myself, because it is the part of me that is the most broken. ~~Veronica Roth
+ - Between what is said and not meant, and what is meant and not said, most of love is lost. ~~Khalil Gibran
+ - In a world filled with hate, we must still dare to hope. In a world filled with anger, we must still dare to comfort. In a world filled with despair, we must still dare to dream. And in a world filled with distrust, we must still dare to believe. ~~Michael Jackson
+ - Jealousy is just love and hate at the same time. ~~Drake
+ - I have a very strong feeling that the opposite of love is not hate – it’s apathy. It’s not giving a damn. ~~Leo Buscaglia
+ - Indifference is the strongest force in the universe. It makes everything it touches meaningless. Love and hate don't stand a chance against it. ~~Joan D. Vinge
+ - I have never encountered a winner that held hate towards something. ~~Conor McGregor
+ - Insecurity is an ugly thing. It makes you hate people you don’t even know. ~~Drake
+
+40 quotes

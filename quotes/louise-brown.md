@@ -1,0 +1,23 @@
+ - Never give up. And most importantly, be true to yourself. Write from your heart, in your own voice, and about what you believe in.
+ - If you can’t return a favor, pass it on.
+ - Don’t call ’em dogs. Dogs are loyal and they run after balls.
+ - I can’t pick out one single book that had such a profound personal impact.
+ - The richest most meaningful stories are found in small places: made, carried, crafted, told, and retold by apparently unimportant people.
+ - Remember that what you have is unique because it’s your own special way of looking at the world.
+ - I could write an entertaining novel about rejection slips, but I fear it would be overly long.
+ - The importance and influence of books on me has been cumulative: the result of hearing and reading lots of stories about interesting people and places.
+ - I’m working on a nonfiction book on Nepal and a novel about diasporas.
+ - Reading is my greatest luxury.
+ - Much of my reading time over the last decade and a half has been spent reading aloud to my children. Those children’s bedtime rituals of supper, bath, stories, and sleep have been a staple of my life and some of the best, most special times I can remember.
+ - I bought a selection of short, romantic fiction novels, studied them, decided that I had found a formula and then wrote a book that I figured was the perfect story. Thank goodness it was rejected.
+ - I have a good collection of cookery books. This is not so much because I like cooking, but because I like eating.
+ - The young women in my classes are feisty and clever and believe, often with the passion of youthful optimism, that feminism is a battle already won. I worry for them – and for my daughters, too.
+ - I used to think about how I was conceived quite a lot when I was about 10 or 11, but I don’t think about it at all now that so many other babies have been born in the same way.
+ - I don’t envy men and I certainly wouldn’t like to become one now.
+ - I thought it was something peculiar to me. I thought I was abnormal.
+ - Don’t write the book you think publishers want to commission. Plenty of other writers will be doing the same thing.
+ - I like many types of music and probably too many to mention here.
+ - People still come up to me and ask whether I am Louise Brown or if they’ve seen me somewhere else before.
+ - When I was a child and teenager I read whenever I had the opportunity, but since then I’ve found it hard to read as much as I’d like, children, work, and pets all providing powerful incentives to escape into a book and a practical reason why I rarely do so.
+
+21 quotes

@@ -1,0 +1,88 @@
+ - Books are the carriers of civilization. Without books, history is silent, literature dumb, science crippled, thought and speculation at a standstill.
+ - Books are humanity in print.
+ - Wisdom – meaning judgment acting on experience, common sense, available knowledge, and a decent appreciation of probability.
+ - Every successful revolution puts on in time the robes of the tyrant it has deposed.
+ - The power to command frequently causes failure to think.
+ - Above all, discard the irrelevant.
+ - More than a code of manners in war and love, Chivalry was a moral system, governing the whole of noble life...
+ - To be right and overruled is not forgiven to persons in responsible positions.
+ - Human behavior is timeless.
+ - One must stop conducting research before one has finished. Otherwise, one will never stop and never finish.
+ - In the United States we have a society pervaded from top to bottom by contempt for the law.
+ - The reality of a question is inevitably more complicated than we would like to suppose.
+ - To gain victory over the flesh was the purpose of fasting and celibacy, which denied the pleasures of this world for the sake of reward in the next.
+ - Honor wears different coats to different eyes.
+ - War is the unfolding of miscalculations.
+ - For belligerent purposes, the 14th century, like the 20th, commanded a technology more sophisticated than the mental and moral capacity that guided its use.
+ - The fleet sailed to its war base in the North Sea, headed not so much for some rendezvous with glory as for rendezvous with discretion.
+ - Business, like a jackal, trotted on the heels of war.
+ - Nothing is more satisfying than to write a good sentence.
+ - The writer’s object is – or should be – to hold the reader’s attention.
+ - The poets have familiarized more people with history than have the historians...
+ - For most people reform meant relief from ecclesiastical extortions.
+ - The appetite for power is old and irrepressible in humankind, and in its action almost always destructive.
+ - The story and study of the past, both recent and distant, will not reveal the future, but it flashes beacon lights along the way and it is a useful nostrum against despair.
+ - I ask myself, have nations ever declined from a loss of moral sense rather than from physical reasons or the pressure of barbarians? I think that they have.
+ - Friendship of a kind that cannot easily be reversed tomorrow must have its roots in common interests and shared beliefs.
+ - For me, the card catalog has been a companion all my working life. To leave it is like leaving the house one was brought up in.
+ - The muffled tongue of Big Ben tolled nine by the clock as the cortege left the palace, but on history’s clock it was sunset, and the sun of the old world was setting in a dying blaze of splendor never to be seen again.
+ - To be a bestseller is not necessarily a measure of quality, but it is a measure of communication.
+ - Dead battles, like dead generals, hold the military mind in their dead grip.
+ - To a historian libraries are food, shelter, and even muse. They are of two kinds: the library of published material, books, pamphlets, periodicals, and the archive of unpublished papers and documents.
+ - Nothing so comforts the military mind as the maxim of a great but dead general.
+ - When truth and reason cannot be heard, then must presumption rule.
+ - Words are seductive and dangerous material, to be used with caution.
+ - To put on the garment of legitimacy is the first aim of every coup.
+ - The better part of valor is to spend it learning to live with differences, however hostile, unless and until we can find another planet.
+ - I want the reader to turn the page and keep on turning to the end.
+ - Diplomacy means all the wicked devices of the Old World, spheres of influence, balances of power, secret treaties, triple alliances, and, during the interim period, appeasement of Fascism.
+ - Nothing sickens me more than the closed door of a library.
+ - We seem to be afflicted by a widespread and eroding reluctance to take any stand on any values, moral, behavioral or esthetic.
+ - When the gap between ideal and real becomes too wide, the system breaks down.
+ - In individuals as in nations, contentment is silent, which tends to unbalance the historical record.
+ - What his imagination is to the poet, facts are to the historian. His exercise of judgment comes in their selection, his art in their arrangement.
+ - Completeness is rare in history...
+ - Belgium, where there occurred one of the rare appearances of the hero in history, was lifted above herself by the uncomplicated conscience of her King and, faced with the choice to acquiesce or resist, took less than three hours to make her decision, knowing it might be mortal.
+ - Christianity in its ideas was never the art of the possible.
+ - No more distressing moment can ever face a British government than that which requires it to come to a hard, fast and specific decision.
+ - The Germans could not get over the perfidy of it. It was unbelievable that the English, having degenerated to the stage where suffragettes heckled the Prime Minister and defied the police, were going to fight.
+ - A phenomenon noticeable throughout history regardless of place or period is the pursuit by governments of policies contrary to their own interests.
+ - The unrecorded past is none other than our old friend, the tree in the primeval forest which fell without being heard.
+ - One constant among the elements of 1914 – as of any era – was the disposition of everyone on all sides not to prepare for the harder alternative, not to act upon what they suspected to be true.
+ - Historians who stuff in every item of research they have found, every shoelace and telephone call of a biographical subject, are not doing the hard work of selecting and shaping a readable story.
+ - No less a bold and pugnacious figure than Winston Churchill broke down and was unable to finish his remarks at the sendoff of the British Expeditionary Force into the maelstrom of World War I in Europe.
+ - An essential element for good writing is a good ear: One must listen to the sound of one’s own prose.
+ - When people don’t have an objective, there’s much less dynamic effort, and that makes life a lot less interesting.
+ - Disaster is rarely as pervasive as it seems from recorded accounts. The fact of being on the record makes it appear continuous and ubiquitous whereas it is more likely to have been sporadic both in time and place.
+ - If wisdom in government eludes us, perhaps courage could substitute-the moral courage to terminate mistakes.
+ - Confronted by menace, or what is perceived as menace, governments will usually attempt to smash it, rarely to examine it, understand it, define it.
+ - Money was the crux. Raising money to pay the cost of war was to cause more damage to 14th century society than the physical destruction of war itself.
+ - Learning from experience is a faculty almost never practiced.
+ - Fateful moments tend to evoke grandeur of speech, especially in French.
+ - That conflict between the reach for the divine and the lure of earthly things was to be the central problem of the Middle Ages.
+ - The social damage was not in the failure but in the undertaking, which was expensive. The cost of war was the poison running through the 14th century.
+ - Government remains the paramount area of folly because it is there that men seek power over others – only to lose it over themselves.
+ - I have always been in a condition in which I cannot not write.
+ - Strong prejudices in an ill-formed mind are hazardous to government, and when combined with a position of power even more so.
+ - Human beings of any age need to approve of themselves; the bad times in history come when they cannot.
+ - No nation in the world has so many drastic problems squeezed into so small a space, under such urgent pressure of time and heavy burden of history, as Israel.
+ - If it is not profitable for the common good that authority should be retained, it ought to be relinquished.
+ - Russians, in the knowledge of inexhaustible supplies of manpower, are accustomed to accepting gigantic fatalities with comparative calm.
+ - Governments do not like to face radical remedies; it is easier to let politics predominate.
+ - The conduct of war was so much more interesting than its prevention.
+ - If all were equalized by death, as the medieval idea constantly emphasized, was it not possible that inequalities on earth were contrary to the will of God?
+ - Voluntary self-directed religion was more dangerous to the Church than any number of infidels.
+ - The costliest myth of our time has been the myth of the Communist monolith.
+ - The fact of being reported increases the apparent extent of a deplorable development by a factor of ten.
+ - To put away one’s own original thoughts in order to take up a book is a sin against the Holy Ghost.
+ - Whatever solace the Christian faith could give was balanced by the anxiety it generated.
+ - Human beings, like plans, prove fallible in the presence of those ingredients that are missing in maneuvers – danger, death, and live ammunition.
+ - If I had taken a doctoral degree, it would have stifled any writing capacity.
+ - Theology being the work of males, original sin was traced to the female.
+ - In the midst of events there is no perspective.
+ - Reasonable orders are easy enough to obey; it is capricious, bureaucratic or plain idiotic demands that form the habit of discipline.
+ - Rome had Caesar, a man of remarkable governing talents, although it must be said that a ruler who arouses opponents to resort to assassination is probably not as smart as he ought to be.
+ - Arguments can always be found to turn desire into policy.
+ - To a historian libraries are food, shelter, and even muse.
+
+86 quotes

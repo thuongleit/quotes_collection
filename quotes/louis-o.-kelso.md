@@ -1,0 +1,40 @@
+ - The sole missing link is the recognition that the acquisition of capital ownership by the millions is an indispensable goal. That is the turning point – our recognition of the proper goal.
+ - Property in everyday life, is the right of control.
+ - Most of us owe instead of own. And the less the economy needs our labor, the less able we are to “save” our way to capital ownership.
+ - Political power without economic power is sterile.
+ - There is no future for those who cannot or will not think.
+ - Everyone should own a piece of the wealth-producing capital of this country, but not everyone can be a manager. Or should be.
+ - If capital produces most of the economy’s wealth and income is distributed on the basis of productive input, the individual can hardly reach his goal – an affluent level of income – solely by means of his labor.
+ - Take Milton Friedman, he sits at his desk pontificating about such bunk as the monetary system being the answer to our problems. The monetary system is a legal contrivance. Property, not money, is real wealth. It’s physical, not legal.
+ - The scarcity that afflicts the world is not the fault of either science or nature. The cause is defective economic institutions which abort technology’s affluence producing potential.
+ - When capital owners are few, the private-property conduits of necessity create vast savings reservoirs for those few. If there were many owners, the same conduits would broadly irrigate the economy with purchasing power.
+ - Our present predicament comes from the fact that running the economy on blood is no longer fashionable. We can’t end this depression with another war.
+ - The poor lack money. They lack money because they do not know the secret of productive wealth. They know it is possible to be old, unemployed, uneducated, lazy – even halt, deaf, dumb, and blind-and still be excessively rich. But you have to be in on the secret, and the poor by definition are not.
+ - Equality of economic opportunity, in the context of private property, means equality of opportunity for the millions of capital-less households of today to buy, pay for, and employ in their lives the non-human factor of production, capital.
+ - The totalitarian toil-state originates in the propertylessness of the majority.
+ - Full employment is a socially hazardous goal. In effect, it aspires to restore through political expedients the pre-industrial state of toil that science, engineering, technology and modern management are pledged to overcome.
+ - No Keynesian has ever proposed a measure designed to make the individual more productive; for that would require institutional means for enabling him to acquire ownership of the nonhuman factor of production: capital.
+ - It is the institutions of society, not parental genes, that bestow the blessings of ownership of productive capital.
+ - The first principle of economic symmetry: building the economic power to consume simultaneously with the industrial power to produce.
+ - If we functionally define a capitalist household as one that receives at least half of the annual income it spends on consumption in the form of return on invested capital, less than 1 percent of United States households are capitalists.
+ - Technology plows through history at an accelerating rate, shifting the burden of production off labor into the nonhuman factor because man uses his highest ingenuity to avoid servile labor.
+ - While no inference is intended here, it is worth noting, in connection with Milton Friedman’s comment that “Kelso just turned Marx upside down,” that it is not necessarily amiss to turn a fellow upside down if that in fact straightens out his thinking.
+ - The one important distinction between the two factors of production is that in a free society, ownership of the human factor, labor, cannot be concentrated while ownership of the non-human factor, capital, can be.
+ - The uneasy ghost of Marx must suffer the torments of the damned at the truth glaring from the pages of history that one does not abolish property by transferring it to the state.
+ - The point is to make the pie grow faster and distribute the new growth more equitably.
+ - The sooner the world solves its economic problems, the sooner its inhabitants can afford leisure and peace and get on with the non-material things that are inherently important: the work of mind and spirit that is gloriously and uniquely human, the work that no machine can ever do.
+ - People are hungering for property – for a secure, permanent and independent link with spaceship earth that ownership represents and which only ownership can protect or defend. It is humiliating to possess nothing, to own nothing, and hence to produce nothing and to count for nothing.
+ - The rising productivity of labor is a myth, a statistical illusion created by measuring combined output in terms of labor input.
+ - We have an economic policy that is just about 10,000 years out of date.
+ - That which is inherently nonfinanceable is financed. That which is inherently financeable is not financed. And the illogic of poverty amidst eagerness and ability to produce plenty goes on.
+ - Labor is the source of subsistence, capital is the source of affluence. My idea is to make everyone a capitalist, and therefore, financially secure.
+ - I’m a secret nonmember of the establishment. This isn’t a grubby kind of revolution I’m talking about. This isn’t Che Guevara stuff. I don’t want to live on berries in the woods – I don’t think anybody does.
+ - The owners of labor, on the other hand, are being taught, by the most powerful and well-publicized examples, that the highest rewards are not for production, but for the employment of organized power to take over a share of what others produce.
+ - The way the system now works, credit is extended to those who don’t need it and denied to those who are in desperate need of it.
+ - Hard-core structural poverty has a counterpart at the apex: hard-core structural affluence.
+ - The political objective of universal capitalism is maximum individual autonomy, the separation of political power wielded by the holders of public office from economic power held by citizens, and the broad diffusion of privately owned economic power.
+ - Technology has no function except to save labor. Yet how often do we hear that the purpose of new capital formation is to create jobs?
+ - Had Marx understood the implications of the principles of capitalistic distribution which presented themselves to him as “appearances” only, he might have become a revolutionary capitalist instead of a revolutionary socialist.
+ - The idea that full employment without property ownership will solve the world’s problems is utter nonsense. The Keynesian concept that the function of capital is merely to amplify labor, not independently produce wealth is simply blindness.
+
+38 quotes

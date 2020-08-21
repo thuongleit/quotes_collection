@@ -1,0 +1,59 @@
+ - Be honest with yourself and lie to everyone else.
+ - We made 16 episodes of Cracker and I loved doing the show, but unfortunately no one was watching us.
+ - I admire when people take the harder path, not because they are masochistic and want to beat themselves up, but because you actually kind of learn more and I think you grow more.
+ - Ever since Poltergeist terrified me when I was 12, I can’t watch horror films, I’m a real wuss.
+ - You know, I’m not really any good at working out when people are flirting with me. And I think I’m too flirtatious with people I’m trying not to flirt with! What I am good at is making people feel uncomfortable. I don’t want to but it always ends up happening!
+ - I get quite fed up being on a film set day after day, six days a week. It can get to be a grind.
+ - When you see something from afar, you develop a fantasy. But when you see it up close, 9 times out of 10, you wish you hadn’t.
+ - I had a good time shooting in New Zealand. I almost bought a home there while I was there, because I loved it so much.
+ - I don’t really comment on my personal life because I feel like any comment at all is opening up a whole can of worms. I’d just rather not talk about who I’m dating.
+ - You don’t stay the hottest guy forever unless you’re, um, Dionysus.
+ - I’m always trying to find something unique or a project that I can do something unique in. When the director has a vision for a piece that I’ve never heard before, and they can back that up with visuals and they talk a good game, I get really interested in the world that they’re trying to create.
+ - You think that if you are the best actor, you deserve the most or if you are the biggest star, you deserve the most. That race just isn’t important to me.
+ - I’m proud of ‘Black Hawk Down’ because I think it told a provocative story and it was honest. It could have had more opportunity to tell both sides of the story, but I’m still proud of it.
+ - I’ve had my heart broken, and it’s not fun. But I’d rather have my heart broken than break someone else’s heart.
+ - I’m a lot older than my little brothers and sister, so I think I grew up babysitting them.
+ - Hope is the most exciting thing in life, and if you honestly believe that love is out there, it will come. And even if it doesn’t come straight away, there is still that chance all through your life that it will.
+ - My friends and I make short films. We pretended to rob the Dairy Queen where our friend worked, but someone thought we were real thieves and called the cops! Soon, the cops burst in with guns drawn!
+ - I don’t like to act in my personal life. I like to be straightforward.
+ - I don’t think there’s a problem with being a teen idol, if that happens to me, I’ll be happy to deal with it.
+ - We all want somebody to come in and save the day and change our lives for the better.
+ - I have a pretty easy life.
+ - I’m not all that demanding, I don’t think. My family might think otherwise.
+ - My interests are guitars, cars, and vacation. I’ve been playing guitar all my life. My dad was a professional guitarist, but I’m terrible, which lets me off the hook, so I just play for myself.
+ - We’re all on a journey. The average American switches professions four times. I’m lucky to be in a business where I can change the character I am playing every couple of months.
+ - My parents are hippies, so I must have a bit of hippie in me.
+ - I’m not really a tourist attraction kind of guy.
+ - I look for the character to be something interesting, the script to have a good story and be original, and a director that I admire.
+ - People care about my fame, not me. But that’s fine. I have my own life.
+ - When I turned 18, I skipped my party to take my girlfriend on a road trip. It turned out to be an amazing birthday.
+ - I’m looking forward to finding someone in life that I can be truly happy with and relate to on all levels – someone I can bounce my stuff off. Right now, though, I’m not searching for that. I couldn’t possibly handle it at this point. But I still like knowing it will be out there sometime later.
+ - Running around when I was a kid was a really happy time; a time when getting home for dinner or for sleep were my only responsibilities.
+ - I’m quiet, and I don’t enjoy watching horror flicks, so am I like Zeke? No way.
+ - I want to experiment; I want to keep growing. I didn’t want to just sit back and rest on my haunches and do the things I knew I could do for a while.
+ - If everything is going well in my life then I start to read the papers more and I start to worry about everything I can’t deal with. They say wisdom is knowing what you can fix and what you can’t change. I’m very unwise.
+ - Up until the age of 16, I was very focused on sport – I played a lot of football. Then I tore my ACL and had to stop playing.
+ - You know what? I’m really attracted to British women, there’s something innately proper about them. However badly they behave their accent is so cute that it makes up for everything!
+ - I just want to make good films on my own wherever I can.
+ - Fame was initially this kind of blunt tool that was thrust into my hands very young.
+ - I became popular very young. I viewed myself as just a young actor trying to figure out how to do well, and, you know, making mistakes and learning and growing.
+ - I do a lot of weird movies that maybe you don’t like and I experiment a lot but maybe I do appreciate the process and I think my greatest joy in this business is that I have had the ability to screw up in a lot of really interesting films!
+ - Honestly, I guess if you looked at my CV, I’ve been doing independent movies since I started. I think that I kind of took a few steps back from Hollywood as soon as it all started to come my way because I wasn’t quite ready for the attention.
+ - I spent my entire first pay cheque from ‘Cracker,’ a TV show on ABC, on an Audi because my other car broke down and I needed to get to work.
+ - There are some films that really break the mold, and some films that don’t. I’ve been looking for films that break the mold a bit.
+ - I should be getting photographs of me with my arm around these people like restaurant owners do, because eventually I am going to have to prove to my kids that once I was an actor!
+ - I never really considered acting as a career. I kind of fell into it. Originally, I wanted to be a painter.
+ - If I was painting or writing, I wouldn’t veer away from things because they seemed unsavoury to me. So as an actor, I kind of think the same way. I should do things that are different and interesting and shed light on the craziness of the world.
+ - It’s not scary to make a horror film because you get to pull back the curtain and see that none of it’s real. When you’re watching one, the terror bombards you.
+ - I think that just your tastes change as you get older and I think they’ll continue to change.
+ - I’m always trying to find something unique or a project that I can do something unique in.
+ - I guess I will probably produce a little bit more. For me it’s a career, you create as you go along and you can’t worry about always being on top.
+ - I think vampires have gotten maybe a little bit silly in the last years where they’re all wearing crushed velvet and reading poetry and making sweet love to their victims, you know, it’s not really all that scary.
+ - I always find that I have to be emotionally on my character’s side for it to be convincing.
+ - You know, honestly, acting in film is remarkably independent. You’re doing your thing and someone else is doing their thing.
+ - I like movies about people and movies with characters; that’s what I’m drawn to as a person who likes to create these characters within the story, but I like it all, really.
+ - Life isn’t what it’s like in the movies.
+ - If a girl doesn’t have a sense of humor, then what would you have to talk about?
+ - I’m not limited by genre and it doesn’t really matter what the genre is as long as the film is going to be new and have some real artistic integrity.
+
+57 quotes

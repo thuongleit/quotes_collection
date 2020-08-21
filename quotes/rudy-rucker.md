@@ -1,0 +1,38 @@
+ - The world is colors and motion, feelings and thoughts and what does math have to do with it? Not much, if ‘math’ means being bored in high school, but in truth mathematics is the one universal science. Mathematics is the study of pure pattern and everything in the cosmos is a kind of pattern.
+ - The churning of a human mind is unpredictable, as is the anatomy of the human heart.
+ - Think of a field of daisies: they bloom, they wither, and in the spring they grow again. Who wants to see the same stupid daisy year after year, especially with a bunch of crappy iron-lung-type equipment bolted to it?
+ - All living things are gnarly, in that they inevitably do things that are much more complex than one might have expected.
+ - Science fiction writers put characters into a world with arbitrary rules and work out what happens.
+ - The study of infinity is much more than a dry academic game. The intellectual pursuit of the absolute infinity is, as Georg Cantor realized, a form of the soul’s quest for God. Whether or not the goal is ever reached, an awareness of the process brings enlightenment.
+ - It’s a waste to chase the pipe dream of a magical tiny theory that allows us to make quick and detailed calculations about the future. We can’t predict and we can’t control. To accept this can be a source of liberation and inner peace. We’re part of the unfolding world, surfing the chaotic waves.
+ - I think dry nanotechnology is probably a dead-end.
+ - It’s soothing to realize that my mind’s processes are inherently uncontrollable.
+ - It’s tedious to watch something very obvious being worked out, like a movie that’s not particularly good and after about half an hour you know how it’s going to end.
+ - The simple process of eating and breathing weave all of us together into a vast four-dimensional array. No matter how isolated you may sometimes feel, no matter how lonely, you are never really cut off from the whole.
+ - A little-known truth: Every aspect of the world is fundamentally unpredictable. Computer scientists have long since proved this.
+ - We’re part of the unfolding world, surfing the chaotic waves.
+ - One of the nice things about science fiction is that it lets us carry out thought experiments.
+ - I am, as it were, an eye that the cosmos uses to look at itself. The Mind is not mine alone; the Mind is everywhere.
+ - But how does it feel to plug into a system that’s say, a million times as smart as a person.
+ - If we suppose that many natural phenomena are in effect computations, the study of computer science can tell us about the kinds of natural phenomena that can occur.
+ - If you think of your life as a kind of computation, it’s quite abundantly clear that there’s not going to be a final answer and there won’t be anything particularly wonderful about having the computation halt!
+ - The world is magic. Science is but an insipid style of sorcery.
+ - A computation is a process that obeys finitely describable rules.
+ - Now, being a science fiction writer, when I see a natural principle, I wonder if it could fail.
+ - The hard fact is that not everyone does get published.
+ - Electronic distribution is more of a fall-back strategy for putting out a book that isn’t deemed profitable enough to print. You hardly make any money publishing an electronic book.
+ - Computations are everywhere, once you begin to look at things in a certain way.
+ - Unfortunately our nation, nay, our world, is run by evil morons.
+ - Traditional science is all about finding shortcuts.
+ - Advice to beginning SF writers? Write a lot, finish what you write, and when it’s done, keep sending it out for quite awhile.
+ - At present, however, I don’t think the Net is a very good medium for books, books should really be inexpensive lightweight paperbacks you can bang around.
+ - In any case, A New Kind of Science is a wonderful book, and I’m still absorbing its teachings.
+ - Some ideas you have to chew on, then roll them around a lot, play with them before you can turn them into funky science fiction.
+ - I like to do things that are surprising and different.
+ - Lately Ive been working to convince myself that everything is a computation.
+ - If all else fails, there’s always print or web zines.
+ - Our bodies are the time machine.
+ - Selling a book or story has never become absolutely automatic for me.
+ - I like a book better if I can’t predict what’s going to happen.
+
+36 quotes

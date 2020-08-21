@@ -1,0 +1,82 @@
+ - Thankfulness is the tune of angels.
+ - The mind maketh good or ill, wretch or happy, rich or poor.
+ - And painful pleasure turns to pleasing pain.
+ - Her angel’s face, As the great eye of heaven shined bright, And made a sunshine in the shady place.
+ - Be bold, and everywhere be bold.
+ - Then came October, full of merry glee.
+ - The noblest mind the best contentment has.
+ - All for love, and nothing for reward.
+ - For there is nothing lost, that may be found, if sought.
+ - Gather therefore the Rose, whilst yet is prime, For soon comes age, that will her pride deflower: Gather the Rose of love, whilst yet is time.
+ - Ah, fool! faint heart fair lady ne’er could win.
+ - For that which all men then did virtue call, Is now called vice; and that which vice was hight, Is now hight virtue, and so used of all: Right now is wrong, and wrong that was is right.
+ - But times do change and move continually.
+ - The merry cuckow, messenger of Spring, His trumpet shrill hath thrice already sounded.
+ - All love is sweet Given or returned And its familiar voice wearies not ever.
+ - Discord oft in music makes the sweeter lay.
+ - Fierce warres and faithfull loves shall moralize my song.
+ - Who will not mercy unto others show, How can he mercy ever hope to have?
+ - Fresh spring the herald of love’s mighty king.
+ - Gather the rose of love whilst yet is time.
+ - Go little book, thy self present, As child whose parent is unkent: To him that is the president Of noblesse and of chivalry, And if that Envy bark at thee, As sure it will, for succour flee.
+ - Entire affection hateth nicer hands.
+ - In vain he seeketh others to suppress, Who hath not learn’d himself first to subdue.
+ - Ah! when will this long weary day have end, And lende me leave to come unto my love? – Epithalamion.
+ - In one consort there sat cruel revenge and rancorous despite, disloyal treason and heart-burning hate.
+ - The poets scrolls will outlive the monuments of stone. Genius survives; all else is claimed by death.
+ - Vaine is the vaunt, and victory unjust, that more to mighty hands, then rightfull cause doth trust.
+ - What though the sea with waves continuall Doe eate the earth, it is no more at all ; Ne is the earth the lesse, or loseth ought : For whatsoever from one place doth fall Is with the tyde unto another brought : For there is nothing lost, that may be found if sought.
+ - All that in this delightful garden grows should happy be and have immortal bliss.
+ - He oft finds med’cine, who his griefe imparts; But double griefs afflict concealing harts, As raging flames who striveth to supresse.
+ - O sacred hunger of ambitious minds.
+ - For evil deeds may better than bad words be borne.
+ - Ill can he rule the great that cannot reach the small.
+ - The fish once caught, new bait will hardly bite.
+ - Where justice grows, there grows eke greater grace.
+ - This iron world bungs down the stoutest hearts to lowest state; for misery doth bravest minds abate.
+ - Beauty is not, as fond men misdeem, an outward show of things that only seem.
+ - But as it falleth, in the gentlest hearts Imperious love hath highest set his throne, And tyrannizeth in the bitter smarts Of them, that to him buxom are and prone.
+ - Gold all is not that doth golden seem.
+ - But angels come to lead frail minds to rest in chaste desires, on heavenly beauty bound. You frame my thoughts, and fashion me within; you stop my tongue, and teach my heart to speak.
+ - Laws ought to be fashioned unto the manners and conditions of the people whom they are meant to benefit, and not imposed upon them according to the simple rule of right.
+ - What more felicity can fall to creature, than to enjoy delight with liberty?
+ - At last, the golden orientall gate Of greatest heaven gan to open fayre, And Phoebus, fresh as brydegrome to his mate, Came dauncing forth, shaking his dewie hayre; And hurls his glistring beams through gloomy ayre.
+ - The nightingale is sovereign of song.
+ - Foul jealousy! that turnest love divine to joyless dread, and makest the loving heart with hateful thoughts to languish and to pine.
+ - Sluggish idleness – the nurse of sin.
+ - Men, when their actions succeed not as they would, are always ready to impute the blame thereof to heaven, so as to excuse their own follies.
+ - There is no disputing about taste.
+ - Man’s wretched state, That floures so fresh at morne, and fades at evening late.
+ - A circle cannot fill a triangle, so neither can the whole world, if it were to be compassed, the heart of man; a man may as easily fill a chest with grace as the heart with gold. The air fills not the body, neither doth money the covetous mind of man.
+ - Fretting grief the enemy of life.
+ - Change still doth reign, and keep the greater sway.
+ - Greatest god below the sky.
+ - Together linkt with adamantine chains.
+ - Hasty wrath and heedless hazardy do breed repentance late and lasting infamy.
+ - The paynefull smith, with force of fervent heat, The hardest yron soone doth mollify, That with his heavy sledge he can it beat, And fashion it to what he it list apply.
+ - It often falls, in course of common life, that right long time is overborne of wrong.
+ - The gentle minde by gentle deeds is knowne.
+ - And thus of all my harvest-hope I have Nought reaped but a weedye crop of care.
+ - No daintie flowre or herbe that growes on grownd, No arborett with painted blossoms drest And smelling sweete, but there it might be fownd To bud out faire, and throwe her sweete smels al arownd.
+ - O happy earth, Whereon thy innocent feet doe ever tread!
+ - Through knowledge we behold the world’s creation, How in his cradle first he fostered was; And judge of Nature’s cunning operation, How things she formed of a formless mass.
+ - All flesh doth frailty breed!
+ - Hard it is to teach the old horse to amble anew.
+ - Rising glory occasions the greatest envy, as kindling fire the greatest smoke.
+ - For deeds to die, however nobly done, And thoughts of men to as themselves decay, But wise words taught in numbers for to run, Recorded by the Muses, live for ay.
+ - For take thy ballaunce if thou be so wise, And weigh the winds that under heaven doth blow; Or weigh the light that in the east doth rise; Or weigh the thought that from man’s mind doth flow.
+ - For easy things, that may be got at will, Most sorts of men do set but little store.
+ - The man whom nature’s self had made to mock herself, and truth to imitate.
+ - The ever-whirling wheele Of Change, to which all mortal things doth sway.
+ - Oft stumbles at a straw.
+ - Woe to the man that first did teach the cursed steel to bite in his own flesh, and make way to the living spirit!
+ - How many perils doe enfold The righteous man to make him daily fall.
+ - Full little knowest thou that hast not tried, What hell it is in suing long to bide: To loose good dayes, that might be better spent; To waste long nights in pensive discontent; To speed to-day, to be put back to-morrow; To feed on hope, to pine with feare and sorrow.
+ - Fly from wrath; sad be the sights and bitter fruits of war; a thousand furies wait on wrathful swords.
+ - Nothing under heaven so strongly doth allure the sense of man, and all his mind possess, as beauty’s love.
+ - Much more profitable and gracious is doctrine by example than by rule.
+ - And through the hall there walked to and fro A jolly yeoman, marshall of the same, Whose name was Appetite; he did bestow Both guestes and meate, whenever in they came, And knew them how to order without blame.
+ - A Gentle Knight was pricking on the plaine.
+ - For since mine eyes your joyous sight did miss, my cheerful day is turned to cheerless night.
+
+80 quotes

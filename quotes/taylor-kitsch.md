@@ -1,0 +1,21 @@
+ - A good old rodeo never hurt anyone.
+ - I’m an all-or-nothing person.
+ - Video games and computers have become babysitters for kids.
+ - Put paying your dues and all that puts so much into being a success. You have an understanding of what its about, being on your own for three or four years and living day to day on $3, or living in an apartment with no electricity.
+ - My sister is 16 and I tell her to take risks. Really explore and meet as many people as you can. Do as much as you can before reality kicks in. Have fun.
+ - When I’m not acting, I try to be normal, play golf, play hockey. It’s funny because you’re in this little bubble when you’re working – you don’t read books, you don’t really keep up with the news, you’re just living that life.
+ - People hate cardio. I hate cardio. But pick the five top songs that you love. Do your cardio during these songs, and you’re done. I’d say 95 percent of the time you don’t even know you just did it.
+ - I would murder to play Gambit again!
+ - I’m never going to be like, ‘Oh, this attention from women sucks.’ It’s flattering 99 percent of the time.
+ - A lot of people are surprised to hear that an actor studied for two or three years. They take the craft for granted and wanna just wake up and be an actor.
+ - I want to be scared. I want to keep taking insane risks. I want to be scared because you’re going to grow through that whether you want to or not. I don’t want to play the same guy. I want to keep throwing curveballs to you guys and keep telling stories.
+ - I want to keep working with the best, keep going and be a better actor each time I go and dive into something.
+ - I have like 20 snap-up shirts in my closet, and I never, never would have thought before FNL would I have had that.
+ - For me as an actor, I use a lot of music. Music is a huge part of developing and getting into a certain mindset.
+ - There’s that stigma about New Yorkers, how they’re so mean, but in my experience it was quite the opposite. People were very genuine and very nice, even on the subway.
+ - I would do ‘John Carter’ again tomorrow. I’m very proud of ‘John Carter.’ Box office doesn’t validate me as a person, or as an actor.
+ - I admire an actor that can do a lot with doing nothing really, for the most part. I like doing a lot by doing so little.
+ - I’ve always been intimidated by the technicalities of taking photos, especially with a film camera – not just a point and shoot.
+ - I had someone very close to me say to me that hopefully I’ll have many more ups and downs, not in just my career but in life. If you don’t have that, you’re not taking enough risks.
+
+19 quotes

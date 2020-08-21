@@ -1,0 +1,66 @@
+ - I had to paraphrase the paraphrase.
+ - Only those with great ambitions know what great fears drive them forward.
+ - And when I was young, did I ever tell you, I always wanted to get inside a book and never come out again? I loved reading so much I wanted to be a part of it, and there were some books I could have stayed in for ever.
+ - London is a labyrinth, half of stone and half of flesh.
+ - I don’t find myself interesting as a person and the details I find boring, quite frankly. You could sum it up in a few words or sentences really: came from nothing. Self-educated. Luck. Energy. Curiosity. Ambition. That’s it. Nothing at all can illuminate the work as far as I can tell.
+ - To watch King Lear is to approach the recognition that there is indeed no meaning in life, and that there are limits to human understanding.
+ - There are two types of people, you see. One type keep their heads straight, and look around as they walk. The others look up – at the tops of houses, at the eaves and the lintels and the roofs, which can tell you when they were built – and I’ve always done that.
+ - The 16th-century theatre witnessed the particularly English manifestation of ‘the history play.’ There can be no doubt that Shakespeare’s presentations of ‘Henry V’ and ‘Richard III’ have been incalculably more influential than any more sober historical study.
+ - Murderers will try to recall the sequence of events, they will remember exactly what they did just before and just after. But they can never remember the actual moment of killing. This is why they will always leave a clue.
+ - Every book for me is a chapter in the long book which will finally be closed on the day of my death.
+ - What captivity has been to the Jews, exile has been to the Irish. For us, the romance of our native land begins only after we have left home; it is really only with other people that we become Irishmen.
+ - I never read in bed, only in my study.
+ - Oh, I just tend to believe in things when I’m writing them. For instance, when I was writing ‘Doctor Dee,’ I believed in magic. And when I wrote ‘Hawksmoor’ I believed in psychic geography. But as soon as I type the last full stop, I’m back to being a complete blank again.
+ - It may seem unfashionable to say so, but historians should seize the imagination as well as the intellect. History is, in a sense, a story, a narrative of adventure and of vision, of character and of incident. It is also a portrait of the great general drama of the human spirit.
+ - To be a writer was always my greatest aim. I remember writing a play about Guy Fawkes when I was 10. I suppose it’s significant, at least to me, that my first work should be about a historical figure.
+ - The world is a sea in which we all must surely drown.
+ - There is no humiliation worse than the consciousness of a wasted life. It stains the spirit, forestalls hope, and destroys any motive for action or change.
+ - I believe that the gods themselves are frightened of the world which they have fashioned.
+ - Under the force of the imagination, nature itself is changed.
+ - The English have always been greedy for news of times past, with that mixture of fatalism and melancholy which is part of the national character.
+ - Rioting has always been a London tradition. It has been since the early Middle Ages. There’s hardly a spate of years that goes by without violent rioting of one kind or another. They happen so frequently that they are almost part of London’s texture.
+ - Yet, like the sea and the gallows, London refuses nobody.
+ - You don’t have to be brought up in a grand house to have a sense of the past, and I truly believe that there are certain people to whom or through whom the territory – the place, the past – speaks.
+ - It sometimes seems to me that the whole course of English history was one of accident, confusion, chance and unintended consequences – there’s no real pattern.
+ - I am in the Pitte, but I have gone so deep that I can see the brightness of the Starres at Noon.
+ - It’s only recently that we’ve discovered that the artist’s inner self is somehow more important than the public world. I’m happier to create exterior pieces for the world rather than to express something I deeply feel or wish to say.
+ - In London, I’ve always lived within 10 miles of where I was born. You see, there is something called a spirit of place, and my place happens to be London, at least once a fortnight.
+ - People are much more interesting than people realise.
+ - I have always believed that the material world is governed by nonmaterial sources, so that in that sense ‘English Music’ is an exercise in the spiritual as well as the material. I have always been attracted to the Gothic and spiritual imagination, and I’ve always been interested in visionaries.
+ - When I was a child I wanted to be Pope. My greatest disappointment is missing out on that. I also wanted to be a tap dancer but I never fulfilled that ambition either.
+ - One can forgive Shakespeare anything, except one’s own bad lines.
+ - I don’t know if I have a voice of my own. I don’t see me being an important person with something to say. I haven’t. I’ve got nothing to say. My opinion is of no consequence or value.
+ - The English can laugh and at the same time strike you down, without the least compunction. It is the secret of their success as a nation.
+ - London has always provided the landscape for my imagination. It becomes a character – a living being – within each of my books.
+ - In ‘The Plato Papers’ I wanted to get another perspective on the present moment by extrapolating into the distant future. So in that sense, there’s a definite similarity of purpose between a book set in the future and a book set in the past.
+ - Yes, I have inherited the past because I have acknowledged it at last? And, now that I have come to understand it, I no longer need to look back.
+ - It is strange, is it not, how a person can adore one’s soul so much that they adore one’s body also?
+ - I detest self-regard. If my work has taught me anything, it is that self-aggrandisement is completely unhistorical.
+ - Health, money. That’s what people worried about in the 14th century as much as today. I find it so much more interesting than the supposed activities of kings, queens, generals.
+ - There are so many characters whizzing around inside my head, it’s like Looney Tunes. But as soon as I’ve finished writing about them, I completely forget who they are.
+ - If I did only one thing at a time I’d think I was wasting my time. If, for example, I only wrote novels I would feel like a charlatan and a fraud.
+ - I wanted to be a poet when I was 20; I had no interest in fiction or biography and precious little interest in history, but those three elements in my life have become the most important.
+ - Is it possible to be nostalgic about old fears?
+ - I have liv’d long enough for others, like the Dog in the Wheel, and it is now the Season to begin for myself: I cannot change that Thing call’d Time, but I can alter its Posture and, as Boys do turn a looking-glass against the Sunne, so I will dazzle you all.
+ - The endless chatter of this journey had wearied me.
+ - I don’t believe necessarily the past is in the past. It’s eternal, it’s all around us.
+ - I can remember picking up weighty tomes on the history of science and the history of philosophy and reading those when I was small.
+ - All cities are impressive in their way, because they represent the aspiration of men to lead a common life; those people who wish to live agreeable lives, and in constant intercourse with one another, will build a city as beautiful as Paris.
+ - I strike up conversations all the time and it is very interesting, finding out about things I know nothing about.
+ - No poet is ever completely lost. He has the secret of his childhood safe with him, like some secret cave in which he can kneel. And, when we read his poetry, we can join him there.
+ - Bigotry does not consort easily with free trade.
+ - Freud was just a novelist.
+ - I saw a ghost once, about 20 years ago. It took the form of someone coming out of a sleeping body and sitting at the foot of the bed.
+ - The ordinary routines of life are never chronicled by the historian, but they make up almost the whole of experience.
+ - As a Londoner I was able to see how the world of power and money cast its shadow on those who failed.
+ - My great fear has always been complete and utter failure. Hence, you see, all the dispossessed people in my fiction, and why I try to earn as much money as I can. It’s a defense. I don’t enjoy it or do anything with it.
+ - There are certain people who seem doomed to buy certain houses. The house expects them. It waits for them.
+ - And the smell of the library was always the same – the musty odour of old clothes mixed with the keener scent of unwashed bodies, creating what the chief librarian had once described as ‘the steam of the social soup.’
+ - None of my books has been ever in my head; after they’re finished, they go. It’s like being a sort of medium; you just grab it when it’s there then just release it when it’s time to go. There’s a lot of instinct, not planning.
+ - In so far as I have any beliefs, I suppose I’m like that old Peggy Lee song, ‘Is That All There Is?’ I want to believe there’s something else going on, but what that something else is I don’t pretend to know.
+ - The best years are when you know what you’re doing.
+ - A triptych in which the presiding deities are Mother, England and Me.
+ - He stood beneath the white tower, and looked up at it with that mournful expression which his face always carried in repose: for one moment he thought of climbing up its cracked and broken stone, and then from its summit screaming down at the silent city as a child might scream at a chained animal.
+ - I don’t in any sense think of myself as a celebrity, which of course I’m not.
+
+64 quotes

@@ -1,0 +1,58 @@
+ - Love is a choice you make everyday.
+ - Forgiveness is not a feeling; it is a commitment.
+ - For love, we will climb mountains, cross seas, traverse desert sands, and endure untold hardships. Without love, mountains become unclimbable, seas uncrossable, deserts unbearable, and hardships our lot in life.
+ - Love makes requests, not demands.
+ - Life’s deepest meaning is not found in accomplishments, but in relationships.
+ - People do not get married planning to divorce. Divorce is the result of a lack of preparation for marriage and the failure to learn the skills of working together as teammates in an intimate relationship.
+ - When people respond too quickly, they often respond to the wrong issue. Listening helps us focus on the heart of the conflict. When we listen, understand, and respect each other’s ideas, we can then find a solution in which both of us are winners.
+ - In marriage it is never having my own way. It is rather discovering our way.
+ - Love doesn’t erase the past, but it makes the future different.
+ - Our most basic emotional need is not to fall in love but to be genuinely loved by another, to know a love that grows out of reason and choice, not instinct. I need to be loved by someone who chooses to love me, who sees in me something worth loving.
+ - A soft answer turns away anger.
+ - Conflicts are not a sign you’ve married the wrong person. They simply affirm you are human.
+ - Love is always freely given. Love cannot be demanded. We can request things of each other, but we must never demand anything. Requests give direction to love, but demands stop the flow of love.
+ - Lack of love from parents often motivates their children to go searching for love in other relationships. This search is often misguided and leads to further disappointment.
+ - All of us blossom when we feel loved and wither when we do not feel loved.
+ - Love is the fundamental building block of all human relationships. It will greatly impact our values and morals. Love is the important ingredient in one’s search for meaning.
+ - The one who chooses to love will find appropriate ways to express that decision everyday.
+ - Love is something you do for someone else, not something you do for yourself.
+ - Togetherness has to do with focused attention. It is giving someone your undivided attention. As humans, we have a fundamental desire to connect with others. We may be in the presence of people all day long, but we do not always feel connected.
+ - True love cannot begin until the “in love” experience has run it’s course.
+ - Empathetic listening is an awesome medication for the hurting heart.
+ - People tend to criticize their spouse most loudly in the area where they themselves have the deepest emotional need.
+ - Our spouse will usually interpret our message based on our tone of voice, not the words we use.
+ - Forgiveness is not a feeling; it is a commitment. It is a choice to show mercy, not to hold the offense up against the offender. Forgiveness is an expression of love.
+ - Another reality about relationships is that they are never static. All of us experience changes in relationships but a few stop to analyse why a relationship gets better or worse.
+ - Inside every child is an ’emotional rani’s waiting to be filled with love. When a child really feels loved, he will develop normally but when the love tank is empty, the child will misbehave. Much of the misbehavior of children is motivated by the cravings of an empty ’love tank.
+ - You cannot force someone to accept an expression of love. You can only offer it. If it is not accepted, you must respect the other person’s decision.
+ - At the heart of mankind’s existence is the desire to be intimate and to be loved by another. Marriage is designed to meet that need for intimacy and love.
+ - The person who is “in-love” has the ilusion that his beloved is perfect.
+ - The in-love experience does not focus on our own growth or on the growth and development of the other person. Rather, it gives us the sense that we have arrived and that we do not need further growth.
+ - Much of the misbehavior of children is motivated by the cravings of an empty LOVE TANK.
+ - I am amazed by how many individuals mess up every new day with yesterday. They insist on bringing into today the failures of yesterday and in so doing, they pollute a potentially wonderful day.
+ - We are trained to analyze problems and create solutions. We forget that marriage is a relationship, not a project to be completed or a problem to solve.
+ - The object of love is not getting something you want but doing something for the well-being of the one you love.
+ - Something in our nature cries out to be loved by another. Isolation is devastating to the human psyche. That is why solitary confinement is considered the cruelest of punishments.
+ - What we dislike in others is often a weakness in our own lives.
+ - We cannot rely on our native tongue if our spouse does not understand it. If we want them to feel the love we are trying to communicate, we must express it in his or her primary love language.
+ - Gifts need not be expensive; after all, “it’s the thuoght that counts.” But I remind you, it is not the thought left in your head that counts; it is the gift that came out of the thought that communicates emotional love.
+ - I would encourage you to make your own investigation of the one whom, as He died, prayed for those who killed Him: ‘Father forgive them for they know not what they do.’ That is love’s ultimate expression.
+ - What we do for each other before marriage is no indication of what we will do after marriage.
+ - Many couples have never learned the tremendous power of verbally affirming each other.
+ - I am amazed by how many individuals mess up every new day with yesterday.
+ - Don’t be a victim of the urgent. In the long run, much of what seems so pressing right now won’t even matter. What you do with your children will matter forever.
+ - Requests give direction to love, but demands stop the flow of love.
+ - If we are to develop an intimate relationship, we need to know each other’s desires. If we wish to love each other, we need to know what the other person wants.
+ - Most people spend far more time in preparation for their vocation than they do in preparation for marriage.
+ - Remember that your ultimate goal is for your children to grow up secure in your love, strong in their faith, and with sound character.
+ - I think people desperately want to feel love.
+ - Love is reaching out to try to get to the other person.
+ - Most of us have more potential than we will ever develop. What holds us back is often a lack of courage.
+ - Recent research has indicated that the average individual listens for only seventeen seconds before interrupting and interjecting his own ideas.
+ - I have been doing marriage counseling for about 15 years and I realized that what makes one person feel loved, doesn’t make another person feel loved.
+ - We cannot erase the past, but we can accept it as history.
+ - Isolation is devastating to the human psyche.
+ - I think that in today’s world, by nature, we are all self-centered. And that often leads to selfishness.
+ - A child may be “spoiled” by a lack of training or by inappropriate love that gives or trains incorrectly.
+
+56 quotes

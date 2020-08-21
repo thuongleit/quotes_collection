@@ -1,0 +1,25 @@
+ - I have found that if you love life, life will love you back.
+ - Don’t tell me how talented you are. Tell me how hard you work.
+ - Of course there is no formula for success, except perhaps an unconditional acceptance of life, and what it brings.
+ - Love life and life will love you back. Love people and they will love you back.
+ - Music is not a hobby, not even a passion with me; music is me. I feel what people get out of me is this outlook on life, which comes out in my music. My music is the last expression of all that.
+ - Even when I’m sick and depressed, I love life.
+ - When I play, I make love – it is the same thing.
+ - We only begin to live life when we learn to accept it on its own terms.
+ - The seasons are what a symphony ought to be: four perfect movements in harmony with each other.
+ - You cannot play the piano well unless you are singing within you.
+ - When I sit in Paris in a cafe, surrounded by people, I don’t sit casually – I go over a certain sonata in my head and discover new things all the time.
+ - I feel that special secret current between the public and me. I can hold them with one little note in the air, and they will not breathe. That is a great, great moment.
+ - What good are vitamins? Eat a lobster, eat a pound of caviar – live! If you are in love with a beautiful blonde with an empty face and no brains at all, don’t be afraid. Marry her! Live!
+ - Life is the game that must be played, this truth at least, good friends, we know; so live and laugh, nor be dismayed as one by one the phantoms go.
+ - I’m passionately involved in life: I love its change, its color, its movement. To be alive, to be able to see, to walk, to have houses, music, paintings – it’s all a miracle.
+ - Most people ask for happiness on condition. Happiness can only be felt if you don’t set any condition.
+ - Sometimes I think, not so much am I a pianist, but a vampire. All my life I have lived off the blood of Chopin.
+ - I’m a free person; I feel terribly free. They could put me in chains and I still would be free because my thoughts would be mine – and that’s all I want to have.
+ - It took great courage to ask a beautiful young woman to marry me. Believe me, it is easier to play the whole Petrushka on the piano.
+ - My father, good or bad, mistakes or no, had a direct line from his heart to the music to the people, to the audience. He played with logic and his own inner truth.
+ - Sometimes when I sit down to practice and there is no one else in the room, I have to stifle an impulse to ring for the elevator man and offer him money to come in and hear me.
+ - When I was young, I used to have successes with women because I was young. Now I have successes with women because I am old. Middle age was the hardest part.
+ - I am tired before the concert, not afterward.
+
+23 quotes

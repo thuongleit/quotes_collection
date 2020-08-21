@@ -1,0 +1,22 @@
+ - Study Bach. There you will find everything.
+ - Those are miracles that no merely human brain can work. The artist is merely the sound conduct of a Force that dictates to him what he should do.
+ - If we cannot write with the beauty of Mozart, let us at least try to write with his purity.
+ - To follow in Beethoven’s footsteps transcends one’s strength.
+ - How lucky is the man who, like Mozart and others, goes to the tavern of an evening and writes some fresh music. For he lives while he is creating.
+ - Without craftsmanship, inspiration is a mere reed shaken in the wind.
+ - The idea comes to me from outside of me – and is like a gift. I then take the idea and make it my own – that is where the skill lies.
+ - Never criticize the composition of a Royal Highness. You never know who may have written it.
+ - One should never forget that by actually perfecting one piece one gains and learns more than by starting or half-finishing a dozen.
+ - It is a real pleasure to see music so bright and spontaneous expressed with corresponding ease and grace.
+ - In my study I can lay my hand on the Bible in the pitch dark. All truly inspired ideas come from God. The powers from which all truly great composers like Mozart, Schubert, Bach and Beethoven drew their inspirations is the same power that enabled Jesus to do his miracles.
+ - If there is anyone here whom I have not insulted, I beg his pardon.
+ - Straightaway the ideas flow in upon me, directly from God.
+ - Ah, that tastes nice. Thank you.
+ - In him converge all previous streams of tendency, not as into a pool, stagnant, passive, motionless, but as a noble river that received its tributary waters and bearss them onward in larger and statelier volume.
+ - The fact that most people do not understand and respect the very best things, such as Mozart’s concertos, is what permits men like us to become famous.
+ - My things really are written with an appalling lack of practicality!
+ - The only true immortality lies in one’s children.
+ - For the shallow delights of matrimony and opera I have no courage.
+ - I sometimes ponder on variation form and it seems to me it ought to be more restrained, purer.
+
+20 quotes

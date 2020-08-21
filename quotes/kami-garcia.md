@@ -1,0 +1,186 @@
+ - If a girl says not to get her a birthday present that means get me a birthday present and make sure it’s jewelry.
+ - The right thing and the easy thing are never the same.
+ - Three can keep a secret if two of them are dead.
+ - Old things are better than new things, because they’ve got stories in them, Ethan.
+ - All truths are easy to understand once they have been discovered; the point is to discover them.
+ - We don’t get to chose what is true. We only get to choose what we do about it.
+ - There are no coincidences.
+ - Dig deep. Find your way to your soul.
+ - There’s something about sitting alone in the dark that reminds you how big the world really is, and how far apart we all are. The stars look like they’re so close, you could reach out and touch them. But you can’t. Sometimes things look a lot closer than they are.
+ - Maybe it needed to be broken. Sometimes things have to break before you can fix them.
+ - This isn’t going to be some freaky pagan sex thing, is it?
+ - You’re so full of crap, you could pass for a toilet.
+ - I never loved you any more than I do, right this second. And I’ll never love you any less than I do, right this second.
+ - I’m afraid. I know L. I don’t want you to get hurt. I won’t. What if you do. I’ll wait for you. Even if I’m dark? Even if you’re very very dark.
+ - Even lost in the darkness, my heart will find you.
+ - Knowing you don’t have much time left changes things. You get kind of philosophical. And you figure things out-more like, they figure themselves out-and everything gets real clear.
+ - Ethan Wate: What I can’t figure is, you go to church everyday, how do you believe in all of this and still believe in God? Amma: God created all things didn’t he? Only man will decide which ones is mistakes. – Beautiful Creatures.
+ - Mortals. I envy you. You think you can change things. Stop the universe. Undo what was done long before you came along. You are such beautiful creatures.
+ - Because life goes on, L. The birds do their thing, and the bees do theirs. Seeds get scattered, and everything grows back.
+ - There was a curse. There was a girl. And in the end, there was a grave. I never even saw it coming.
+ - Loneliness is holding the one you love When you know you might never hold him again. Even lost in the darkness My heart will find you The soul die at the hand of the one who carries it. If I could find a place to run away Hidden safely, I would be there today. The darkest daylight finds me.
+ - High school sucked. It was a universal truth, and whoever said these were supposed to be the best years of your life was probably drunk or delusional.
+ - Ethan: I love you, I whispered in her ear. She held my face in her hands and leaned back so she could look at me. Lena: I don’t think I could ever love anything the way I love you.
+ - I said it, just like that. No stupid jokes, no changing the subject. For once, I wasn’t embarrassed, because it was the truth. I had fallen. I think I had always been falling. And she might as well know, if she didn’t already, because there was no going back now. Not for me.
+ - Without libraries what have we? We have no past and no future. Just ask Ray Bradbury.
+ - In Light there is Dark, and in Dark there is Light.
+ - Don’t run away. Im not running away. Im already gone. -Lena and Ethan.
+ - I love her beyond the universe and back. I love her from this world to the next.
+ - Sometimes everyone does the right thing and there’s still a mess left to clean up. Someone has to take responsibility for it.
+ - Flying or falling, it’s up to us.
+ - Maybe there isn’t a meaning to life. Maybe there’s only a meaning to living.
+ - Lies, lies are the place where darkness grows.
+ - Teenagers. Everything is so apocalyptic.
+ - It’s funny how you can live somewhere your whole life, but not really see it.
+ - Nightmares end. That’s how you know they’re nightmares.
+ - Sometimes things aren’t what they seem and even a Seer can’t see what’s commin’.
+ - Blood of my heart, protection is thine. Life of my life, taking yours, taking mine Body of my body, marrow and mind Soul of my soul, to our spirit bind Blood of my heart, my tides, my moon Blood of my heart, my salvation, my doom.
+ - I was lost before I found her in my dreams, and she found me that day in the rain. I knew it seemed like I was always the one trying to save Lena, but the truth was she had saved me, and I wasn’t ready for her to stop now.
+ - The mortal world is in a state of Beautiful Chaos and destruction, which will ultimately lead to an exquisite end.
+ - I’ll love you until the day after forever.
+ - Nothing in my life is a coincidence.
+ - Mortals. Everything is so black and white to you.
+ - Fate decides until challenged by the fated.
+ - Stairway to Hell or Yellow Brick Road? Why don’t you give your Magic 8 Ball a shake and see if it’s ready to play again.
+ - The beginning of a book is always the hardest part for me. I’m a Chapter 3 kind of writer, which means I naturally start at Chapter 3.
+ - It was all so clear now. Like everything had been lost in darkness, and then the sun came out. Some moments are like that.
+ - No, I’m too busy trying to deflect your Power of Stupidity. But I don’t think I’m strong enough.
+ - I sat up in bed. My T-shirt was soaking wet. My pillow was wet. My hair was wet. And my room was sticky and humid.
+ - It’s funny how the good things are all tied up with the bad. Sometimes it’s hard to tell which is which. But either way, you end up taking your sugar with your salt and your kicks with your kisses.
+ - She was wearing a purple T-shirt, with a skinny black dress over it that made you remember how much of a girl she was, and trashed black boots that made you forget.
+ - The good and the bad, the sugar and the salt, the kicks and the kisses – what’s come before and what will come after, you and me –.
+ - There are lots of things we choose not to see. Doesn’t mean they aren’t there, even if we wish they weren’t.
+ - Sixteen moons, Sixteen years Sixteen of your deepest fears Sixteen times you dreamed my tears Falling, Falling through the years.
+ - Maybe Ridley was like chicken pox; you could only catch it once.
+ - It was unbelievable. She was standing there, staring at him like he was a real rock star.
+ - I watched the way they looked at each other. Any idiot could see they were in love, even if they were the only two idiots who couldn’t.
+ - The thing about fate is, are you the master of your fate, or are the stars?
+ - Fate is a wheel that turns without our hand.
+ - I care. They bother me. And that’s why I’m stupid. That makes me exponentially more stupid than stupid. I’m stupid to the power of stupid.
+ - I’d never really thought past the whole dying-for-the-sake-of-the-world part of things. When you’re alive, you don’t dwell on how you’re going to spend your time once you’re dead. You just figure you’re gone, and the rest will pretty much take care of itself.
+ - Darkness, real darkness, was more than just a lack of light.
+ - Because saving the people you love isn’t stupid. It isn’t even a choice.
+ - In one moment I was feeling everything and I was feeling nothing.
+ - She didn’t say a work, and I gave up trying, because you couldn’t hear either one of us over the shattering noise of hearts breaking and the looming shadow of the last word, the one we refused to say.
+ - In death, lie. In living, cry. Carry me home to remember to be remembered.
+ - You watch yourself. One day you’re going to pick a hole in the sky and the universe is gonna fall right through. Then we’ll all be in a fix.
+ - I didn’t want to choose one world. I wanted to be part of both. I didn’t want to see only one side of the sky. I wanted to see it all.
+ - Sharpie? A mischievous smile spread across her face. I thought you said you couldn’t control your powers. Beginner’s luck.
+ - Do you believe in love after last sight?
+ - Even in the slippery blur of heat and arms and noise, Lena affected everything in her wake, a pull as powerful as the moon to the tides, or the planets to the sun. I was caught in her orbit, even as she pulled away from mine.
+ - I had never been this mad at her before. It was one thing to be attacked by someone you hated, but this was something else. This was the kind of hurt that could only be inflicted by someone you loved, who you thought loved you. It was sort of like being stabbed from the inside out.
+ - Why would you stick someone you love down in a lonely hole in the dirt? Where it’s cold, and dirty, and full of bugs?
+ - When she slept, she looked peaceful, beautiful. Not Lena’s kind of beautiful, something different. She looked content – like a sunny day, a cold glass of milk, an unopened book before you cracked the binding.
+ - In history, she wasn’t there while we reenacted the Lincoln-Douglas Debate, and Mr. Lee tried to make me argue the Pro-Slavery side, most likely as punishment for some future liberally minded paper I was bound to write.
+ - The toes of our ratty black sneakers touched.
+ - I’m just the librarian. I can only give you the books. I can’t give you the answers.
+ - She was my destination. I was always on the way to Lena, even when I wasn’t. Even when she wasn’t on her way to me.
+ - I would love to say how nice it is to see you again, but that would be a lie. And I am nothing if not honest.
+ - You end up taking your sugar with your salt and your kicks with your kisses.
+ - Because when every day is the End of Days, after a while they feel pretty much like every other day, even though you know that’s crazy. And nothing is the same.
+ - Don’t spit down my back and tell me it’s raining.
+ - It almost felt like she was sucking it all out of me, like she sucked on that sticky red lollipop, the one she kept licking as she drove.
+ - Lena’s hair was sticking out in about fifteen directions, and her eyes were all small and puffy from crying. So this was what girls looked like in the morning. I had never seen one, not up close.
+ - Suffering has been stronger than all other teaching, and has taught me to understand what your heart used to be.
+ - You’re incredibly, absolutely, extremely, supremely, unbelievably different.
+ - Got it. Demon. Death. Doom.
+ - Just as I lay back, she sat up. I sat up, and she flopped back down. Awkward. That was my every move when it came to her. Now we were both lying down, staring up at the blue sky.
+ - I loved her, atom by atom, one burning cell at a time.
+ - It smelled like aging wood and creosote, plastic book covers, and old paper. Old paper, which my mom used to say was the smell of time itself.
+ - I may have been a Wayward, but my way was full of people who loved me. They were the only way I knew.
+ - Think of me as the praying mantis of the supernatural world. Aren’t those the bugs that bite the heads off the males? Link looked skeptical. Yes. Then they eat them.
+ - Those were the ‘ifs’ that kept me from making a fool of myself.
+ - You couldn’t take two roads. And once you were on one, there was no going back.
+ - My mom was there, in some form, in some sense, in some universe. My mom was still my mom, even if she only lived in books and door locks and the smell of fried tomatoes and old paper. She lived.
+ - Ethan thought he was doing the right thing. He knew it was crazy. And he didn’t want to go, but he had to anyway. Ethan was like that. Even if he was dead. He saved the world, but he shattered mine. What now?
+ - Age-appropriate makeup? Who are you people? What makeup is age-appropriate for a seven-year-old?
+ - And you couldn’t control who you loved, even if you wanted to. That had been Genevieve’s problem with Ethan Carter Wate. It had been Uncle Macon’s problem with Lila, Link’s with Ridley. Probably even Ridley’s with Link. Love was how all these knots started to unravel in the first place.
+ - I’d ridden to school with Link every day since kindergarten, when we became best friends after he gave me half his Twinkie on the bus. I only found out later it had fallen on the floor.
+ - The ways I could hurt her and hurt myself. Those two things were intertwined somehow. It’s hard to explain, but when you were as closed off as I was the past few months, opening felt as wrong as stripping naked in church.
+ - The more I learned about the world I thought I knew and all the ones I didn’t, the more everything threaded together, leading everywhere and nowhere at the same time.
+ - It’s hard to imagine a place like that really exists. People have been judging me my whole life.
+ - The guy thought he was Mick Jagger. I felt bad for him.
+ - I wanted to find a place to hide from all of it, where the nightmares and the rivers and reality couldn’t find me. For me, that place was always inside a book.
+ - There was no one color that could paint Lena Duchannes. She was a red sweater and a blue sky, a gray wind and a silver sparrow, a black curl escaping from behind her ear.
+ - You climbed into my window in the middle of the night. So, either you’re some kind of Vampire or some kind of Perv. Which is it?
+ - Power is neither good nor evil.
+ - Jewelry, I’m telling you. It’s a thing. And love. And maybe danger.
+ - Nothing was ever how you wanted it to be. Not anymore. Not for me.
+ - I suppose I am a snob. I loathe towns. I loathe townspeople. They have small minds and giant backsides. Which is to say, what they lack in interiors they make up in posteriors.
+ - The stuffs you’re good at and the stuffs you’re bad at are just different parts of the same thing. Same goes for people you love and the people you don’t. And the people who love you and the people who don’t. The only thing that mattered was that you cared about a few people.
+ - I only assumed those dresses were costumes, based on the garish nature of the plumage.
+ - You know I love a good family feud and I carry a big stick.
+ - A Seer’s moon, a Siren’s tears, Nineteen Mortal, Wayward fears, Incubus graves and Caster rivers, The Final Page the End delivers.
+ - Maybe all crows were just creepy.
+ - Here’s the million-dollar question: how are you going to write this book if you’re afraid to start writing? Give your friend Doubt a name, and then block his calls.
+ - I guess that’s the thing about a hero’s journey. You might not start out a hero, and you might not even come back that way. But you change, which is the same as everything changing. The journey changes you, whether or not you know it, and whether or not you want it to.
+ - I’m not even sure we remembered to kiss. What we had went deeper than a kiss.
+ - Running to stand still -Lena.
+ - Everything in Gatlin was rigged. Why would the carnival games be any different?
+ - The one broken window that permanently wouldn’t roll up had destroyed her perfectly curled blond prom-hair, and by the time we got to the gym she looked like Marie Antoinette with bedhead.
+ - I needed to touch her, like I needed to breathe.
+ - You’re not the only one falling.
+ - It was pretty obvious Lena wanted to be asked. Another mysterious thing about girls- they want to be asked to stuff even if they don’t want to go.
+ - There were only two kinds of people in our town. – The stupid and the stuck- – The ones who are bound to stay or too dumb to go. Everyone else finds a way out.
+ - In the wake of my talk with Earl, we had come to a mutual understanding about Lena, the only kind guys ever come to. Meaning, I hadn’t brought it up, and they hadn’t brought it up, and between us, we somehow all agreed to go on like this indefinitely. Don’t ask, don’t tell.
+ - At least no one’s trying to kill anyone. Give them about fifteen minutes.
+ - I hadn’t fallen through his arms. He was ripped from mine.
+ - There wasn’t enough chocolate in the world to make this better.
+ - Don’t think so. We all make our choices, and those choices have consequences.
+ - Are you kidding? I’m supposed to put my books in this filthy tin coffin?
+ - I wanted to stay this way forever. Which, it turns out, was exactly five more minutes.
+ - It’s crazy what you see if you aren’t really looking.
+ - These are the kinds of things a guy thinks about when he visits his own grave.
+ - It wasn’t that she was different from all the other girls at Jackson. That was obvious. It was that she made me realize how much I was just like the rest of them, even if I wanted to pretend I wasn’t.
+ - I smiled at her, but she was already lost in thought, looking around the library as if it held all the answers to all our problems.
+ - I start with a beat sheet, which is more of an abbreviated outline. It hits all the major plot points. From there, I move to note cards. But the most important part of my process is my inspiration board.
+ - There was a choice to be made, and Lena hadn’t made it. The songs never lied. At least, they hadn’t yet.
+ - We are given to the great, for great purpose, to great ends. We are given to the grave, for grave purposes, to grave ends.
+ - The poems are all wrong. It’s a bang, a really big bang. Not a whimper. And sometimes gold can stay.
+ - I was a fine arts major in college, and a painter for many years. And I found that, like writing, art is very similar.
+ - It’s the face the world sees, the one you can change as many times as you want.
+ - You can’t jump off a cliff when you have already fallen off a bigger one.
+ - So either your a vampire or a perv. Which is it?
+ - A little-known fact about me: I read all the time.
+ - Evil doesn’t always have one face, Ethan.
+ - Who burns me and shocks me and shatters me with a single touch.
+ - Stupid to the power of stupid.
+ - When we were together, she turned me completely inside out.
+ - Aw, come on. I barely speak English, unless we’re talking about the Lowcountry kind.
+ - Even when I didn’t know anything else about where I was or what I was supposed to be doing. You were my Wayward, even then. Everything always brought me back to you. Everything.
+ - So he’s like a human compass? As far as superpowers go, that’s pretty lame. You’re like the Caster equivalent of Aquaman.
+ - Was it really so far-fetched to think that words had a way of shaping a person’s whole life?
+ - It was crazy how a hearse and a pair of sneakers could cheer a guy up.
+ - I believe the term you’re searching for is smoking jacket. I find, now that I have whole days of sunshine ahead of me, I’ve discovered there is more to life than formal haberdashery.
+ - Some things are private, Ethan. Even for grown-ups.
+ - It was a promise she knew I might not be able to keep. But I made it anyway because I was going to find a way to make it true.
+ - And you can look up just about anything, even dirty pictures. Every now and again, the dirtiest pictures you ever saw would pop up on the screen. Imagine!
+ - Macon, wet from the raindrops for the first time.
+ - You couldn’t unburn the books. You could only buy new ones.
+ - Writing a book is hard. It turns out, writing a second book is twice as hard.
+ - You need help, and that’s what books are for.
+ - I pulled Lena’s necklace out of my pocket. I let the charms roll around in my palm, but they were tangled and meaningless without her. The necklace was heavier than I imagined, or maybe it was the weight of my conscience.
+ - The Sisters were Southern Baptist, and they went to church on Saturdays and Sundays, and most other days, too.
+ - Any book is a Good Book, and wherever they keep the Good Book safe is also the House a the Lord.
+ - Everything about me remembers everything about you.
+ - They shouldn’t call death passing on. They should call it leveling up. Because the game only got harder once I lost. And I was more than a little worried it had only just begun.
+ - A little known fact: I read all the time. books were the one thing that got me out of Gatlin, even if it was only for a little while.
+ - I couldn’t sit by and watch them try to take her down. Not her.
+ - So why did I think about her every second? Why was I so much happier the minute I saw her? I felt like maybe I knew the answer, but how could I be sure? I didn’t know, and I didn’t have any way to find out. Guys don’t talk about stuff like that. We just lie under the pile of bricks.
+ - She had the power to destroy. I had only seen the power to love. When you discovered both, who could figure out what to do with that?
+ - Was it worth it? Feeling better for a minute or two, knowing that the cold would still be out there waiting?
+ - I almost ran you down, remember? I have to be nice to you, so you don’t have me arrested.
+ - I want you here. I don’t care if it’s a hundred degrees and every blade of grass dies. Without you, none of that matters to me.
+ - There is a point. I don’t know what it is, but everything I’ve had, and everything I’ve lost, and everything I felt – it meant something.
+ - I really was alone, and the only thing worse than being alone was having everyone else see how lonely you were.
+ - Who can judge the judge?
+ - Until then, you can do what everyone else your age does. Listen to music. Watch the television. Just keep your nose away from those books.
+ - They really hate you, yes they do. They hate everyone, how ’bout you?
+ - The guys were going down one road, and I was going down another.
+ - A kiss that was every bit as big and every bit as small as a kiss can be.
+ - I am a friend. I have in my possession two thousand assorted buttons, eight hundred keys, and only one friend. Perhaps it is not something you can understand. I have not often been one before. I will be now.
+ - Oblivion eyes on a cereal box, the warm blinds of a father lost and last to know lost and last to love last boy lost you can’t see even a bubble once it’s popped.
+ - There were two kinds of people in our town. The stupid, and the stuck.
+ - Sunday night, I reread The Catcher in the Rye until I felt tired enough to fall asleep. Only I never got tired enough. And I couldn’t read, because reading didn’t feel the same.
+
+184 quotes

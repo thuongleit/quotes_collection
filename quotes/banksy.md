@@ -1,0 +1,88 @@
+ - I don’t believe in anything. I’m just here for the violence.
+ - Not everyone will understand your journey. That’s okay. You’re here to live your life, not to make everyone understand.
+ - Art should comfort the disturbed and disturb the comfortable.
+ - I don’t know why people are so keen to put the details of their private life in public; they forget that invisibility is a superpower.
+ - You can win the rat race but you’re still a rat.
+ - I mean, they say you die twice. One time when you stop breathing and a second time, a bit later on, when somebody says your name for the last time.
+ - A lot of people never use their initiative because no-one told them to.
+ - If it doesn’t matter, get rid of it. If you can’t get rid of it, it matters.
+ - Live as a villain, die as a hero.
+ - If at first you don’t succeed, Call an airstrike.
+ - Become good at cheating and you never need to become good at anything else.
+ - Keep your coins, I want change.
+ - Nothing in the world is more common than unsuccessful people with talent, leave the house before you find something worth staying in for.
+ - The greatest crimes in the world are not committed by people breaking the rules but by people following the rules. It’s people who follow orders that drop bombs and massacre villages.
+ - Nobody knows what you feel inside unless you tell them.
+ - I just wanna make the world a better-looking place. If you don’t like it, you can paint over it!
+ - One Original Thought is worth 1000 Meaningless Quotes.
+ - There’s nothing more dangerous than someone who wants to make the world a better place.
+ - We don’t need any more heroes; we just need someone to take out the recycling.
+ - There are four basic human needs; food, sleep, sex and revenge.
+ - Some people become cops because they want to make the world a better place. Some people become vandals because they want to make the world a better looking place.
+ - I originally set out to try and save the world, but now I’m not sure I like it enough.
+ - A lot of mothers will do anything for their children, except let them be themselves.
+ - In the future, everybody will be anonymous for 15 minutes.
+ - You don’t need planning permission to build castles in the sky.
+ - If you feel dirty, insignificant or unloved, then rats are a good role model. They exist without permission, they have no respect for the hierarchy of society, and they have sex 50 times a day.
+ - People who get up early in the morning cause war, death and famine.
+ - When he time comes to leave, just walk away quietly and don’t make any fuss.
+ - You’re mind is working at its best when you’re being paranoid. You explore every avenue and possibility of your situation at high speed with total clarity.
+ - Remember crime against property is not real crime. People look at an oil painting and admire the use of brushstrokes to convey meaning. People look at a graffiti painting and admire the use of a drainpipe to gain access.
+ - Film is incredibly democratic and accessible, it’s probably the best option if you actually want to change the world, not just re-decorate it.
+ - Fight the fighters, not their wars.
+ - Is graffiti art or vandalism? That word has a lot of negative connotations and it alienates people, so no, I don’t like to use the word ‘art’ at all.
+ - If you want to say something and have people listen then you have to wear a mask. If you want to be honest then you have to live a lie.
+ - If you are dirty, insignificant and unloved then rats are the ultimate role model.
+ - The difference between freedom and slavery is one thin line.
+ - I’ve never really understood why people sleep. Wasting a third of your life and becoming vulnerable for almost 8 hours every night. Doesn’t seem very appealing to me.
+ - Modern art is a disaster area. Never in the field of human history has so much been used by so many to say so little.
+ - Speak softly, but carry a big can of paint.
+ - I’ve learnt from experience that a painting isn’t finished when you put down your brush – that’s when it starts. The public reaction is what supplies meaning and value. Art comes alive in the arguments you have about it.
+ - If Michaelangelo or Leonardo Da Vinci were alive today they’d be making Avatar, not painting a chapel.
+ - I’d been painting rats for three years before someone said ‘that’s clever it’s an anagram of art’ and I had to pretend I’d known that all along.
+ - I love the way capitalism finds a place – even for its enemies.
+ - I like to think I have the guts to stand up anonymously in a western democracy and call for things no-one else believes in – like peace and justice and freedom.
+ - It doesn’t take much to be a successful artist-all you need to do is dedicate your entire life to it.
+ - You owe the companies nothing. You especially don’t owe them any courtesy. They have re-arranged the world to put themselves in front of you. They never asked for your permission, don’t even start asking for theirs.
+ - All artists are willing to suffer for their work. But why are so few prepared to learn to draw?
+ - Gaza is often described as ‘the world’s largest open air prison’ because no one is allowed to enter or leave. But that seems a bit unfair to prisons – they don’t have their electricity and drinking water cut off randomly almost everyday.
+ - When you go to an art gallery you are simply a tourist looking at the trophy cabinet of a few millionaires.
+ - Writing graffiti is about the most honest way you can be an artist. It takes no money to do it, you don’t need an education to understand it, and there’s no admission fee.
+ - Nothing is black and white, and there is no purity and there is no such thing has justice.
+ - Nobody ever listened to me until they didn’t know who I was.
+ - Painting something that defies the law of the land is good. Painting something that defies the law of the land and the law of gravity at the same time is ideal.
+ - Stencils are good for two reasons; one – they’re quick; two – they annoy idiots.
+ - Anyone who believes in capital punishment should be shot.
+ - I don’t know if street art ever really works indoors. If you domesticate an animal, it goes from being wild and free to sterile, fat and sleepy. So maybe the art should stay outside.
+ - The art world is the biggest joke going. It’s a rest home for the overprivileged, the pretentious, and the weak. And modern art is a disgrace – never have so many people used so much stuff and taken so long to say so little.
+ - Sometimes I feel so sick at the state of the world I can’t even finish my second apple pie.
+ - If you want someone to be ignored then build a life-size bronze statue of them and stick it in the middle of town. It doesn’t matter how great you were, it’ll always take an unfunny drunk with climbing skills to make people notice you.
+ - All graffiti is low-level dissent, but stencils have an extra history. They’ve been used to start revolutions and to stop wars.
+ - You’re advised not to drink the replica Arab spring water.
+ - Some people represent authority without ever possessing any of their own.
+ - A recent survey or North American males found 42% were overweight, 34% were critically obese and 8% ate the survey.
+ - There’s obviously nothing wrong with selling your art – only an idiot with a trust fund would tell you otherwise. But it’s confusing to know how far you should take it.
+ - I tell myself I use art to promote dissent, but maybe I am just using dissent to promote my art. I plead not guilty to selling out. But I plead it from a bigger house than I used to live in.
+ - I give away thousands of paintings for free.
+ - This is a big surprise I don’t agree with the concept of award ceremonies, but I’m prepared to make an exception for the ones I’m nominated for. The last time there was a naked man covered in gold paint in my house, it was me.
+ - I wouldnt want to be remembered as the guy who contaminated a perfectly legitimate form of protest art with money and celebrities.
+ - You live in the city and all the time there are signs telling you what to do and billboards trying to sell you something.
+ - People either love me or they hate me, or they don’t really care.
+ - A wall is a very big weapon. It’s one of the nastiest things you can hit someone with.
+ - I need someone to protect me from all the measures they take in order to protect me.
+ - People who enjoy waving flags don’t deserve to have one.
+ - It’s a very frustrated feeling you get when the only people with good photos of you work are the police department.
+ - I used to encourage everyone I knew to make art; I don’t do that so much anymore.
+ - The one thing you can rely on is if you get disturbed halfway through a painting and it looks a bit naff, then someone will preserve that piece, remove it and a few months later it’ll be paraded round Sotheby’s by people wearing white gloves.
+ - Today’s art has been cancelled due to police activity.
+ - I am unable to comment on who may or may not be Banksy, but anyone described as being ‘good at drawing’ doesn’t sound like Banksy to me.
+ - Graffiti is one of the few tools you have if you have almost nothing.
+ - As far as I can tell the only thing worth looking at in most museums of art is all the schoolgirls on daytrips with the art departments.
+ - All I know about what people think of my gear is what a couple of my friends tell me, and one of them always wants to borrow money, so I’m not sure how reliable he is.
+ - I wanted to highlight the destruction in Gaza by posting photos on my website – but on the internet people only look at pictures of kittens.
+ - If you have a statue in the city centre you could go past it every day on your way to school and never even notice it, right. But as soon as someone puts a traffic cone on its head, you’ve made your own sculpture.
+ - I know street art can feel increasingly like the marketing wing of an art career, so I wanted to make some art without the price tag attached. There’s no gallery show or book or film. It’s pointless. Which hopefully means something.
+ - People seem to think if they dress like a revolutionary they don’t actually have to behave like one.
+ - People are fond of using military terms to describe what they do. We call it bombing when we go out painting, when of course it’s more like entertaining the troops in a neutral zone, during peacetime in a country without an army.
+
+86 quotes

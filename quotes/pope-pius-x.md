@@ -1,0 +1,23 @@
+ - We put great confidence in the Holy Rosary for the healing of evils which afflict our times.
+ - If the Angels could envy, they would envy us for Holy Communion.
+ - The Church alone, being the Bride of Christ and having all things in common with her Divine Spouse, is the depository of the truth.
+ - The true friends of the people are neither revolutionaries, nor innovators, but traditionalists.
+ - The daily adoration or visit to the Blessed Sacrament is the practice which is the fountainhead of all devotional works.
+ - Let the storm rage and the sky darken – not for that shall we be dismayed. If we trust as we should in Mary, we shall recognize in her, the Virgin Most Powerful who with virginal foot did crush the head of the serpent.
+ - I accept with sincere belief the doctrine of faith as handed down to us from the Apostles by the orthodox Fathers, always in the same sense and with the same interpretation.
+ - I was born poor, I have lived poor, I wish to die poor.
+ - It is an error to believe that Christ did not teach a determined body of doctrine applicable to all times and to all men, but rather that He inaugurated a religious movement adapted, or to be adapted, to different times and different places.
+ - Holy Communion is the shortest and safest way to Heaven. There are others: innocence, but that is for little children; penance, but we are afraid of it; generous endurance of trials of life, but when they come we weep and ask to be. The surest, easiest, shortest way is the Eucharist.
+ - If there were one million families praying the Rosary every day, the entire world would be saved.
+ - The surest, easiest, shortest way is the Eucharist.
+ - The organic constitution of the Church is not immutable; but Christian society, just as human society, is subject to perpetual evolution.
+ - Among all the devotions approved by the Church none has been so favored by so many miracles as the devotion of the Most Holy Rosary.
+ - Nothing would please us more than to see our beloved children form the habit of reading the Gospels – not merely from time to time, but every day.
+ - God being infinite beauty, the soul united to Christ draws upon himself the admiring and tender gaze of the Angels, who, were they capable of any passion, would be filled with envy at his lot.
+ - To heal the breach between the rich and the poor, it is necessary to distinguish between justice and charity.
+ - The greatest obstacle in the apostolate of the Church is the timidity or rather the cowardice of the faithful.
+ - Holy Communion is the shortest and safest way to heaven.
+ - Far, far from the clergy be the love of novelty!
+ - Once for all beloved children, the surest, easiest, shortest way is by the Eucharist. It is so easy to approach the holy table, and there we taste the joys of Paradise.
+
+21 quotes

@@ -1,0 +1,34 @@
+ - We are not a nation of immigrants. We are a nation of citizens. I am sick and tired of the American citizen being demeaned and treated as a second-class citizen while anybody who crosses the border is treated as the most virtuous human being on the face of the earth.
+ - I close with two words, ‘Kill ISIS!’ God bless you all!
+ - What the Founding Fathers created in the Constitution is the most magnificent government on the face of the Earth, and the reason is this: because it was intended to preserve the American society and the American spirit, not to transform it or destroy it.
+ - The Founders believed, and the Conservative agrees, in the dignity of the individual; that we, as human beings, have a right to live, live freely, and pursue that which motivates us not because man or some government says so, but because these are God-given natural rights.
+ - Conservatism is the antidote to tyranny. It’s the only one. It’s based on thousands of years of human experience. There is nothing narrow about the conservative philosophy. It’s a liberating philosophy. It is a magnificent philosophy. It is a philosophy for the ages, for all times.
+ - The Statist has constructed a Rube Goldberg array of laws and policies that have institutionalized his objectives. His success breeds confidence in the limitlessness of his endeavors.
+ - I realized that conservatism was the philosophy that best suited me, with its emphasis on individual liberty, personal responsibility, and merit.
+ - America has never been a pure democracy and majoritarianism has always been as much feared as monarchism.
+ - The Statist veils his pursuits in moral indignation, intoning in high dudgeon the injustices and inequities of liberty and life itself, for which only he can provide justice and bring a righteous resolution.
+ - The free market promotes self-worth, self-sufficiency, shared values, and honest dealings, which enhance the individual, the family, and the community. It discriminates against no race, religion, or gender.
+ - Utopianism substitutes glorious predictions and unachievable promises for knowledge, science, and reason, while laying claim to them all.
+ - This is a very sick man, this Obama.
+ - The Statist deflects public scorn for the consequences of his own central planning by blaming the very industry he is sabotaging for supply dislocations and price hikes.
+ - We now have the liberal playbook and we know what they are doing, and we are using it against them. Unlike the Democrats though, we aren’t out to destroy our society, we are out to save it.
+ - Let the RINOs start a third party.
+ - Not a single gun was used at the Oklahoma bombing.
+ - The Conservative does not despise government. He despises tyranny. This is precisely why the Conservative reveres the Constitution and insists on adherence to it.
+ - The Conservative sees in the free market the harmony of interests and rules of cooperation that also underlie the civil society.
+ - In the civil society, the individual is recognized and accepted as more than an abstract statistic or faceless member of some group; rather, he is a unique, spiritual being with a soul and a conscience.
+ - In the free market, a man born into wealth or who has otherwise acquired great riches can lose his fortune depending on how he chooses to behave. Conversely, a man born into poverty or who has lost wealth once obtained can acquire a fortune, depending, again, on how he chooses to behave.
+ - Conservatism is the antidote to tyranny precisely because its principles are the founding principles.
+ - When justices seize authority from the other branches of the federal government, as well as state and local governments, under the rubric of judicial review, that’s tyranny.
+ - When the Statist makes a wrong decision, its impact is far-reaching, for he uses the power of government to impose his decision on as many individuals and businesses as possible, which distorts the free market itself.
+ - Social Security is a widely popular program because the individual has been deceived by the Statist to believe that the government has been prudently and diligently managing his accumulated pension investment in his Social Security account, which he presumes to be funded by his own payroll taxes.
+ - Taxation of private property, or the regulation of such property so as to reduce its value, can become in effect a form of servitude.
+ - Politicians and bureaucrats are substituting their uninformed, largely political decisions for those of the marketplace. Their past miscalculations demonstrate that they do not and cannot possess the information, knowledge, means, and discipline to manage the economy.
+ - Class warfare or soaking the so-called rich may make for good populist demagoguery and serve the political ends of the governing masterminds, but it does nothing to solve the grave realities of the federal government’s insatiable appetite for spending and its inability to reform itself.
+ - And it makes you wonder – how can a people incapable of selecting their own lightbulbs and toilets possess enough competence to vote for their own rulers and fill out complicated tax returns?
+ - The only dynasty I like is the Duck Dynasty.
+ - The government does not add value to the economy. It removes value from the economy by imposing taxes on one citizen and providing cash to another.
+ - The fact is that the New Deal was, overall, a dismal failure.
+ - So virtuous are the programs said to be – pensions for the elderly, compensation for the unemployed, medicine for the sick, and assistance for the disabled – few dare ring the alarm of looming economic catastrophe that threatens to destabilize the civil society.
+
+32 quotes

@@ -1,0 +1,72 @@
+ - Where there is a will, there is a way. If there is a chance in a million that you can do something, anything, to keep what you want from ending, do it. Pry the door open or, if need be, wedge your foot in that door and keep it open.
+ - A good movie can take you out of your dull funk and the hopelessness that so often goes with slipping into a theatre; a good movie can make you feel alive again, in contact, not just lost in another city. Good movies make you care, make you believe in possibilities again.
+ - A mistake in judgment isn’t fatal, but too much anxiety about judgment is.
+ - Irresponsibility is part of the pleasure of all art; it is the part the schools cannot recognize.
+ - Trash has given us an appetite for art.
+ - Protagonists are always loners, almost by definition.
+ - I am mystified. I know only one person who voted for Nixon.
+ - The slender, swift Bruce Lee was the Fred Astaire of martial arts, and many of the fights that could be merely brutal come across as lightning-fast choreography.
+ - Movies are our cheap and easy expression, the sullen art of displaced persons.
+ - I live in a rather special world. I only know one person who voted for Nixon. Where they are I don’t know. They’re outside my ken. But sometimes when I’m in a theater I can feel them.
+ - Really, it’s not people who don’t understand us who drive us nuts – it’s when those who shouldn’t, do.
+ - Her only flair is in her nostrils.
+ - The first prerogative of an artist in any medium is to make a fool of himself.
+ - Is there something in druggy subjects that encourages directors to make imitation film noir? Film noir itself becomes an addiction.
+ - We read critics for the perceptions, for what they tell us that we didn’t fully grasp when we saw the work. The judgments we can usually make for ourselves.
+ - All our advertising is propaganda, of course, but it has become so much a part of our life, is so pervasive, that we just don’t know what it is propaganda for.
+ - When a picture can’t make it on its own, the producers pull in a ‘controversial’ message – the way a couple whose marriage is falling apart decide to have a baby.
+ - In a foreign country people don’t expect you to be just like them, but in Los Angeles, which is infiltrating the world, they don’t consider that you might be different because they don’t recognize any values except their own. And soon there may not be any others.
+ - Citizen Kane is perhaps the one American talking picture that seems as fresh now as the day it opened. It may seem even fresher.
+ - The problem with a popular art form is that those who want something more are in a hopeless minority compared with the millions who are always seeing it for the first time, or for the reassurance and gratification of seeing the conventions fulfilled again.
+ - Movies are so rarely great art that if we cannot appreciate great trash we have very little reason to be interested in them.
+ - What’s disgusting about the Dirty Harry movies is that Eastwood plays this angry tension as righteous indignation.
+ - Reality, like God and History, tends to direct people to wherever they want to go.
+ - The words “Kiss Kiss Bang Bang” which I saw on an Italian movie poster, are perhaps the briefest statement imaginable of the basic appeal of movies.
+ - McLuhanism and the media have broken the back of the book business; they’ve freed people from the shame of not reading. They’ve rationalized becoming stupid and watching television.
+ - There is something spurious about the very term ‘a movie made for TV,’ because what you make for TV is a TV program.
+ - Movies that are consciously life-affirming are to be consciously avoided...
+ - What is getting older if it isn’t learning more ways that you’re vulnerable?
+ - This movie is a toupee made up to look like honest baldness.
+ - At the movies, we are gradually being conditioned to accept violence as a sensual pleasure. The directors used to say they were showing us its real face and how ugly it was in order to sensitize us to its horrors. You don’t have to be very keen to see that they are now in fact desensitizing us.
+ - If I never saw another fistfight or car chase or Doberman attack, I wouldn’t have any feeling of loss. And that goes for Rottweilers, too.
+ - Moviegoers like to believe that those they have made stars are great actors. People used to say that Gary Cooper was a fine actor probably because when they looked in his face they were ready to give him their power of attorney.
+ - We may be reaching the end of the era in which individual movies meant something to people. In the new era, movies may just mean a barrage of images.
+ - There is, in any art, a tendency to turn one’s own preferences into a monomaniac theory.
+ - I’m frequently asked why I don’t write my memoirs. I think I have.
+ - Television as we have it isn’t an art form – it’s a piece of furniture that is good for a few things.
+ - It seems likely that many of the young who don’t wait for others to call them artists, but simply announce that they are, don’t have the patience to make art.
+ - Good movies make you care, make you believe in possibilities again.
+ - In the arts, the critic is the only independent source of information. The rest is advertising.
+ - For a while in the twenties and thirties, art was talked about as a substitute for religion; now B movies are a substitute for religion.
+ - I felt as if I had attended the funeral of someone I didn’t know.
+ - One of the surest signs of the Philistine is his reverence for the superior tastes of those who put him down.
+ - Movies, far more than the traditional arts, are tied to big money. Without a few independent critics, there’s nothing between the public and the advertisers.
+ - Great movies are rarely perfect movies.
+ - Being creative is having something to sell, or knowing how to sell something, or having sold something. It has taken over what we used to mean by being “wised up” knowing the tricks, the shortcuts.
+ - If you’re afraid of movies that excite your senses, you’re afraid of movies.
+ - Television represents what happens to a medium when the artists have no power and the businessmen are in full, unquestioned control.
+ - Allowing for exceptions, there is still one basic difference between the traditional arts and the mass-media arts: in the traditional arts, the artist grows; in a mass medium, the artist decays profitably.
+ - It’s sometimes discouraging to see all of a director’s movies, because there’s so much repetition. The auteurists took this to be a sign of a director’s artistry, that you could recognize his movies. But it can also be a sign that he’s a hack.
+ - An artist must either give up art or develop.
+ - For some strange reason we don’t go to charming, light movies anymore. People expect a movie to be heavy and turgid, like “American Beauty.” We’ve become a heavy-handed society.
+ - Economy, speed, nervousness, and desperation produce the final wasteful, semi-incoherent movies we see.
+ - Art doesn’t come in measured quantities: it’s got to be too much or it’s not enough.
+ - Writers who go to Hollywood still follow the classic pattern: either you get disgusted by ‘them’ and you leave or you want the money and you become them.
+ - The critical task is necessarily comparative, and younger people do not truly know what is new.
+ - If you use Hollywood as the test tissue for mankind, what could the prognosis be?
+ - The worst thing about movie-making is that it’s like life: nobody can go back to correct the mistakes.
+ - Picasso has a volatile, explosive presence. He seems to take art back to an earlier function, before the centuries of museums and masterpieces; he is the artist as clown, as conjurer, as master funmaker.
+ - Movies have been doing so much of the same thing – in slightly different ways – for so long that few of the possibilities of this great hybrid art have yet been explored.
+ - What this generation was bred to at television’s knees was not wisdom, but cynicism.
+ - Vulgarity is not as destructive to an artist as snobbery.
+ - If it took some effort to see old movies, we might try to find out which were the good ones, and if people saw only the good ones maybe they would still respect old movies. As it is, people sit and watch movies that audiences walked out on thirty years ago.
+ - The romance of movies is not just in those stories and those people on the screen but in the adolescent dream of meeting others who feel as you do about what you’ve seen.
+ - Moviemaking is so male-dominated now that they think they’re being pro-feminine when they have women punching each other out.
+ - A book might be written on the injustice of the just.
+ - When I see those ads with the quote ‘You’ll have to see this picture twice,’ I know it’s the kind of picture I don’t want to see once.
+ - For perhaps most Americans, TV is an apppliance, not to be used selectively but to be turned on – there’s always something to watch.
+ - If there’s anything to learn from the history of movies, it’s that corruption leads to further corruption, not to innocence.
+ - If there is any test that can be applied to movies, it’s that the good ones never make you feel virtuous.
+ - Movies are a combination of art and mass medium, but television is so single in its purpose-selling-that it operates without that painful, poignant mixture of aspiration and effort and compromise.
+
+70 quotes

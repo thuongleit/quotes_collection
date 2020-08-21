@@ -1,0 +1,37 @@
+ - Media bias is one thing. Rejection of reality is another.
+ - I don’t get debate agains guns at all. Because we have it after every mass shooting. And now a terror attack. And the proposals that are talked about almost always have nothing to do with this specific event.
+ - There’s nothing like music to teach you that eventually if you work hard enough, it does get better. You see the results.
+ - There’s no worse crime in journalism these days than simply deciding something’s a story because Drudge links to it.
+ - In the end, Ted Kennedy was a politician, plain and simple. Yet he embodied how politics and public service can be successfully intertwined. You cant be a good public servant without being a good politician. Kennedy was both.
+ - America has a love-hate relationship with celebrity. We love to follow celebrities, but we also love to mock them. And secretly, we believe were better than they are.
+ - We’re in a political depression – a great political depression.
+ - I’ve had my own anecdotals with old friends, here’s a gentleman quoted in the Times about, “I believe my government is suppose to protect me but it has let me down. I resent having to defend myself; I shouldn’t have to but at this point I don’t feel like I have a choice.”
+ - The fastest growing political party is no party.
+ - California has rules against assault weapons. It’s just those rules are inherently so technical and have to do with cosmetic features, you can easily get around them with any sort of semi-automatic rifle.
+ - Hillary Clinton met with a lot of the mothers in Chicago, she has the endorsement of some of the moms. Bernie Sanders I think has one or two of the family members too. I’m a little uncomfortable with using the families of these dead children this way.
+ - At the moment, the extremists have significant financial popular and theological backing in the Middle East. And that is an enduring phenomenon. And it’s one that is going to require a long, ideological war to win.
+ - More Americans, and I have my own anecdotes of people that have a friend that never would’ve had a gun, thought about, and now is thinking about it.
+ - It’s hard not to get down on the government when you see dysfunction play out on our TVs every day. Frankly, sometimes at every level of government.
+ - The question I have heard from some Democrats saying that “You know what? Push for gun control, but not now.”
+ - No Republican has ever won South Carolina and Iowa or New Hampshire, as Trump has, without going on to win the nomination.
+ - It seems to me that this debate, whether Islam is a religion of peace or not, really, it’s irrelevant for outsiders. It’s for Muslims to decide whether it’s a religion of peace or not.
+ - If we have to have a real movement on this issue if you support gun control, it has to come from the Republican side.
+ - Meanwhile, the Bush dynasty comes to an official end.
+ - Donald Trump does not stick to Republican orthodoxy, which, you know, and this is always supposed to have been his downfall. Maybe it’s his strength.
+ - We know broadly from research is that religiosity does not correlate with sympathy for terrorism. It’s actually quite the opposite. The more religious someone is, the more often they go to the mosque, the more likely they are to actually reject attacks on civilians.
+ - Some day, the public might actually revolt against the undemocratic system of seniority that allows Congress to keep the old ways of Washington ingrained into the culture of Congress.
+ - You can’t say Hillary Clinton is not evolving as a candidate. And boy is she trying very hard to move to where the Democratic base is.
+ - Does the terror threat we’re facing grow out of a perversion of Islam, or does it represent and extreme, but durable, strain of the religion.
+ - The idea now that we’re going to fight terrorism through gun control I think is just utterly fatuous.
+ - I think that we may lose the argument, but I think we have to talk about gun control.
+ - Nobody likes to feel like they’re on the losing side of anything.
+ - The more there is scandal and corruption in Washington, the better it is for McCain, so he’s at a high point right now.
+ - I would say that ISIS wants us to think so. And I think that’s the real danger here. It’s that what ISIS wants the narrative to be is that they are the true Muslims.
+ - A lot of Democrats ask and a lot of people ask, “Why is it necessary for people in this country, who are not in law enforcement, to have assault weapons?”
+ - From the Medicare prescription drug plan to the creation of the Department of Homeland Security and the passage of No Child Left Behind, President Bush presided over a major expansion of the reach of government.
+ - Jeb Bush is the new John Connelly.
+ - Voters definitely believe Washington is corrupt – but most think its bipartisan.
+ - I’m wishing every Saturday had primaries, because welcome to an amazing Sunday, where everything seems a tad bit clearer this morning.
+ - It’s funny how the history of Jeb Bush is going to be rewritten.
+
+35 quotes

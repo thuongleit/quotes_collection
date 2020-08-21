@@ -1,0 +1,54 @@
+ - What should really be happening is a revolution. The system should be torn apart by the people and banks shouldn’t be allowed to do what they do, and giant corporations shouldn’t be allowed to run the world to the ground the way they’re doing. But that’s not happening for whatever reason.
+ - If you don’t fight the system, you can either take advantage of the system or let the system take advantage of you.
+ - Plenty of people are onto the emptiness but it takes real guts to see the hopelessness.
+ - When I’m working, I don’t wake up and say, ‘OK, time to go be intense.’ I just look at whatever scenes we’re working on that day and break them down – just real intense everyday work.
+ - I’ve never worried about anything in my life a fraction of the way I worry about my daughter. It’s much more than hoping people like the play you’re in, or that your outfit doesn’t look bad. It’s the real deal.
+ - Inevitably people will get tired of me. People get tired of everyone except Jimmy Stewart. I’m not saying Jimmy Stewart would get tired of me, I’m just saying people will never get tired of Jimmy Stewart.
+ - It’s obviously a lot harder to try and be a good guy than it is to be a bad guy. The world is a fundamentally evil place, it seems like. So in order to be a good person, you have to fight temptation and vice.
+ - People don’t go to the movies to get the news, people don’t go to the movies to learn a lesson. People go to the movie to get an emotional experience.
+ - If I were God, I would just be up there scratching my head, thinking, ‘What the hell am I supposed to do with this?’ For everyone helping an old lady across the street, there’s someone else bludgeoning a person to death. And sometimes they’re the same. How can He separate us all out?
+ - I enjoyed living in Chicago and doing plays for little or no money. I never actually thought that I would leave Chicago, originally. I wasn’t one of those people that had a plan to pack up the van and drive out to Hollywood. I didn’t want to.
+ - I’m just kind of odd. There are dark forces in the world, and if you pay attention to what’s going on around you, you end up incorporating it into the storytelling. Maybe it’s some aspect of myself that’s coming through that people are seeing, that I am in fact a quiet psycho.
+ - There’s nothing routine about ‘Boardwalk Empire.’ It’s like being in some secret society where they call you up and tell you where to go: ‘Meet us at the corner of such and so.’
+ - If you give me enough time, enough leash, I can become pretty reasonable.
+ - That’s one of the great things about acting – you get to pretend you’re somebody else, which is great if you get bored with yourself.
+ - Most of the time for movies and stuff, with the exception of Jeff Nichols, who I’ve worked with a few times, you just don’t know people too well. Everyone is cordial and nice and some people are very genuinely friendly, but once the movie is over you never see them again.
+ - One of the reasons I’m an actor is because I was no physical specimen as a child. I wasn’t athletic and didn’t have any prowess in that regard. Growing up in Kentucky, most little boys were trying to get into sports, and it was very competitive, so that was not to be. But I did want to do something.
+ - Everything that happens on Wall Street only fortifies my opinion that there is in fact a more ludicrous industry than the entertainment industry.
+ - I’ve known a lot of religious people. My mother is very religious, but she also is very private about it. When I was growing up, she never went to church. She just prayed and read her Bible and kept it to herself. I’m not from a background of flamboyant believers. It’s much more a personal issue.
+ - A lot of times people will send me stuff. They will find something and they will send it to me and then I will take a look at it. Every once in awhile I will go on IMDB for 10 or 15 minutes and look around. But I am not a huge gearhead. I don’t even have my own computer. I use my girlfriends.
+ - It’s a little bit odd. The first time you do the play, you kind of throw yourself into it, trying to get the most out of all the individual moments. Then, a few hours later, you’re still there, wondering what you could possibly do differently than what you just did a couple hours ago.
+ - I just keep working on things I like, and hope for the best. I hope people enjoy them.
+ - You got to know what’s worth keeping and what’s worth letting go.
+ - It’s always very daunting to play someone who actually existed. You have to honor that, and be specific and accurate and try to make people believe that you’re that guy, which is really hard.
+ - I get pretty attached to the majority of the characters I play. I can’t help myself.
+ - I think if you watch a lot of what I do, you’re going to ultimately walk away seeing me. I can’t hide – that impression is a personal impression people have of me.
+ - I have been acting for over 20 years and I started in the smallest little theater that you can possibly imagine and then I very slowly built myself to this point. So it is never like there is this real sharp change or something that really startled me. It has just been very gradual.
+ - I want to focus on each scene. I’m a real perfectionist, and I don’t want to feel like I didn’t consider every possible variation of a scene. I come from a theater background, so I’m used to a lot of repetition, and I’m used to really attacking something over and over and over again.
+ - If you are going to be on TV for however many years, you want to make sure that you have writers that are giving you something to work with, and I got that in spades.
+ - The stage is a routine. It keeps you grounded, like a metronome. I find that soothing.
+ - A lot of times the characters I play tend to be kind of loners or they don’t have best friends or best buddies.
+ - Let’s point out the elephant in the room: Actor bands are not notoriously successful enterprises. I can’t think of any.
+ - I like to play characters that get to do it all – to have a bit of comedy here and a bit of pathos here and a bit of suspense here, that’s what’s fun.
+ - One of the great things about acting is you can do things that in real life would get you in trouble. I think that’s something I figured out pretty early on.
+ - Honestly, as hard a profession as acting is, I think music is even harder. Acting, you’re like a leech, because someone else does the hard part for you. They write it for you, then the director tells you what to do. You really just need to know how to pay attention, follow instructions.
+ - I started acting because I was miserable and crazy and wanted to be someone else, to run around and scream in front of people without getting in trouble.
+ - I just look at it as a real group activity when you are making movies. There are so many different artists doing so many different things, and they are all interconnected. So I like to see what everybody else is going to bring to the table before I make up my mind too much about anything.
+ - I certainly don’t want to have too many pre-conceived notions before I show up because then you might be cutting yourself off from the real lessons of what is going on.
+ - That could sound arrogant, I guess, but sometimes I feel like I have a bit of a Zelig thing. I’ll blend in wherever. I’m from the South, so I’ll have a Southern accent when I’m home. But if I’m up here in New York, I have a British accent.
+ - Theater is the best. That’s where you get the work done. You just really get in there and figure something out about a story or a character or life or the world. That’s where magic stuff happens.
+ - If you don’t believe there’s some organising principle, or somebody up in the sky pulling the strings, then it can be very stressful. And nature itself is very arbitrary – it’s not malevolent or benevolent; it doesn’t even know we’re here.
+ - Well, I think anybody who’s had a baby can tell you that once you have a baby, they kind of become the main focus. I don’t think there’s gonna be a lot of room for anything else.
+ - Design is the fundamental creative activity with which we direct our lives, and collectively, the earth’s transformation from its original, natural state into our human-made world.
+ - I know this’ll sound obnoxious, but acting was very much an accident for me. I didn’t have, like, posters of Marlon Brando in my bedroom when I was growing up.
+ - The thing that is always important to me is the relationships. I feel like until I get around with the actual people that I am going to be working with there is only so much that I can do.
+ - It is surprising that people are snapping photos and stuff and then putting them on the internet. For me, it is like, “Why would you want to do that?” It would be like knowing what your Christmas presents were before Christmas morning.
+ - My dad used to say, ‘You have to become part of the machine to beat the machine,’ and there’s some validity in it. But honestly, even when I’m inside the machine, you still see me. I stick out a little bit.
+ - Everybodys constantly being destroyed and rebuilding themselves, some more drastically than others.
+ - I’ve always been happy just to be working. It doesn’t really matter for me how many people are familiar with my name or my picture, or whatever.
+ - If you are only getting two takes and you are on a crazy set where there is a lot of noise and distractions and it is hard to focus – that is frustrating. But I don’t mind two takes if there is a healthy respect with the work going on with the actors.
+ - One thing I’m a big fan of is the theater of the absurd. That’s what I come from, that’s what I love to do more than anything. What I love about absurdity is the words “comedy” and “drama” get thrown out the window and it’s just life, which is absurd.
+ - I don’t pick my roles by genre; that’s kind of silly.
+ - There are certain ways of being that people don’t find acceptable or very pleasant in regular life, but you go out on stage and do pretty much the same thing and they find it spellbinding.
+
+52 quotes

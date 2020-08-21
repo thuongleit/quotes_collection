@@ -1,0 +1,27 @@
+ - By pushing or forcing something upon people, you tend to push people further away.
+ - I LOVE Australia! Its like my second home.
+ - Let me tell you something: if you’re on an island for three and a half months and you’re four and a half hours by boat from the nearest store, and there’s nobody but 30 crew members on the island, I guarantee that you’d be running around without your clothes on.
+ - I wanted to be a doctor in sports medicine; I was into sailing and all that sort of thing.
+ - I became a very angry person and it was all due to alcoholism.
+ - Usually I get recognized for The Blue Lagoon or Dallas.
+ - Larry Hagman was a huge star, and he was carrying my stuff for me.
+ - Everybody wants to be like everybody else.
+ - I’m a very big believer in fate.
+ - Now I’m growing and I can see my faults. I can look at myself objectively and say I can’t blame anyone else; it was my own damn fault.
+ - I always wondered if I was supposed to be excellent at something or not. I think, because of that, I have a lot of insecurities about myself.
+ - I think the United States is way behind the times.
+ - You know, I never expected to enter the movie business.
+ - One of my favorite stories is my first kissing scene with Linda Gray.
+ - I’m really a romantic at heart.
+ - Who cares who comes out of the closet or not, so long as you’re happy?
+ - As much as I didn’t want to change, lifestyles do change.
+ - Well, sometimes when you say you want to be like everybody else, you’re really saying that you’re not.
+ - All of a sudden your whole life becomes a public issue. Money, wealth, people, prestige – all of that suddenly comes into play.
+ - Hollywood wants press, any kind of press.
+ - It’s only in the United States that they make a big deal about nudity.
+ - I figured that, if you do a vampire movie in Hollywood, you’ve made it.
+ - Thank God for machines. They can make a dog sing!
+ - There are times when directors just don’t know what they’re doing.
+ - The guy who owned that island was from Oregon and he decided that he wanted to have an Oregon feeling to it, so he planted pine trees all over the place!
+
+25 quotes

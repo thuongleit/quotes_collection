@@ -1,0 +1,27 @@
+ - In order to stay relevant, you have to stay open to new trends and keep educating yourself. You have to keep evolving.
+ - There’s no right time to have kids and no perfect formula. The good news is there isn’t a wrong way, either.
+ - My personal ambition remains the same – to be creative, to be modern, to stay one step ahead, to enjoy life.
+ - Success begins at that magical moment when you declare to yourself, your friends, and the universe that you believe you can do something different.
+ - Im an accidental entrepreneur.
+ - Never forget that you only have one opportunity to make a first impression – with investors, with customers, with PR, and with marketing.
+ - The power of your thoughts can influence how events turn out. I’m a positive person – when bad things happen, I can see the silver lining. As a result I think I am very lucky, even though I probably have as much bad luck as anyone else, and that translates into seeing opportunity.
+ - There is no recipe for success – it is as unique as you are.
+ - My dad taught me never to be afraid of what’s on the other side of the mountain.
+ - I think I’m a better mother because of work, because I’m happy. If I wasn’t working, I would just be waiting for the kids to come home every day, and living vicariously through their lives.
+ - I think fashion is actually very good training for being in the tech world, because it’s all about moving on to the next thing, looking for the next thing, not getting stuck in the past.
+ - Only twice I let people talk me out of good ideas.
+ - Always go into meetings or negotiations with a positive attitude. Tell yourself you’re going to make this the best deal for all parties.
+ - As an entrepreneur, what drives you has to be the good news; otherwise, you just don’t get out of bed.
+ - Once you start a business, you have to grow it and grow with it – starting a business is not just for Christmas.
+ - Touching clothes is just shopping foreplay, but it’s changing. After all, you don’t need to try a Mercedes to know that you’d like one.
+ - I believe that all brands will become storytellers, editors and publishers, all stores will become magazines, and all media companies will become stores. There will be too many of all of them. The strongest ones, the ones who offer the best customer experience, will survive.
+ - Be the smartest at the table and you can wear whatever you want.
+ - I don’t have a mentor in the strict definition. I take as much advice and inspiration as I can from the people I am close to.
+ - I attended private Catholic schools in Paris and Los Angeles through high school.
+ - I attend Internet conferences all the time, and they literally make the hairs on the back of my neck stand up.
+ - Point out the problems, as long as you have a solution. I don’t like critics who aren’t doers themselves.
+ - I graduated from the University of California, Los Angeles, with an English literature degree and travelled for a year before going to work.
+ - Part of creating the future is to follow this consumer. Women are working; we’ve moved the store to the desk. Now though, she’s is in the back of a cab with her iPhone or her iPad, she’s tweeting an outfit that her friend is wearing and desperately trying to find out where she got her shoes online.
+ - I think the fashion industry was slightly put off by people they didn’t know. They were presented with things like 20-gatefold color brochures.
+
+25 quotes

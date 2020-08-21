@@ -1,0 +1,57 @@
+ - Obscurity can be a fire of ambition in those who have stalwart souls.
+ - I am deeply convinced that happiness does not exist in this world.
+ - Don’t let the past steal your present. This is the message of Christmas: We are never alone.
+ - I am not alone at all, I thought. I was never alone at all. And that, of course, is the message of Christmas. We are never alone. Not when the night is darkest, the wind coldest, the world seemingly most indifferent. For this is still the time God chooses.
+ - Tel Aviv appeals to me.
+ - God’s ‘failures’ are really man’s failures...
+ - People are scared to death of dying. I am the opposite.
+ - I have been constantly betrayed and deceived all my life.
+ - It is human nature to instinctively rebel at obscurity or ordinariness.
+ - If a nation has not God that nation must fall, but if a nation has God then all the powers of evil, and all the armies, cannot shake its foundations; no, not even if the whole world is arrayed against it.
+ - Mankind adores its betrayers, and murders its saviors.
+ - It is a stern fact of history that no nation that rushed to the abyss ever turned back. Not ever, in the long history of the world. We are now on the edge of the abyss. Can we, for the first time in history, turn back? It is up to you.
+ - If genetic memory or racial memory persists, is it possible that individual memory also exists from previous lives?
+ - Giving a phenomenon a label does not explain it.
+ - Freedom was given to humanity by God. But, governments, if they can help it, never give freedom. They just hand out slavery with slogans.
+ - The stalwart soul has the will to live and is eager for the race.
+ - Animals do not betray; they do not exploit; they do not oppress; they do not enslave; they do not sin. They have their being, and their being is honest, and who can say this of man?
+ - I gratefully look forward to oblivion, but I must be sure of it.
+ - Men who retain irony are not to be trusted. They can’t always resist an impulse to tickle themselves.
+ - But what was a body? Dust, dung, urine, itches. It was the light within which was important, and it was not significant if that light endured after death, or if the soul was blinded eternally in the endless night of the suspired flesh.
+ - My relatives used to laugh when I talked of being a writer.
+ - My life has been tragic and disastrous since birth.
+ - Corrupt citizens breed corrupt rulers, and it is the mob who finally decides when virtue shall die.
+ - An honest politician is either a hypocrite – or he is doomed.
+ - One of my grandsons used to insist, when he was only 3 or 4, that he had been born and had lived in India.
+ - Despair is sometimes the great energizer of the mind, though sometimes its flowering may be sterile.
+ - I never deviated from my grim determination to someday have all the money I needed and wanted.
+ - I have written two medical novels. I have never studied medicine, never seen an operation.
+ - The American insanity for Loving Everybody is ruining my good temper and delivering my stomach to enormous bouts with acidity.
+ - The more wants a man has, the less freedom.
+ - I am the skeptic of skeptics.
+ - Honest men live on charity in their age; the almshouses are full of men who never stole a copper penny. Honest men are the fools and the saints.
+ - My literary success meant nothing to me.
+ - One, if one is sensible, blames government, not the servers of government, not those entangled in their governments.
+ - I converse with my dog through ESP.
+ - We are not old unless we desire to be.
+ - Money? I lost all taste for it.
+ - I often reread books I have written.
+ - It is not always wise to appear singular.
+ - People must again learn to work, instead of living on public assistance.
+ - Women’s Lib? I couldn’t stand it.
+ - No woman has ever been an authentic genius of the stature of men, but that does not enrage me.
+ - Though I am a Catholic, a professing one, I have serious doubts about the survival of the human personality after death.
+ - Contrary to general opinion, women are not so sentimental as men, but are much more hardheaded.
+ - I’m not that interested in people.
+ - Reading, not just an escape, but an exercise in living...
+ - I’ve always enjoyed poor health.
+ - The world is a penal institution.
+ - A wise man distrusts his neighbor. A wiser man distrusts both his neighbor and himself. The wisest man of all distrusts his government.
+ - I am not convinced that there is such a thing as a soul.
+ - My dreams are all follies.
+ - I have anonymously helped many thousands.
+ - Even the most malignant gods would not continue to inflict life upon humanity, time without end.
+ - My childhood was appalling.
+ - If there is a God, then he was particularly harsh to me.
+
+55 quotes

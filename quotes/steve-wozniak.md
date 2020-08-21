@@ -1,0 +1,96 @@
+ - All the best people in life seem to like LINUX.
+ - Never trust a computer you can’t throw out a window.
+ - Imagination is something you do alone.
+ - Artists work best alone. Work alone.
+ - I learned not to worry so much about the outcome, but to concentrate on the step I was on and to try to do it as perfectly as I could when I was doing it.
+ - Wherever smart people work, doors are unlocked.
+ - Most inventors and engineers I’ve met are like me. They’re shy and they live in their heads. The very best of them are artists. And artists work best alone...
+ - When we first started with Apple computers, it was my dream that everyone would learn to program, and that was how they’d use their computer.
+ - Our first computers were born not out of greed or ego, but in the revolutionary spirit of helping common people rise above the most powerful institutions.
+ - What Steve Jobs and I did-and at the same time Bill Gates and Paul Allen did-we had no savings accounts, no friends that could loan us money. But we had ideas, and I wanted all my life to be a part of a revolution.
+ - The easier it is to do something, the harder it is to change the way you do it.
+ - You need the kind of objectivity that makes you forget everything you’ve heard, clear the table, and do a factual study like a scientist would.
+ - Not everything in life can go perfectly according to plan. I mean I didn’t keep every girlfriend I ever had.
+ - I wanted to be a fifth grade teacher because my teacher was so important to me and was giving me the education that was going to take me through life and through this world.
+ - I think that the anti-Microsoft sentiment is simply due to their having been so successful selling a lot of crap.
+ - Creative things have to sell to get acknowledged as such.
+ - Atari is a very sad story.
+ - A lot of hacking is playing with other people, you know, getting them to do strange things.
+ - When you stop and think about it, a smartphone is basically a whistle you can carry.
+ - I wanted to be an elementary school teacher my whole life.
+ - My primary phone is the iPhone. I love the beauty of it. But I wish it did all the things my Android does, I really do.
+ - I just believe in whatever you’re going to do, even if it’s work, have a little bit of fun attitude about it. You can be happy.
+ - It’s funny how when you’re up so late at night for so long your mind can get into these creative places, the kind of creative places that come to you when you’re halfway between asleep and awake.
+ - Everything that has a computer in will fail. Everything in your life, from a watch to a car to a radio, to an iPhone, it will fail if it have a computer in it.
+ - To give of yourself is much more important than giving a gift you can buy.
+ - Geek it’s really more a characteristic where you don’t socialize. You don’t talk the normal languages.
+ - In the end, I hope there’s a little note somewhere that says I designed a good computer.
+ - Don’t worry that you can’t seem to come up with sure billion dollar winners at first. Just do projects for yourself for fun. You’ll get better and better.
+ - After the Apple II was introduced, then came the Commodore and the Tandy TRS-80.
+ - The best things that capture your imagination are ones you hadn’t thought of before and that aren’t talked about in the news all the time.
+ - In some parts of life, like mathematics and science, yeah, I was a genius. I would top all the top scores you could ever measure it by.
+ - Steve Jobs doesn’t use a Mac, and won’t, because it’s too crappy in his opinion.
+ - If my son wants to be a pimp when he grows up, that’s fine with me. I hope he’s a good one and enjoys it and doesn’t get caught. I’ll support him in this. But if he wants to be a network administrator, he’s out of the house and not part of my family.
+ - I hate to say it, and Apple never likes it, but I love anything that’s hacker oriented. I don’t like passing it onto others, or getting things for free. I don’t like stealing music one bit, at all...
+ - It would be nice to design a real briefcase – you open it up and it’s your computer but it also stores your books.
+ - I wanted to be funny. And I’m always acknowledged for my pranks and jokes nowadays.
+ - With the cloud, you don’t own anything. You already signed it away.
+ - At our computer club, we talked about it being a revolution. Computers were going to belong to everyone, and give us power, and free us from the people who owned computers and all that stuff.
+ - If you try to make such projects, unseen by others, as perfect as any human could, you’ll develop skills that other professionals don’t have.
+ - I was born to teach. I have always had this gift with children.
+ - Teachers started recognizing me and praising me for being smart in science and that made me want to be even smarter in science!
+ - Rockets are bad technology. iPhones are good technology.
+ - I’d learned enough about circuitry in high school electronics to know how to drive a TV and get it to draw – shapes of characters and things.
+ - Every dream I’ve ever had in life has come true ten times over.
+ - When you’re providing a service to somebody, you’re the guy they always call when something’s wrong.
+ - Even if you do something that others might consider wrong, you should at least be willing to talk about it and tell your parents what you’re doing because you believe it’s right.
+ - I thought Microsoft did a lot of things that were good and right building parts of the browser into the operating system. Then I thought it out and came up with reasons why it was a monopoly.
+ - I had a TV set and a typewriter and that made me think a computer should be laid out like a typewriter with a video screen.
+ - Steve Jobs didn’t really set the direction of my Apple I and Apple II designs but he did the more important part of turning them into a product that would change the world. I don’t deny that.
+ - It’s just not right that so many things don’t work when they should. I don’t think that will change for a long time.
+ - The more we thought, the more they all sounded boring compared to Apple. You didn’t have to have a real specific reason for choosing a name when you were a little tiny company of two people; you choose any name you want.
+ - I had much more money than you ever need in your life to live on. So I was giving computer labs to school districts. I was – but then I decided you should really give yourself.
+ - My goal wasn’t to make a ton of money. It was to build good computers.
+ - Some great people are leaders and others are more lucky, in the right place at the right time. I’d put myself in the latter category. But I’d never call myself a normal designer of anything.
+ - And Communist Russia was so bad because they followed their people, they snooped on them, they arrested them, they put them in secret prisons, they disappeared them.
+ - Did you really invent the computer, or am I being pranked right now?
+ - College just didn’t even have computers for an under-curriculum when I started college.
+ - You’d better have the technology knowledge. I really urge you not to think you can start a whole company and business with just ideas on paper, because you’ll end up owning so few of those ideas.
+ - Young children were always so important to me. Adults should treat children with more respect. We should put more monies in our schools. I grew up on that side of the coin.
+ - I absolutely do not need a salary or a job, that’s the last thing I need.
+ - Being an electronic genius was a reputation I had, maybe being even into math and science almost exclusively and not wanting to be in the other normal parts of the world.
+ - I worked with such concentration and focus and I had hundreds of obscure engineering or programming things in my head. I was just real exceptional in that way.
+ - I have such a crowded life and crowded schedule. When people send me a link with a gadget, I’ll look at it and buy it if it looks interesting, but I don’t have time to check out everything I’d like to.
+ - My whole life had been designing computers I could never build.
+ - A lot of things seem to be worth almost no money. but if you do them very well, and they help people fill a need, there’s a great business you can build around that.
+ - Bill Gates did predict that computers for people made sense because he wrote a basic.
+ - Everything we did we were setting the tone for the world.
+ - I went drinking with Gray Powell and all I got was a lousy iPhone prototype.
+ - The biggest benefit in my life comes from my Segway, which I use everywhere I am. If I’m going to San Antonio, for example, I’ll load it in the car and just go everywhere with it.
+ - My dream was actually just to have a computer some day. If I’d imagined that it meant starting a company to sell them, I probably would have avoided the whole thing.
+ - Predictions can sound really good if you’re good with words and can express them eloquently and give people ideas and inspiration in their head. But I’m not really good at that, so I don’t want to.
+ - You know what, Steve Jobs is real nice to me. He lets me be an employee and that’s one of the biggest honors of my life.
+ - Somebody who’s designing something for himself has at least got a market of one that he’s very close to.
+ - I have always respected education, which is why I actually went back secretly and taught school for eight years.
+ - The first Apple was just a culmination of my whole life.
+ - For some reason I get this key position of being one of two people that started the company that started the revolution.
+ - We truly could have used the later Jobs in earlier years at Apple, is what I feel.
+ - Hard disks have disappointed me more than most technologies.
+ - Neither one of us could be sure we’d get our money back on this investment, but we just wanted to have company of our own for once because we were best friends.
+ - I really believe I know why my designs were better than any other human being, but I don’t want to take credit for starting Apple, for turning the world around or anything like that.
+ - You should stay closely connected to the technology when you start your company.
+ - I read Google News and use NetNewsWire to keep up with general and tech news.
+ - I had designed -in high school designed hundreds and hundreds of computers over and over and over, so I developed these skills without ever thinking I’d do it in life as job.
+ - I think Apple’s revenge is just the fact that Windows, you know, PCs all became Macintoshes in a way.
+ - Steve Jobs had very strong feelings about what makes a company great, what makes products great. He more or less chose Tim Cook to be in that role, in that position.
+ - I don’t think I was talking specifically about Steve Jobs. It was just a general philosophy about one person grows up and he’s kind of managing companies and every day he’s working making sure this is in place and that’s in place.
+ - But I know newspapers. They have the first amendment and they can tell any lie knowing it’s a lie and they’re protected if the person’s famous or it’s a company.
+ - The Homebrew Computer Club was the highlight of my life. I was too shy to ever talk in the club meeting, but the way that I could communicate sometimes was by doing good designs. I was very skilled at a certain type of circuit design.
+ - If I designed a computer with 200 chips, I tried to design it with 150. And then I would try to design it with 100. I just tried to find every trick I could in life to design things real tiny.
+ - I sold my most valuable possession, but I knew that because I worked at Hewlett Packard, I could buy the next model calculator the very next month for a lower price than I sold the older one for!
+ - If you love what you do and are willing to do what it takes, it’s within your reach.
+ - I think everything I have done in my life, my reasons at the time were right no matter how things worked out.
+ - What I was proud of was that I used very few parts to build a computer that could actually speak words on a screen and type words on a keyboard and run a programming language that could play games. And I did all this myself.
+ - I just was non-political and didn’t see myself as a person who could push people around, make their decision and tell them how lousy their work was.
+
+94 quotes

@@ -1,0 +1,44 @@
+ - American federalism was the embodiment of political tolerance and decentralization – the expression of the liberal conviction that society can manage itself and needs no central plan.
+ - Capitalism, and capitalism alone, has rescued the human race from degrading poverty, rampant sickness and early death.
+ - Among the most urgent political priorities of our age is the separation of economy and state.
+ - Pledge allegiance to your principles, your family, your faith, but don’t be foolish enough to pledge allegiance to a gang of thieves.
+ - It is not caving in to the bees to stop poking a stick into their hive.
+ - Libertarianism is a theory of politics that is so compelling that once you have absorbed it, it becomes the lens through which you end up understanding all economic and political events.
+ - Socialized medicine must fail for the same reasons all socialism must fail: it offers no system for rationally allocating resources, and instead promotes the overutilization of all resources, ending in bankruptcy.
+ - Everything done by the state is ultimately done by means of aggression, which is to say violence or the threat of violence against the innocent.
+ - Democracy has turned out to be not majority rule but rule by well-organized and well-connected minority groups who steal from the majority.
+ - The only reason for a government service is precisely to provide financial support for an operation that is otherwise unsustainable, or else there would be no point in the government’s involvement at all.
+ - The laws of economics tell us that the expansion of the central state can’t go on forever. Its limit is reached when the looted turn on the looters.
+ - What makes for the good society is a sound economy. Without it, all the rest falls apart.
+ - Always and everywhere, the only serious political issue is what the state should and should not do. All the rest distracts.
+ - Profit is a signal that valuable services are being rendered to people on a voluntary basis.
+ - The state is a vast enterprise for declaring all sorts of things legal for itself that would be illegal for us.
+ - The fact is that the New Deal did not work. It prolonged what might have been a troubling two-year downturn into a horrifying blow to world prosperity that ended up in a war that killed countless millions. It was one of the greatest acts of wreckage in world history.
+ - The state always poses a greater threat to society than whatever problem it purports to solve.
+ - Without market prices for capital goods, accounting is not possible. You don’t know if you are making money or losing money, saving resources or wasting them, doing the right thing or not doing the right thing.
+ - Repeal the entire Banking Act of 1933, and Austrian School economists will cheer, especially if the current system were replaced by a 100%-reserve competitive banking with no central bank. That banking reform would give us a sound money system, meaning no more business cycle, bailouts, or inflation.
+ - One ironic legacy of the Clinton administration is the rearming of the American citizenry. Each time Clinton and his friends in Congress threaten another round of anti-gun regulations, the American people respond by stocking up...
+ - Wealth is not a given or an accident of history. It is not bestowed on us like rain from above. It is the product of human creativity in an environment of freedom. The freedom to own, to make contracts, to save, to invest, to associate, and to trade: these are the key to prosperity.
+ - The private sector is creating a miracle a day, even as the stuff that government attempts is failing left and right.
+ - If the people are led to believe that scarce resources are best channeled in a direction that producers and consumers would not choose on their own, the result must necessarily be central planning.
+ - There is nothing the state can do, and which society needs done, that cannot be done far better by the market.
+ - American money was never more sound, or banking more free, than 200 years ago. Since then, it’s been a long steady decline from the gold standard and competitive banking to our Fed-run system of inflated paper currency, deposit insurance, and perpetually shaky banks on the dole.
+ - Above all, ascribe no decent motives to the federal government. Always and everywhere, it is the enemy of truth.
+ - The state is and has been in history a source of disorder and chaos, and this problem gets worse the more the state grows.
+ - Welcome to the age of paper money, where governments and central banks can manufacture as much money as they want without limit. Gold was the last limit. Its banishment as a standard unleashed the inflation monster and leviathan itself, which has swelled beyond comprehension.
+ - If credit expansion, protectionism, and government spending were a path to prosperity, mankind would have long ago created heaven on earth.
+ - Private enterprise creates; government destroys. That is the great economic lesson of our times and all times.
+ - Never underestimate the power of bad ideas. They must be refuted again and again.
+ - It’s not as if socialism is a new idea. It was tried in the 20th century. It produced economic stagnation and despair. In its purest form, it extinguished more than one hundred million people.
+ - Subsidies create more of whatever is being subsidized.
+ - To concede that there are social problems that cannot be corrected without the state is to give up the entire argument over the future of liberty itself.
+ - What the American worker needs is more of what WalMart offers and less of what the government offers.
+ - It’s a hard truth for Americans to face, that neither team in Washington is going to guard what we love the most. That is something we are going to have to face. Liberty is for the citizens to guard themselves.
+ - No state empowered to do what is supposedly necessary will restrain itself to those things. It will expand as much as public opinion will tolerate.
+ - Socialism crushes human rights, builds the state, impinges on the liberty of conscience, and breeds social, cultural, and economic degeneration.
+ - Money out of nothing is money that is eventually worth nothing.
+ - We like to imagine that in history, truth will prevail through sheer persuasive power. Sadly, this is not the case. Truth needs champions...
+ - In any government bureaucracy, they are not working for you but for the mythical blob called the ‘public sector,’ which is really nothing but a stash of stolen cash divided among the robber class.
+ - What we need is a new consciousness concerning the idea of human liberty.
+
+42 quotes

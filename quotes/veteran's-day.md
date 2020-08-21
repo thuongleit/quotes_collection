@@ -1,0 +1,42 @@
+ - People sleep peaceably in their beds at night only because rough men stand ready to do violence on their behalf. ~~George Orwell
+ - My heroes are those who risk their lives every day to protect our world and make it a better place – police, firefighters and members of our armed forces. ~~Sidney Sheldon
+ - Honor to the soldier and sailor everywhere, who bravely bears his country’s cause. Honor, also, to the citizen who cares for his brother in the field and serves, as he best can, the same cause. ~~Abraham Lincoln
+ - God grants liberty only to those who love it, and are always ready to guard and defend it. ~~Daniel Webster
+ - Once we have a war there is only one thing to do. It must be won. For defeat brings worse things than any that can ever happen in war. ~~Ernest Hemingway
+ - Freedom is never free. ~~Maya Angelou
+ - You’d have to go a long way to find someone who was more proud and grateful for what our veterans have done for all of us. ~~Jim Davis
+ - History teaches that war begins when governments believe the price of aggression is cheap. ~~Ronald Reagan
+ - Have the courage to act instead of react. ~~Oliver Wendell Holmes
+ - Old soldiers never die; they just fade away. ~~Douglas MacArthur
+ - These are the times that try men’s souls. ~~Thomas Paine
+ - Some people wonder all their lives if they’ve made a difference. The Marines don’t have that problem. ~~Ronald Reagan
+ - Regard your soldiers as your children, and they will follow you into the deepest valleys; look upon them as your own beloved sons, and they will stand by you even unto death. ~~Sun Tzu
+ - They may take our lives, but they’ll never take our freedom! ~~Mel Gibson
+ - Courage is almost a contradiction in terms. It means a strong desire to live taking the form of readiness to die. ~~Gilbert K. Chesterton
+ - Don’t interfere with anything in the Constitution. That must be maintained, for it is the only safeguard of our liberties. ~~Abraham Lincoln
+ - We, too, born to freedom, and believing in freedom, are willing to fight to maintain freedom. We, and all others who believe as deeply as we do, would rather die on our feet than live on our knees. ~~Theodore Roosevelt
+ - The battle, sir, is not to the strong alone; it is to the vigilant, the active, the brave. ~~Patrick Henry
+ - I dream of giving birth to a child who will ask: “Mother, what was war?” ~~Eve Merriam
+ - The most persistent sound which reverberates through man’s history is the beating of war drums. ~~Arthur Koestler
+ - Better than honor and glory, and History’s iron pen, Was the thought of duty done and the love of his fellow-men. ~~Richard Watson Gilder
+ - No soldier outlives a thousand chances. But every soldier believes in Chance and trusts his luck. ~~Erich Maria Remarque
+ - But this Veterans Day, I believe we should do more than sing the praises of the bravery and patriotism that our veterans have embodied in the past. We should take this opportunity to re-evaluate how we are treating our veterans in the present. ~~Nick Lampson
+ - Lord, bid war’s trumpet cease; Fold the whole earth in peace. ~~Oliver Wendell Holmes Jr.
+ - Those who cannot bravely face danger are the slaves of their attackers. ~~Aristotle
+ - That was not the biggest battle that ever was, but for me it always typified one thing; the dash, the ingenuity, the readiness at the first opportunity that characterizes the American soldier. ~~Dwight D. Eisenhower
+ - Our veterans accepted the responsibility to defend America and uphold our values when duty called. ~~Bill Shuster
+ - It is Veterans Day, when we honor everyone who served in all of the campaigns. We honor them with dignity and respect, and of course mattress sales and tire discounts. ~~Craig Ferguson
+ - Courage is fear holding on a minute longer. ~~George S. Patton Jr.
+ - Courage is contagious. When a brave man takes a stand, the spines of others are often stiffened. ~~Billy Graham
+ - A hero is someone who has given his or her life to something bigger than oneself. ~~Joseph Campbell
+ - The tree of liberty must be refreshed from time to time with the blood of patriots and tyrants. ~~Thomas Jefferson
+ - History does not long entrust the care of freedom to the weak or the timid. ~~Dwight D. Eisenhower
+ - In the beginning of a change the patriot is a scarce man, and brave, and hated and scorned. When his cause succeeds, the timid join him, for then it costs nothing to be a patriot. ~~Mark Twain
+ - It doesn’t take a hero to order men into battle. It takes a hero to be one of those men who goes into battle. ~~Norman Schwarzkopf
+ - Sometimes by losing a battle you find a new way to win the war. ~~Donald Trump
+ - Valor is stability, not of legs and arms, but of courage and the soul. ~~Michel de Montaigne
+ - Moral courage is the most valuable and usually the most absent characteristic in men. ~~George S. Patton Jr.
+ - You’ve been told that you’re broken, that you’re damaged goods and should be labeled victims. I don’t buy it. The truth, instead, is that you are the only folks with the skills, determination, and values to ensure American dominance in this chaotic world. ~~James Mattis
+ - If there must be trouble, let it be in my day, that my child may have peace. ~~Thomas Paine
+
+40 quotes

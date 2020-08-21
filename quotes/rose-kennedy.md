@@ -1,0 +1,36 @@
+ - It has been said, ‘time heals all wounds.’ I do not agree. The wounds remain. In time, the mind, protecting its sanity, covers them with scar tissue and the pain lessens. But it is never gone.
+ - Life isn’t a matter of milestones, but of moments.
+ - Birds sing after a storm; why shouldn’t people feel as free to delight in whatever remains to them?
+ - Prosperity tries the fortunate, adversity the great.
+ - Money doesn’t give you any license to relax. It gives you an opportunity to use all your abilities, free of financial worries, to go forward, and to use your superior advantages and talents to help others.
+ - I am just an old-fashioned girl.
+ - Birds sing after a storm. Why shouldn’t we?
+ - What greater aspiration and challenge are there for a mother than the hope of raising a great son or daughter?
+ - Make sure you never, never argue at night. You just lose a good night’s sleep, and you can’t settle anything until morning anyway.
+ - I tried to allow my children to take risks, to test themselves. Better broken bones than broken spirit.
+ - Neither comprehension nor learning can take place in an atmosphere of anxiety.
+ - In my life, I am often reminded that there is a destiny that rules over us, because no one whom I know about or whom I read about seems to be completely happy during a long time.
+ - There’s nothing I like less than bad arguments for a view that I hold dear.
+ - Money is never to be squandered or spent ostentatiously. Some of the greatest people in history have lived lives of the greatest simplicity. Remember it’s the you inside that counts.
+ - I have always believed that God never gives a cross to bear larger than we can carry. No matter what, he wants us to be happy, not sad. birds sing after a storm. Why shouldn’t we?
+ - More business is lost every year through neglect than through any other cause.
+ - It is selfish to concern oneself with tragedies.
+ - I know not age, nor weariness nor defeat.
+ - I’m like old wine. They don’t bring me out very often, but I’m well preserved.
+ - I tell myself that God gave my children many gifts – spirit, beauty, intelligence, the capacity to make friends and to inspire respect. There was only one gift he held back – length of life.
+ - The time will come when it will disgust you to look in the mirror.
+ - I looked on child rearing not only as a work of love and duty but as a profession that was fully as interesting and challenging as any honorable profession in the world and one that demanded the best that I could bring to it.
+ - There can be no really pervasive system of oppression, such as that in the United States, without the consent of the oppressed.
+ - No one will ever feel sorry for me.
+ - I would much rather be known as the mother of a great son than the author of a great book or the painter of a great masterpiece.
+ - I’m one of the most fortunate people in the world.
+ - It’s wrong for parents to bury their children. It should be the other way around.
+ - I have come to the conclusion that the most important element in human life is faith.
+ - Sedentary people are apt to have sluggish minds. A sluggish mind is apt to be reflected in flabbiness of body and in a dullness of expression that invites no interest and gets none.
+ - I do not like candid pictures. They are so unattractive.
+ - I’ve had an exciting time; I married for love and got a little money along with it.
+ - My father was a great innovator in public life, but when it came to raising his daughters, no one could have been more conservative.
+ - Modern candidates seem to have to live with political matters all the time. In my father’s time, a politician’s home was still his castle.
+ - I don’t think you’re much good, unless you’re doing good to someone.
+
+34 quotes

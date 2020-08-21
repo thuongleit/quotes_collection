@@ -1,0 +1,30 @@
+ - There is a sharp distinction between what is remembered, what is told and what is true.
+ - Joining the military is not to be taken lightly. You’re putting every part of yourself at risk, not just your body but your moral and spiritual centre.
+ - I understood that ‘The Yellow Birds’ would be a peculiar representation of the experience of being at war. I intended it to be so.
+ - All pain is the same. Only the details are different.
+ - The male role models I had all seemed to have been in the military. My father served in the army. My uncle was in the Marine Corps. Both of my grandfathers served in WWII. There weren’t any career soldiers in my family, but when I was young it seemed like a way of arriving at adulthood.
+ - Noises and smells, those can bring back powerful memories. I remember when I was going to school one Fourth of July, and there were a lot of fireworks going off. I knew that I was in Richmond. I knew that I was a college student. But I thought people were shooting at me.
+ - I understand that it’s incredibly difficult to watch what’s happening on the news every day and not become inured to it. I’ve fallen victim to that myself, wanting to look away.
+ - As human beings, we have the blessing and the curse that we’re able to adapt to almost anything. No matter how extreme the circumstances you’re in, they become normal.
+ - Freedom is not the same as lack of accountability.
+ - To understand the world, one’s place in it, is to be always at the risk of drowning.
+ - I guess I find the boundaries between poetry and prose to be somewhat permeable.
+ - The world makes liars of us all.
+ - It reminded me of talking, how what is said is never quite what was thought, and what is heard is never quite what was said. It wasn’t much in the way of comfort, but everything has a little failure in it, and we still make do somehow.
+ - All choices are illusions, or if they are not illusions their strength is illusory, for one choice must contend with the choices of all the other men and women deciding anything in that moment.
+ - I wanted something that I could look back on and say, yes, you were fighting too, you burned to be alive, and whatever failure or accident of nature caused you to be killed could be explained by something other than the fact that I’d missed your giving up.
+ - I think a lot of the guys I know and a lot of people I’ve talked to, what they want is very often what most people want, a kind of simple life, a livelihood, a family, people who care about them, people they can care about. I think vets on the whole want the same things that everybody else does.
+ - It’s not just: you get off the plane, you’re back home, everything’s fine. Maybe the physical danger ends, but soldiers are still deeply at risk of being injured in a different way.
+ - One of the things my service in Iraq did give me was this freedom from fear of failure or any kind of expectations that I had to take a standard path.
+ - The details of the world in which we live are always secondary to the fact that we must live in them.
+ - I’ve been writing poems and stories since I was about 13.
+ - Poetry and prose are of equal importance to me as a reader, and there doesn’t seem to be much difference in my own writing.
+ - I’m always most interested in writing about things that I don’t understand.
+ - Writing was always an aspiration, but I’d kept it a secret even from myself.
+ - I can’t envision an honest war novel that left war in a positive light.
+ - I know that the writers I read and admire all have an influence on my work, but trying to determine to what degree any particular piece of input changes the way I think about writing seems counterproductive.
+ - I knew that at least a few of the stars I saw were probably gone already, collapsed into nothing. I felt like I was looking at a lie. But I didn’t mind. The world makes liars of us all.
+ - I had the feeling that if I encountered anyone they would intuit my disgrace and would judge me instantly. Nothing is more isolating than having a particular history. At least that’s what I thought. Now I know: all pain is the same. Only the details are different.
+ - But I remember being told that the truth does not depend on being believed.
+
+28 quotes

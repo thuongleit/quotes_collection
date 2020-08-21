@@ -1,0 +1,61 @@
+ - None of us suffers as much as we should, or loves as much as we say. Love is the first lie; wisdom the last.
+ - There is always more surface to a shattered object than a whole.
+ - Yes, we who are full to the gorge with misery should look well around, doubting everything seen, done, spoken, precisely because we have a word for it, and not its alchemy.
+ - A man is whole only when he takes into account his shadow.
+ - Certainty always produces questions, uncertainty statements. It is a balancing law of nature.
+ - Destiny and history are untidy.
+ - I’ve seen death and I didn’t like it.
+ - Youth is cause, effect is age; so with the thickening of the neck we get data.
+ - We are but skin about a wind, with muscles clenched against mortality.
+ - The unendurable is the beginning of the curve of joy.
+ - I’m a fart in a gale of wind, a humble violet under a cow pat.
+ - There’s something evil in me that loves evil and degradation – purity’s black backside! That loves honesty with a horrid love; or why have I always gone seeking it at the liar’s door?
+ - For most people, life is nasty, brutish, and short; for me, it has simply been nasty and brutish.
+ - God, children know something they can’t tell; they like Red Riding Hood and the wolf in bed!
+ - A man is whole only when he takes into account his shadow as well as himself – and what is a man’s shadow but his upright astonishment?
+ - I like my human experience served up with a little silence and restraint. Silence makes experience go further and, when it does die, gives it that dignity common to a thing one had touched and not ravished.
+ - I talk too much because I have been made so miserable by what you are keeping hushed.
+ - The priceless galaxy of misinformation called the mind.
+ - Life is not to be told, call it as loud as you like, it will not tell itself.
+ - One cup poured into another makes different waters; tears shed by one eye would blind if wept into another’s eye. The breast we strike in joy is not the breast we strike in pain; any man’s smile would be consternation on another’s mouth.
+ - In the acceptance of depravity the sense of the past is most truly captured. What is a ruin but time easing itself of endurance? Corruption is the Age of Time.
+ - Too great a sense of identity makes a man feel he can do no wrong. And too little does the same.
+ - Sleep demands of us a guilty immunity.
+ - To love without criticism is to be betrayed.
+ - Even the contemplative life is only an effort, Nora my dear, to hide the body so the feet won’t stick out.
+ - Love is the first lie; wisdom the last.
+ - New York is the meeting place of the peoples, the only city where you can hardly find a typical American.
+ - No one will be much or little except in someone else’s mind, so be careful of the minds you get into...
+ - Man is the only thing that has no further use after something goes amiss.
+ - Love becomes the deposit of the heart, analogous in all degrees to the ‘findings’ in a tomb. As in one will be charted the taken place of the body, the raiment, the utensils necessary to its other life, so in the heart of the lover will be traced, as an indelible shadow, that which he loves.
+ - The night is a skin pulled over the head of day that the day may be in torment.
+ - No man needs curing of his individual sickness; his universal malady is what he should look to.
+ - New York rose out of the water like a great wave that found it impossible to return again and so remained there in horror, peering out of the million windows man had caged it with.
+ - A man’s sorrow runs uphill; true it is difficult for him to bear, but it is also difficult for him to keep.
+ - I am not a critic; to me criticism is so often nothing more than the eye garrulously denouncing the shape of the peephole that gives access to hidden treasure.
+ - I couldn’t ever boil potatoes over the heat of your affection. Your love would never bridge a gap; it wouldn’t even fill up the hole that the mice came through...
+ - Our bones ache only while the flesh is on them.
+ - Well, isn’t Bohemia a place where everyone is as good as everyone else – and must not a waiter be a little less than a waiter to be a good Bohemian?
+ - And must I, perchance, like careful writers, guard myself against the conclusions of my readers?
+ - I can draw and write, and you’d be foolish not to hire me.
+ - An image is a stop the mind makes between uncertainties.
+ - The truth is how you say it, and to be ‘one’s self’ is the most shocking custom of all.
+ - One’s life is peculiar to one’s own when one has invented it.
+ - One must not look inward too much, while the inside is yet tender. I do not wish to frighten myself until I can stand it.
+ - To think is to be sick...
+ - When one wants to become cognizant of the color and the texture of the soil, one does not get a ladder; one gets a shovel. When one wants to get into touch with the texture of the universal mind, one does not go to Boston; one goes to the Bowery.
+ - Suffering for love is how I have learned practically everything I know, love of grandmother up and on.
+ - Una’s face was an unbroken block of calculation, saving where, upon her upper lip, a little down of hair fluttered. Yet it gave one an uncanny feeling. It made one think of a tassel on a hammer.
+ - Only the impossible lasts forever.
+ - After all, it is not where one washes one’s neck that counts but where one moistens one’s throat.
+ - I have a narrative, but you will be put to it to find it.
+ - The very condition of Woman is so subject to Hazard, so complex, and so grievous, that to place her at one moment is but to displace her at the next.
+ - What is a ruin but time easing itself of endurance?
+ - Of course I think of the past and of Paris, what else is there to remember?
+ - Dreams have only the pigmentation of fact.
+ - This head has risen above its hair in a moment of abandon known only to men who have drawn their feet out of their boots to walk awhile in the corridors of the mind.
+ - Why is it that whenever I hear music I think I’m a bride?
+ - Life, the permission to know death.
+ - We are beginning to wonder whether a servant girl hasn’t the best of it after all. She knows how the salad tastes without the dressing, and she knows how life’s lived before it gets to the parlor door.
+
+59 quotes

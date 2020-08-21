@@ -1,0 +1,74 @@
+ - The curious paradox is that when I accept myself just as I am, then I can change.
+ - The only person who is educated is the one who has learned how to learn and change.
+ - What you are to be, you are now becoming.
+ - People are just as wonderful as sunsets if you let them be. When I look at a sunset, I don’t find myself saying, “Soften the orange a bit on the right hand corner.” I don’t try to control a sunset. I watch with awe as it unfolds.
+ - We think we listen, but very rarely do we listen with real understanding, true empathy. Yet listening, of this very special kind, is one of the most potent forces for change that I know.
+ - The good life is a process, not a state of being. It is a direction not a destination.
+ - Growth occurs when individuals confront problems, struggle to master them, and through that struggle develop new aspects of their skills, capacities, views about life.
+ - Man’s inability to communicate is a result of his failure to listen effectively.
+ - When I look at the world I’m pessimistic, but when I look at people I am optimistic.
+ - Am I living in a way which is deeply satisfying to me, and which truly expresses me?
+ - In my early professional years I was asking the question: How can I treat, or cure, or change this person? Now I would phrase the question in this way: How can I provide a relationship which this person may use for his own personal growth?
+ - We cannot change, we cannot move away from what we are, until we thoroughly accept what we are. Then change seems to come about almost unnoticed.
+ - The degree to which I can create relationships, which facilitate the growth of others as separate persons, is a measure of the growth I have achieved in myself.
+ - Empathy is a special way of coming to know another and ourself, a kind of attuning and understanding. When empathy is extended, it satisfies our needs and wish for intimacy, it rescues us from our feelings of aloneness.
+ - As no one else can know how we perceive, we are the best experts on ourselves.
+ - A person cannot teach another person directly; a person can only facilitate another’s learning.
+ - This process of the good life is not, I am convinced, a life for the faint-hearted. It involves the stretching and growing of becoming more and more of one’s potentialities. It involves the courage to be. It means launching oneself fully into the stream of life.
+ - The only reality I can possibly know is the world as I perceive it at this moment. The only reality you can possibly know is the world as you see it at this moment. And the only certainty is that those perceived realities are different. There are as many “real worlds” as there are people!
+ - I realize that if I were stable, prudent and static; I’d live in death. Therefore I accept confusion, uncertainty, fear and emotional ups and downs; because that’s the price I’m willing to pay for a fluid, perplexed and exciting life.
+ - Experience is the highest authority.
+ - People only seriously consider change when they feel accepted for exactly who they are.
+ - What I am is good enough if I would only be it openly.
+ - Each person is an island unto himself, in a very real sense; and he can only build bridges to other islands if he is first of all willing to be himself and permitted to be himself.
+ - Life, at its best, is a flowing, changing process in which nothing is fixed.
+ - If I were to search for the central core of difficulty in people as I have come to know them, it is that in the great majority of cases they despise themselves, regarding themselves as worthless and unlovable.
+ - True empathy is always free of any evaluative or diagnostic quality. This comes across to the recipient with some surprise. “If I am not being judged, perhaps I am not so evil or abnormal as I have thought”.
+ - It is a direction not a destination.
+ - There are as many “real worlds” as there are people!
+ - The purpose of adult education is to help them to learn, not to teach them all you know and thus stop them from learning.
+ - The state of empathy, or being empathic, is to perceive the internal frame of reference of another with accuracy and with the emotional components and meanings which pertain thereto as if one were the person.
+ - Powerful is our need to be known, really known by ourselves and others, even if only for a moment.
+ - We can choose to use our growing knowledge to enslave people in ways never dreamed of before, depersonalizing them, controlling them by means so carefully selected that they will perhaps never be aware of their loss of personhood.
+ - Over the years, however, the research evidence keeps piling up, and it points strongly to the conclusion that a high degree of empathy in a relationship is possibly the most potent and certainly one of the most potent factors in bringing about change and learning.
+ - The basic idea behind teaching is to teach people what they need to know.
+ - The paradigm of Western culture is that the essence of persons is dangerous; thus, they must be taught, guided, and controlled by those with superior authority.
+ - I have learned that in any significant or continuing relationship, feelings which are persistent had best be expressed. If they are expressed as feelings owned by me, the result may be temporarily upsetting but ultimately far more rewarding than any attempt to deny or conceal them.
+ - Openness to all attitudes no matter how extreme or unrealistic they may seem.
+ - It is the client who knows what hurts, what directions to go, what problems are crucial, what experiences have been deeply buried.
+ - When a person realizes he has been deeply heard, his eyes moisten. I think in some real sense he is weeping for joy. It is as though he were saying, “Thank God, somebody heard me. Someone knows what it’s like to be me”.
+ - In a person who is open to experience each stimulus is freely relayed through the nervous system, without being distorted by any process of defensiveness.
+ - If we value independence, if we are disturbed by the growing conformity of knowledge, of values, of attitudes, which our present system induces, then we may wish to set up conditions of learning which make for uniqueness, for self-direction, and for self-initiated learning.
+ - There is in every organism, at whatever level, an underlying flow of movement toward constructive fulfillment of its inherent possibilities.
+ - Don’t be a damned ammunition wagon. Be a rifle!
+ - It’s an awful risky thing to live.
+ - Adults who think that children must be manipulated for their own good have developed the attitude of a controlling parent who lacks faith in himself, the child, or humanity or himself.
+ - Neurotic behavior is quite predictable. Healthy behavior is unpredictable.
+ - It is astonishing how elements which seem insoluble become soluble when someone listens. How confusions which seem irremediable turn into relatively clear flowing streams when one is heard.
+ - Don’t be the ammunition wagon, be the rifle knowledge exists primarily for use.
+ - If I can listen to what he can tell me, if I can understand how it seems to him; if I can see its personal meaning for him, if I can sense the emotional flavor which it has for him, then I will be releasing potent forces of change in him.
+ - I was forced to stretch my thinking, to realize that sincere and honest people could believe in very divergent religious doctrines.
+ - Both the young and the old are almost completely useless in our modern society, and are made keenly aware of that uselessness. They have no place. They are private, isolated – and hopeless.
+ - I believe that the testing of the student’s achievements in order to see if he meets some criterion held by the teacher, is directly contrary to the implications of therapy for significant learning.
+ - To be original, or different, is felt to be “dangerous.”
+ - A second characteristic of the process which for me is the good life, is that it involves an increasingly tendency to live fully in each moment. I believe it would be evident that for the person who was fully open to his new experience, completely without defensiveness, each moment would be new.
+ - We in the West seem to have made a fetish out of complete individual self-sufficiency, of not needing help, of being completely private except in a very few selected relationships.
+ - The elements in a relationship which seem impossible to share, the secretly disturbing, dissatisfying elements, are the most rewarding to share. This is a hard, risky, frightening thing to learn, and it needs to be re-learned over and over.
+ - No other person’s ideas, and none of my own ideas, are as authoritative as my experience.
+ - Though modern Marriage is a tremendous laboratory, its members are often without preparation for the partnership function. How much agony and remorse and failure could have been avoided if there had been at least some rudimentary learning before they entered the partnership.
+ - The facts are always friendly, every bit of evidence one can acquire, in any area, leads one that much closer to what is true.
+ - Loneliness is a barrier that prevents one from uniting with the inner self.
+ - I prize the privilege of being alone.
+ - I believe I know why it is satisfying to me to hear someone. When I can really hear someone, it puts me in touch with him; it enriches my life. It is through hearing people that I have learned all that I know about individuals, about personality, about interpersonal relationships.
+ - With the price of life these days, you’ve got to get everything for free you can.
+ - The organism has one basic tendency and striving – to actualize, maintain, and enhance the experiencing organism.
+ - The sense of community does not arise out of collective movement, nor from conforming to some group direction. Quite the contrary. Each individual tends to use the opportunity to become all that he or she can become. Separateness and diversity – the uniqueness of being “me” – are experienced.
+ - Unless man can make new and original adaptations to his environment as rapidly as his science can change the environment, our culture will perish.
+ - The very essence of the creative is its novelty, and hence we have no standard by which to judge it.
+ - Although the client-centered approach had its origin purely within the limits of the psychological clinic, it is proving to have implications, often of a startling nature, for very diverse fields of effort.
+ - Most of us consist of two separated parts, trying desperately to bring themselves together into an integrated soma, where the distinctions between mind and body, feelings and intellect, would be obliterated.
+ - Learning of all kinds goes on best, lasts best, and tends to lead itself on more when it grows out of a real focus of interest in the learner.
+ - If the time comes when our culture tires of the endless homicidal feuds, despairs of the use of force and war as a means of bringing peace, becomes discontent with the half-lives that its members are living – only then will our culture seriously look for alternatives.
+ - Allowance of the freedom of choices in direction, either for the group or individuals particularly in the near future.
+
+72 quotes

@@ -1,0 +1,250 @@
+ - I can’t go back to yesterday – because I was a different person then.
+ - I’m not strange, weird, off, nor crazy, my reality is just different from yours.
+ - Alice came to a fork in the road. ‘Which road do I take?’ she asked. ‘Where do you want to go?’ responded the Cheshire Cat. ‘I don’t know,’ Alice answered. ‘Then,’ said the Cat, ’it doesn’t matter.
+ - Sometimes I’ve believed as many as six impossible things before breakfast.
+ - My dear, here we must run as fast as we can, just to stay in place. And if you wish to go anywhere you must run twice as fast as that.
+ - Whatever is worth doing is worth doing well.
+ - Imagination is the only weapon in the war against reality.
+ - Alice: This is impossible. The Mad Hatter: Only if you believe it is.
+ - The hurrier I go, the behinder I get.
+ - Cat: Where are you going? Alice: Which way should I go? Cat: That depends on where you are going. Alice: I don’t know. Cat: Then it doesn’t matter which way you go.
+ - If I had a world of my own, everything would be nonsense. Nothing would be what it is, because everything would be what it isn’t. And contrary wise, what is, it wouldn’t be. And what it wouldn’t be, it would. You see?
+ - If you don’t know where you’re going any road will do.
+ - No, no! The adventures first, explanations take such a dreadful time.
+ - Now, here, you see, it takes all the running you can do, to keep in the same place. If you want to get somewhere else, you must run at least twice as fast as that!
+ - But, I nearly forgot, you must close your eyes otherwise you won’t see anything.
+ - There is a place, like no place on earth. A land full of wonder, mystery, and danger. Some say, to survive it, you need to be as mad as a hatter. Which, luckily, I am.
+ - Begin at the beginning and go on till you come to the end; then stop.
+ - In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die: Ever drifting down the stream- Lingering in the golden gleam- Life, what is it but a dream?
+ - Which way you ought to go depends on where you want to get to...
+ - In another moment down went Alice after it, never once considering how in the world she was to get out again.
+ - Who in the world am I? Ah, that’s the great puzzle.
+ - It is better to be feared than loved.
+ - You have to run as fast as you can just to stay where you are. If you want to get anywhere, you’ll have to run much faster.
+ - If you do not know where you want to go, it doesn’t matter which path you take.
+ - People who don’t think shouldn’t talk.
+ - If you’ll believe in me, I’ll believe in you.
+ - Still she haunts me, phantomwise, Alice moving under skies Never seen by waking eyes.
+ - It’s a poor sort of memory that only works backwards.
+ - I wonder if I’ve been changed in the night. Let me think. Was I the same when I got up this morning? I almost think I can remember feeling a little different. But if I’m not the same, the next question is ‘Who in the world am I?’ Ah, that’s the great puzzle!
+ - It’s always tea-time.
+ - Words mean more than we mean to express when we use them: so a whole book ought to mean a great deal more than the writer meant.
+ - I know who I WAS when I got up this morning, but I think I must have been changed several times since then.
+ - Mad Hatter: “Why is a raven like a writing-desk?” “Have you guessed the riddle yet?” the Hatter said, turning to Alice again. “No, I give it up,” Alice replied: “What’s the answer?” “I haven’t the slightest idea,” said the Hatter.
+ - Is Life itself a dream, I wonder?
+ - It would be so nice if something made sense for a change.
+ - For the snark was a boojum, you see.
+ - She who saves a single soul, saves the universe.
+ - Do you suppose she’s a wildflower?
+ - He was part of my dream, of course – but then I was part of his dream, too.
+ - Read the directions and directly you will be directed in the right direction.
+ - When I use a word,’ Humpty Dumpty said in rather a scornful tone, ‘it means just what I choose it to mean – neither more nor less.’ ‘The question is,’ said Alice, ‘whether you can make words mean so many different things.’ ‘The question is,’ said Humpty Dumpty, ‘which is to be master – that’s all.
+ - Why is a raven like a writing desk? – Mad Hatter I haven’t the slightest idea. – Alice.
+ - One of the secrets of life is that all that is really worth the doing is what we do for others.
+ - Beware the Jabberwock, my son The jaws that bite, the claws that catch! Beware the Jubjub bird, and shun The frumious Bandersnatch!
+ - Twas brillig, and the slithy toves Did gyre and gimble in the wabe: All mimsy were the borogoves, And the mome raths outgrabe.
+ - Little Alice fell d o w n the hOle, bumped her head and bruised her soul.
+ - Life, what is it but a dream?
+ - Always speak the truth, think before you speak, and write it down afterwards.
+ - I give myself very good advice, but I very seldom follow it.
+ - I’m afraid I can’t explain myself, sir. Because I am not myself, you see?
+ - We are but older children, dear, Who fret to find our bedtime near.
+ - I confess I do not admire naked boys. They always seem to me to need clothes, whereas one hardly sees why the lovely forms of girls should ever be covered up.
+ - Contrariwise, if it was so, it might be; and if it were so, it would be; but as it isn’t, it ain’t. That’s logic.
+ - When I used to read fairy-tales, I fancied that kind of thing never happened, and now here I am in the middle of one!
+ - Keep your temper, said the Caterpillar.
+ - If everybody minded their own business, the world would go around a great deal faster than it does.
+ - That’s the reason they’re called lessons, because they lesson from day to day.
+ - The proper definition of a man is an animal that writes letters.
+ - Courtesy is a small act but it packs a mighty wallop.
+ - You would have to be half mad to dream me up.
+ - Mad Hatter: Would you like a little more tea? Alice: Well, I haven’t had any yet, so I can’t very well take more. March Hare: Ah, you mean you can’t very well take less. Mad Hatter: Yes. You can always take more than nothing.
+ - Everything’s got a moral, if only you can find it.
+ - Be what you would seem to be – or, if you’d like it put more simply – never imagine yourself not to be otherwise than what it might appear to others that what you were or might have been was not otherwise than what you had been would have appeared to them to be otherwise.
+ - Alice: I simply must get through! Doorknob: Sorry, you’re much too big. Simply impassible. Alice: You mean impossible? Doorknob: No, impassible. Nothing’s impossible.
+ - I don’t see how he can ever finish, if he doesn’t begin.
+ - Everybody has won, and all must have prizes.
+ - It takes all the running you can do just to keep in the same place.
+ - That which chiefly causes the failure of a dinner-party, is the running short – not of meat, nor yet of drink, but of conversation.
+ - The rule is, jam tomorrow and jam yesterday-but never jam today It must come sometime to jam today, Alice objected No it can’t said the Queen It’s jame every other day. Today isn’t any other day, you know.
+ - The Queen of Hearts, she made some tarts, All on a summer day: The Knave of Hearts, he stole those tarts, And took them quite away!
+ - Is all our Life, then but a dream Seen faintly in the golden gleam Athwart Time’s dark resistless stream?
+ - The Cheshire Cat only grinned when it saw Alice. It looked good-natured, she thought: still it had very long claws and a great many teeth, so she felt it ought to be treated with respect.
+ - If you limit your actions in life to things that nobody can possibly find fault with, you will not do much!
+ - Where do you come from? And where are you going? Look up, speak nicely, and don’t twiddle your fingers all the time.
+ - Humpty Dumpty sat on the wall Humpty Dumpty had a great fall All the king’s horses and all the king’s men Couldn’t put Humpty together again.
+ - Photography is my one recreation and I think it should be done well.
+ - We’re all mad here.
+ - She’s in that state of mind that she wants to deny something -only she doesn’t know what to deny!
+ - Be who you are, said the Duchess to Alice, or, if you would like it put more simply, never try to be what you might have been or could have been other than what you should have been.
+ - Would you tell me, please, which way I ought to go from here?
+ - And as to being in a fright, Allow me to remark That Ghosts have just as good a right In every way, to fear the light, As Men to fear the dark.
+ - A minute goes by so fearfully quick. You might as well try to stop a Bandersnatch!
+ - Alice had got so much into the way of expecting nothing but out-of-the-way things to happen, that it seemed quite dull and stupid for life to go on in the common way.
+ - Still, as Christmas-tide comes round, They remember it again – Echo still the joyful sound “Peace on earth, good-will to men!”
+ - I’m doubtful about the temper of your flamingo. Shall I try the experiment?
+ - The sun was shining on the sea, Shining with all his might: He did his very best to make The billows smooth and bright – And this was odd, because it was The middle of the night.
+ - Child of the pure unclouded brow And dreaming eyes of wonder! Though time be fleet, and I and thou Are half a life asunder, Thy loving smile will surely hail The love-gift of a fairy-tale.
+ - How puzzling all these changes are! I’m never sure what I’m going to be, from one minute to another.
+ - Alice! A childish story take, And with a gentile hand Lay it where Childhood dreams are twined In memory’s mystic band, Like pilgrim’s withered wreath of flowers Pluck’d in a far off land.
+ - A loaf of bread, the Walrus said, Is what we chiefly need: Pepper and vinegar besides Are very good indeed – Now if you’re ready, Oysters, dear, We can begin to feed!
+ - In fact, now I come to think of it, do we decide questions, at all? We decide answers, no doubt: but surely the questions decide us? It is the dog, you know, that wags the tail – not the tail that wags the dog.
+ - And, has thou slain the Jabberwock? Come to my arms, my beamish boy! O frabjous day! Callooh! Callay! He chortled in his joy.
+ - In autumn, when the leaves are brown, Take pen and ink, and write it down.
+ - Soup of the evening, beautiful soup! Soup of the evening, beautiful soup! Beau – ootiful Soo – oop! Beau – ootiful Soo – oop! Soo – oop of the e – e – evening, Beautiful, beautiful soup!
+ - There are three hundred and sixty-four days when you might get un-birthday presents, and only one for birthday presents, you know.
+ - My beloved friend – one of the most unique and charming personalities of our time.
+ - What I tell you three times is true.
+ - The rule is, jam tomorrow and jam yesterday – but never jam today.
+ - Better say nothing at all. Language is worth a thousand pounds a word!
+ - One! two! and through and through The vorpal blade went snickersnack! He left it dead, and with its head He went galumphing back.
+ - Yes, that’s it! Said the Hatter with a sigh, it’s always tea time.
+ - Speak in French when you can’t think of the English for a thing – turn your toes out when you walk – And remember who you are!
+ - Take my friends and my home – as an outcast I’ll roam: Take the money I have in the bank: It is just what I wish, but deprive me of fish, And my life would indeed be blank.
+ - For first you write a sentence, And then you chop it small; Then mix the bits and sort them out Just as they chance to fall: The order of the phrases makes no difference at all.
+ - Reeling and Writhing of course, to begin with,? the Mock Turtle replied, ’and the different branches of arithmetic-ambition, distraction, uglification, and derision.
+ - His answer trickled through my head like water through a sieve.
+ - In a wonderland they lie, dreaming as the days go by.
+ - Do let’s pretend that I’m a hungry hyena, and you’re a bone!
+ - I try to believe in as many as six impossible things before breakfast. Count them, Alice. One, there are drinks that make you shrink. Two, there are foods that make you grow. Three, animals can talk. Four, cats can disappear. Five, there is a place called Underland. Six, I can slay the Jabberwocky.
+ - A thick stick in one’s hand makes people respectful.
+ - Without a plan, it doesn’t matter which way you’re going.
+ - One of the hardest things in the world is to convey a meaning accurately from one mind to another.
+ - One can’t believe impossible things.
+ - It’s a large as life and twice as natural.
+ - Come, hearken then, ere voice of dread, with bitter tiding laden, shall summon to unwelcome bed a melancholy maiden! We are but older children, dear, who fret to find our bedtime near.
+ - The time has come The walrus said To talk of many things: Of shoes- and ships- And sealing wax- Of cabbages and kings- And why the sae is boiling hot- And whether pigs have wings.
+ - Once she remembered trying to box her own ears for having cheated herself in a game of croquet she was playing against herself, for this curious child was very fond of pretending to be two people.
+ - You evidently do not suffer from “quotation-hunger” as I do! I get all the dictionaries of quotations I can meet with, as I always want to know where a quotation comes from.
+ - If you drink much from a bottle marked ‘poison’ it is certain to disagree with you sooner or later.
+ - Thy loving smile will surely hail The love-gift of a fairy tale.
+ - But oh, beamish nephew, beware of the day, If your Snark be a Boojum! for then You will softly and suddenly vanish away, And never be met with again!
+ - Every story has a moral you just need to be clever enough to find it – the Dutchess.
+ - It is the privilege of true genius, And especially genius who opens up a new path, To make great mistakes with impunity.
+ - Which form of proverb do you prefer Better late than never, or Better never than late?
+ - You could not see a cloud, because No cloud was in the sky: No birds were flying overhead – There were no birds to fly.
+ - It was for bringing the cook tulip-roots instead of onions.
+ - I wish I dared dispense with all costume. Naked children are so perfectly pure and lovely; but Mrs. Grundy would be furious – it would never do.
+ - But then, shall I never get any older than I am now? That’ll be a comfort, one way – never to be an old woman – but then – always to have lessons to learn!
+ - And if he left off dreaming about you, where do you suppose you’d be?
+ - Charles Lutwidge Dodgson’s life in space-time colored his liberated life of the imagination.
+ - There comes a pause, for human strength will not endure to dance without cessation; and everyone must reach the point at length of absolute prostration.
+ - There are certain things – as, a spider, a ghost, The income-tax, gout, an umbrella for three – That I hate, but the thing that I hate the most Is a thing they call the Sea.
+ - Child of the pure, unclouded brow and dreaming eyes of wonder.
+ - Un-dish-cover the fish, or dishcover the riddle.
+ - All in the golden afternoon Full leisurely we glide; For both our oars, with little skill, By little arms are plied, While little hands make vain pretence Our wanderings to guide.
+ - The recent extraordinary discovery in Photography, as applied in the operations of the mind, has reduced the art of novel-writing to the merest mechanical labour.
+ - We haven’t any and you’re too young.
+ - I am fond of children – except boys.
+ - The Good and Great must ever shun That reckless and abandoned one Who stoops to perpetrate a pun.
+ - Why is it that people with the most narrow of minds seem to have the widest of mouths?
+ - Yet what are all such gaieties to me whose thoughts are full of indices and surds?
+ - All too soon will Childhood gay Realise Life’s sober sadness. Let’s be merry while we may, Innocent and happy Fay! Elves were made for gladness!
+ - Well, “slithy” means “lithe and slimy.” “Lithe” is the same as “active.” You see it’s like a portmanteau – there are two meanings packed up into one word.
+ - When you are describing, A shape, or sound, or tint; Don’t state the matter plainly, But put it in a hint; And learn to look at all things, With a sort of mental squint.
+ - Anon, to sudden silence won, In fancy they pursue The dream-child moving through the land Of wonders wild and new, In friendly chat with bird or beast – And half believe it true.
+ - Beautiful soup! Who cares for fish, game or any other dish? Who would not give all else for two pennyworth of beautiful soup?
+ - For, you see, so many out-of-the-way things had happened lately, that Alice had begun to think that very few things indeed were really impossible.
+ - Curtsey while you’re thinking what to say. It saves time.
+ - Take care of the sense and the sounds will take care of themselves.
+ - How doth the little crocodile Improve his shining tail, And pour the waters of the Nile On every golden scale! How cheerfully he seems to grin, How neatly he spreads his claws, And welcomes little fishes in, With gently smiling jaws!
+ - There ought to be a book written about me, that there ought!
+ - Soup of the evening, beautiful Soup!
+ - PLAIN SUPERFICIALITY is the character of a speech, in which any two points being taken, the speaker is found to lie wholly with regard to those two points.
+ - And thus they give the time, that Nature meant for peaceful sleep and meditative snores, to ceaseless din and mindless merriment and waste of shoes and floors.
+ - Well, when one’s lost, I suppose it’s good advice to stay where you are until someone finds you.
+ - In some ways, you know, people that don’t exist, are much nicer than people that do.
+ - You’re thinking about something, my dear, and that makes you forget to talk.
+ - You won’t make yourself a bit realer by crying.
+ - Well, I never heard it before, but it sounds uncommon nonsense.
+ - One thing was certain, that the white kitten had had nothing to do with it – it was the black kitten’s fault entirely.
+ - Tis a secret: none knows how it comes, how it goes: But the name of the secret is Love!
+ - The vast unfathomable sea Is but a Notion-unto me.
+ - So young a child ought to know which way she’s going, even if she doesn’t know her own name!
+ - I’d give all the wealth that years have piled, the slow result of life’s decay, To be once more a little child for one bright summer day.
+ - All that matters is what we do for each other.
+ - Rule Forty-two. All persons more than a mile high to leave the court.
+ - I have seen so many extraordinary things, nothing seems extraordinary any more.
+ - With a sort of mental squint.
+ - Death is always sad, I suppose, to us who look forward to it: I expect it will seem very different when we can look back upon it.
+ - In proceeding to the dining-room, the gentleman gives one arm to the lady he escorts – it is unusual to offer both.
+ - Sentence first, verdict afterwards.
+ - No good fish goes anywhere without a porpoise.
+ - Well that was the silliest tea party I ever went to! I am never going back there again!
+ - The further off from England the nearer is to France- Then turn not pale, beloved snail, but come and join the dance.
+ - As a general rule, do not kick the shins of the opposite gentleman under the table, if personally unaquainted with him; your pleasantry is liable to be misunderstood – a circumstance at all times unpleasant.
+ - Who sail on stormy seas; And that’s the way I get my bread – A trifle, if you please.
+ - There’s nothing a well-regulated child hates so much as regularity. I believe a really healthy boy would thoroughly enjoy Greek Grammar – if only he might stand on his head to learn it!
+ - I wish I could manage to be glad! Only I never can remember the rule. You must be very happy, living in this wood, and being glad whenever you like!
+ - I’ll try if I know all the things I used to know. Let me see: four times five is twelve, and four times six is thirteen, and four times seven is – oh dear! I shall never get to twenty at that rate!
+ - I don’t believe there’s an atom of meaning in it.
+ - If you want to inspire confidence, give plenty of statistics. It does not matter that they should be accurate, or even intelligible, as long as there is enough of them.
+ - If you set to work to believe everything, you will tire out the believing-muscles of your mind, and then you’ll be so weak you won’t be able to believe the simplest true things.
+ - She tried to fancy what the flame of a candle is like after the candle is blown out, for she could not remember ever having seen such a thing.
+ - By which I get my wealth – And very gladly will I drink Your Honour’s noble health.
+ - My view of life is, that it’s next to impossible to convince anybody of anything.
+ - So she sat on with closed eyes, and half believed herself in Wonderland, though she knew she had but to open them again, and all would change to dull reality.
+ - Speak roughly to your little boy and beat him when he sneezes! he only does it to annoy, because he knows it teases!
+ - It is always allowable to ask for artichoke jelly with your boiled venison; however there are houses where this is not supplied.
+ - Be sure the safest rule is that we should not dare to live in any scene in which we dare not die.
+ - Ill try the whole cause, and condemn you to death.
+ - The things most people want to know about are usually none of their business.
+ - But, said Alice, the the world has absolutely no sens, who’s stopping us from inventing one?
+ - If I had a world of my own, everything would be nonsense.
+ - I can explain all the poems that were ever invented – and a good many that haven’t been invented just yet.
+ - What do you suppose is the use of a child without any meaning? Even a joke should have some meaning – and a child’s more imporant than a joke, I hope. You couldn’t deny that, even if you tried with both hands.
+ - The chief difficulty Alice found at first was in managing her flamingo.
+ - If it had grown up, it would have made a dreadfully ugly child; but it makes rather a handsome pig, I think.
+ - When the sands are all dry, he is gay as a lark, And will talk in contemptuous tones of the Shark: But, when the tide rises and sharks are around, His voice has a timid and tremulous sound.
+ - I’m getting rather hoarse, I fear, After so much reciting: So, if you don’t object, my dear, We’ll try a glass of bitter beer – I think it looks inviting.
+ - Why is a raven like a writing desk?
+ - This was charming, no doubt; but they shortly found out That the Captain they trusted so well Had only one notion for crossing the ocean, And that was to tingle his bell.
+ - Why, what a temper you are in!
+ - There’s no use in comparing one’s feelings between one day and the next; you must allow a reasonable interval, for the direction of change to show itself.
+ - Do not, oh do not indulge such a wild idea that a newspaper might err! If so what have we to trust in this age of sham?
+ - I said you LOOKED like an egg, Sir. And some eggs are very pretty, you know.
+ - Can you do Division? Divide a loaf by a knife – what’s the answer to that?
+ - A tale begun in other days, When summer suns were glowing – A simple chime, that served to time The rhythm of your rowing – Whose echoes live in memory yet, Though envious years would say ’forget.
+ - Somehow it seems to fill my head with ideas – only I don’t exactly know what they are!
+ - I cannot even pretend to feel as much interest in boys as in girls.
+ - I have proved by actual trial that a letter, that takes an hour to write, takes only about 3 minutes to read!
+ - Would you be a poet Before you’ve been to school? Ah, well! I hardly thought you So absolute a fool.
+ - Some children have the most disagreeable way of getting grown-up.
+ - Epithets, like pepper, Give zest to what you write; And if you strew them sparely, They whet the appetite: But if you lay them on too thick, You spoil the matter quite!
+ - If he smiled much more, the ends of his mouth might meet behind, and then I don’t know what would happen to his head! I’m afraid it would come off!
+ - But I was thinking of a way To feed oneself on batter, And so go on from day to day Getting a little fatter.
+ - When you have made a thorough and reasonably long effort, to understand a thing, and still feel puzzled by it, stop, you will only hurt yourself by going on.
+ - Abstract qualities begin With capitals alway: The True, the Good, the Beautiful- Those are the things that pay!
+ - Curiouser and curiouser.
+ - You can’t be that good; you work for me.
+ - She’s stark raving mad!
+ - I don’t want to take up literature in a money-making spirit, or be very anxious about making large profits, but selling it at a loss is another thing altogether, and an amusement I cannot well afford.
+ - It’s too late to correct it: when you’ve once said a thing, that fixes it, and you must take the consequences.
+ - And my heart is like nothing so much as a bowl Brimming over with quivering curds!
+ - Will you, won’t you, will you, won’t you, will you join the dance?
+ - You shouldn’t make jokes if it makes you so unhappy.
+ - They’ve a temper, some of them – particularly verbs, they’re the proudest – adjectives you can do anything with, but not verbs...
+ - I believe this thought, of the possibility of death – if calmly realised, and steadily faced would be one of the best possible tests as to our going to any scene of amusement being right or wrong.
+ - If I was not assured by the best authority on earth that the world is to be destroyed by fire, I should conclude that the day of destruction is at hand, but brought on by means of an agent very opposite to that of heat.
+ - Consider anything, only don’t cry!
+ - I should like the whole race of nurses to be abolished: children should be with their mother as much as possible, in my opinion.
+ - No discussion between two persons can be of any use, until each knows clearly what it is that the other asserts.
+ - Why, you might just as well say that, I see what I eat, is the same as, I eat what I see.
+ - No Ghost of any common sense begins a conversation.
+ - I think I should understand that better, if I had it written down: but I can’t quite follow it as you say it.
+ - Off with their heads!
+ - It’s jam every other day: to-day isn’t any other day, you know.
+ - I never thought of that before! It’s my opinion that you never think at all.
+ - If only I could manage, without annoyance to my family, to get imprisoned for 10 years, “without hard labour,” and with the use of books and writing materials, it would be simply delightful!
+ - I once delivered a simple ball, which I was told, had it gone far enough, would have been considered a wide.
+ - I have had prayers answered – most strangely so sometimes – but I think our Heavenly Father’s loving-kindness has been even more evident in what He has refused me.
+ - Magnitudes are algebraically represented by letter, men by men of letters, and so on.
+ - I have often seen a cat without a grin – but a grin without a cat – remember the cat kept appearing and disappearing slowly bit by bit.
+ - Of all things, I do like a Conspiracy! It’s so interesting!
+ - And how do you know that you’re mad?
+ - You couldn’t have it if you DID want it.
+ - He said he would come in,? the White Queen went on, ‘because he was looking for a hippopotamus. Now, as it happened, there wasn’t such a thing in the house, that morning.’ Is there generally?? Alice asked in an astonished tone. Well, only on Thursdays,? said the Queen.
+ - And ever, as the story drained The wells of fancy dry, And faintly strove that weary one To put the subject by, “The rest next time – ” “It is next time!” The Happy voice cry. Thus grew the tale of Wonderland.
+ - Twinkle, twinkle little bat How I wonder what you’re at! Up above the world you fly, Like a tea-tray in the sky.
+
+248 quotes

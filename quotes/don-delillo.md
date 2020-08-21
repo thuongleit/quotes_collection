@@ -1,0 +1,262 @@
+ - I hate my life. I’m at the point where I want to hear about other people’s lives. it’s like switching from fiction to biography.
+ - Writing is a form of personal freedom. It frees us from the mass identity we see in the making all around us. In the end, writers will write not to be outlaw heroes of some underculture but mainly to save themselves, to survive as individuals.
+ - Ecology is boring for the same reason that destruction is fun.
+ - As technology advances in complexity and scope, fear becomes more primitive.
+ - That’s why people take vacations. No to relax or find excitement or see new places. To escape the death that exists in routine things.
+ - When birds look into houses, what impossible worlds they see.
+ - I don’t consider myself paranoid at all. I think I see things exactly as they are.
+ - Pain is just another form of information.
+ - Tourism is the march of stupidity.
+ - It was the time of year, the time of day, for a small insistent sadness to pass into the texture of things. Dusk, silence, iron chill. Something lonely in the bone.
+ - Longing on a large scale makes history.
+ - Some people fake their death, I’m faking my life.
+ - The shock, the power of an ordinary life. It is a thing you could not invent with banks of computers in a dust-free room.
+ - Technology is lust removed from nature.
+ - It is so much simpler to bury reality than it is to dispose of dreams.
+ - The novel is the dream release, the suspension of reality that history needs to escape its own brutal confinements.
+ - All plots tend to move deathward. This is the nature of plots.
+ - A shrewd person would one day start a religion based on coincidence, if he hasn’t already, and make a million.
+ - There is a world inside the world.
+ - Writing is a concentrated form of thinking.
+ - Hardship makes the world obscure.
+ - In a crisis the true facts are whatever other people say they are.
+ - Sex finds us. Sex sees through us. That’s why it’s so shattering. It strips us of appearances.
+ - There are dead stars that still shine because their light is trapped in time. Where do I stand in this light, which does not strictly exist?
+ - What we are reluctant to touch often seems the very fabric of our salvation.
+ - I quit my job just to quit. I didn’t quit my job to write fiction. I just didn’t want to work anymore.
+ - Your brain has a trillion neurons and every neuron has ten thousand little dendrites. The system of inter-communication is awe-inspiring.
+ - I’ve got death inside me. It’s just a question of whether or not I can outlive it.
+ - Fear is self-awareness raised to a higher level.
+ - Some people are larger than life. Hitler is larger than death.
+ - We live in an age of rapid mass media, television, Internet. They determine our tempo, not books.
+ - The more things I threw away, the more I found.
+ - A person rises on a word and falls on a syllable.
+ - It is all falling indelibly into the past.
+ - The true life is not reducible to words spoken or written, not by anyone, ever. The true life takes place when we’re alone, thinking, feeling, lost in memory, dreamingly self-aware, the submicroscopic moments.
+ - Evil is movement towards void.
+ - Past, present and future are not amenities of language. Time unfolds into the seamsof being. It passes through you, making and shaping.
+ - Clouds are no deterrent. Clouds intensify the drama, trap and shape the light.
+ - You have to break through the structure of your own stonework habit just to make yourself listen.
+ - I’m not reclusive at all. Just private.
+ - There are no amateurs in the world of children.
+ - The world is shrinking into a kind of technological funnel. I think people are drawn into their technological devices, and this becomes a kind of subjective universe, into which much of the rest of the world simply does not enter.
+ - I slept for four years. I didn’t study much of anything. I majored in something called communication arts.
+ - America can be saved only by what it’s trying to destroy.
+ - To a writer, madness is a final distillation of self, a final editing down. It’s the drowning out of false voices.
+ - A mystery novel localizes the awesome force of the real death outside the book, winds it tightly in a plot...
+ - No sense of the irony of human experience, that we are the highest form of life on earth, and yet ineffably sad because we know what no other animal knows, that we must die.
+ - In our world we sleep and eat the image and pray to it and wear it too.
+ - The family is the cradle of the world’s misinformation.
+ - I marched and I protested against the war in Vietnam, along with many, many thousands of others. But I never quite understood the bombs that were placed in science labs or office buildings.
+ - I’ve always seen myself in sentences. I begin to recognize myself, word by word, as I work through a sentence.
+ - Say heat. Say wet between my legs. Say legs. Seriously, I want you to. Stockings. Whisper it. The word is meant to be whispered.
+ - California deserves whatever it gets. Californians invented the concept of life-style. This alone warrants their doom.
+ - Money has lost its narrative quality the way painting did once upon a time. Money is talking to itself.
+ - Sometimes I see something so moving I know I’m not supposed to linger. See it and leave. If you stay too long, you wear out the wordless shock. Love it and trust it and leave.
+ - The cheesecake was smooth and lush, with the personality of a warm and well-to-do uncle who knows a hundred dirty jokes and will die of sexual exertions in the arms of his mistress.
+ - War is the ultimate realization of modern technology.
+ - Doesn’t our knowledge of death make life more precious?? What good is a preciousness based on fear and anxiety? It’s an anxious quivering thing.
+ - Fame requires every kind of excess. I mean true fame, a devouring neon, not the sombre renown of waning statesmen or chinless kings.
+ - Talent is more erotic when it’s wasted.
+ - Music is dangerous in so many ways. It’s the most dangerous thing in the world.
+ - There’s a moral force in a sentence when it comes out right. It speaks the writer’s will to live.
+ - He thinks he’s happy but it’s just a nerve cell in his brain that’s getting too much stimulation or too little stimulation.
+ - To be a tourist is to escape accountability. Errors and failings don’t cling to you the way they do back home. You’re able to drift across continents and languages, suspending the operation of sound thought. Tourism is the march of stupidity.
+ - If you reveal everything, bare every feeling, ask for understanding, you lose something crucial to your sense of yourself. You need to know things that others don’t know. It’s what no one knows about you that allows you to know yourself.
+ - I embarked on my life – I didn’t do anything. I don’t have an explanation.
+ - Some nights I need to be held. Tonight I’m a listener. So nice to lie in rumpled sheets and listen. Cover me with words.
+ - It is possible to be homesick for a place even when you are there.
+ - Before pop art, there was such a thing as bad taste. Now there’s kitsch, schlock, camp, and porn.
+ - I don’t want to do the type of writing where I recite biography, parentage and education. I want to rise up from the words on the page and do something, hurt someone.
+ - One truth is the swing of the sentence, the beat and poise, but down deeper it’s the integrity of the writer as he matches with the language.
+ - Any assault on the borders of perception is going to seem rash at first.
+ - What you see is not what we see. What you see is distracted by memory, by being who you are, all this time, for all these years.
+ - If you know you’re worth nothing, only a gamble with death can gratify your vanity.
+ - America was and is the immigrant’s dream.
+ - He speaks in your voice, American, and there’s a shine in his eye that’s halfway hopeful.
+ - Let’s enjoy the aimless days while we still can.
+ - Eye contact was a delicate matter. A quarter second of a shared glance was a violation of agreements that made the city operational.
+ - And what’s the point of waking up in the morning if you don’t try to match the enormousness of the known forces in the world with something powerful in your own life?
+ - In the face of technology, everything becomes a little atavistic.
+ - Too much has been forgotten in the name of memory.
+ - Technology and violence are interdependent.
+ - To portray America over the past twenty years or so, I would think immediately of football, probably the Super Bowl in its sumptuous suggestion of a national death wish.
+ - May the days be aimless. Do not advance action according to a plan.
+ - We surrounded ourselves with smoke and loud noise. That’s the way we chose to live. I’m prepared to defend it.
+ - In these night recitations we create a space between things as we felt them at the time and as we speak them now. This is the space reserved for irony, sympathy and fond amusement, the means by which we rescue ourselves from the past.
+ - Man’s guilt in history and in the tides of his own blood has been complicated by technology, the daily seeping falsehearted death.
+ - The world isn’t going to be destroyed, but you don’t feel safe anymore in your plane or train or office or auditorium.
+ - Never underestimate the power of the State to act out its own massive fantasies.
+ - The greater the scientific advance, the more primitive the fear.
+ - The true life is not reducible to words spoken or written, not by anyone, ever.
+ - Explain me to myself, you’ll make me choke on my lunch. Feel sympathy for me, I’ll puke monkey blood on your understated shoes.
+ - War is the form nostalgia takes when men are hard-pressed to say something good about their country.
+ - I see contemporary violence as a kind of sardonic response to the promise of consumer fulfilment in America...
+ - The world is full of abandoned meanings. In the commonplace I find unexpected themes and intensities.
+ - Fame and secrecy are the high and low ends of the same fascination.
+ - I was always younger than anyone around me. One day it began to change.
+ - These are the days after. Everything now is measured by after.
+ - Look past the violence. There is a wonderful brimming spirit of innocence and fun.
+ - My attitudes aren’t directed toward characters at all. I don’t feel sympathetic toward some characters, unsympathetic toward others. I don’t love some characters, feel contempt for others. They have attitudes; I don’t.
+ - Because friends have to be brutally honest with each other. I’d feel terrible if I didn’t tell you what I was thinking, especially at a time like this.
+ - Prayer is a practical strategy, the gaining of temporal advantage in the capital markets of Sin and Remission.
+ - The genius of the primitive mind is that it can render human helplessness in noble and beautiful ways.
+ - Only a catastrophe gets our attention. We want them, we depend on them. As long as they happen somewhere else.
+ - Digital clocks took the ‘space’ out of time.
+ - She became confused when she stepped onto an escalator that wasn’t working.
+ - I have only a bare working knowledge of the human brain but it’s enough to make me proud to be an American.
+ - I think if you maintain a force in the world that comes into people’s sleep, you are exercising a meaningful power.
+ - Mirrors and images. Or sex and love. These are two separate systems that we miserably try to link.
+ - Out of some persistent sense of large-scale ruin, we kept inventing hope.
+ - We seem to believe it is possible to ward off death by following rules of good grooming.
+ - The music I like best is kind of frozen in my mind from the Sixties and Seventies. I still listen to the same jazz music I listened to when I was eighteen years old, and like and admire it just as much.
+ - Once you’ve seen the signs about the barn, it becomes impossible to see the barn.
+ - The modern meaning of life’s end-when does it end? How does it end? How should it end? What is the value of life? How do we measure it?
+ - Dying was just an extended version of Ash Wednesday.
+ - I like the construction of sentences and the juxtaposition of words-not just how they sound or what they mean, but even what they look like.
+ - The smoke alarm went off in the hallway upstairs, either to let us know the battery had just died or because the house was on fire.
+ - There’s a connection between the advances that are made in technology and the sense of primitive fear people develop in response to it.
+ - There is no lie in war or preparation of war that can’t be defended.
+ - A dead afternoon in a dark bar was not the worst of fates.
+ - It was important for him to believe that he’d spent his life among people who kept missing the point.
+ - You live in a tower that soars to heaven and goes unpunished by God.
+ - There’s always a period of curious fear between the first sweet-smelling breeze and the time when the rain comes cracking down.
+ - Words are not necessary to one’s experience of the true life.
+ - Plot a murder, you’re saying. But every plot is a murder in effect. To plot is to die, whether we know it or not.
+ - I think my work is influenced by the fact that we’re living in dangerous times. If I could put it in a sentence, in fact, my work is about just that: living in dangerous times.
+ - Being called a ‘bad citizen’ is a compliment to a novelist, at least to my mind. That’s exactly what we ought to do.
+ - People who are powerless make an open theater of violence.
+ - I never wanted to change the world.
+ - The language of my books has shaped me as a man.
+ - You gave yourself away, word by word, every time you opened your trap to speak.
+ - Brilliant people never think of the lives they smash, being brilliant.
+ - It’s not enough to hate your enemy. You have to understand how the two of you bring each other to deep completion.
+ - I saw a photograph of a wedding conducted by Reverend Moon of the Unification Church. I wanted to understand this event, and the only way to understand it was to write about it.
+ - Isn’t death the boundary we need?
+ - Even when you self-destruct, you want to fail more, lose more, die more than others, stink more than others.
+ - At night the sky was very near, sprawled in star smoke and gamma cataclysms, but she didn’t see it the way she used to, as soul extension, dumb guttural wonder, a thing that lived outside language in the oldest part of her.
+ - Freud is finished, Einstein’s next.
+ - In cities no one notices specific dying. Dying is a quality of the air. It’s everywhere and nowhere.
+ - I don’t want your candor. I want your soul in a silver thimble.
+ - Something is always happening, even on the quietest days and deep into the night, if you stand a while and look.
+ - Certainly I’ve never tried to imagine what the future will hold. It’s a hopeless endeavor to try to do such a thing...
+ - The dead have a presence.
+ - I am ashamed every day, and more ashamed the next.
+ - In the American soul there is a lonely individual standing in a vast landscape.
+ - You shout because it makes you brave or you want to announce your recklessness.
+ - He wanted paper and something to write with, some way to sustain a thought, to place it in the world.
+ - It was only when I found myself writing things I didn’t realise I knew that I said, ‘I’m a writer now.’
+ - Be willing to die for your beliefs, or computer printouts of your beliefs.
+ - The genius of rock music is that it matched the cultural hysteria around it.
+ - When my head is in the typewriter the last thing on my mind is some imaginary reader. I don’t have an audience; I have a set of standards.
+ - People hurried past, the others of the street, endless anonymous, twenty-one lives per second, race-walking in their faces and pigments, sprays of fleetest being.
+ - People think about who they are in the stillest hour of the night. I carry this thought, the child’s mystery and terror of this thought, I feel this immensity in my soul every second of my life.
+ - When I work I have a sculptor’s sense of the shape of the words I’m making. I use a machine with larger than average letters: the bigger the better.
+ - Famous people don’t want to be told that you have a quality in common with them. It makes them think there’s something crawling in their clothes.
+ - I’ve come to think of Europe as a hardcover book, America as the paperback version.
+ - I’ve always felt that my subject was living in dangerous times.
+ - Why is it so hard to be serious, so easy to be too serious?
+ - World is supposed to mean something that’s self-contained. but nothing is self-contained.
+ - If the world is where we hide from ourselves, what do we do when the world is no longer accessible? We invent a false name, invent a destiny, purchase a firearm through the mail.
+ - For most people, there are only two places in the world. Where they live and their TV set. If a thing happens on television, we have every right to find it fascinating, whatever it is.
+ - That’s what in theory differentiates a writer from everyone else. You see and hear more clearly.
+ - Just because it’s on the radio doesn’t mean we have to suspend belief in the evidence of our senses.
+ - Stories are consoling, fiction is one of the consolation prizes for having lived in the world.
+ - Facts are lonely things.
+ - Everyone who does not live in Berlin lives in Brooklyn now.
+ - What good is knowledge if it just floats in the air? It goes from computer to computer. It changes and grows every second of every day. But nobody actually knows anything.
+ - I think that the massive, overarching, interconnected systems of technology tend to make us a little insecure, somewhat pliable, and susceptible to half-beliefs.
+ - All who have their reward on Earth, the fruits Of painful superstition and blind zeal, Naught seeking but the praise of men, here find Fit retribution, empty as their deeds.
+ - People say great art is immortal. I say there’s something mortal in it. It carries a glimpse of death.
+ - Everything that goes on in your whole life is a result of molecules rushing around somewhere in your brain.
+ - The writer is the person who stands outside society, independent of affiliation and independent of influence.
+ - Every advance in knowledge and technique is matched by a new kind of death, a new strain. Death adapts, like a viral agent.
+ - Somehow pictures always lead to people as masses. Books belong to individuals.
+ - That’s the world out there, little green apples and infectious disease.
+ - I think literature has lost it’s power. Great novels continue to be written, but they are no longer changing the world.
+ - Stories have no point if they don’t absorb our terror.
+ - When I work, I’m just translating the world around me in what seems to be straightforward terms. For my readers, this is sometimes a vision that’s not familiar. But I’m not trying to manipulate reality. This is just what I see and hear.
+ - When you try to unravel something you’ve written, you belittle it in a way. It was created as a mystery.
+ - The future belongs to crowds.
+ - What terrorists gain, novelists lose.
+ - If an idea seems to find its way towards a stage setting, that’s the direction I take. I don’t know if I’m trying to achieve anything other than to follow an idea on to the page.
+ - I am not particularly distressed by the state of fiction or the role of the writer. The more marginal, perhaps ultimately the more trenchant and observant and finally necessary he’ll become.
+ - The question of dying becomes a wise reminder. It cures us of our innocence of the future.
+ - Rushdie is a hostage.
+ - A novel determines its own size and shape and I’ve never tried to stretch an idea beyond the frame and structure it seemed to require.
+ - Off-camera lives are unverifiable.
+ - Everything is barely weeks. Everything is days. We have minutes to live.
+ - Men with secrets tend to be drawn to each other, not because they want to share what they know but because they need the company of the like-minded, the fellow afflicted.
+ - There were moments when she wasn’t talking so much as fading into time, dropping back into some funnelled stretch of recent past.
+ - It takes close attention to see what is happening in front of you. It takes work, pious effort, to see what you are looking at.
+ - People who are in power make their arrangements in secret, largely as a way of maintaining and furthering that power.
+ - It’s healthier to reject certain cautions than fall in line.
+ - Every sentence has a truth waiting at the end of it and the writer learns how to know it when he finally gets there.
+ - I don’t know what I think about certain subjects, even today, until I sit down and try to write about them.
+ - It’s impossible to write about the Kennedy assassination and its aftermath without taking note of twenty-five years of paranoia which has collected around that event.
+ - It’s true that some of us become better writers by living long enough. But this is also how we become worse writers. The trick is to die in between.
+ - We need time to lose interest in things.
+ - I watch movies occasionally, and I watch documentaries. Virtually nothing else.
+ - People had no tolerance for your particular hardship unless you knew how to entertain them with it.
+ - I think more than writers, the major influences on me have been European movies, jazz, and Abstract Expressionism.
+ - Not long ago, a novelist could believe he could have an effect on our consciousness of terror. Today, the men who shape and inflence human consciousness are the terrorists.
+ - People will always make comparisons.
+ - Terror is now the world narrative, unquestionably. When those two buildings were struck, and when they collapsed, it was, in effect, an extraordinary blow to consciousness, and it changed everything.
+ - I think silence is the condition you accept as the judgment on your crimes.
+ - I think a playwright realizes after he finishes working on the script that this is only the beginning. What will happen when it moves into three dimensions?
+ - People will not die. Isn’t this the creed of the new culture? People will be absorbed in streams of information. I know nothing about this. Computers will die. They’re dying in their present form. They’re just about dead as distinct units.
+ - Perhaps we’ve invented conspiracies for our own psychic well-being, to heal ourselves.
+ - It frequently happens that I begin a novel with just a visual image of something, a vague sense of people in three dimensional space.
+ - Making things difficult for the reader is less an attack on the reader than it is on the age and its facile knowledge-market.
+ - I used to think it was possible for an artist to alter the inner life of the culture. Now bomb-makers and gunmen have taken that territory.
+ - I’ve always liked being relatively obscure. I feel that’s where I belong, that’s where my work belongs.
+ - I understand there are some men who are only half here. Let’s not say men. Let’s say people. People who are more or less obscure at times.
+ - I would never write in response to what I believe the public wanted or needed.
+ - How many beginnings before you see the lies in your excitement?
+ - American writers ought to stand and live in the margins, and be more dangerous.
+ - People think about who they are in the stillest hour of the night.
+ - If I were a writer, how I would enjoy being told the novel is dead. How liberating to work in the margins, outside a central perception. You are the ghoul of literature. Lovely.
+ - In my experience, writing a novel tends to create its own structure, its own demands, its own language, its own ending.
+ - I am very unmusical. I can’t carry a tune. I would never be able to play an instrument.
+ - It’s no accident that my first novel was called Americana. This was a private declaration of independence, a statement of my intention to use the whole picture, the whole culture.
+ - The term itself – my life – is a desperate overstatement.
+ - We commit our crimes at night and reveal ourselves in the high noon of studio lights.
+ - A writer decides to follow some ideas and not others for reasons that aren’t always clear to him. It’s often a matter of intuition.
+ - You become a serious novelist by living long enough.
+ - I’ve never made an outline for any novel that I’ve written. Never.
+ - I felt Joyce was an influence on my fiction, but in a very general way, as a kind of inspiration and a model for the beauty of language.
+ - It occurred to me that eating is the only form of professionalism most people ever attain.
+ - In fiction, I tend to write fairly realistic dialogue-not always, and it tends to vary from book to book. But in many books, there is a colloquialism of address. The characters will speak in a quite idiosyncratic way sometimes.
+ - Writers in repressive societies are considered dangerous. That’s why so many of them are in jail.
+ - It’s my contention that each book creates its own structure and its own length. I’ve written three or four slim books. It may be that the next novel is a big one, but I don’t know.
+ - Naturally a direct comparison of terrorist and novelist is complete nonsense. But there was once a time when the novelist also had some influence on how his contemporaries thought, the way they saw the world, the way they lived.
+ - The power of the dead is that we think they see us all the time. The dead have a presence. Is there a level of energy composed solely of the dead? They are also in the ground, of course, asleep and crumbling. Perhaps we are what they dream.
+ - In a repressive society, a writer can be deeply influential, but in a society that’s filled with glut and repetition and endless consumption, the act of terror may be the only meaningful act.
+ - I think fiction recues history from its confusions.
+ - Insanity’s so personal. It’s hard to know who shares our secrets.
+ - When he died he would not end. The world would end.
+ - There’s never a dearth of reasons to shoot at the President.
+ - There are two categories of writers, it could be said: The author who is just a voice, and the one who is also creating a picture. I belong to the latter, because I have an acute visual sense.
+ - We’re the last billionth of a second in the evolution of matter.
+ - There is a set of balances and rhythms to a novel that we can’t experience in real life. So I think there is a sense in which fiction can rescue history from confusion.
+ - Why are homosexuals addicted to soap opera? Because our lives are a vivid situation.
+ - Writers, some of us, may tend to see things before other people do, things that are right there but aren’t noticed in the way that a writer might notice.
+ - A Catholic is raised with the idea that he will die any minute now and if he doesn’t live his life in a certain way, this death is an introduction to an eternity of pain.
+ - Ask yourself this question. Do we have to be humans forever? Consciousness is exhausted. Back now to inorganic matter. This is what we want. We want to be stones in a field.
+ - True terror is a language and a vision. There is a deep narrative structure to terrorist acts, and they infiltrate and alter consciousness in ways that writers used to aspire to.
+ - I’m a novelist, period. An American novelist.
+ - Everything’s a scandal. Dying’s a scandal. But we all do it.
+ - He took pains to avoid self-depreciation, self-mockery, ambiguity, irony, subtlety, vulnerability, a civilized world-weariness and a tragic sense of history – the very things, he says, that are most natural to him.
+ - All human existence is a trick of light.
+ - I am not comfortable with abstract writing, stories that look like essays: you have to see, I need to see.
+ - One connection I see between novelists and terrorists is that we both attempt to alter consciousness.
+ - There are times when you want to stop working at faith and just be washed in a blowing wind that tells you everything.
+ - I think there is a sense of last things in my work that probably comes from a Catholic childhood.
+ - Human existence had to have a deeper source than our own dank fluids. Dank or rank. There had to be a force behind it, a principal being who was and is and ever shall be.
+ - I was never either pro-culture or counter-culture. I was in a kind of middle state.
+ - The less important you are in an office, the more they expect the happy smile.
+ - To be a tourist is to escape accountability.
+ - Something lurked inside the truth.
+ - A writer takes earnest measures to secure his solitude and then finds endless ways to squander it.
+
+260 quotes

@@ -1,0 +1,28 @@
+ - I gave up drinking lots of whiskey and began to practice yoga and meditation. As a result I am not dead.
+ - We are not actually in charge of life, yet we behave as if we are the masters of our own destiny. The realization of this fact is quite a hard one. The ridiculousness of our pomposity and presumption can only result in anger or humor.
+ - We believe in a society in delusion, and if you’re awake and not deluded people tell you you’re mad. That’s why I’m a freak and they’re not. But I’m actually not.
+ - I coined this term ‘freedom thru limitation’ back in the ’90s because I was sick of art being treated like pop, because of this boring ‘anything can be art’ theory.
+ - People could live very happily without the Turner Prize, but they could not live without real communication and emotion.
+ - Failure is fantastic, because you meet yourself and get to know your limitations. This is how I express myself, and I can’t do it any other way.
+ - I’m not trying to achieve perfection. I don’t like this forced control people have over work.
+ - One of my biggest problems in life has been my inability to lie.
+ - I loved moustaches. I used to draw myself with one. When I was 14, I was really into war and Van Gogh.
+ - I like feeling at home and knowing people. I like talking about ideas and being friendly.
+ - Being a fan of authentic Dada, I find today’s art – what I call ‘Bankers’ Dada’ – mind-numbingly dull. The most challenging work I’ve seen of late is by The British Art Resistance. Their document, ‘A Call for Heroes in an Age of Cowards’, is apt in these days of witless chancers.
+ - I’ve not been an admirer of contemporary music since punk rock went off the boil in 1977, but once a year I’ll listen to ‘Spiral Scratch’ by the Buzzcocks, or ‘Hippy Hippy Shake’ by the Swinging Blue Jeans. Otherwise, I can put up with Chopin or shakuhachi flute in the background.
+ - It is an artist’s duty to be on the wrong end of the see-saw.
+ - My favourite things are jokes, friendliness and feeling comfortable.
+ - I liked drawing and painting, because the only failure would be to listen to the doubters who wanted me to stop drawing and painting because ‘you aren’t going to make a living doing that.’ I liked looking in art books at the work of painters.
+ - I like being on the margins. You work better there.
+ - I don’t spend a lot of time working if I can help it.
+ - I’ve dubbed myself as an amateur, not because I work in different field, but because I do what I do for love.
+ - Artists who don’t paint aren’t artists.
+ - I’ve always liked New York, as I like towns with an edge and New York has a European feel, so when I came to play music here in the ’80s it was a surprise to me.
+ - I make sure I make a painting – that’s my job. And I cook the Sunday dinner.
+ - A moustache to a man is the same as a fringe is to a woman. When you’ve got it, you want to grow it out; when you’ve grown it out, you want to cut it.
+ - When I was better known than her, she put my name in that tent. I was asked to do Celebrity Big Brother, but why should I? We live in an age where fame is not related to what you do.
+ - I think that the mythology of Van Gogh’s life, and the beauty of his paintings, is unstoppable.
+ - Bowie and McCartney arrived, and the biscuits and caviare started and I left immediately. I don’t like shouting across rooms, with people in shiny suits who look like used-car salesmen.
+ - I’m going to get a pair of wire-snips, and I’ve also started a new campaign to have blank CDs on jukeboxes so you can play the silence.
+
+26 quotes

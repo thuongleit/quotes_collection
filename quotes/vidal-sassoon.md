@@ -1,0 +1,50 @@
+ - Hairdressers are a wonderful breed. You work one-on-one with another human being and the object is to make them feel so much better and to look at themselves with a twinkle in their eye.
+ - You must always do what you feel is right.
+ - Capri on the Amalfi Coast in Italy is my ultimate holiday destination.
+ - When the doubters tell you it can’t be done and all kind of tragedies will come your way, I say nonsense. If you can get to the very root of who you are and make something happen from it, my sense tells me you are going to surprise yourself.
+ - I was all about my thoughts, my work, my inspiration. I was always in hair.
+ - As stylists, we’re groundshakers and daymakers. I was always in hair.
+ - We learned to put discipline in the haircuts by using actual geometry, actual architectural shapes and bone structure. The cut had to be perfect and layered beautifully, so that when a woman shook it, it just fell back in.
+ - I got a telegraph from my mother who said that my step-father had had a heart attack, come home and earn a living. So I went back to England and the only thing I knew to earn any cash was through hairdressing.
+ - You either create something and you keep it a secret and you die with it, or you can benefit the craft.
+ - Mary Quant is my favourite fashion designer.
+ - To sculpt a head of hair with scissors is an art form. It’s in pursuit of art.
+ - For me the working of hair is architecture with a human element.
+ - If you look good, we look good.
+ - It’s okay saying sorry, but when you are drunk you say what you really feel.
+ - My greatest regret is selling my company.
+ - To me hair dressing means shape. It’s very important that the foundations should be right.
+ - During the late ’20s my father left us. My mother was in a complete hole with no money, and we were evicted.
+ - Judaism is important to me from a tribal point of view.
+ - Take good advice, make sure it is good advice, then do it your way.
+ - I came home after a year and although my profession was only hairdressing, I knew I could change it.
+ - I don’t sort of sit in a chair and pompously feel proud of myself about all the things we might have accomplished.
+ - Women were going back to work, they were assuming their own power. They didn’t have time to sit under the dryer.
+ - My mother had a premonition and she felt that hairdressing would be very very good for me.
+ - I’ll never forget one morning I walked in and I had a hell of a bruise – it had been a difficult night the night before – and a client said to me, ‘Good God, Vidal, what happened to your face?’ And I said, ‘Oh, nothing, madam, I just fell over a hairpin.’
+ - I think that as good architecture enhances a city, a good cut enhances the definition and expression of a face.
+ - It’s hard to give advice. There are so many people, how do you give major advice to a group of people, it’s very presumptuous.
+ - Like most ghetto kids I knew it was important to be ‘somebody’ so I became a good soccer player, because excelling at a sport seemed to make you special.
+ - I just consider being one of the luckiest people in the sense that creativity came to me and it flowed.
+ - If you have a sense of style and purpose and will you don’t want to compromise.
+ - My idea was to cut shape into the hair, to use it like fabric and take away everything that was superfluous.
+ - It’s not recognized by enough people as a worthy craft.
+ - There were so many pretty girls coming into the salon as clients, and others working in the salon. And I thought, ‘Hmm. This is rather nice.’
+ - I’m a great jazz fan.
+ - When I was about 10 I ran away to see my father. He couldn’t have cared less. He just took me back as soon as he could.
+ - If you get hold of a head of hair on somebody you’ve never seen before, cut beautiful shapes, cut beautiful architectural angles and she walks out looking so different – I think that’s masterful.
+ - Everything about morality and obligations I owe to football.
+ - You never argued with my mother. You couldn’t win.
+ - Most people have excellent necks. Now they cover them with curtains, which is kind of ridiculous. But there are some beautiful necklines that you can cut into and create wonderful backs, as well as bone structure for the face.
+ - From my point of view, there is a tremendous amount to be said for secular humanism.
+ - Realizing our society as it is, without theology dogmatically telling us how we should react to it, and being humane toward that society, that is all that we’re sure of.
+ - Hair excited me. As the old ways – backcombing, rollers and rigidity – went out of the window, I started to feel the possibilities in front of my eyes.
+ - I kept thinking I would be spending my life up to my elbows in shampoo.
+ - For nine years I worked to change what was hairdressing then into a geometric art form with color, perm without setting which had never been done before.
+ - I was a bit of a rebel.
+ - My mother left me for seven years in an orphanage.
+ - The essence is, what can we do next? And will it be good?
+ - So I was shampooing at 14. But I’ve always thought that had I the opportunity for an education, I would have been an architect. There’s no question about it.
+ - I was born in 1928 and by 1931 the Depression was beginning to mount.
+
+48 quotes

@@ -1,0 +1,33 @@
+ - Frankly my dear, I don’t give a damn.
+ - I never laugh until I’ve had my coffee.
+ - Honey, we all got to go sometime, reason or no reason. Dying’s as natural as living. The man who’s too afraid to die is too afraid to live.
+ - When it’s over it’s over. No questions, no tears, no farewell kisses.
+ - When you smile it’s like the sun coming up.
+ - Every picture I make, every experience of my private life, every lesson I learn are the keys to my future. And I have faith in it.
+ - They see me as an ordinary guy, like a construction worker or the guy who delivers your piano.
+ - I bring to a role everything I am, was and hope to be.
+ - The only reason they come to see me is that I know that life is great – and they know I know it.
+ - Hell, if I’d jumped on all the dames I’m supposed to have jumped on, I’d have had no time to go fishing.
+ - When the public doesn’t want me any longer, I’ll quit.
+ - I am intrigued by glamorous women A vain woman is continually taking out a compact to repair her makeup. A glamorous woman knows she doesn’t need to.
+ - I thought a thread of notable quotes relating to coffee may be interesting.
+ - I hate a liar. Maybe because I’m such a good one myself, heh? Anyway, to find someone has told an out and out lie puts him on the other side of the fence from me for all time.
+ - I want so badly to believe that there is truth, that love is real.
+ - I don’t discuss women at all with anyone. There are good qualities in all women. Some may be lacking in some of these qualities and should have them. I’m liable to say so and hurt their feelings, and it wouldn’t be meant that way at all.
+ - Marilyn is a kind of ultimate. She is uniquely feminine. Everything she does is different, strange, and exciting, from the way she talks to the way she uses that magnificent torso. She makes a man proud to be a man.
+ - The things a man has to have are hope and confidence in himself against odds, and sometimes he needs somebody, his pal or his mother or his wife or God, to give him that confidence.
+ - It is an extra dividend when you like the girl you’ve fallen in love with.
+ - Clark Gable was the only real he-man I’ve ever known, of all the actors I’ve met.
+ - I don’t want a lot of strangers looking down at my wrinkles and my big fat belly when I’m dead.
+ - Single men never have any problems. I suppose that the public builds some kind of idea from what they’ve seen of me on the screen.
+ - If any child of mine becomes an actor I will turn in my grave.
+ - I’m just a lucky slob from Ohio who happened to be in the right place at the right time.
+ - Method actors are like hams.
+ - It’s a chain of accidents. When you step into Hollywood, you wind yourself into thousands of chains of accidents. If all of the thousands happen to come out exactly right-and the chance of that figures out to be one in eight million-then you’ll be a star.
+ - Types really don’t matter. I have been accused of preferring blondes. But I have known some mighty attractive redheads, brunettes, and yes, women with grey hair. Age, height, weight haven’t anything to do with glamour.
+ - This power that I’m supposed to have over women was never noticed when I was a stage actor on Broadway. I don’t know when I got it. And by God, I can’t explain it.
+ - Only interested in himself and profiting from the war as an unscrupulous entrepreneur, and not in being a patriot: “I believe in Rhett Butler. He’s the only cause I know. The rest doesn’t mean much to me.”
+ - I’m no actor and I never have been. What people see on the screen is me.
+ - I never did like the idea of sitting on newspapers. I did it once, and all the headlines came off on my white pants. On the level! It actually happened. Nobody bought a paper that day. They just followed me around over town and read the news on the seat of my pants.
+
+31 quotes

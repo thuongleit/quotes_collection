@@ -1,0 +1,28 @@
+ - Mum was the matriarch and the patriarch of the family.
+ - Research is what drives me. When I get a script, I go to the real world and touch the real people.
+ - I have a short attention span.
+ - The scariest thing in my life is the first morning of production on all my movies. It’s the fear of failing, the loss of face and a sense of guilt that everybody puts their faith in you and not coming through.
+ - All my movies, like Revenge, are under two hours.
+ - The real world is where I get to educate and entertain myself. I go and touch the real world and touch real people. That’s my way into movies.
+ - The world is sick of big IT things that don’t work.
+ - There’s one great script that hit my desk that I didn’t change at all, and that was True Romance.
+ - I love shooting with real things in the real world. I think it gives a level of drama, performance, and everything seems to rise to the occasion.
+ - I’ve had a love affair with every movie I’ve ever done.
+ - I thought that subtitles are boring because they’re there generally to serve us with information to make you understand what people are saying in a different language.
+ - Shooting in real-life situations helps actors because they’re competing against the noise and the wind. Out of that comes things that shift and change, in terms of tone, but not in terms of re-honing the whole sequence.
+ - GM is a highly collaborative organization; we rely on a whole tier of suppliers for everything that we do.
+ - Ridley and I talk every day. Our family is very close because were from North England.
+ - A lot of actors talk about doing their homework, but very few of them do it.
+ - I always get everyone prepared so there aren’t so many arguments on set. I have a policy that the first thing I do in the morning is go over to the trailers and discuss exactly what we’re shooting that day. It’s time-consuming but it reduces the chances of ‘misunderstandings’ on set.
+ - With every movie I do and every day I go to work, my goal is not just to reach for difference, but also figure out how to look at world and characters in a different way.
+ - I make a movie because it’s something that inspires me.
+ - I always get role models, people from real life who’ve lived the lives of the characters, and talk it through together, me, them and the actor, a lot. That helps. We certainly have our disagreements. But in the end we trust each other.
+ - I think we’re lucky because there are very few people in life who get to do what we’re doing.
+ - I think the guiding principle for me is working with people, because I don’t know how long it’s going to last, I want to seize the moment and work with people I want to work with.
+ - Making a movie is like a marathon, and commercials are like sprints – they’re equally satisfying, but in different ways.
+ - Out of the total of 11 movies, I got slammed.
+ - The hardest scene for me is always the scene when I’m dealing with performances, when I’m actually looking at the guys and hoping that I’m covering it in the right way and that I’m handling it in the right way.
+ - I’m trying to use the camera to get into people’s heads. I use camera techniques a lot to articulate character.
+ - Its very hard trying to talk to an actor about how they should deliver lines, or cut their hair, unless it comes from a place of a strong point of view.
+
+26 quotes

@@ -1,0 +1,21 @@
+ - Look up, get up and don’t ever give up.
+ - I can attack a man’s weakness and beat him. Or I can attack a man’s strengths and break him.
+ - You tell everyone or anyone that has ever doubted, thought they didn’t measure up or wanted to quit – look up get up and don’t ever give up.
+ - The movie, ‘Remember the Titans,’ is my favorite movie, staring Denzel Washington. I love the way in this movie the game of football brings those boys together, it unites those boys on that football field. It unites a whole town, black, white, old, young, rich and poor.
+ - You made it something special. Most of all, I want to thank the fans for your support not through the great times that we shared on the football field, but for the last 17 years of my life. You have supported me through all times.
+ - I can’t write my life story without Emmitt and Troy. They can’t write their life stories without me. We’re tied together forever. This is a day to remember for the rest of our lives.
+ - Great leaders have to know when to divide that line from being selfless to being selfish, and he perfectly chose the time to be selfish and made plays.
+ - My favorite day was Monday, September the 25th, 2006. New Orleans, Louisiana, site of the Superdome. I watched our people who had suffered so grievously through Hurricane Katrina fill a stadium hours before a game and stay hours after the game.
+ - I am not a player anymore.
+ - I know the type of demons they have to fight and I am going to help them, because it’s the only way I can keep them from getting to my family. I have to clean up my friends because they are around my boys. It’s upsetting.
+ - I am going to do everything I can to clear my name.
+ - We all want to thank Emmitt for allowing us to enjoy every yard.
+ - Most train to be part of the game. The greatest train to be the game: I am the game. Third-and-9, two-minutes left, that’s what I train for. I train for moments everyone runs from. I run for them.
+ - I didn’t always know, but I always wanted to. I always wanted to be the very best receiver the Cowboys ever had. That was my goal coming in as a rookie and my goal throughout my career: being the best they ever had, going up in the Ring of Honor.
+ - We looked at each other standing on the podium, and I think we all were tearing up. But we had to keep it cool. I think we did. Then we let out a breath.
+ - This is what makes this team so dangerous: at any time in the game, even after they’ve gotten hit in the mouth all day, they’re still that explosive.
+ - Through the times I’ve gone through the last couple of weeks – and I’m still trying to help a friend – I got attacked pretty hard through the media, and it hurt and it was devastating, but I really found out who was with me and who was there for me.
+ - I understand people have doubts, but I’m totally clean.
+ - If he wins a fourth Super Bowl, he’s the greatest ever in my book.
+
+19 quotes

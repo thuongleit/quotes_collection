@@ -1,0 +1,131 @@
+ - The happiest people spend much time in a state of flow – the state in which people are so involved in an activity that nothing else seems to matter; the experience itself is so enjoyable that people will do it even at great cost, for the sheer sake of doing it.
+ - Flow is being completely involved in an activity for its own sake. The ego falls away. Time flies. Every action, movement, and thought follows inevitably from the previous one, like playing jazz.
+ - A joyful life is an individual creation that cannot be copied from a recipe.
+ - Act as if the future of the universe depends on what you do, while laughing at yourself for thinking that your actions make any difference.
+ - A person can make himself happy, or miserable, regardless of what is actually happening ‘outside,’ just by changing the contents of consciousness.
+ - Purpose provides activation energy for living.
+ - Control of consciousness determines the quality of life.
+ - Goals transform a random walk into a chase.
+ - A typical day is full of anxiety and boredom. Flow experiences provide the flashes of intense living against this dull background.
+ - It is when we act freely, for the sake of the action itself rather than for ulterior motives, that we learn to become more than what we were.
+ - It is essential to learn to enjoy life. It really does not make sense to go through the motions of existence if one does not appreciate as much of it as possible.
+ - Knowing oneself is not so much a question of discovering what is present in one’s self, but rather the creation of who one wants to be.
+ - If we are so rich, why aren’t we happy?
+ - Happiness does not simply happen to us. It’s something that we make happen.
+ - It is how people respond to stress that determines whether they will profit from misfortune or be miserable.
+ - Those periods of struggling to overcome challenges are what people find to be the most enjoyable times.
+ - One cannot lead a life that is truly excellent without feeling that one belongs to something greater and more permanent than oneself.
+ - To be creative, a person has to internalize the entire system that makes creativity possible. Creative individuals are remarkable for their ability to adapt to almost any situation and to make do with whatever is at hand to reach their goals.
+ - Repeatedly we question the necessity of our actions and evaluate critically the reasons for carrying them out. But in flow there is no need to reflect, because the action carries us forward as if by magic.
+ - People generally report higher levels of stress, depression, and tension after watching TV. It seems that TV’s main virtue is that it occupies the mind undemandingly.
+ - Optimal experience is that rare occasion when we feel a sense of exhilaration, a deep sense of enjoyment that is long cherished and that becomes a landmark in memory for what life should be like.
+ - It is better to look suffering straight in the eye, acknowledge and respect it’s presence, and then get busy as soon as possible focusing on things we choose to focus on.
+ - It is by being fully involved with every detail of our lives, whether good or bad, that we find happiness, not by trying to look for it directly.
+ - Attention is psychic energy, and like physical energy, unless we allocate some part of it to the task at hand, no work gets done.
+ - Other things equal, a life filled with complex flow activities is more worth living than one spent consuming passive entertainment.
+ - The most important step in emancipating oneself from social controls is the ability to find rewards in the events of each moment.
+ - Even without success, creative persons find joy in a job well done. Learning for its own sake is rewarding.
+ - Wake up in the morning with a specific goal to look forward to.
+ - If you do anything well, it becomes enjoyable. To keep enjoying something, you need to increase its complexity.
+ - Enjoyment appears at the boundary between boredom and anxiety, when the challenges are just balanced with the person’s capacity to act.
+ - The task is to learn how to enjoy everyday life without diminishing other people’s chances to enjoy theirs.
+ - Contrary to what most of us believe, happiness does not simply happen to us. It’s something that we make happen, and it results from doing our best. Feeling fulfilled when we live up to our potentialities is what motivates differentiation and leads to evolution.
+ - Take charge of your schedule. Make time for reflection and relaxation.
+ - For better or worse, our future will be determined in large part by our dreams and by the struggle to make them real.
+ - Most enjoyable activities are not natural; they demand an effort that initially one is reluctant to make. But once the interaction starts to provide feedback to the person’s skills, it usually begins to be intrinsically rewarding.
+ - Competition is enjoyable only when it is a means to perfect one’s skills; when it becomes an end in itself, it ceases to be fun.
+ - If we agree that the bottom line of life is happiness, not success, then it makes perfect sense to say that it is the journey that counts, not reaching the destination.
+ - Getting control of life is never easy, and sometimes it can be definitely painful.
+ - For a person to become deeply involved in any activity it is essential that he knows precisely what tasks he must accomplish, moment by moment.
+ - Competition is an easy way to get into flow.
+ - It is as if evolution has built a safety device in our nervous system that allows us to experience full happiness only when we are living at 100%-when we are fully using the physical and mental equipment we have been given.
+ - Some individuals have developed such strong internal standards that they no longer need the opinion of others to judge whether they have performed a task well or not. The ability to give objective feedback to oneself is in fact the mark of the expert.
+ - If we know what that set point is, we can predict fairly accurately when you will be in flow, and it will be when your challenges are higher than average and skills are higher than average.
+ - Develop what you lack.
+ - The mood state Americans are in, on average, when watching television is mildly depressed.
+ - Find out what you like and what you hate about life. Start doing more of what you love, less of what you hate.
+ - Often we don’t have a good notion of what our talents are, because we have never had a chance to try them out.
+ - To gain control over the quality of experience, one needs to learn how to build enjoyment into what happens day in, day out.
+ - To be successful you have to enjoy doing your best while at the same time contributing to something beyond yourself.
+ - But shortcuts are dangerous; we cannot delude ourselves that our knowledge is further along than it actually is.
+ - Socializing is more positive than being alone, that’s why meetings are so popular. People don’t like being alone. That would be, however, an important skill to learn...
+ - Flow is hard to achieve without effort. Flow is not ’wasting time.
+ - If you are interested in something, you will focus on it, and if you focus attention on anything, it is likely that you will become interested in it. Many of the things we find interesting are not so by nature, but because we took the trouble of paying attention to them.
+ - Shift often from openness to closure.
+ - People without an internalized symbolic system can all too easily become captives of the media.
+ - Look at problems from as many viewpoints as possible. Figure out the implications of the problem. Implement the solution.
+ - Studying creativity is not an elite distraction, but provides one of the most exciting models for living.
+ - There are two main strategies we can try to improve the quality of life. The first is to try making external conditions match our goals. The second is to change how we experience external conditions to make them fit our goals better.
+ - I think that evolution has had a hand in selecting people who had a sense of doing something beyond themselves.
+ - As long as we respond predictably to what feels good and what feels bad, it is easy for others to exploit our preferences for their own ends.
+ - Whether we like it or not, each of us is constrained by limits on what we can do and feel. To ignore these limits leads to denial and eventually to failure. To achieve excellence, we must first understand the reality of the everyday, with all its demands.
+ - A person who forgoes the use of his symbolic skills is never really free.
+ - It does not seem to be true that work necessarily needs to be unpleasant. It may always have to be hard, or at least harder than doing nothing at all. But there is ample evidence that work can be enjoyable, and that indeed, it is often the most enjoyable part of life.
+ - Write down each day what surprised you and how you surprised others. When something strikes a spark of interest, follow it.
+ - Half a century ago, the Austrian psychiatrist Viktor Frankl wrote that happiness cannot be attained by wanting to be happy – it must come as the unintended consequence of working for a goal greater than oneself.
+ - And, in fact, you can find that the lack of basic resources, material resources, contributes to unhappiness, but the increase in material resources do not increase happiness.
+ - Entropy is the normal state of consciousness – a condition that is neither useful nor enjoyable.
+ - Pain and pleasure occur in consciousness and exist only there.
+ - When people restrain themselves out of fear, their lives are by necessity diminished. They become rigid and defensive, and their self stops growing.
+ - Since the purpose of business is to satisfy existing desires, or stimulate new ones, if everyone were genuinely happy, there would be no need for business any longer.
+ - Without the capacity to provide its own information, the mind drifts into randomness.
+ - Produce as many ideas as possible. Try to produce unlikely ideas.
+ - One of the surest ways to enrich life is to make experiences less fleeting.
+ - Try to be surprised by something every day.
+ - Discipline is not always internalized and actually can breed resentment among children.
+ - To be overcome with the ultimate goal often interferes with performance.
+ - We can either help to make this world a more incredible place than it has ever been, or we can hasten its return to inorganic dust.
+ - Those who seek consolation in existing churches often pay for their peace of mind with a tacit agreement to ignore a great deal of what is known about the way the world works.
+ - When each of these three elements of vision-concern for excellence, for people and for the wider environment-are present, business is transformed from a tool for making profits into a creative, humane experiment for improving life.
+ - Creativity is any act, idea, or product that changes an existing domain, or that transforms an existing domain into a new one What counts is whether the novelty he or she produces is accepted for inclusion in the domain.
+ - Happiness is a condition that must be prepared for, cultivated, and defended privately by each person.
+ - People who learn to control inner experience will be able to determine the quality of their lives, which is as close as any of us can come to being happy.
+ - The rules themselves are clear enough, and within everyone’s reach. But many forces, both within ourselves and in the environment, stand in the way. It is a little like trying to lose weight: everyone knows what it takes, everyone wants to do it, yet it is next to impossible for so many.
+ - For better or worse, our future is now closely tied to human creativity.
+ - We can transform reality to the extent that we influence what happens in consciousness and thus free ourselves from the threats and blandishments of the outside world.
+ - But it is impossible to enjoy a tennis game, a book, or a conversation unless attention is fully concentrated on the activity.
+ - An ideal organization is one in which each worker’s potentialities find room for expression.
+ - There are managers so preoccupied with their e-mail messages that they never look up from their screens to see what’s happening in the nondigital world.
+ - A business is successful to the extent that it provides a product or service that contributes to happiness in all of its forms.
+ - The psychic entropy peculiar to the human condition involves seeing more to do than one can actually accomplish and feeling able to accomplish more than what conditions allow.
+ - Only direct control of experience, the ability to derive moment-by-moment enjoyment from everything we do, can overcome the obstacles to fulfillment.
+ - I have a naive trust in the universe – that at some level it all makes sense, and we can get glimpses of that sense if we try.
+ - Unless a person knows how to give order to her thoughts, attention will be attracted to whatever is most problematic at the moment.
+ - However, a good life consists of more than simply the totality of enjoyable experiences. It must also have a meaningful pattern, a trajectory of growth that results in the development of increasing emotional, cognitive, and social complexity.
+ - The more a person feels skilled, the more her moods will improve; while the more challenges that are present, the more her attention will become focused and concentrated.
+ - It is by becoming increasingly complex that the self might be said to grow.
+ - And it has become a kind of a truism in the study of creativity that you can’t be creating anything with less than 10 years of technical knowledge immersion in a particular field.
+ - Without respect, the subtle alchemy that binds an organization or that serves as the impetus for a business transaction would dissolve into mutual suspicion and hostility.
+ - One must develop skills that stretch capacities, that make one more than what one is.
+ - We have all experienced times when, instead of being buffeted by anonymous forces, we do feel in control of our actions, masters of our own fate. On the rare occasions that it happens, we feel a sense of exhilaration...
+ - There will be no good business unless the majority comes to agree that we should demand more from business than large quarterly returns.
+ - For original ideas to come about, you have to let them percolate under the level of consciousness in a place where we have no way to make them obey our own desires or our own direction. Their random combinations are driven by forces we don’t know about.
+ - It is not the skills we actually have that determine how we feel but the ones we think we have.
+ - When a religion or ideology becomes dominant, the lack of controls will result in widening spirals of license leading to degradation and corruption.
+ - To play the trumpet well, a musician can not let more than a few days pass without practicing.
+ - It is how we choose what we do, and how we approach it, that will determine whether the sum of our days adds up to a formless blur, or to something resembling a work of art.
+ - Find a way to express what moves you.
+ - In knowledge-intensive business settings, where every manager has to oversee massive amounts of information as well as people, facilitating the use of psychic energy becomes a primary concern.
+ - If the firms that employ an increasing majority of the population are driven solely to satisfy the owner’s greed at the expense of working conditions, of the stability of the community, and of the health of the environment, chances are that the quality of our lives will be worse than it is now.
+ - Whatever the dictates of fashion, it seems that those who take the trouble to gain mastery over what happens in consciousness do lead a happier life.
+ - Whatever the composition of a firm, if it is to do good business it should be a place where everyone is encouraged to progress toward complexity- or at the very least a place that does not make it more difficult to achieve personal growth.
+ - If you’re alone with nothing to do, the quality of your experience really plummets.
+ - People enter Web sites hoping to be led somewhere, hoping for a payoff.
+ - Through learning we grow, becoming more than we were before, and in that sense learning is unselfish, because it results in the transformation of what we were before, a setting aside of the old self in favor of a more complex one.
+ - Perform with elan, brilliance and dash – at concert pitch.
+ - Participate as fully as possibly in the world around you.
+ - Pleasure is an important component of the quality of life, but by itself it does not bring happiness. Pleasure helps to maintain order, but by itself cannot create a new order in consciousness.
+ - It is not the hearing that improves life, but the listening.
+ - If a leader demonstrates that his purpose is noble, that the work will enable people to connect with something large – more permanent than their material existence – people will give the best of themselves to the enterprise.
+ - Control over consciousness cannot be institutionaliz ed. As soon as it becomes part of a set of social rules and norms, it ceases to be effective in the way it was originally intended to be.
+ - If there is one word that makes creative people different from others, it is the word complexity. Instead of being an individual, they are a multitude.
+ - We cannot deny the facts of nature, but we should certainly try to improve on them.
+ - We shape our life by deciding to pay attention to it. It is the direction of our attention and its intensity that will determines what we accomplish and how well.
+ - Creative individuals are more likely to have not only the strengths of their own gender but those of the other one, too.
+ - If an enterprise does not aspire to be the best of its kind, it will attract second-rate employees, and it will be soon forgotten.
+ - In large organizations the dilution of information as it passes up and down the hierarchy, and horizontally across departments, can undermine the effort to focus on common goals.
+ - We have learned how to develop five-minute and even one-minute managers. But we would do better to ask ourselves what it takes to be an executive who helps build a better future.
+ - Try to be inspired by something every day. Try to inspire at least one person every day.
+ - Many business leaders today view their jobs as entailing responsibility for the welfare of the wider community. These individuals do not define themselves as profit-making machines whose only reason for existing is to satisfy escalating expectation for immediate gain.
+
+129 quotes

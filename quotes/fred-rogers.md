@@ -1,0 +1,141 @@
+ - The thing I remember best about successful people I've met all through the years is their obvious delight in what they're doing and it seems to have very little to do with worldly success. They just love what they're doing, and they love it in front of others.
+ - If you could only sense how important you are to the lives of those you meet; how important you can be to the people you may never even dream of. There is something of yourself that you leave at every meeting with another person.
+ - We live in a world in which we need to share responsibility. It’s easy to say “It’s not my child, not my community, not my world, not my problem.” Then there are those who see the need and respond. I consider those people my heroes.
+ - There are three ways to ultimate success: The first way is to be kind. The second way is to be kind. The third way is to be kind.
+ - Often when you think you’re at the end of something, you’re at the beginning of something else.
+ - Love isn’t a state of perfect caring. It is an active noun like struggle. To love someone is to strive to accept that person exactly the way he or she is, right here and now.
+ - I like you just the way you are.
+ - Anything that’s human is mentionable, and anything that is mentionable can be more manageable. When we can talk about our feelings, they become less overwhelming, less upsetting, and less scary. The people we trust with that important talk can help us know that we are not alone.
+ - I am always comforted by realizing that there are still so many helpers – so many caring people in this world.
+ - I feel so strongly that deep and simple is far more essential than shallow and complex.
+ - Some days, doing “the best we can” may still fall short of what we would like to be able to do, but life isn’t perfect on any front-and doing what we can with what we have is the most we should expect of ourselves or anyone else.
+ - Transitions are almost always signs of growth, but they can bring feelings of loss. To get somewhere new, we may have to leave somewhere else behind.
+ - You make each day a special day. You know how, by just your being you.
+ - Look for the helpers. You will always find people who are helping.
+ - Solitude is different from loneliness, and it doesn’t have to be a lonely kind of thing.
+ - There is no normal life that is free of pain. It’s the very wrestling with our problems that can be the impetus for our growth.
+ - A love of learning has a lot to do with learning that we are loved.
+ - You rarely have time for everything you want in this life, so you need to make choices. And hopefully your choices can come from a deep sense of who you are.
+ - I hope you’re proud of yourself for the times you’ve said “yes,” when all it meant was extra work for you and was seemingly helpful only to someone else.
+ - As human beings, our job in life is to help people realize how rare and valuable each one of us really is, that each of us has something that no one else has-or ever will have-something inside that is unique to all time.
+ - The connections we make in the course of a life – maybe that’s what heaven is.
+ - I believe that appreciation is a holy thing – that when we look for what’s best in a person we happen to be with at the moment, we’re doing what God does all the time. So in loving and appreciating our neighbor, we’re participating in something sacred.
+ - What matters in this life is more than winning for ourselves. What really matters is helping others win too. Even if it means slowing down and changing our course now and then.
+ - Attitudes are caught, not taught.
+ - The greatest gift you ever give is your honest self.
+ - Real strength has to do with helping others.
+ - Listening is where love begins: listening to ourselves and then to our neighbors.
+ - I think everybody longs to be loved and longs to know that he or she is lovable and, consequently, the greatest thing that we can do is to help somebody know that they are loved and capable of loving.
+ - People have said, ‘Don’t cry’ to other people for years and years, and all it has ever meant is, ‘I’m too uncomfortable when you show your feelings. Don’t cry.’ I’d rather have them say, ‘Go ahead and cry. I’m here to be with you.’
+ - It’s important to know when we need to stop, reflect, and receive. In our competitive world, that might be called a waste of time.
+ - Love begins with listening.
+ - In times of stress, the best thing we can do for each other is to listen with our ears and our hearts and to be assured that our questions are just as important as our answers.
+ - Our world hangs like a magnificent jewel in the vastness of space. Every one of us is a part of that jewel. A facet of that jewel. And in the perspective of infinity, our differences are infinitesimal.
+ - I don’t think anyone can grow unless he’s loved exactly as he is now, appreciated for what he is rather than what he will be.
+ - Life is for service.
+ - Feeling good about ourselves is essential in our being able to love others.
+ - We Don’t always succeed in what we try, certainly not by the world’s standards, but I think you’ll find it’s the willingness to keep trying that matters most.
+ - There’s a world of difference between insisting on someone’s doing something and establishing an atmosphere in which that person can grow into wanting to do it.
+ - I believe it’s a fact of life that what we have is less important than what we make out of what we have.
+ - Anyone who does anything to help a child in his life is a hero to me.
+ - The only thing evil can’t stand is forgiveness.
+ - All I know to do is to light the candle that has been given to me.
+ - I recently learned that in an average lifetime a person walks about sixty-five thousand miles. That’s two and a half times around the world. I wonder where your steps will take you. I wonder how you’ll use the rest of the miles you’re given.
+ - Discovering the truth about ourselves is a lifetime’s work, but it’s worth the effort.
+ - It’s a mistake to think that we have to be lovely to be loved by human beings or by God.
+ - Life is deep and simple, and what our society gives us is shallow and complicated.
+ - Play is often talked about as if it were a relief from serious learning. But for children play is serious learning. Play is really the work of childhood.
+ - It always helps to have people we love beside us when we have to do difficult things in life.
+ - Play is really the work of childhood.
+ - It’s a beautiful day in the neighborhood, a beautiful day for a neighbor. Would you be mine; could you be mine?
+ - Parents don’t come full bloom at the birth of the first baby. In fact parenting is about growing. It’s about our own growing as much as it is about our children’s growing and that kind of growing happens little by little.
+ - How sad it is that we give up on people who are just like us.
+ - I’m proud of you for the times you came in second, or third, or fourth, but what you did was the best you have ever done.
+ - We all have only one life to live on Earth, and through television we have the choice of encouraging others to demean this life or to cherish it in creative, imaginative ways.
+ - The world needs a sense of worth, and it will achieve it only by its people feeling that they are worthwhile.
+ - The greatest gift that you can give another person is to gracefully receive whatever it is that they want to give us.
+ - The child is in me still and sometimes not so still.
+ - All of us have special ones who have loved us into being.
+ - It’s not the honors and the prizes and the fancy outsides of life which ultimately nourish our souls. It’s the knowing that we can be trusted, that we never have to fear the truth, that the bedrock of our very being is good stuff.
+ - Who we are in the present includes who we were in the past.
+ - Anyone who has ever been able to sustain good work has had at least one person – and often many – who have believed in him or her. We just don’t get to be competent human beings without a lot of different investments from others.
+ - One of the most important things a person can learn to do is to make something out of whatever he or she happens to have at the moment.
+ - Love isn’t a perfect state of caring.
+ - Knowing that we can be loved exactly as we are gives us all the best opportunity for growing into the healthiest of people.
+ - We speak with more than our mouths. We listen with more than our ears.
+ - When I was a boy I used to think that STRONG meant having big muscles, great physical power; but the longer I live, the more I realize that real strength has much more to do with what is NOT seen. Real strength has to do with helping others.
+ - The real issue in life is not how many blessings we have, but what we do with our blessings. Some people have many blessings and hoard them. Some have few and give everything away.
+ - Mutual caring relationships require kindness and patience, tolerance, optimism, joy in the other’s achievements, confidence in oneself, and the ability to give without undue thought of gain.
+ - The older I get, the more convinced I am that the space between people who are trying their best to understand each other is hallowed ground.
+ - Love is like infinity: You can’t have more or less infinity, and you can’t compare two things to see if they’re “equally infinite.” Infinity just is, and that’s the way I think love is, too.
+ - It would have been sad for me to spend my life just trying to superimpose stuff on people rather than trying to encourage them to look within themselves for what’s of value.
+ - Often out of periods of losing come the greatest strivings toward a new winning streak.
+ - Whether we’re a preschooler or a young teen, a graduating college senior or a retired person, we human beings all want to know that we’re acceptable, that our being alive somehow makes a difference in the lives of others.
+ - Silence is so powerful, so important. There is so much to be learned from it.
+ - Hopefully your choices can come from a deep sense of who you are.
+ - Listening is a very active awareness of the coming together of at least two lives. Listening, as far as I’m concerned, is certainly a prerequisite of love. One of the most essential ways of saying ‘I love you’ is being a receptive listener.
+ - What interests me so much about the characters of the Bible is that they make mistakes but God uses them anyway, in important ways. Nobody’s perfect, but God can even use our imperfection.
+ - There is something of yourself that you leave at every meeting with another person.
+ - The kingdom of God is for the broken hearted.
+ - We need to help people to discover the true meaning of love. Love is generally confused with dependence. Those of us who have grown in true love know that we can love only in proportion to our capacity for independence.
+ - All life events are formative. All contribute to what we become, year by year, as we go on growing. As my friend the poet Kenneth Koch once said, You aren’t just the age you are. You are all the ages you ever have been!
+ - Honesty is often very hard. The truth is often painful. But the freedom it can bring is worth the trying.
+ - We’re all on a journey – each one of us. And if we can be sensitive to the person who happens to be our neighbor, that, to me, is the greatest challenge as well as the greatest pleasure.
+ - There’s always someone who is trying to help.
+ - Love isn’t a state of perfect caring, it is an active noun like struggle.
+ - You know, you don’t have to look like everybody else to be acceptable and to feel acceptable.
+ - Call them rules or call them limits, good ones, I believe, have this in common: they serve reasonable purposes; they are practical and within a child’s capability; they are consistent; and they are an expression of loving concern.
+ - How many times have you noticed that it’s the little quiet moments in the midst of life that seem to give the rest extra-special meaning?
+ - We want to raise our children so that they can take a sense of pleasure in both their own heritage and the diversity of others.
+ - It’s very dramatic when two people come together to work something out. It’s easy to take a gun and annihilate your opposition, but what is really exciting to me is to see people with differing views come together and finally respect each other.
+ - Who you are inside is what helps you make and do everything in life.
+ - Try your best to make goodness attractive. That’s one of the toughest assignments you’ll ever be given.
+ - When we’re able to resign ourselves to the wishes that will never come true, there can be enormous energies available within us for whatever we CAN do.
+ - I don’t want to eat anything that has a mother.
+ - Whatever we choose to imagine can be as private as we want it to be. Nobody knows what you’re thinking or feeling unless you share it.
+ - Fame is a four-letter word. And like tape, or zoom, or face, or pain, or love, or life, what ultimately matters is what we do with it.
+ - For a couple with young children, divorce seldom comes as a “solution” to stress, only as a way to end one form of pain and accept another.
+ - The real drama of life is never centerstage. It’s always in the wings.
+ - I think of discipline as the continual everyday process of helping a child learn self-discipline.
+ - It’s our insides that make us who we are, that allow us to dream and wonder and feel for others. That’s what’s essential. That’s what will always make the biggest difference in our world.
+ - We all have different gifts, so we all have different ways of saying to the world who we are.
+ - Little by little we human beings are confronted with situations that give us more and more clues that we are not perfect.
+ - When we treat children’s play as seriously as it deserves, we are helping them feel the joy that’s to be found in the creative spirit. It’s the things we play with and the people who help us play that make a great difference in our lives.
+ - In appreciating our neighbor, we’re participating in something truly sacred.
+ - The gifts we treasure most over the years are often small and simple. In easy times and tough times, what seems to matter most is the way we show those nearest us that we’ve been listening to their needs, to their joys, and to their challenges.
+ - Kids can spot a phony a mile away.
+ - Anything mentionable is manageable.
+ - Peace means far more than the opposite of war.
+ - If the grain of wheat could know fear, it would be paralyzed with anxiety at the thought of being dropped in the ground, covered over, put out of sight, doomed to inactivity, yet what a glorious harvest awaits it!
+ - One of the greatest dignities of humankind is that each successive generation is invested in the welfare of each new generation.
+ - This evening is as brief as the twinkling of an eye yet such twinklings is what eternity is made of.
+ - Propel, propel, propel your craft softly down liquid solution. Ecstatically, ecstatically, ecstatically, ecstatically, Existence is simply illusion.
+ - Our children are extensions of ourselves in ways our parents are not, nor our brothers and sisters, nor our spouses.
+ - The world is not always a kind place. That’s something all children learn for themselves, whether we want them to or not, but it’s something they really need our help to understand.
+ - Love and trust, in the space between what’s said and what’s heard in our life, can make all the difference in the world.
+ - It is our continuing love for our children that makes us want them to become all they can be, and their continuing love for us that helps them accept healthy discipline – from us and eventually from themselves.
+ - The best teacher in the world is someone who loves what he or she does, and just loves it in front of you.
+ - My hope for all of us is that ‘the miles we go before we sleep’ will be filled with all the feelings that come from deep caring – delight, sadness, joy, wisdom – and that in all the endings of our life, we will be able to see the new beginnings.
+ - What really matters is not just our own winning but helping other people to win, too.
+ - It’s a miracle when we finally discover whom we’re best equipped to serve.
+ - Often, problems are knots with many strands, and looking at those strands can make a problem seem different.
+ - I’m fairly convinced that the Kingdom of God is for the broken-hearted. You write of ‘powerlessness.’ Join the club, we are not in control. God is.
+ - Imagining may be the first step in making it happen, but it takes the real time and real efforts of real people to learn things, make things, turn thoughts into deeds or visions into inventions.
+ - Parents are like shuttles on a loom. They join the threads of the past with threads of the future and leave their own bright patterns as they go.
+ - I’ve always wanted to have a neighbor just like you. I’ve always wanted to live in a neighborhood with you.
+ - Those of us who are in this world to educate-to care for-young children have a special calling: a calling that has very little to do with the collection of expensive possessions but has a lot to do with worth inside of heads and hearts.
+ - It’s not the honors and not the titles and not the power that is of ultimate importance. It’s what resides inside.
+ - My hunch is that if we allow ourselves to give who we really are to the children in our care, we will in some way inspire cartwheels in their hearts.
+ - To say that you are being carried is a declaration of enormous faith and hope.
+ - Parents who expect change in themselves as well as in their children, who accept it and find in it the joy as well as the pains ofgrowth, are likely to be the happiest and most confident parents.
+ - Development comes from within. Nature does not hurry but advances slowly.
+ - Our worlds needs more time to wonder and reflect but there is too much fast paced constant distraction.
+ - Vermont is a small state which makes an enormous difference.
+ - I hope that you’re learning how important you are, how important each person you see can be. Discovering each one’s specialty is the most important learning.
+ - I feel that the real drama of life is never center stage, it’s always in the wings. It’s never with the spotlight on, it’s usually something that you don’t expect at all.
+ - I have really never considered myself a TV star. I always thought I was a neighbor who just came in for a visit.
+ - You bring all you ever were and are to any relationship you have today.
+ - Parents find many different ways to work their way through the assertiveness of their two-year-olds, but seeing that assertiveness as positive energy being directed toward growth as a competent individual may open up some new possibilities.
+ - When our children see us expressing our emotions, they can learn that their own feelings are natural and permissible, can be expressed, and can be talked about. That’s an important thing for our children to learn.
+
+139 quotes

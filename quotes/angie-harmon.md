@@ -1,0 +1,33 @@
+ - Cancer affects everyone, and it’s up to all of us to support the important research that can one day make a much sought-after cure a reality.
+ - When I feel like I’m not doing what I am supposed to as a mother, I will torture myself. I don’t know how to deal with it. I find some consolation in the fact that all mommies feel it. If there was a way to cure mommy guilt, I would bottle it and be a bazillionaire.
+ - When I get bored, I get into trouble.
+ - Here’s kind of my motto – if you’re not happy at home, you’re not happy anywhere else.
+ - I’m the kind of person who wants the people around me to be comfortable, to laugh, and to have a fabulous time – I want them to be as happy as I am.
+ - I don’t want to be unapproachable.
+ - I don’t care if you’re Republican or a Democrat or a Liberal, getting crucified for the way you think or believe, obviously if it’s not hurting anyone, it’s just Un-American.
+ - My husband is the most brilliant father on the planet.
+ - It breaks my heart that I don’t see my daughters every day, don’t get to hug them and brush their hair.
+ - Kyra Sedgwick told me, ‘Keep your heart where your feet are’ and that’s incredibly difficult to do. It takes a lot of concentration. You’ve got to be conscientious of each other.
+ - I want my girls to be strong and self-sufficient.
+ - I pray every day for my little girls. It’s hard out there for the younger generation.
+ - I think one of the greatest things about the Republican Party is the understanding, we don’t point fingers and we have class...
+ - I totally understand the promotional aspect of our show and the business end of it. We’re putting something out there that we’re really proud of. It’s not like we’re saying, “Hey, come watch our show,” because it sucks.
+ - I’m super organized, but a horrible house cleaner.
+ - I like things to be really, really funny, or really, really dramatic. Those books are certainly the ones that grab me. I like the exercise of reading through a paragraph, and it’s just torture. I try not to have my eyes dart to the right. That’s the stuff that I love.
+ - If I have anything to say against Obama it’s not because I’m a racist, it’s because I don’t like what he’s doing as President and anybody should be able to feel that way, but what I find now is that if you say anything against him you’re called a racist.
+ - You don’t often get what you ask for, and I got exactly that. I got a show that was on cable, that I could shoot five months a year and go be mommy the rest of the time, and be with a cast and crew that I really, really love, adore and respect. I got all of that.
+ - I learned a long time ago that it doesn’t make me less of a woman because my babies come out of a different place. My C-sections have been fine.
+ - We’re all women. We all have the same wonderful situations happen to us, the same horrific situations. We all get our hearts broken.
+ - All mothers go through the exact same things.
+ - Also, there’s the caliber of actors that we keep getting. Lorraine Bracco plays my mom and Chazz Palminteri plays my father, and Brian Dennehy and Donnie Wahlberg have been on the show. And, we’ve got Billy Burke from Twilight. We’ve gotten all kinds of fantastic actors. That speaks for itself.
+ - As an actor all we want to do is act and play people.
+ - I might not understand everything a Democrat or liberal thinks but hey let’s be honest, I don’t understand some of the things the Republicans think, but that doesn’t make me some dumb hick that doesn’t have the right to live here.
+ - I’m from the South, so I’m very old-fashioned and I’m not very computer savvy at all, but I’m getting it. I understand that, if you’ve got information and you want it out there, that is how you go about doing it. I get it.
+ - I don’t have the time to curl up on my couch with a good book.
+ - I’ve got three daughters and I’m going to stand up for them and support them in whatever they want to do.
+ - I was not the most attractive child. I had two really big buck teeth. I was horrendous – long, lanky and gangly.
+ - I keep waiting, like in the cartoons, for an anvil to drop on my head.
+ - I’m just confused as to where we lost that in America because it is everyone’s God-given right to think the way they think and that’s fine. That’s why our ancestors came here to America, to believe what they want, pray how they want and follow a religion with whoever they want.
+ - People are going to move in and out of their office, and they’re going to move up or get fired. All kinds of things happen like that, in real life. And, we’re always going to have crime, unfortunately. If we didn’t, then I wouldn’t have a new show.
+
+31 quotes

@@ -1,0 +1,29 @@
+ - Good cheese needs good companions.
+ - The only thing that will make a souffle fall is if it knows you’re afraid of it.
+ - Good bread and good butter go together. They are one of the perfect marriages in gastronomy, and they never fail to cheer me.
+ - Like the theater, offering food and hospitality to people is a matter of showmanship, and no matter how simple the performance, unless you do it well, with love and originality, you have a flop on your hands.
+ - Good bread is the most fundamentally satisfying of all foods; and good bread with fresh butter, the greatest of feasts.
+ - Too many simple green salads suffer from a lack of imagination.
+ - It is true thrift to use the best ingredients available and to waste nothing.
+ - If I had to narrow my choice of meats down to one for the rest of my life, I am quite certain that meat would be pork.
+ - Nothing is quite as intoxicating as the smell of bacon frying in the morning, save perhaps the smell of coffee brewing.
+ - Be simple. Be honest. Don’t overcook and don’t undercook, but it’s better to undercook than overcook.
+ - Hands are our earliest tools. Cooking starts with the hands which are so sensitive that when they touch something they transmit messages to your brain about texture and temperature.
+ - The secret of good cooking is, first, having a love of it.
+ - There is absolutely no substitute for the best. Good food cannot be made of inferior ingredients masked with high flavor. It is true thrift to use the best ingredients available and to waste nothing.
+ - I’m really enamored of the potato in all its guises.
+ - I’m going to break one of the rules of the trade here. I’m going to tell you some of the secrets of improvisation. Just remember – it’s always a good idea to follow the directions exactly the first time you try a recipe. But from then on, you’re on your own.
+ - Grilling, broiling, barbecuing – whatever you want to call it – is an art, not just a matter of building a pyre and throwing on a piece of meat as a sacrifice to the gods of the stomach.
+ - It’s foolish to go through life bemoaning the fact that you can’t have this or that. Twaddle! You can omit certain foods and still enjoy eating.
+ - In a house without a genuine kitchen, one of the delights of growing up is lost.
+ - If you have never tasted a braised vegetable, you’ll find it is a revelation.
+ - I’ve long said that if I were about to be executed and were given a choice of my last meal, it would be bacon and eggs.
+ - Goodness, how much there is to learn about food!
+ - The kitchen, reasonably enough, was the scene of my first gastronomic adventure. I was on all fours. I crawled into the vegetable bin, settled on a giant onion and ate it, skin and all. It must have marked me for life, for I have never ceased to love the hearty flavor of raw onions.
+ - No vegetable exists which is not better slightly undercooked.
+ - The roe of the Russian sturgeon has probably been present at more important international affairs than have all the Russian dignitaries of history combined. This seemingly simple article of diet has taken its place in the world along with pearls, sables, old silver, and Cellini cups.
+ - I am still convinced that a good, simple, homemade cookie is preferable to all the store-bought cookies one can find.
+ - I am so happy to see more and more people in this country are becoming addicted to cheese.
+ - I have had, in my time, memorable meals of scrambled eggs with fresh truffles, scrambled eggs with caviar and other glamorous things, but to me, there are few things as magnificent as scrambled eggs, pure and simple, perfectly cooked and perfectly seasoned.
+
+27 quotes

@@ -1,0 +1,27 @@
+ - If at first you don’t succeed, C4.
+ - I don’t think our death ray is working. I’m standing right in it, and I’m not dead yet.
+ - Duct tape is not a perfect solution to anything. But with a little creativity, in a pinch, it’s an adequate solution to just about everything.
+ - Sometimes the best people to be around are not exactly like you – because if they were, what is the point? If they contribute something different than you can, that is when they are valuable.
+ - I always telling people to “not try this at home,” because most of what we do on MythBusters is really dangerous. Consequently, we can’t encourage people to try that stuff.
+ - We have relatively little time and a whole lot of curiosity, so the most efficient way to get there is what we do, and that often happens to be some form of science.
+ - From our point of view, we’re just curious, we’re poking around and having fun. If it’s science, if it’s accurate, if it’s not accurate, we did the best we can to keep things clean and understandable, but we’re just having fun, so sue us if we got something wrong.
+ - I think “MythBusters” is a step up from special effects because we not only have to make things look like they work, they actually do have to work. It’s more challenging and even transcendental.
+ - Any day we create that much shrapnel is a good day.
+ - Fun for us just happens to be screwing around with anything that gets our attention and is thought-provoking.
+ - Actually I’m pretty adamant about, you know, the whole God thing and it seems that skeptics are by and large atheists or something approaching that, which I strongly identify with. So it turned out to be a good thing and I have become enthusiastically part of it.
+ - I’ve learned that I can pretty much do anything I’ve wanted to as long as I was methodical and diligent about it. It may not sound very exciting really, but it works.
+ - Science isn’t just for scientists and guys in lab coats. It’s something that everybody can do.
+ - We don’t have formal training, that makes what we’re experiencing a little bit more accessible to the viewers. If we actually knew what we were doing ahead of time, it would just be like talking at you, instead of experiencing the situation with you.
+ - There are a lot of things that I’d do differently. But I can’t imagine being more fortunate than I have been.
+ - We may not have a sample size larger than one, or we may not have unlimited resources – it’s a TV show, and we generally turn these things around in about a week or so.
+ - There are a lot of times when we can just time something and say “busted” or “confirmed” or whatever, instead of building a robot or some gadget to make it happen more elaborately. In those cases, we’re simply enjoying ourselves.
+ - There’s no director who wants to portray cheese puffs with a certain color that’s going to make or break the commercial, in his opinion. We don’t have to do that, so I don’t miss it at all, really.
+ - The idea that you can contribute is really important, especially for a kid.
+ - One of our neighbors is a salami distributor, and they pretty well – I mean, we used their salami to make a rocket engine out of. They just look at us and they’re amused, they’re fine with it.
+ - Dealing with effects, as a job it’s great, but with Mythbusters, the stuff we’ve seen, the stuff we’ve absorbed over the years, has just been fantastic, and I wouldn’t change it for the world.
+ - We’re constantly pushing these materials and processes to the extreme to see what will happen. It’s an insight into things that you don’t normally see.
+ - We should point out that if we feel like we’ve upset somebody and they’re vitriolic, if people are actively pursuing some sort of complaint, then we’ve done our job.
+ - I would love to have access to a company like Caterpillar. I would make all their stuff remote controlled and work ten times as fast.
+ - All of the experiments are really cool. Probably one of the better ones is “Running in the Rain.” It depends on circumstances: how fast are you running, if there’s wind, or any of the other things involved with the circumstances of running in the rain. That’s a favorite, I suppose.
+
+25 quotes

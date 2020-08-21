@@ -1,0 +1,22 @@
+ - Beauty may be skin deep, but ugly goes clear to the bone.
+ - The definition of indecent – when it’s in long, and it’s in hard, and it’s in deep – it’s in decent.
+ - Sanford and Son is more than just a name. It’s a condition, a dynasty, an empire. This here is the finest pile of junk of the world.
+ - Health nuts are going to feel stupid someday, lying in hospitals dying of nothing.
+ - I’m convinced that Sanford and Son shows middle-class America a lot of what they need to know.
+ - I feel sorry for people who don’t drink or do drugs. Because someday they’re going to be in a hospital bed, dying, and they won’t know why.
+ - What’s the difference between a pickpocket and a peeping tom? A pickpocket snatches watches.
+ - This is the big one! You hear that, Elizabeth? I’m coming to join ya, honey!
+ - I ain’t from Africa. I’m from St. Louis.
+ - I carry a knife now because I read in a white magazine that all black people carry knives. So I rushed out and bought me one.
+ - It’s some chopped liver. That’s Jewish soul food.
+ - You make me wish that birth control was retroactive.
+ - The show doesn’t drive home a lesson, but it can open up people’s minds enough for them to see how stupid every kind of prejudice can be.
+ - I’ve been trying to get into the Royal Box in New York for years. They say I’m too dirty, my material is too blue. But I think Redd, the whites and blue can be a nice combination.
+ - Certain things should be yours to have when you work your way to the top.
+ - Junk runs in the family. My granddad was a junk man in St. Louis and so was my uncle.
+ - Hey! Leave the door open will ya? The flies haven’t been out all day.
+ - Music played a large role in the survival of the black people in America – that and a sense of humor that just couldn’t be enslaved.
+ - What’s an archive, son? Is that anything like a closet?
+ - The food here is so tasteless you could eat a meal of it and belch and it wouldn’t remind you of anything.
+
+20 quotes

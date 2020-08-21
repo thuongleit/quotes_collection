@@ -1,0 +1,98 @@
+ - Liberty, Humanity, Justice, Equality.
+ - Independence is happiness.
+ - Organize, agitate, educate, must be our war cry.
+ - Forget conventionalisms; forget what the world thinks of you stepping out of your place; think your best thoughts, speak your best words, work your best works, looking to your own conscience for approval.
+ - Failure is impossible.
+ - Woman must not depend upon the protection of man, but must be taught to protect herself.
+ - Men, their rights, and nothing more; women, their rights, and nothing less.
+ - Wherever women gather together failure is impossible.
+ - Suffrage is the pivotal right.
+ - I distrust those people who know so well what God wants them to do because I notice it always coincides with their own desires.
+ - Join the union, girls, and together say Equal Pay for Equal Work.
+ - No self respecting woman should wish or work for the success of a party that ignores her sex.
+ - There shall never be another season of silence until women have the same rights men have on this green earth.
+ - I never felt I could give up my life of freedom to become a man’s housekeeper. When I was young, if a girl married poverty, she became a drudge; if she married wealth, she became a doll. Had I married at twenty-one, I would have been either a drudge or a doll for fifty-five years. Think of it!
+ - The day will come when men will recognize woman as his peer, not only at the fireside, but in councils of the nation. Then, and not until then, will there be the perfect comradeship, the ideal union between the sexes that shall result in the highest development of the race.
+ - The older I get, the greater power I seem to have to help the world; I am like a snowball – the further I am rolled the more I gain.
+ - There never will be complete equality until women themselves help to make laws and elect lawmakers.
+ - I don’t want to die as long as I can work; the minute I can not, I want to go.
+ - You would better educate ten women into the practice of liberal principles than to organize a thousand on a platform of intolerance and bigotry.
+ - Every woman should have a purse of her own.
+ - We ask justice, we ask equality, we ask that all the civil and political rights that belong to citizens of the United States, be guaranteed to us and our daughters forever.
+ - Nothing is hopeless that is right.
+ - Now, Mr. President, we don’t intend to trouble you during the campaign but after you are elected, then look out for us!
+ - To think I have had more than 60 years of hard struggle for a little liberty, and then to die without it seems so cruel.
+ - There have been others also just as true and devoted to the cause – I wish I could name every one – but with such women consecratingtheir lives, failure is impossible!
+ - For a people is only as great, as free, as lofty, as advanced as its women are free, noble and progressive.
+ - Marriage, to women as to men, must be a luxury, not a necessity; an incident of life, not all of it. And the only possible way to accomplish this great change is to accord to women equal power in the making, shaping and controlling of the circumstances of life.
+ - Our Job is not to make young women grateful. It is to make the ungrateful so they keep going. Gratitude never radicalized anybody.
+ - Sweeter even than to have had the joy of caring for children of my own has it been to me to help bring about a better state of things for mothers generally, so their unborn little ones could not be willed away from them.
+ - The men and women of the North are slaveholders, those of the South slaveowners. The guilt rests on the North equally with the South.
+ - Trust me that as I ignore all law to help the slave, so will I ignore it all to protect an enslaved woman.
+ - I can’t say that the college-bred woman is the most contented woman. The broader her mind the more she understands the unequal conditions between men and women, the more she chafes under a government that tolerates it.
+ - Women should have equal pay for equal work and they should be considered equally eligible to the offices of principal and superintendent, professor and president. So you must insist that qualifications, not sex, shall govern appointments and salaries.
+ - Oh, yes. I’d do it all again; the spirit is willing yet; I feel the same desire to do the work but the flesh is weak. It’s too bad that our bodies wear out while our interests are just as strong as ever.
+ - The anti-suffragist talk of sheltering women from the fierce storms of life is a lot of cant. I have no patience with it. These storms beat on woman just as fiercely as they do on man, and she is not trained to defend herself against them.
+ - The fact is, women are in chains, and their servitude is all the more debasing because they do not realize it.
+ - When I was young, if a girl married poverty, she bcame a drudge; if she married wealth, she became a doll.
+ - When woman has a newspaper which fear and favor cannot touch, then it will be that she can freely write her own thoughts.
+ - A woman growing up under American ideas of liberty in government and religion, having never blushed behind a Turkish mask, nor pressed her feet in Chinese shoes, cannot brook any disabilities based on sex alone, without a deep feeling of antagonism with the power that creates it.
+ - I think the girl who is able to earn her own living and pay her own way should be as happy as anybody on earth. The sense of independence and security is very sweet.
+ - I do not assume that woman is better than man. I do assume that she has a different way of looking at things.
+ - I was born a heretic. I always distrusted people who know so much about what God wants them to do to their fellows.
+ - Every generation of converts threshes over the same old straw.
+ - The worst enemy women have is in the pulpit.
+ - I do not demand equal pay for any women save those who do equal work in value. Scorn to be coddled by your employers; make them understand that you are in their service as workers, not as women.
+ - The only question left to be settled now is: Are women persons? And I hardly believe any of our opponents will have the hardihood to say they are not.
+ - No genuine equality, no real freedom, no true manhood or womanhood can exist on any foundation save that of pecuniary independence.
+ - I do not consider divorce an evil by any means. It is just as much a refuge for women married to brutal men as Canada was to the slaves of brutal masters.
+ - There is not the woman born who desires to eat the bread of dependence, no matter whether it be from the hand of father, husband, or brother; for any one who does so eat her bread places herself in the power of the person from whom she takes it.
+ - Resistance to tyranny ius obedience to God.
+ - It is perfectly right for a gentleman to say “ladies and gentlemen,” but a lady should say, “gentlemen and ladies.” You mention your friend’s name before you do your own. I always feel like rebuking any woman who says, “ladies and gentlemen.” It is a lack of good manners.
+ - Women, we might as well be dogs baying the moon as petitioners without the right to vote!
+ - All we demand are the same rights as men, and slightly more stalls per restroom. And tampon machines. And those little things in the stalls so we can put our used tampons in them. And, okay, just go ahead and make the bathrooms out of tampons.
+ - There is not a woman born who desires to eat the bread of dependence.
+ - What you should say to outsiders is that a Christian has neither more nor less rights in our Association than an atheist. When our platform becomes too narrow for people of all creeds and of no creeds, I myself shall not stand upon it.
+ - A republican government should be based on free and equal education among the people.
+ - We need a daily paper edited and composed according to woman’s own thoughts, and not as woman thinks a man wants her to think and write.
+ - To be wedded to an idea may be, after all, the holiest and happiest of marriages.
+ - Why should we not pray to our mother who are in heaven, as well as to our father?
+ - I expect to do more work for woman suffrage in the next decade than ever before.
+ - It’s too bad that our bodies wear out while our interests are just as strong as ever.
+ - Those who are really in earnest must be willing to be anything or nothing in the world’s estimation.
+ - I have many things to say. My every right, constitutional, civil, political and judicial has been tramped upon. I have not only had no jury of my peers, but I have had no jury at all.
+ - To be successful a person must attempt but one reform. By urging two, both are injured, as the average mind can grasp and assimilate but one idea at a time.
+ - Gentlemen, no one objects to the husband being the head of the wife as Christ was the head of the church – to crucify himself; whatwe object to is his crucifying his wife.
+ - Sentiment never was and never can be a guarantee for justice.
+ - Whichever way I turn, whatever phase of social life presents itself, the same conviction comes: Independent bread alone can redeem woman from her curse of subjection to man.
+ - I have encountered riotous mobs and have been hung in effigy, but my motto is: Men’s rights are nothing more. Women’s rights are nothing less.
+ - I shall earnestly and persistently continue to urge all women to the practical recognition of the old Revolutionary maxim. Resistance to tyranny is obedience to God.
+ - What an absurd notion that women have not intellectual and moral faculties sufficent for anything else but domestic concerns!
+ - When society is rightly organized, the wife and mother will have time, wish and will to grow intellectually, and will know that the limits of her sphere, the extent of her duties, are prescribed only by the measure of her ability.
+ - Not one of our national officers ever has had a dollar of salary. I retire on full pay!
+ - This is rather different from the receptions I used to get fifty years ago. They threw things at me then but they were not roses.
+ - It has always been thought perfectly womanly to be a scrub- woman in the Legislature and to take care of the spittoons; that is entirely within the charmed circle of woman’s sphere; but for women to occupy any of those official seats would be degrading.
+ - Just as long as newspapers and magazines are controlled by men, every woman upon them must write articles which are reflections of men’s ideas. As long as that continues, women’s ideas and deepest convictions will never get before the public.
+ - When will the men do something besides extend congratulations? I would rather have President Roosevelt say one word to Congress infavor of amending the Constitution to give women the suffrage than to praise me endlessly!
+ - Independent bread gives independent morals: – while pecuniary dependence makes moral subserviency; – So get money – get wealth.
+ - The religious persecution of the ages has been done under what was claimed to be the command of God.
+ - Better lose me than lose a state.
+ - Oh, if I could but live another century and see the fruition of all the work for women! There is so much yet to be done.
+ - There never seems to be any difficulty in stretching the laws and the constitution to fit any kind of a political deal, but when it is proposed to make some concession to women they loom up like an unscalable wall.
+ - Had I represented twenty thousand voters in Michigan, that political editor would not have known nor cared whether I was the oldest or the youngest daughter of Methuselah, or whether my bonnet came from the Ark or from Worth’s.
+ - I think it a much wiser thing to secure for the thousands of mothers in this State the legal control of the children they now have, than to bring others into the world who would not belong to me after they were born.
+ - Current creation has exiled the turning wheel, and the same law of advancement makes the lady of today an alternate lady from her grandma.
+ - The only question left to be settled now is: Are women persons?
+ - Cyling has done more to emancipate women than anything else in the world.
+ - Marriage, to woman as to man, must be a luxury, not a necessity; an incident of life, not all of it.
+ - Many abolitionists have yet to learn the ABC of woman’s rights.
+ - If all the rich and all of the church people should send their children to the public schools they would feel bound to concentrate their money on improving these schools until they met the highest ideals.
+ - The rank and file are not philosophers, they are not educated to think for themselves, but simply to accept, unquestioned, whatever comes.
+ - Resolved, that the women of this nation in 1876, have greater cause for discontent, rebellion and revolution than the men of 1776.
+ - So long as State constitutions say that all may vote when twenty-one, save idiots, lunatics, convicts and women, you are brought down politically to the level of those others disfranchised.
+ - If I could only live another century!
+ - I have known nothing the last thirty years save the struggle for human rights on this continent. If it had been a class of men whowere disfranchised and denied their legal rights, I believe I should have devoted my life precisely as I have done in behalf of my own sex.
+ - If any proof were needed of the progress of the cause for which I have worked, it is here tonight. The presence on the stage of these college women, and in the audience of all those college girls who will some day be the nation’s greatest strength, will tell their own story to the world.
+ - If a man’s public record be a clear one, if he has kept his pledges before the world, I do not inquire what his private life may have been.
+
+96 quotes

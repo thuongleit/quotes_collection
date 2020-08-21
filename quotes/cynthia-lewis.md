@@ -1,0 +1,44 @@
+ - Every piece of the puzzle that doesn’t fit gets you closer to the answer.
+ - Nobody can pedal the bike for you.
+ - It’s easier to see the mistake on someone else’s paper.
+ - If you want to see a shooting star, you might have to spend a lot of nights looking up.
+ - Flowers and pricker bushes grow out of the same dust.
+ - It’s easier to throw sticks on the campfire than to try to restart it when it goes out.
+ - Nobody notices it when your zipper is up, but everyone notices when it’s down.
+ - As soon as you understand 2 x 4 you can’t believe there was a time when you didn’t understand it.
+ - You’ll have a lot more respect for a bird after you try making a nest.
+ - Getting lost teaches you how to read a map.
+ - You can teach an old dog new tricks with the right kind of doggie treats.
+ - It feels a lot colder when you’re shoveling snow than when you’re building a snow fort.
+ - If you wait until you’re really sure, you’ll never take off the training wheels.
+ - A tiny hole can empty a great big bucket.
+ - Hitting the kid with the ball might get you the ball, but it won’t get you anyone to throw it to.
+ - You don’t get to decide your part in the school play, but you do get to decide whether or not you play it well.
+ - Don’t say “The last one there is a rotten egg”: unless you’re absolutely sure there’s a slow kid behind you.
+ - It’s not enough to be able to spell “magnificence” in your bedroom. You have to be able to spell it at the microphone during the spelling bee.
+ - The path you’re on looks different when you turn around.
+ - Don’t expect a stranger to wipe your nose.
+ - If you want to zoom down the expert slope tomorrow, you have to fall down the bunny slope today.
+ - If the horse you’re drawing looks more like a dog, make it a dog.
+ - If you keep missing, get closer to the basket.
+ - One thing you can’t pretend to be is funny.
+ - If you want pancakes for breakfast, offer to help make them.
+ - Ten minutes is short if it’s a recess and long if it’s a punishment.
+ - Sometimes it’s smart to be scared.
+ - You can either keep peddling, get off the bike or fall over.
+ - The teacher can always tell when you did your homework on the bus.
+ - They’ll remember you if you’re the best reader in class-or if you throw up at lunch.
+ - Shortcuts aren’t always.
+ - The longer the test the better you feel when it’s over.
+ - Every time you swim out to the rock, it gets a little closer.
+ - It doesn’t count if your swing is going the highest if you’re getting pushed.
+ - It’s more fun to color outside the lines.
+ - Even babies like to grab for things just beyond their reach.
+ - Look at the footprints you’ve made.
+ - Believing in the Tooth Fairy is easier than trying to figure out how else the money gets under your pillow.
+ - Before you trade sandwiches, check between the bread.
+ - Whiners usually play alone.
+ - It’s easier to knock on a door that’s not shut all the way.
+ - Crawling still gets you there.
+
+42 quotes

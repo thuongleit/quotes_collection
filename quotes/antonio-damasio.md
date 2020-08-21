@@ -1,0 +1,55 @@
+ - We are not thinking machines that feel; rather, we are feeling machines that think.
+ - We may smile and the dog may wag the tail, but in essence, we have a set program and those programs are similar across individuals in the species.
+ - Feeling of an emotion is a process that is distinct from having the emotion in the first place. So it helps to understand what is an emotion, what is a feeling, we need to understand what is an emotion.
+ - There is no such thing as a disembodied mind. The mind is implanted in the brain, and the brain is implanted in the body.
+ - Rather than being a luxury, emotions are a very intelligent way of driving an organism toward certain outcomes.
+ - Emotions are enmeshed in the neural networks of reason.
+ - The self is a perpetually recreated neurobiological state.
+ - In ‘Self Comes to Mind’ I pay a lot of attention to simple creatures without brains or minds, because those ‘cartooned abstractions of who we are’ operate on precisely the same principles that we do.
+ - Scott Fitzgerald said famously that ‘he who invented consciousness would have a lot to be blamed for.’ But he also forgot that without consciousness, he would have no access to true happiness or even the possibility of transcendence.
+ - I got interested in the emotions after studying patients who had lost the ability to emote and feel under certain circumstances. Many of those patients also had major impairments in their ability to make decisions.
+ - A mind is so closely shaped by the body and destined to serve it that only one mind could possibly arise in it. No body, never mind.
+ - To me, body and mind are different aspects of specific biological processes.
+ - Narratives are not fixed. We change our narratives for ourselves and we change them not necessarily deliberately. In other words, some people do, some people will constantly reconstruct their biography for external purposes, it’s a very interesting political ploy.
+ - The autobiographical self is built on the basis of past memories and memories of the plans that we have made; it’s the lived past and the anticipated future.
+ - Consciousness permits us to develop the instruments of culture – morality and justice, religion, art, economics and politics, science and technology. Those instruments allow us some measure of freedom in the confrontation with nature.
+ - When you experience the emotion of sadness, there will be changes in facial expression, and your body will be closed in, withdrawn. There are also changes in your heart, your guts: they slow down. And there are hormonal changes.
+ - The autobiographical self has prompted extended memory, reasoning, imagination, creativity and language. And out of that came the instruments of culture – religions, justice, trade, the arts, science, technology.
+ - I continue to be fascinated by the fact that feelings are not just the shady side of reason but that they help us to reach decisions as well.
+ - Imagine, for example, birds. When they look out at the world, they have a sense that they are alive. If they are in pain, they can do something about it. If they have hunger or thirst, they can satisfy that. It’s this basic feeling that there is life ticking away inside of you.
+ - Of necessity, the autobiographical self is not just about one individual but about all the others that an individual interacts with. Of necessity, it incorporates the culture in which the interactions took place.
+ - A self that is very robust, that has many, many levels of organization, from simple to complex, and that functions as a sort of witness to what is going on in our organisms.
+ - More may have been learned about the brain and the mind in the 1990s – the so-called decade of the brain – than during the entire previous history of psychology and neuroscience.
+ - A conscious mind is a mind with a self in it.
+ - You’re not the same after, say, an incredible love affair that went very well or a love affair that went bad. Or something that happens to your health, or something that happened to somebody else’s health, that is close to you. Or something that happens professionally.
+ - Consciousness begins when brains acquire the power, the simple power I must add, of telling a story.
+ - If I use the word consciousness, in our lab, in our institute, what we mean is the special quality of mind, the special features that exist in the mind, that permit us to know, for example, that we, ourselves, exist, and that things exist around us.
+ - We do not merely perceive objects and hold thoughts in our minds: all our perceptions and thought processes are felt. All have a distinctive component that announces an unequivocal link between images and the existence of life in our organism.
+ - In the heart of consciousness is subjectivity, this sense of having a self that observes one’s own organism and the world around that organism. That is really the heart of consciousness.
+ - The problem that we, as living organisms, face – and not we only, humans, but any living organism faces – is the management of life.
+ - You can be highly concentrated on a person, on a problem, and be so good at excluding all other material that that becomes not just the focus of your experience, but practically the sole content of your experience, everything else falling by the wayside.
+ - When you deal with something like compassion for physical pain, which we know is very, very old in evolution – we can find evidence for it in nonhuman species – the brain processes it at a faster speed. Compassion for mental pain took many seconds longer.
+ - We can be more or less conscious when you create grades of focus on a subject that is flowing in our stream of consciousness.
+ - We are not passive exhibitors of visual or auditory or tactile images. We have selves. We have a Me that is automatically present in our minds right now.
+ - Some of us, for better or worse, develop very stable, consistent, and largely predictable machineries of self. But in others, the self machinery is more flexible and more open to unexpected turns.
+ - When we talk about emotion, we really talk about a collection of behaviors that are produced by the brain. You can look at a person in the throes of an emotion and observe changes in the face, in the body posture, in the coloration of the skin and so on.
+ - Emotion is set in our genome and that we all have with a certain programmed nature that is modified by our experience so individually we have variations on the pattern. But in essence, your emotion of joy and mine are going to be extremely similar.
+ - There are things in our lives that take up an enormous importance and that become very dominant effects in our biography. And that comes out of a variety of reasons, but fundamentally comes out of how that particular experience connects with your effective systems of response.
+ - Although when you look at people that say, from the same culture, roughly the same age, and not very difference intelligence, and you make a lot of detailed questions about the experiences of say colors, situations, and so on, you’ll get very similar answers.
+ - Consciousness, much like our feelings, is based on a representation of the body and how it changes when reacting to certain stimuli. Self-image would be unthinkable without this representation.
+ - If you have just an emotion, you would not necessarily feel it. To feel an emotion, you need to represent in the brain in structures that are actually different from the structures that lead to the emotion, what is going on in the organs when you’re having the emotion.
+ - I think it’s possible to a certain extent to make those comparisons. The problem is the detail with which the comparison can be made. Of course, the first place to make such a comparison would be to ask for a testimony from different people and have people report on what they experience.
+ - But whether we want to do it because we want to have people to have a different idea of who we are or not, we do it naturally. So the way we construct our narrative is different from the way we constructed it a year ago. The difference is maybe very small or it may be huge.
+ - We all woke up this morning and we had with it the amazing return of our conscious mind. We recovered minds with a complete sense of self and a complete sense of our own existence – yet we hardly ever pause to consider this wonder.
+ - For pure joy, I look at a small painting by Arbit Blatas. An ocean liner is at the center of the composition, perhaps ready to depart. It holds the promise of discovery.
+ - There’s something that intervenes and is very important which has to do with value. Value in the true biological sense, which is that contrary to what many people seem to think, taking it at face value – sorry for the pun – we do not give the same amount of emotional significance to every event.
+ - Writing long hand is the last refuge. One needs the time it takes to put pencil to paper and let it run along the ruled line.
+ - We remove ourselves from the experience itself to a surrogate of the experience, which is whatever measure you take from the brain, be it the electroencephalogram or magnet encephalography or say functional magnetic resonance. So it’s pretty tough to make those comparisons.
+ - There are ways in which you can make that distinction objective to a certain degree. For example, by looking at responses that could be generated in the brain to exactly the same stimulus and there could be differences there.
+ - How can you have this reference point, this stability, that is required to maintain the continuity of selves day after day?
+ - I cannot listen to Beethoven or Mahler or Chopin or Bach when I write because those composers require you stop what you are doing and listen.
+ - There’s that effect that is very physical, very down there at the synaptic level, which really means microscopic cellular level, but also molecular level, because all of those structures are operating on an electrochemical basis and so the changes there are very important.
+ - I believe that it is made out of the same cloth of mind, but it is an add-on, it was something that was specialized to create what we call the self. And it exists for very special purposes and it has very special, and I think by and large good consequences, although not only good consequences.
+ - We’re seeing it the same way, we’re hearing the same way, we have the same conception of the situation. And so, for all purposes, we are operating with a very similar perception.
+
+53 quotes

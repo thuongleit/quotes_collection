@@ -1,0 +1,26 @@
+ - The Miami Beach audience is the greatest audience in the world.
+ - I have a ‘Play The Melody’ philosophy. It means don’t over arrange, don’t make life difficult. Just play the melody-and do it the simplest way possible.
+ - A man must defend his home, his wife, his children, and his martini.
+ - Most wives think of their husbands as bumbling braggarts with whom they happen to be in love.
+ - The best part of you ran down your mother’s legs.
+ - I have no use for humility. I am a fellow with an exceptional talent.
+ - The worst thing you can do with money is save it.
+ - Thin people are beautiful, but fat people are adorable.
+ - I only made $200 a week and I had to buy my own bullets.
+ - Modesty is the artifice of actors, similar to passion in call girls.
+ - Does God have a sense of humor? He must have if He created us.
+ - I’m no alcoholic. I’m a drunkard. There’s a difference. A drunkard doesn’t like to go to meetings.
+ - Drinking removes warts and pimples. Not from me. But from those I look at.
+ - Golf and women are a lot alike. You know you are not going to wind up with anything but grief, but you can’t resist the impulse.
+ - The only thing better than one of my songs is one of my songs with a glass of scotch.
+ - Our dreams are firsthand creations, rather than residues of waking life. We have the capacity for infinite creativity; at least while dreaming, we partake of the power of the Spirit, the infinite Godhead that creates the cosmos.
+ - The second day of a diet is always easier than the first. By the second day you’re off it.
+ - I drink for the honorable purpose of getting bagged.
+ - I always knew what I was doing.
+ - If you have it and you know you have it, then you have it. If you have it and don’t know you have it, you don’t have it. If you don’t have it but you think you have it, then you have it.
+ - Obviously a deer on the fairway has seen you tee off before and knows that the safest place to be when you play is right down the middle.
+ - It is difficult for people to appreciate their own laughter unless you show them some pathos along the way.
+ - Sometimes the feeling that life is great just swells up inside you and fills you with joy.
+ - I didn’t have things as a child, and I was determined to get them.
+
+24 quotes

@@ -1,0 +1,107 @@
+ - If you learn something new every day, you can teach something new every day.
+ - Without an open-minded mind, you can never be a great success.
+ - Life is too complicated not to be orderly.
+ - There is no single recipe for success. But there is one essential ingredient: Passion.
+ - I love the challenge of starting at zero every day and seeing how much I can accomplish.
+ - It is within everyone’s grasp to be a CEO.
+ - I find that when you have a real interest in life and a curious life, that sleep is not the most important thing.
+ - Study your strengths; then decide how hard you want to work.
+ - The more you adapt, the more interesting you are.
+ - I want to focus on my salad.
+ - I want you to know that I am innocent – and that I will fight to clear my name.
+ - Once you realize that you have identified a passion, invest in yourself. Figure out what you need to know, what kind of experience and expertise you need to develop to do the things that you feel in your heart you will enjoy and that will sustain you both mentally and economically.
+ - I haven’t been to Tasmania. I haven’t been to the South Pole, and I haven’t been to the North Pole. I want to see the polar bear migration before there are no polar bears. I want to see Glacier National Park before the glacier melts.
+ - Your home should be a reflection of how you want to live right now, and for the next phase of your life.
+ - So the pie isn’t perfect? Cut it into wedges. Stay in control, and never panic.
+ - Of course I know how to roll a joint.
+ - I have done nothing wrong.
+ - I was a very curious person because of my parents. They encouraged me to be as curious about as many things as I wanted.
+ - In New York, I get a tremendous amount of ideas by looking at the paintings and the sculptures, adapting artistic endeavors to crafts. There is a lot of inspiration around us that we can see every day and turn into projects.
+ - You have to focus on what’s important to you and go for it. But don’t stab people in the back. It poisons your whole life if you’re like that.
+ - Don’t be embarrassed by your achievements. Being an overarchiever is nothing despicable. It is only admirable. Never lower your standards.
+ - Gardening is a humbling experience.
+ - All the things I love is what my business is all about.
+ - I admire the courage and self-reliance it takes to start your own business and make it succeed.
+ - The cocktail party is probably America’s greatest contribution to the world of entertaining.
+ - I like knowing about everything, and I think that really helps me in my business.
+ - I can keep learning about all the different technologies. It’s my most telling characteristic. I’m interested in trying anything new.
+ - It’s all about new techniques – simplifying old techniques, and consolidating steps. Making things go faster, but not worse.
+ - Doing projects really gives people self-confidence. Nothing is better than taking the pie out of the oven. What it does for you personally, and for your family’s idea of you, is something you can’t buy.
+ - Never make a big decision without sleeping on it.
+ - I live in an old house with no closets and no built-ins. I hate big cupboards.
+ - I think baking cookies is equal to Queen Victoria running an empire. There’s no difference in how seriously you take the job, how seriously you approach your whole life.
+ - I’m very inspired by nature – you could say Mother Nature. I look at things around me and get all kinds of inspiration daily.
+ - Seek out people to work with who are brimming with talent, energy, integrity, optimism, and generosity.
+ - I wish I were closer friends with Snoop Dogg.
+ - I don’t even like firing people. I don’t think I’ve ever said, ‘You’re fired’ to anybody.
+ - I catnap now and then, but I think while I nap, so it’s not a waste of time.
+ - My new motto is: When you’re through changing, you’re through.
+ - We’re not so free that we don’t have to listen to rules, and laws, and regulations. Those are important. But the spirit, the freedom of the spirit, that’s what I think of American Dream, that we are free here to do what we want to do, what we set out to do.
+ - I invented ‘It’s a good thing’ before you were even born.
+ - I was the second of six kids. I wouldn’t say we were poor; we had no money. That’s different.
+ - I get up really early, and I go to bed really late. Sometimes I get tired, but it’s not important. I have an exciting existence, and there’s so much to do.
+ - Franchesca and Sharkey, my French bulldogs, have their own blog. And they are brilliant at it.
+ - Broaden yourself. You don’t have to focus when you’re 20. I think the broader you are, the better it is. Later you can focus on your real interests and ideas. The ultimate goal is to be an interesting, useful, wholesome person. If you’re successful on top of that, then you’re way ahead of everybody.
+ - I believe in a man and a woman being equal. I really believe that we can do anything we set our minds to.
+ - Over the years, I learned so much from mom. She taught me about the importance of home and history and family and tradition. She also taught me that aging need not mean narrowing the scope of your activities and interests or a diminution of the great pleasures to be had in the everyday.
+ - I love dessert. I can’t be guilty about it because I have to taste everything. I experiment.
+ - The homes I like the best are totally occupied, busy, and useful, whether it’s a tiny little house or a great big one. Rarely do you find a great big house that’s used in a good way. So I prefer smaller spaces that are full of books, full of things that people are doing.
+ - I am always asking myself how I can improve the lives of my customers, my colleagues, my shareholders, my family and my friends.
+ - I’m never sick. Why get sick? It’s a waste of time.
+ - The first book really was kind of an entertaining textbook for the homemaker. I couldn’t find a good book about entertaining in 1982, and neither could my friend, so I decided to write it.
+ - Basement smells bad. Look for cat poops, change litter.
+ - I was married for 30 years. Isn’t that enough? I’ve had my share of dirty underwear on the floor.
+ - I am a hero worshiper. I love the number one tennis player. I love the number one baseball player. I want to see those records broken.
+ - You have to watch the clock constantly because youre only allowed out of your home for a limited period, and for a busy person, watching the clock and knowing other people are watching the clock is extremely difficult.
+ - You should never accept what can be offered to you if you feel it can be improved.
+ - To entertain at home is both a relief and a rediscovery – of rooms and settings, of your favorite things, and particularly of your own tastes and ideas.
+ - Larousse has a place of honor on every cookbook shelf in America.
+ - I think I may be a better person for having given serious time and thought and effort to gardening.
+ - I have a microphone on one ankle and an ankle bracelet on the other, so I’m well balanced today.
+ - When I was incarcerated at Alderson in West Virginia for a five-month term, they had a ceramics class.
+ - Revenge of the Middle-Aged Woman.
+ - You can be the most beautiful person on Earth, and if you don’t have a fitness or diet routine, you won’t be beautiful.
+ - I adore summer entertaining. For a dinner party at the farm, I might prepare homemade fettuccine with porcini mushrooms, soft-shell crabs, spinach from the garden, and lemon tarts with fraises des bois for dessert.
+ - It’s sort of the American way to go up and down the ladder, maybe several times in a lifetime.
+ - I am not a rock star or a movie star; I’m a businessperson. I definitely know who my friends are. I’m much more open and trusting than, say, my daughter is.
+ - American Made is not just an event. It’s a movement to spotlight and support the next generation of creative entrepreneurs who are turning their passion for making into thriving small businesses.
+ - I love Champagne and I love to drink it out of any kind of beautiful glass.
+ - I don’t think there’s any company that has the same tools as Martha Stewart Living does, and people know that. They really love the tools and, if you have the tools, you can pretty much do the craft.
+ - I support Alice Waters in her desire that there be a vegetable garden at the White House. I don’t think they should rip up the Rose Garden, because that’s something that I love. They should probably dig up another patch and grow some vegetables there.
+ - Really try to find a job where it’s fun to get up and get out the door, no matter what time.
+ - As you would expect, the loss of freedom and the lack of privacy are extremely difficult. But I am safe, fit and healthy.
+ - I have set a standard, and I’m going to stick to the standard. I may have been able to grow faster and maybe my business could have been bigger, but because I really feel very serious about my subject, I really want to be hands-on.
+ - I try to seek out and surround myself with people who just percolate fresh, original, and creative ideas.
+ - I – I try to do as much as I can, wherever I am. So, at the farm, I’m always thinking of some new project, some new thing I can do.
+ - I’m always on the lookout for those good, simple solutions to everyday problems.
+ - I have cotton or flannel sheets, depending on the weather. They have to be ironed, and I get my bed changed nearly every day.
+ - I always thought I would be a teacher. And I think I actually lived up to my initial dreams, because what I do now is teach millions and millions of people many different kinds of things.
+ - Our families and our homes are the center of American life, Everything we do is to make those homes-and the lives in them-more beautiful, more comfortable, more functional and more full of life and light and joy for those we love.
+ - I never pay attention to age or gender. There are just too many other more important things to consider.
+ - Our passion is and should always be to make life better.
+ - Fifty-seven percent of Americans are do-it-yourselfers, craftspeople, and artisans and makers.
+ - I really do have rules for running and managing a business that have never been formalized before.
+ - I think it’s very important that whatever you’re trying to make or sell or teach has to be basically good. A bad product and you know what? You won’t be here in ten years.
+ - Plants respond far better to moderate but consistent care than they do to occasional bouts of heroic intervention.
+ - I record my radio show, and my staff makes me a nice lunch in the kitchen, usually fish – whatever’s freshest and line-caught – and a salad. I drink water and herbal tea, a blend of catnip, elderberry, and horehound.
+ - Everywhere I go, I always look for creative entrepreneurs, whether it’s artisans and craftsmen, small farmers and gardeners, or restaurateurs who use fresh, locally sourced ingredients. I admire the courage and self-reliance it takes to start your own business and make it succeed.
+ - All I really want is a three-room house. The home I have designed at my new farm in Bedford, New York, is a three-room house: bedroom on top, living room in the middle, and kitchen on the ground.
+ - A lot of TV people buy more than one of an item, in case they spot or stain it, but I don’t like buying duplicates – it’s wasteful.
+ - I used to wear real fur, but, like many others, I had a change of heart when I learned what actually happens to the animals.
+ - The last place I would ever want to go is prison.
+ - I must reclaim my good life and I must return to my good works.
+ - As with all my new pets, I gently bit each kitten on the face. This is how I let my animals know that I am now their mother.
+ - Buttons are the fossils of the sartorial world, enduring long past the garments they were designed to hold together.
+ - Bloggers create kind of a popularity. But they are not the experts, and we have to understand that.
+ - I always disagreed with the separation of the name and the brand and the person To build on that name and brand is one thing. To divorce the name and the brand from the person was not an approach that I agreed with.
+ - I was a very good cook, and I knew I could build a business.
+ - I’m a maniacal perfectionist.
+ - Many of my executives have worked with me since the beginning. I can be fair and decisive and encouraging as well as demanding.
+ - Giving information that will help everybody live better. That’s a teacher’s dream-to accumulate information and disperse it in a form that allows people to choose the way they’re going to use it. That’s what I think I do best.
+ - I’m not supposed to say it, but I was not guilty of any crime. I became a target because I was a strong and a rich woman who had been very successful.
+ - I had no idea when I went to college what I’d be doing. I took organic chemistry and did terribly, but I was good in English and art. I took many courses and participated in as many activities as I could. I learned a lot about every single thing.
+ - I don’t have time to have friends come and stay, except on weekends in Maine. I invite a lot of people to come to Maine.
+ - I’m not a sponge exactly, but I find that something I look at is a great opportunity for ideas.
+ - Write the book you’d want to read.
+
+105 quotes

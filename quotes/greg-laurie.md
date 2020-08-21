@@ -1,0 +1,47 @@
+ - In essentials unity, in non-essentials liberty, in all things charity and love.
+ - There’s a difference between remorse and repentance. Remorse is being sorry for being caught. Repentance is being sorry enough to stop.
+ - When you see that sunset or that panoramic view of God’s finest expressed in nature, and the beauty just takes your breath away, remember it is just a glimpse of the real thing that awaits you in heaven.
+ - Let heaven fill your thoughts instead. Because when you do, everything on earth gets placed in its proper perspective.
+ - Loving God more than anyone or anything else is the very foundation of being a disciple. If you want to live your Christian life to its fullest, then love Jesus more than anyone or anything else.
+ - We can trust God’s heart even when we can’t trace His path.
+ - We need to be homesick for heaven. Though we have never been there, we still have something God has built within us that gives us a certain homesickness, a desire to be there.
+ - God is watching us, but He loves us so much that He can’t take His eyes off us. We may lose sight of God, but He never loses sight of us.
+ - God rewards the person who is diligent. And for those who will take time in their day to seek the Lord, for those who will take time to read His Word, for those who will take time to wait upon Him, He will reveal His truths to them.
+ - If you are seeking to obey the Lord, expect opposition. Expect obstacles. Expect difficulties. But also expect God to see you through.
+ - Heaven is not for good people, it’s for forgiven people.
+ - So here is what it comes down to: the ultimate choice in life is between pleasing ourselves and pleasing God.
+ - Just as a car parked on a hill will naturally roll backward when shifted into neutral, we will naturally go the wrong way if we shift our Christian lives into neutral and stop seeking to learn and grow as believers.
+ - He who rejects the Bible has nothing to live by. Neither does he have anything to die by.
+ - Know this: God’s delays are not necessarily His denials. So keep praying.
+ - God’s plans for you are better than any plans you have for yourself. So don’t be afraid of God’s will, even if it’s different from yours.
+ - Jesus took His place in a manger so that we might have a home in Heaven.
+ - God will test you because He wants you to mature. He wants you to develop a walk with Him that is not based on your fluctuating emotions, but on your commitment to Him as you learn to walk by faith.
+ - Giving is a responsibility. It is an opportunity. And it is a blessing for every follower of Jesus Christ.
+ - You were placed on earth to know God. Everything else is secondary.
+ - And any declaration of faith that does not result in a changed life and good works is a false declaration. It is faith alone that justifies. But faith that justifies can never be alone.
+ - Let’s commit ourselves to being true disciples of Jesus Christ. Not mere fair-weather followers, but disciples.
+ - The real message of Christmas is not the gifts that we give to each other. Rather, it is a reminder of the gift that God has given to each of us. It is the only gift that truly keeps on giving.
+ - The pulpit is not a place to settle scores, it’s a place to preach the word of God.
+ - Prayer is not the answer. God is the answer. Prayer is the vehicle by which we reach God.
+ - Whenever God is blessing, we can expect the devil to be opposing.
+ - As time passes, you will look back with twenty-twenty hindsight, and you will say, ‘Thank God He did not answer my prayers’ or ‘Thank God He answered my prayers,’ whichever the case may be.
+ - The message of the season is not, “Let it snow” or even, “Let us shop.” The real message of Christmas is, “Let us worship.” That is what the wise men came to do. And that is what we should be doing as well.
+ - If you have faith in God, if you believe that God can use you, if you are willing to take a step of faith here and there, then God can do incredible things through you.
+ - God allows hardship in our lives so that our beliefs-those handholds of faith in a troubled world-will became more and more real to us and less and less theory.
+ - Either you will have harmony with God and friction with people, or you will have harmony with people and friction with God.
+ - What would you think of a person who always wanted things from you but never offered a word of thanks in return? We can be that way with God, can’t we? Let’s remember to thank Him.
+ - Just as you must eat, drink, and breathe to live, you must read the Bible, pray, and be involved in a church to stay spiritually alive and vital. You never will outgrow these things.
+ - What we now consider to be radical behavior was to early believers nothing more than a sincere attempt to live obediently.
+ - The most miserable man or woman is the one who knows what is right and does not do it.
+ - The resurrection of Christ from the dead, next to the Crucifixion itself, is the most significant event in church history. It isn’t a peripheral issue; it’s foundational. It’s bedrock. It’s the bottom line.
+ - If you give, it will be given to you. And I have found that generous people are blessed people.
+ - New believers are the lifeblood of the church. We can either evangelize or fossilize.
+ - I have found that if you invest in the lives of people, well-feed sheep will reproduce themselves.
+ - I have never received a heavenly dispatch. Rather, I have found that divine guidance often comes as a result of taking steps of faith. And God not only has His will, but He also has His timing for each and every situation. The Bible tells us, ‘He has made everything beautiful in its time’
+ - We also need to recognize that God may have other plans in store for us, and we must be willing to accept that.
+ - You become a disciple in the biblical sense only when you are totally and completely committed to Jesus Christ and His Word.
+ - Earth is only a pale version of heaven, not the other way around.
+ - I take it very seriously when I take the pulpit. That I’m representing God.
+ - Any step away from the cross is a step in the wrong direction.
+
+45 quotes

@@ -1,0 +1,70 @@
+ - I don’t care if you’re black, white, short, tall, skinny, rich or poor. If you respect me I’ll respect you.
+ - Don’t underestimate the things that I will do.
+ - Regrets and Mistakes, they’re Memories made.
+ - The scars of your love remind me of us they keep me thinking that we almost had it all the scars of your love they leave me breathless I can’t help feeling we could have had it all.
+ - Let the sky fall, when it crumbles – We will stand tall – Face it all together.
+ - Should I give up or should I just keep chasing pavement, even if it leads nowhere?
+ - There’s a fire starting in my heart.
+ - Be brave and fearless to know that even if you do make a wrong decision, you’re making it for a good reason.
+ - You had my heart inside of your hand but you played it to the beat.
+ - My aim in life is never to be skinny.
+ - I won’t let you close enough to hurt me.
+ - Nothing that I wouldn’t do, to make you feel my love.
+ - A drunk tongue is an honest one in my opinion.
+ - I’ve never had a problem with the way I look. I’d rather go for lunch with my friends than go to a gym.
+ - I don’t make music for eyes. I make music for ears.
+ - I don’t like going to the gym.
+ - I’ve always written down how I feel.
+ - Next time I’ll be braver, I’ll be my own savior, Standing on my own two feet.
+ - I can’t dance to save my life.
+ - Music isn’t for the eyes, it’s for the ears.
+ - I just want to make music, I don’t want people to talk about me. All I’ve ever wanted to do was sing. I don’t want to be a celebrity. I don’t want to be in people’s faces, you know, constantly on covers of magazine that I haven’t even known I’m on.
+ - In my hometown memories are fresh.
+ - Would I show my body off if I was thinner? Probably not, because my body is mine. I think I remind everyone of themselves. I’m not saying everyone is my size, but it’s relatable because I’m not perfect, and I think a lot of people are portrayed as perfect, unreachable and untouchable.
+ - I know you haven’t made your mind up yet But I would never do you wrong I’ve known it from the moment that we met No doubt in my mind where you belong.
+ - I think no matter what you look like, the key is to first of all be happy with yourself. And then you know if you want to try to improve things that you don’t like about yourself, then do it after your appreciate yourself.
+ - I’ve always got on better with boys. Most of my friends are boys. Like, if I have children, I want five boys. Boys love their mothers whereas girls can be so mean to each other.
+ - Beauty comes from within, not from what you wear.
+ - I’ve never been more normal than I am now.
+ - So is it over is this really it You’ve given up so easily I thought you loved me more than this.
+ - I’m really happy to be me, and I’d like to think people like me more because I’m happy with myself and not because I refuse to conform to anything.
+ - I don’t want to be some skinny mini with my tits out. I really don’t want to do it and I don’t want people confusing what it is that I’m about.
+ - I get so nervous on stage I can’t help but talk. I try. I try telling my brain: stop sending words to the mouth. But I get nervous and turn into my grandma. Behind the eyes it’s pure fear. I find it difficult to believe I’m going to be able to deliver.
+ - I don’t have time to worry about something as petty as what I look like.
+ - Sometimes my songs wander off a bit and are not always coherent.
+ - I have insecurities of course, but I don’t hang out with anyone who points them out to me.
+ - I’m not on good terms with any of my exes. That’s why we’re not together anymore. We’re not friends.
+ - I’d love to be an artist always, but if no one wants me, I’d love to write songs for other people, be a manager, nurture new talent.
+ - I don’t write songs about a specific, elusive thing. I write about love, and everyone knows what it is like to have your heart broken.
+ - I think it’s shameful when you sell out. It depends what kind of artist you wanna be, but I don’t want my name anywhere near another brand.
+ - I love love songs. But I love pop music as well: Girls Aloud, Kylie, the Spice Girls, East 17, Mika.
+ - I am never writing a breakup record again, by the way. I’m done with being a bitter witch.
+ - Mum loves me being famous! She is so excited and proud, as she had me so young and couldn’t support me, so I am living her dream, it’s sweeter for both of us. It’s her 40th birthday soon and I’m going to buy her 40 presents.
+ - My voice went recently, never happened before, off like a tap. I had to sit in silence for nine days, chalkboard around my neck. Like an old-school mime. Like a kid in the naughty corner. Like a Victorian mute.
+ - Americans are always mortified when I tell them this, but in England, it’s a tradition to put your plaques and photographs and awards and gold records and stuff in your bathroom. I don’t know why.
+ - There will be no new music until it’s good enough and until I’m ready.
+ - I’d lose weight if I was an actress and had to play a role where you’re supposed to be 40 lbs lighter, but weight has nothing to do with my career. Even when I was signing a contract, most of the industry knew if anyone ever dared say lose weight to me, they wouldn’t be working with me.
+ - I doubt I’ll be singing forever, because at some point people aren’t going to want to hear my music, and I hope that I’ll still get the opportunity to write songs.
+ - I will not do festivals. The thought of an audience that big frightens the life out of me.
+ - I mean, the thought of someone spending $20 to come and see me and saying ‘Oh, I prefer the record and she’s completely shattered the illusion’ really upsets me. It’s such a big deal that people come give me their time.
+ - I don’t rely on my figure to sell records.
+ - If I were a writer and not a singer in 10 years, I don’t know how I’d feel about writing really personal songs and getting someone else to sing them.
+ - I was about to meet Beyonce, and I had a full-blown anxiety attack. Then she popped in looking gorgeous, and said, ‘You’re amazing! When I listen to you I feel like I’m listening to God.’
+ - Whenever I’m about to eat meat I always see my little dog’s eyes.
+ - I don’t want to be on the cover of Playboy or Vogue.
+ - You have to prioritize what you stress about when you have a child.
+ - I’ve seen people where it rules their lives, you know, who want to be thinner or have bigger boobs, and how it wears them down. And I just don’t want that in my life.
+ - My worst fear is my music won’t connect with the public.
+ - The focus on my appearance has really surprised me. I’ve always been a size 14 to 16, I don’t care about clothes, I’d rather spend my money on cigarettes and booze.
+ - I want to go and see things as a fan again. I am a fan, but I can’t remember what it feels like to be a fan anymore. Because I’ve become an artist. I’ve become the artist.
+ - I no longer buy papers or tabloids or magazines or read blogs. I used to. But it was just filling up my day with hatred.
+ - Sometimes with pop music, you have to see it to love it. With soul music, it’s sparse. There’s nothing that’s pretentious or planned. It’s just so gutsy.
+ - I wanted to be a singer forever. But it’s not really my cup of tea. Having the whole world know who you are.
+ - I’m very confident. Even when I read people saying horrible stuff about my weight.
+ - I find it quite difficult to think that there’s, you know, about 20 million people listening to my album that I wrote very selfishly to get over a breakup. I didn’t write it being that it’s going to be a hit.
+ - I can’t believe I did a peace sign on TV – like Ringo Starr!
+ - I love a card. You know, cards? At birthdays? I collect them.
+ - For people to link my music to their lives, it’s incredible, there’s no other feeling like it.
+ - I want to leave an album behind that is classic, that people in 50 years will refer to and pass on to their children. An album that you never bored of.
+
+68 quotes

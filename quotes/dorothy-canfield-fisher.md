@@ -1,0 +1,31 @@
+ - A mother is not a person to lean on, but a person to make leaning unnecessary.
+ - It is not good for all our wishes to be filled; through sickness we recognize the value of health; through evil, the value of good; through hunger, the value of food; through exertion, the value of rest.
+ - Life takes hold of us with strong hands and makes us greater than we thought.
+ - Oh, yes, of course I like music, too. Very much. It’s so pleasant of an evening, especially when made by your friends at home. I often say I like it better than cards. Though I must say I do like a good game of bridge.
+ - There is no human relationship more intimate than that of nurse and patient, one in which the essentials of character are more rawly revealed.
+ - On New Year’s Day every calendar, large and small, has the same number of dates. But we soon learn that the years are of very different lengths.
+ - Everyone bowed to that unwritten law of family life which ordains that, in the long run, everyone submerges his personal preference in the effort to conform to that of the member of the circle who complains most loudly and is most difficult to satisfy.
+ - Some people think that doctors and nurses can put scrambled eggs back into the shell.
+ - Vermont is the only place in America where I ever hear thrift spoken of with respect.
+ - Libraries are the vessels in which the seed corn for the future is stored.
+ - Compared with more emotional types, Vermonters seem to have few passions. But those they have are great and burning. The greatest is their conviction that without freedom human life is not worth living.
+ - There’s no healthy life possible without some sensual feeling between the husband and wife, but there’s nothing in the world more awful than married life when it’s the only common ground.
+ - What is life, but one long risk?
+ - Freedom is not worth fighting for if it means no more than license for everyone to get as much as he can for himself.
+ - What a fearfully distracting, perplexing and heart-searching business it is to live.
+ - You think religion is what’s inside a little building filled with pretty lights from stained glass windows. But it’s not. It’s wings! Wings!
+ - Professional psychologists seem to think that they are the only people who make sense out of human actions. The rest of us know that everybody tries to do just this. What else is gossip?
+ - If we could learn how to utilize all the intelligence and patent good will children are born with, instead of ignoring much of it – why – there might be enough to go around! There might be enough to solve our alarming human problems, to put an end to poverty, to stop waging wars.
+ - No Vermont town ever let anybody in it starve.
+ - Never since the dawn of human history, as far as I can find out, did people long settled in any region give a friendly welcome to newcomers. One of the disagreeable traits of our human nature seems to be to dislike on sight people who come later than the first settlers.
+ - The actions of a human being, even of fifteen months of age, may not be without significance to a sympathetic eye.
+ - I’m as fixed in my opinion as the man who thought he was a hard-boiled egg.
+ - One of the many things nobody ever tells you about middle age is that it’s such a nice change from being young.
+ - Taking somebody’s sacrifices is like taking counterfeit money. You’re only the poorer.
+ - Almost anything is enough to keep alive someone who wishes nothing for himself but time to write music...
+ - What’s the use of inventing a better system as long as there just aren’t enough folks with sense to go around?
+ - History is worth reading when it tells us truly what the attitude toward life was in the past.
+ - You can’t wish a body any worse luck than to get what he wants.
+ - Father sticks to it that anything that promises to pay too much can’t help being risky.
+
+29 quotes

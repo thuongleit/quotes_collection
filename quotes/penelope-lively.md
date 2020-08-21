@@ -1,0 +1,54 @@
+ - Language tethers us to the world; without it we spin like atoms.
+ - We all need a past – that’s where our sense of identity comes from.
+ - The day is refracted, and the next and the one after that, all of them broken up into a hundred juggled segments, each brilliant and self-contained so that the hours are no longer linear but assorted like bright sweets in a jar.
+ - I didn’t write anything until I was well over 30.
+ - I’m not an historian but I can get interested-obsessively interested-with any aspect of the past, whether it’s palaeontology or archaeology or the very recent past.
+ - Getting to know someone else involves curiosity about where they have come from, who they are.
+ - And in another year everything will be different yet again. It is always like that, and always will be; you are forever standing on the brink, in a place where you cannot see ahead; there is nothing of which to be certain except what lies behind. This should be terrifying, but somehow it is not.
+ - I’m intrigued by the way in which physical appearance can often direct a person’s life; things happen differently for a beautiful woman than for a plain one.
+ - Grief-stricken. Stricken is right; it is as though you had been felled. Knocked to the ground; pitched out of life and into something else.
+ - People die, but money never does.
+ - But who knows their own child? You know bits – certain predictable reactions, a handful of familiar qualities. The rest is impenetrable. And quite right too. You give birth to them. You do not design them.
+ - Giving presents is one of the most possessive things we do, did you realize that? It’s the way we keep a hold on other people. Plant ourselves in their lives.
+ - Wars are fought by children. Conceived by their mad demonic elders, and fought by boys.
+ - You have this comet trail of your own lived life, sparks from which arrive in the head all the time, whether you want them or not – life has been lived but it is still all going on, in the mind for better and for worse.
+ - There’s a fearful term that’s in fashion at the moment – closure. People apparently believe it is desirable and attainable.
+ - I’m now an agnostic but I grew up on the King James version, which I’m eternally grateful for.
+ - We make choices but are constantly foiled by happenstance.
+ - If we had not met, that day, I think I would have imagined you somehow.
+ - We open our mouths and out flow words whose ancestries we do not even know. We are walking lexicons. In a single sentence of idle chatter we preserve Latin, Anglo-Saxon, Norse: we carry a museum inside our heads, each day we commemorate peoples of whom we have never heard.
+ - It seems to me that anyone whose library consists of a Kindle lying on a table is some sort of bloodless nerd.
+ - The idea that memory is linear is nonsense. What we have in our heads is a collection of frames. As to time itself-can it be linear when all these snatches of other presents exist at once in your mind? A very elusive and tricky concept, time.
+ - I have had to empty two family homes during the last few years – first, the house that had been my grandmothers since 1923, and then my own country home, which we had lived in for over twenty years.
+ - In old age, you realise that while you’re divided from your youth by decades, you can close your eyes and summon it at will. As a writer it puts one at a distinct advantage.
+ - If people don’t read, that’s their choice; a lifelong book habit may itself be some sort of affliction.
+ - Born in Jerusalem, Wadie Said went from being a dragoman to a salesman in the United States and thence to a hugely successful businessman in Egypt.
+ - All history, of course, is the history of wars.
+ - Unless I am a part of everything I am nothing.
+ - The present hardly exists, after all-it becomes the past even as it happens. A tricky medium, time – and central to the concerns of fiction.
+ - There’s a preoccupation with memory and the operation of memory and a rather rapacious interest in history.
+ - I didn’t want it to be a book that made pronouncements.
+ - We all act as hinges-fortuitous links between other people.
+ - The Photograph is concerned with the power that the past has to interfere with the present: the time bomb in the cupboard.
+ - Every novel generates its own climate, when you get going.
+ - I can walk about London and see a society that seems an absolutely revolutionary change from the 1950s, that seems completely and utterly different, and then I can pick up on something where you suddenly see that it’s not.
+ - I’ve always been fascinated by the operation of memory – the way in which it is not linear but fragmented, and its ambivalence.
+ - I do like to embed a fictional character firmly in an occupation.
+ - The consideration of change over the century is about loss, though I think that social change is gain rather than loss.
+ - Equally, we require a collective past – hence the endless reinterpretations of history, frequently to suit the perceptions of the present.
+ - I’m not an historian and I’m not wanting to write about how I perceive the social change over the century as a historian, but as somebody who’s walked through it and whose life has been dictated by it too, as all our lives are.
+ - History unravels; circumstances, following their natural inclination, prefer to remain ravelled.
+ - I can remember the lush spring excitement of language in childhood. Sitting in church, rolling it around my mouth like marbles – tabernacle and pharisee and parable, tresspass and Babylon and covenant.
+ - I’m writing another novel and I know what I’m going to do after, which may be something more like this again, maybe some strange mixture of fiction and non-fiction.
+ - I am addicted to arrivals, to those innocent dawn moments from which history accelerates.
+ - Mythology is much better stuff than history. It has form; logic; a message.
+ - I didn’t think I had anything particular to say, but I thought I might have something to say to children.
+ - All I know for certain is that reading is of the most intense importance to me; if I were not able to read, to revisit old favorites and experiment with names new to me, I would be starved – probably too starved to go on writing myself.
+ - The past is our ultimate privacy; we pile it up, year by year, decade by decade, it stows itself away, with its perverse random recall system.
+ - I rather like getting away from fiction.
+ - It seems to me that everything that happens to us is a disconcerting mix of choice and contingency.
+ - I believe that the experience of childhood is irretrievable. All that remains, for any of us, is a headful of brilliant frozen moments, already dangerously distorted by the wisdoms of maturity.
+ - You learn a lot, writing fiction.
+ - The pleasure of writing fiction is that you are always spotting some new approach, an alternative way of telling a story and manipulating characters; the novel is such a wonderfully flexible form.
+
+52 quotes

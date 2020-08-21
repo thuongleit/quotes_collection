@@ -1,0 +1,26 @@
+ - Share your smile with the world. It’s a symbol of friendship and peace.
+ - The more you give, the more you get – its a cliche, but its really true.
+ - I think many people can relate to that excruciating pain of love gone wrong. I’d rather have a broken arm than a broken heart.
+ - My biggest deterrent to getting the workout I need is just that my days are so full and so busy.
+ - The best beauty secret is sunblock.
+ - After the first miscarriage, I tried to take the attitude that it was my body’s way of telling me that this pregnancy wasn’t meant to be.
+ - Some people think happiness is a luxury, but its a necessity. You need to make space for it in your life.
+ - I don’t count that relationship with Ricky. It’s just like a blip at this point. I had to fall in love with the devil himself to get this sweet angel, Jack.
+ - Life is too short to not have oysters and champagne sometimes.
+ - Your job as a parent is to listen. And to dole out as much love as you can. That includes tough love.
+ - I always say, the bigger the hair, the smaller the hips!
+ - When something bad happens to me, I think I’m able to deal with it in a pretty good way. That makes me lucky. Some people fall apart at the first little thing that happens.
+ - Four months is a lot of living with that little life in you-thinking about it, eating right for it, nurturing it and all of a sudden, it dies.
+ - Chiropractic makes me feel a few inches taller each time I come out.
+ - Life is short. Ricky and I realize how lucky we were. We want to be together all the time.
+ - I have this helicopter crash, and I fall in love with this man who was in the crash with me. I must have been suffering from post-traumatic stress syndrome.
+ - Just because people can express themselves through their art doesn’t mean they are great communicators in person.
+ - We decided to try in vitro, because both Peter and I felt we couldn’t handle another failure. When I miscarried after that, we had to come to terms with the possibility that this wasn’t meant to be.
+ - Basically he never went to work and didn’t have a job. Of course I thought he did. I thought he was on the phone doing business deals instead of borrowing money from people.
+ - Nutrition has always played a huge role in my life. I became a vegetarian when I was 13 and then got my entire family to become vegetarians. And I have always been active my whole life. I genuinely enjoy sports and I spend time on my total gym.
+ - I don’t want to be younger, I just want to look it.
+ - I just found out that I’m one inch taller than I thought.
+ - I think variety is the spice of sticking with an exercise routine, whether it’s getting a dance tape one day, or getting a tape with those stretchy things to work with resistance on a different day.
+ - America and Americans always rise to the occasion. If we say we are going to stamp out hunger, I believe we will.
+
+24 quotes

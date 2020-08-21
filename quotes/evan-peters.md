@@ -1,0 +1,32 @@
+ - Nerves just mean that you care.
+ - But I love Halloween, and I love that feeling: the cold air, the spooky dangers lurking around the corner.
+ - I love the 80s. I always used to watch that VH1 show, I Love the 80s, nonstop. I love the 80s, everything about it, the clothes, the music. Especially the music. The music is so happy. It’s great.
+ - You look at William Powell in My Man Godfrey and he’s a butler in that and he’s very dapper. He’s a very refined gentleman. I liked playing around with that, with the good posture and a style, a panache, and a way of moving about the room.
+ - Lady Gaga not a diva, and she’s not crazy. She’s just an incredibly nice, down-to-earth person who really cares about art and creativity. It’s pretty amazing to be able to work with her. I’m pretty grateful for that.
+ - I watched It Happened One Night and looked at online pictures and really liked Clark Gable’s mustache and hair and the tuxedo. I just really liked that look.
+ - A lot of people don’t know that I’m really a silly guy. I don’t take anything seriously. It takes a lot of energy for me to take something seriously.
+ - I guess personally I really like “Take on Me” by Aha. I think it just defines the 80s and how insane it was and like neon and like calculator watches and that whole thing.
+ - There’s something that’s sexy about a guy who has the strength to kill somebody, but is also vulnerable enough to be in love. It’s just those two sides – like, I don’t know why, but women for some reason aren’t attracted to normal guys, like, guys who are in between.
+ - I’m not the best actor I can be, so I’m just working on it. I’m not the quickest reader in the world but when I get an acting book I can read it in two days.
+ - Jessica Lange is a sweetheart, the nicest lady in the world. She has a Poodle named Jack.
+ - Actors are a really funny bunch of people, especially the X-Men cast. They’re super funny and super nice, and they like to go out and get drinks and dinner and hang out. It’s an experience. It’s a summer. It’s like camp. Everybody gets together and hangs out.
+ - Just thinking about that, if that were to really happen, if an alien were to come down and really abduct you, how terrifying and how earth-shattering would that be? Your whole world is just destroyed. God is destroyed. It’s kind of a fascinating thing to think about.
+ - I used to look at horror movies as being really real and it would totally freak me out and give me nightmares. Now I watch and think, ’whoa how’d they do that?
+ - On the X-Men films, people are always throwing out ideas and trying to get the shot to look the best and make the most sense, and to get it done efficiently. Everybody collaborates and everybody is very open to new ideas.
+ - I guess creepy comes natural to me – I hate to say that.
+ - It’s cool to see everybody come together and do their own thing, but there’s never been any drama. I never saw any on the X-Men set, and I never saw any on the Horror Story set.
+ - Well, television is grueling. The hours are grueling, it’s hard work, and there’s a lot of pressure to get it done without a lot of rehearsal time.
+ - You’ve gotta separate yourself from the character. It’s hard so it can make its way into your everyday life.
+ - It all started in Michigan. My dad got a job in Michigan, so we all moved up there from St. Louis. I kind of hung out in the summer and had nothing to do, so I sort of got into acting. And then I was going to Grand Blanc High, doing the acting thing and hoping it would pan out.
+ - And I love Jennifer Lawrence. She’s a total fox. And such a good actress. It’s ridiculous.
+ - You can’t plan your character arc – you have a vague idea, maybe, but I’m constantly surprised. Sometimes actors in films will play the ending of the movie, or even the middle, and you know where it’s going – as an audience member you can read the actor.
+ - I would love to do comedy. I think I’m funny and that comedy is my strong suit, at least in real life. I have yet to prove myself in the movies, but I’d love to get the opportunity to do that.
+ - I would say that whatever happens down the line, that Quicksilver vanishes from the movies, I don’t know. At this point it is the beginning of him coming into the group and being a force that fights evil. It’s pretty sweet.
+ - I actually put peanut butter on my bagel. I really like peanut butter and I like to ruin the bagel. You know what’s even crazier that I do sometimes? I do cinnamon raisin bagels with peanut butter. It is really, really out there.
+ - You’re always learning so much from people and how they work and what their processes are. Some people like to listen to music before they get into it, and some people can talk all the way up to, “Action!” Everybody is different.
+ - I always at home as a kid tried to move something with your hand and it doesn’t move and then you get to do it in a movie. I mean my superpower is quickness but you know what I’m saying. You get a superpower and you’re like “Man this is awesome. I get to pretend I have a superpower.”
+ - I think you get less takes on TV than in movies.
+ - I think it’s harder to go from comedy to drama than from drama to comedy. Seeing you dramatic all the time, they crave to see you being silly or funny. But, seeing you in comedy all the time, it’s hard to see that person go be serious, for some reason.
+ - I like to imagine, if I was in the 1930s and was rich and a psychopathic killer, I probably would be moving about very freely and having a lot of fun.
+
+30 quotes

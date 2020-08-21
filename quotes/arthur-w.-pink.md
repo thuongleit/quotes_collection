@@ -1,0 +1,59 @@
+ - Happy the soul that has been awed by a view of God’s majesty.
+ - Prayer is not so much an act as it is an attitude – an attitude of dependency, dependency upon God.
+ - Whatever I cannot do for God’s glory must be avoided.
+ - God cannot change for the better, for He is already perfect; and being perfect, He cannot change for the worse.
+ - Daily living by faith on Christ is what makes the difference between the sickly and the healthy Christian, between the defeated and the victorious saint.
+ - Most Christians expect little from God, ask little, and therefore receive little and are content with little.
+ - It is not the absence of sin but the grieving over it which distinguishes the child of God from empty professors.
+ - The Bible is no lazy man’s book! Much of its treasure, like the valuable minerals stored in the bowels of the earth, only yield up themselves to the diligent seeker.
+ - Taking up my cross means a life voluntarily surrendered to God.
+ - The great mistake made by most of the Lord’s people is in hoping to discover in themselves that which is to be found in Christ alone.
+ - Faithful people have always been in a marked minority.
+ - A ‘god’ who’s will is resisted, designs frustrated, and purpose checkmated, possesses no title to Deity.
+ - Afflictions are light when compared with what we really deserve. They are light when compared with the sufferings of the Lord Jesus. But perhaps their real lightness is best seen by comparing them with the weight of glory which is awaiting us.
+ - Love is the queen of all the Christain graces.
+ - The measure of our love for others can largely be determined by the frequency and earnestness of our prayers for them.
+ - Prayer is not so much an act as it is an attitude of dependency, dependency upon God. Prayer is a confession of creature weakness, yes, of helplessness. Prayer is the acknowledgment of our need and the spreading of it before God.
+ - When we complain about the weather, we are, in reality, murmuring against God.
+ - An honest heart seeks to please God in all things and offend Him in none.
+ - A consciousness of our powerlessness should cast us upon Him who has all power. Here then is where a vision and view of God’s sovereignty helps, for it reveals His sufficiency and shows us our insufficiency.
+ - Almost all doctrinal error is really truth perverted. Truth wrongly divided. Truth disproportionately held and taught.
+ - Instead of a river, God often gives us a brook, which may be running today and dried up tomorrow. Why? To teach us not to rest in our blessings, but in the blesser Himself.
+ - But why should we not place implicit confidence in God and rely upon His word of promise? Is anything too hard for the Lord? Has His word of promise ever failed? Then let us not entertain any unbelieving suspicions of His future care of us. Heaven and earth shall pass away, but not so His promises.
+ - Real prayer is communion with God.
+ - Nothing is too great and nothing is too small to commit into the hands of the Lord.
+ - Growing in grace is a deepening realization of our nothingness; it is a heartfelt recognition that we are not worthy of the least of God’s mercies.
+ - Just as the sinner’s despair of any hope from himself is the first prerequisite of a sound conversion, so the loss of all confidence in himself is the first essential in the believer’s growth in grace.
+ - A natural faith is sufficient for trusting a human object; but a supernatural faith is required to savingly trust in a Divine object.
+ - To the one who delights in the sovereignty of God the clouds not only have a ‘silver lining’ but they are silver all through, the darkness only serving to offset the light!
+ - True liberty is not the power to live as we please, but to live as we ought.
+ - An ineffably holy God, who has the utmost abhorrence of sin, was never invented by any of Adam’s descendents.
+ - In the person of Christ God beholds a holiness which abides His closest scrutiny, yea, which rejoices and satisfies His heart; and whatever Christ is before God, He is for His people.
+ - When you observe that the fire in your room is getting dull, you do not always put on more coal, but simply stir with the poker; so God often uses the black poker of adversity in order that the flames of devotion may burn more brightly.
+ - The gospel is not an announcement that God has relaxed his justice or lowered the standard of His holiness.
+ - Chastisement is designed for our good, to promote our highest interests. Look beyond the rod to the All-wise hand that wields it!
+ - The truth of God may well be likened to a narrow path skirted on either side by a dangerous and destructive precipice: in other words, it lies between two gulfs of error.
+ - Sin is more than an act or a series of acts; it is a man’s make-up.
+ - If I have never mourned over my waywardness, then I have no solid ground for rejoicing.
+ - An honest heart loves the Truth.
+ - Unbelief is infectious! The unbelief of one strengthens the unbelief of another, just as the faith of one strengthens the faith of another.
+ - Prayer is not intended to change God’s purpose, nor is it to move Him to form fresh purposes. God has decreed that certain events shall come to pass through the means He has appointed for their accomplishment.
+ - Our first postulate is that because God is God, He does as He pleases, only as He pleases, always as He pleases; that His great concern is the accomplishment of His own pleasure and the promotion of His own glory that He is the Supreme Being, and therefore Sovereign of the universe.
+ - Prayer is the way and means God has appointed for the communication of the blessings of His goodness to His people.
+ - No verse of Scripture yields its meaning to lazy people.
+ - The Christian life is a life that consists of following Jesus.
+ - After grief for sin there should be joy for forgiveness.
+ - God was under no constraint, no obligation, no necessity to create. That He chose to do so was purely a sovereign act on His part, caused by nothing outside Himself, determined by nothing but His own mere good pleasure.
+ - Grace can neither be bought, earned, or won by the creature. If it could be, it would cease to be grace.
+ - Those circumstances, which to the dim eye of Jacob’s faith wore a hue so somber, were at that very moment developing and perfecting the events which were to shed around the evening of his life the halo of a glorious and cloudless sunset.
+ - Real prayer is communion with God, so that there will be common thoughts between His mind and ours. What is needed is for Him to fill our hearts with His thoughts, and then His desires will become our desires flowing back to Him.
+ - There is only one safeguard against error, and that is to be established in the faith; and for that, there has to be prayerful and diligent study, and a receiving with meekness the engrafted Word of God. Only then are we fortified against the attacks of those who assail us.
+ - How blessed to know that when the world hates us, God loves us!
+ - Prayer is not designed for the furnishing of God with the knowledge of what we need, but it is designed as a confession to him of our sense of need.
+ - Christ is the Divine answer to the Devil’s overthrow of our first parents.
+ - In praying for His enemies not only did Christ set before us a perfect example of how we should treat those who wrong us an hate us, but He also taught us never to regard any as beyond the reach of prayer.
+ - Where sin had brought men, love brought the Saviour.
+ - We must not forget that the issues of Eternity are settled in Time.
+ - For a Christian to defy adversities is to “despise” chastisement. Instead of hardening himself to endure stoically, there should be a melting of the heart.
+
+57 quotes

@@ -1,0 +1,21 @@
+ - We need to know where we are going and how we plan to get there. Our dreams and aspirations must be translated into real and tangible goals with priorities and time frames.
+ - One of life’s most painful moments comes when we must admit that we didn’t do our homework, that we are not prepared.
+ - It took me a while to realize that basketball wasn’t football.
+ - You can take the best team and the worst team and line them up and you would find very little physical difference. You would find an emotional difference. The wining team has a dedication. It will have a core group of veteran players who set the standards. They will not accept defeat.
+ - Football linemen are motivated by a more complicated, self- determining series of factors than the simple fear of humiliation in the public gaze, which is the emotion that galvanizes the backs and receivers.
+ - I was always the last one chosen for football games in Central Park.
+ - Our coach was absolutely out of his head. He must have read Bear Bryant’s book. We had 78 players out. The first day 35 quit. Twenty quit the second day. We ended with 17 players. It was depressing.
+ - I’ve caught fish as big as I am. I’ve caught marlin close to 300 pounds.
+ - The basketball coach cut me within two days, so I was back in the pool. I was the first one in the wall after the first 25 yards, but the last one out because I didn’t have a flip turn.
+ - I was captain and should have set the example. I would lift a minimum of weights. Mine was natural physical strength. I always thought quickness and agility were much more important.
+ - Perseverance isn’t just the willingness to work hard. It’s that plus the willingness to be stubborn about your own belief in yourself.
+ - I just wanted to be an athlete.
+ - Nobody cared about swimming. You could draw a crowd for basketball.
+ - I had a hockey puck and stick-the only ones in town. I definitely would have played hockey ahead of football, had it been available.
+ - Most exciting for me was to make the Pro Bowl in 14 of 15 years.
+ - I can ski out of my back door.
+ - I probably played hurt a lot more times than I should have.
+ - After a few games I knew I was going to be able to compete. The idea of being a star never crossed my mind.
+ - You are the land. The land is you.
+
+19 quotes

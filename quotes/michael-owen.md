@@ -1,0 +1,42 @@
+ - Often the biggest test is when the chips are down and you’ve got to stick together as a team.
+ - I don’t believe in superstitions. I just do certain things because I’m scared in case something will happen if I don’t do them.
+ - If you only ever give 90% in training then you will only ever give 90% when it matters.
+ - You need people who score goals. That’s how you win games.
+ - A new club is like having a new girlfriend – you don’t have feelings straight away.
+ - I hate to admit this but I don’t even know how to make a cup of tea or coffee. I can boil a kettle for a pot noodle and I’ve been known to warm up some food in the microwave.
+ - I can’t believe anyone can have played the game of football as well as Messi.
+ - There’s nothing quite like a World Cup.
+ - I have a great family, good friends, a nice girlfriend, my own house. I have got everything how I want it to be.
+ - I wouldn’t change my life for the world at the moment.
+ - You always come back to earth with a thump at some stage. Life has it’s ups and downs; the acid test is how you handle the downs.
+ - Best atmosphere I ever played in was at Celtic Park in the UEFA Cup for Liverpool.
+ - Everton have a healthy list of injuries.
+ - You are affected by the surroundings, the mood of people, by confidence. I am no different.
+ - All Newcastle fans need to know is that I will be giving everything for their cause now.
+ - I don’t want to be modelling G-strings. It’s not that good for my image – I’m a footballer not a tart.
+ - There is no doubt that I would have won more honours had I signed for Manchester United as a youngster.
+ - I have always been confident that I would make it to the top.
+ - I want to be a top-flight football player, so I lead the life that enables me to be that type of player. I prefer to be seen in a decent light rather than an indecent one.
+ - My Dad was briefly an Everton player and I used to follow them as a boy.
+ - When you put better teams in front of you, that’s when the big players rise to that occasion.
+ - Nobody on this planet had a range of passing like Paul Scholes. Training every day was a pleasure just watching him. Unbelievable career.
+ - If you cut me in half, I’m a footballer.
+ - You’re on your own out there with ten mates.
+ - For me there’s nothing better than putting the white shirt on for England and playing for England. I’d get worried if it wasn’t like that.
+ - To stay in the game, you have to stay in the game.
+ - I’ve always been a player that likes to get round the back and get crosses in for other people. When I first burst on to the scene some people only saw the goals I was scoring. More recently they’ve taken notice of the goals I’ve set up. It is nice to be recognized for that.
+ - I was born to score goals, I feel.
+ - I feel that every time I get the ball at the moment I am going to score.
+ - The Spanish league is fantastic, but it has not the great passion the English Premiership has got.
+ - I was proper, proper fast at one point, and obviously I’m not now, so I’ve lost certain things, but when I was that fast I didn’t need to do certain other things in a game. It was such a potent weapon.
+ - Henry had taken striking on to a different level.
+ - To be the best you have to forget partying and concentrate all your energies on the football.
+ - It bothers me when I don’t score.
+ - If you look at football over the last 50 years there has been a gradual decrease in goals, you don’t see too many 10-nils these days, but two, three or four goals per game is a good spectacle.
+ - The better the opposition put in front of you, the better your team plays.
+ - To be at the top, you have to have a competitive streak in you. If you’re not performing, you’ve got to be angry with yourself.
+ - Scholesy was a genius, absolute genius. He was a center-forward’s dream, you could make a run and he’d put the ball perfectly in your path. Any footballer you ask will always tell you that Scholesy was one of the best players they’ve ever played with.
+ - An emotion that lives with me is a sense of what might have been had injuries not robbed me of my most lethal weapon – speed.
+ - England have players who can rattle anyone’s feathers.
+
+40 quotes

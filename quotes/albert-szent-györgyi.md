@@ -1,0 +1,36 @@
+ - Research is to see what everybody else has seen, and to think what nobody else has thought.
+ - In every culture and in every medical tradition before ours, healing was accomplished by moving energy.
+ - Think boldly. Don’t be afraid of making mistakes. Don’t miss small details, keep your eyes open and be modest in everything except your aims.
+ - Discovery consists of looking at the same thing as everyone else and thinking something different.
+ - Water is life’s matter and matrix, mother and medium. There is no life without water.
+ - Life is water, dancing to the tune of solids.
+ - Without energy life would be extinguished instantaneously, and the cellular fabric would collapse.
+ - A discovery is said to be an accident meeting a prepared mind.
+ - The key to happiness is not to get more, but to enjoy what we have and to fill the empty frame of our lives instead of enlarging it.
+ - Water, the Hub of Life. Water is its mater and matrix, mother and medium. Water is the most extraordinary substance! Practically all its properties are anomolous, which enabled life to use it as building material for its machinery. Life is water dancing to the tune of solids.
+ - Through the ages, man’s main concern was life after death. Today, for the first time, we find we must ask questions about whether there will be life before death.
+ - Research is four things: brains with which to think, eyes with which to see, machines with which to measure and, fourth, money.
+ - If I go out into nature, into the unknown, to the fringes of knowledge, everything seems mixed up and contradictory, illogical, and incoherent. This is what research does; it smooths out contradictions and makes things simple, logical, and coherent.
+ - I called it ignose, not knowing which carbohydrate it was. This name was turned down by my editor. ‘God-nose’ was not more successful, so in the end ‘hexuronic acid’ was agreed upon. To-day the substance is called ‘ascorbic acid’ and I will use this name.
+ - Whatever a man does he must do first in his mind.
+ - The American Cancer Society tried to ruin my research foundation.
+ - I am the son of a small and far-away nation and the other laureates have all come from different countries from all over the world and we all were equally received here with signs of sympathy.
+ - Why does man behave like perfect idiot? This is the problem I wish to deal with.
+ - The source of this energy is the sun’s radiation.
+ - Life is a wondrous phenomenon.
+ - A living cell requires energy not only for all its functions, but also for the maintenance of its structure.
+ - A substance that makes you ill if you don’t eat it.
+ - Here we stand in the middle of this new world with our primitive brain, attuned to the simple cave life, with terrific forces at our disposal, which we are clever enough to release, but whose consequences we cannot comprehend.
+ - Science has helped us to understand and master ourselves, creating an elevated new form of human life, the wealth and beauty of which cannot be pictured today by the keenest imagination.
+ - If any student comes to me and says he wants to be useful to mankind and go into research to alleviate human suffering, I advise him to go into charity instead. Research wants real egotists who seek their own pleasure and satisfaction, but find it in solving the puzzles of nature.
+ - This oxidation of hydrogen in stages seems to be one of the basic principles of biological oxidation.
+ - Knowledge is a sacred cow, and my problem will be how we can milk her while keeping clear of her horns.
+ - We are all but recent leaves on the same old tree of life and if this life has adapted itself to new functions and conditions, it uses the same old basic principles over and over again. There is no real difference between the grass and the man who mows it.
+ - The real scientist is ready to bear privation and, if need be, starvation rather than let anyone dictate to him which direction his work must take.
+ - Senescent judges show how patriotic they are by passing out hard sentences for tearing up a draft card or following one’s conscience according to the principles established by our country at the Nuremburg trials.
+ - This paper of yours is so lightly written that you must have sweated terribly.
+ - Investigations during the last few decades have brought hydrogen instead of carbon, and instead of CO2 water, the mother of all life, into the foreground.
+ - Research is not a systematic occupation but an intuitive artistic vocation.
+ - Nature is one. It is not divided into physics, chemistry, quantum mechanics.
+
+34 quotes

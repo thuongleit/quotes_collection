@@ -1,0 +1,502 @@
+ - Our deepest fear is not that we are inadequate. Our deepest fear is that we are powerful beyond measure. It is our light, not our darkness that most frightens us.
+ - Ego says, “Once everything falls into place, I’ll feel peace”. Spirit says, “Find your peace, and then everything will fall into place”.
+ - Every change is a challenge to become who we really are.
+ - The moment of surrender is not when life is over. It’s when it begins.
+ - You playing small doesn’t serve the world. There’s nothing enlightening about shrinking so others won’t feel insecure around you. As you let your own light shine, you indirectly give others permission to do the same.
+ - Inner peace doesn’t come from getting what we want, but from remembering who we are.
+ - Forgiveness is not always easy. At times, it feels more painful than the wound we suffered, to forgive the one that inflicted it. And yet, there is no peace without forgiveness.
+ - The challenges we face in life are always lessons that serve our soul’s growth.
+ - We ask ourselves, Who am I to be brilliant, gorgeous, talented, fabulous? Actually, who are you not to be? You are a child of God. Your playing small does not serve the world.
+ - Behind every fear, there is a miracle waiting.
+ - Love is what we are born with. Fear is what we learn. The spiritual journey is the unlearning of fear and prejudices and the acceptance of love back in our hearts. Love is the essential reality and our purpose on earth.
+ - Until we have met the monsters in ourselves, we keep trying to slay them in the outer world. And we find that we cannot. For all darkness in the world stems from darkness in the heart. And it is there that we must do our work.
+ - As we let our light shine, we unconsciously give other people permission to do the same. As we are liberated from our own fear, our presence actually liberates others.
+ - Joy is what happens to us when we allow ourselves to recognize how good things really are.
+ - We were born to make manifest the glory of God within us.
+ - Go for greatness. Anything else is a waste of time.
+ - The miracle often lies outside our comfort zone.
+ - It is our light, not our darkness that most frightens us.
+ - A meaningful life is not a popularity contest. Do what in your heart you believe to be the right thing, and you may or may not get immediate approval from the world. Do it anyway.
+ - Only love can bring us peace. And the experience of love is a choice we make, a mental decision to see love as the only real purpose and value in any situation.
+ - Love is a hero’s journey, and the hero’s journey is a noble but difficult path.
+ - Charisma is a sparkle in people that money can’t buy. It’s an invisible energy with visible effects.
+ - Light is to darkness what love is to fear; in the presence of one the other disappears.
+ - Conviction is a force multiplier. If you want something, claim it in your gut. The universe itself responds to your inner certainty.
+ - The solution to low self-esteem is to get over yourself and get a higher purpose.
+ - It is not too late. You are not too old. You are right on time-And you are better than you know.
+ - When we surrender to God, we let go of our attachment to how things happen on the outside, and we become more concerned with what happens on the inside.
+ - A miracle is a shift in perception from fear to love-from a belief in what is not real, to faith in that which is. That shift in perception changes everything.
+ - Always be open to new beginnings. To the universe, every moment is the start of the next big thing in your life.
+ - Something very beautiful happens to people when their world’s fallen apart: a humility, a nobility, a higher intelligence emerges at just the point when our knees hit the floor.
+ - A miracle is a shift in perception from fear to love.
+ - I am a glorious child of God. I am joyful, serene, positive, and loving.
+ - Darkness is merely the absence of light, and fear is merely the absence of love. If we want to be rid of fear, we cannot fight it but must replace it with love.
+ - Karma means that all actions have consequences. Grace means that in a moment of atonement -taking responsibility, making amends, asking for forgiveness – all karma is burned.
+ - If a train doesn’t stop at your station, then it’s not your train.
+ - There is nothing enlightened about shrinking so that other people won’t feel insecure around you. We are all meant to shine, as children do.
+ - The key to abundance is meeting limited circumstances with unlimited thoughts.
+ - People crave comfort, people crave connection, people crave community.
+ - Do what you love. Do what makes your heart sing. And NEVER do it for the money, Go to work to spread joy.
+ - Each of us has a unique part to play in the healing of the world.
+ - The practice of forgiveness is our most important contribution to the healing of the world.
+ - In a choice between love and fear, choose love.
+ - A change of heart leads to change in behavior, and a change in behavior leads to changing the world.
+ - A Course in Miracles tells us that although ‘we think that without the ego, all would be chaos, the opposite is true. Without the ego, all would be love.’
+ - In every community, there is work to be done. In every nation, there are wounds to heal. In every heart, there is the power to do it.
+ - Whatever we put out, it’s coming back to us. The universe keeps a perfect set of books.
+ - Dear God, I give this time of quiet to You. Please dissolve my thoughts of stress and fear And deliver me to the inner place Where all is peace and love. Amen.
+ - If I choose to bless another person, I will always end up feeling more blessed.
+ - Anytime you try to be a loving person, you’re doing your part to save the world.
+ - The purpose of prayer is the alignment of the mind with the thoughts and the will of God.
+ - If you have a longing in your heart to hear a deeper truth, there’s a mysterious way in which that truth will find you.
+ - Always seek less turbulent skies. Hurt. Fly above it. Betrayal. Fly above it. Anger. Fly above it. You are the one who is flying the plane.
+ - You may believe that you are responsible for what you do, but not for what you think. The truth is that you are responsible for what you think, because it is only at this level that you can exercise choice. What you do comes from what you think.
+ - You must master a new way to think, before you can master a new way to be.
+ - Relationships are eternal. The ‘separation’ is another chapter in the relationship. Often, letting go of the old form of the relationship becomes a lesson in pure love much deeper than any would have learned had the couple stayed together.
+ - We do not heal the past by dwelling there. We heal the past by living in the present.
+ - Every decision you make reflects your evaluation of who you are.
+ - Magic happens when you tell the universe what you want it to do for you; miracles happen when you ask how you can be of service to the universe.
+ - Our deepest fear is that we are powerful beyond measure.
+ - A real leader is not the top dog who merely shouts down orders. a leader is one who holds the space for the brilliance of others.
+ - There is no single effort more radical in its potential for saving the world than a transformation of the way we raise our children.
+ - Success means we go to sleep at night knowing that our talents and ablities were used in a way that served others.
+ - You need not apologize for being brilliant, talented, gorgeous, rich, or smart.
+ - The past doesn’t determine your future unless you carry it with you into the present. Forgiving yourself and others, you free the universe to begin again at any moment.
+ - Sobriety itself is today’s high, for it is ultimately in the most centered consciousness that we find our power to transcend the world.
+ - Your playing small doesn’t serve the world.
+ - Imagine the most outrageously positive possibility for your life, claim it, and consider it done.
+ - Love will not just heal your life or mine. Love will heal the world.
+ - Until we have seen someone’s darkness, we don’t really know who they are. Until we have forgiven someone’s darkness, we don’t really know what love is.
+ - You are a child of God.
+ - To trust in the force that moves the universe is faith. Faith isn’t blind, it’s visionary.
+ - Spiritual growth involves giving up the stories of your past so the universe can write a new one.
+ - Newtonian physics is over. You don’t act on the world to change the world. You realize the world is a projection of your inner self. If you change, the world changes.
+ - To the ego mind, surrender means giving up. To the spiritual mind, surrender means giving in and receiving.
+ - Change is in the air, as old patterns fall away and new energies are emerging. Consciously release what needs to be released, and welcome with a full embrace the newness you’ve prayed for and so richly deserve.
+ - We are all meant to shine, as children do. We are born to make manifest the glory of God that is within us. It’s not just in some of us, it’s in everyone.
+ - We can always choose to perceive things differently. You can focus on what’s wrong in your life, or you can focus on what’s right.
+ - Consider the possibility of infinite possibility.
+ - The present moment, if you think about it, is the only time there is. No matter what time it is, it is always NOW!
+ - The key to happiness is the decision to be happy.
+ - There’s only one of us here: What we give to others, we give to ourselves. What we withhold from others, we withhold from ourselves. In any moment, when we choose fear instead of love, we deny ourselves the experience of Paradise.
+ - People hear you on the level you speak to them from. Speak from your heart, and they will hear with theirs.
+ - Maturity includes the recognition that no one is going to see anything in us that we don’t see in ourselves. Stop waiting for a producer. Produce yourself.
+ - The more room you give yourself to express your true thoughts and feelings, the more room there is for your wisdom to emerge.
+ - Love and fear represent two different lenses through which to view the world. Which I choose to use will determine what I think I see.
+ - Some people think it’s naive to think we can make love our new bottom line. What I believe is naive is thinking human civilization as we know it will survive another two hundred years if we do not.
+ - You don’t need a new life, just a new lens through which to view the one you have.
+ - Let’s forgive the past and who we were then. Let’s embrace the present and who we’re capable of becoming. Let’s surrender the future and watch miracles unfold.
+ - I trust life not because I trust the world, but because I trust the God who lives in my heart.
+ - The way of the miracle-worker is to see all human behavior as one two things: either love, or a call for love.
+ - The world is in trouble. Many have prayed. God sent help. God sent you.
+ - Fear is trusting in your own power.
+ - The ego is always looking to find something. The Spirit can see what’s already there.
+ - Whatever situation you’re in: Send love, place it in God’s hands, open your heart to everyone involved – and it will turn out miraculously.
+ - We will make love an art and we will love like artists.
+ - If your eyes were open to all the beauty in the world, you would be overwhelmed with joy.
+ - Where there is lack, God’s abundance is on the way. Hold on. Have faith. It’s coming.
+ - We’re hallucinating. And that’s what this world is: a mass hallucination, where fear seems more real than love. Fear is an illusion. Our craziness, paranoia, anxiety and trauma are literally all imagined.
+ - Life is like a book that never ends. Chapters close, but not the book itself.
+ - When you understand spiritual law, then you realize that everything you give, good or bad, will in fact come back to you tenfold and that’s just the way it is. You give someone flowers and the person you are ultimately giving to is yourself.
+ - A relationship is not meant to be the joining at the hip of two emotional invalids. The purpose of a relationship is not for two incomplete people to become one, but rather, for two complete people to join together for the greater glory of God.
+ - Love knows how to form itself. God will do his work if we do ours. Our job is to prepare ourselves for love. When we do, love finds us every time.
+ - A relationship is more of an assignment than a choice. We can walk away from the assignment, but we cannot walk away from the lessons it presents. We stay with a relationship until a lesson is learned, or we simply learn it another way.
+ - God is the electricity and we are the lamps.
+ - When love is our guiding light, we can break through barriers to be of loving service to the world. Gaining the courage and confidence to stand up for what you believe in is not always easy, but it’s fully within your reach.
+ - Gratitude is an opener of locked-up blessings.
+ - Atoms are driven by consciousness. In proximity to love, they move in harmonious collaboration with other atoms. When in proximity to fear, they become disharmonious and chaotic. We choose each moment the energy that surrounds us.
+ - There will be no peace in the world until there is peace in our hearts.
+ - Thought is cause: experience is effect. If you don’t like the effects in your life, you have to change the nature of your thinking.
+ - The love is real in any situation; everything else is just an illusion.
+ - Beyond drama and chaos, beyond anxiety and fear, lies a zone of endless peace and love. Let’s all take a very deep breath, slow down for just a moment and remember this. That alone will open the door...
+ - The world as we know it is falling apart at the seams, because it’s an inadequate container for the truth of who we are.
+ - Every day can be like Christmas in its love and its peace if our hearts open up and make room for love. The holy child is waiting to be born in every instant, not just once a year.
+ - What emerges from the silence is the deafening sound of an old world disintegrating.
+ - Behind every dark cloud there is an every-shining sun. Just wait. In time, the cloud will pass.
+ - The spiritual journey is the unlearning of fear and the acceptance of love.
+ - Nature is infinitely creative. It is always producing the possibility of new beginnings.
+ - Self-awareness is not self-centeredness, and spirituality is not narcissism. ‘Know thyself’ is not a narcissistic pursuit.
+ - When the wisdom of the heart replaces the chatter of the mind, The power of Love flows forth.
+ - As we give, so shall we receive. Service does not mean self-sacrifice. It means giving the needs of another person the same priority as our own.
+ - Go forth in confidence and go forth in peace. For there are angels to your left and angels to your right; angels in front of you and angels behind you; angels above you and angels below. You are loved, and you are not alone...
+ - Everything we do is either an act of love or a cry for help.
+ - Forgiveness is the key to inner peace because it is the mental technique by which our thoughts are transformed from fear to love.
+ - Something amazing happens when we surrender and just love. We melt into another world, a realm of power already within us. The world changes when we change. the world softens when we soften. The world loves us when we choose to love the world.
+ - Every heart has a divine intelligence and natural guidance system. With every prayer, every meditation and every thought of love, we tune in to ours.
+ - Personal transformation can and does have global effects. As we go, so goes the world, for the world is us. The revolution that will save the world is ultimately a personal one.
+ - Choosing joy involves spiritual surrender, and sometimes we would rather hold on to the pain than surrender our egos.
+ - If you want to end darkness you cannot beat it with a baseball bat, you have to turn on a light.
+ - Miracles arise from conviction. Be convicted about these things: Miracles can happen. Miracles do happen. Love makes them happen.
+ - Once you know that every moment and every person and every situation has something to teach you, you’re a student all day. You know it’s the depth of your observation that is the issue – not how much the world has to show you.
+ - Things don’t spiral out of control when we surrender them; they spiral out of control when we try to control them!
+ - Miracles occur naturally as expressions of love. The real miracle is the love that inspires them. In this sense everything that comes from love is a miracle.
+ - The spiritual path – is simply the journey of living our lives. Everyone is on a spiritual path; most people just don’t know it.
+ - Dear God, May all the tears I cry, and all the tears I have not cried but hold within, pour forth into Your hands. Please take each painful thought and unhealed wound, and send angels here to me. I long for peace. Amen.
+ - Accepting people as they are has the miraculous effect of helping them improve. Acceptance doesn’t prohibit growth; rather, it fosters it.
+ - The only thing missing in any situation is that in which you are not giving.
+ - We must be proactive in our love in order for it to change our lives.
+ - Women are still in emotional bondage as long as we need to worry that we might have to make a choice between being heard and being loved.
+ - God created the law of free will, and God created the law of cause and effect. And he himself will not violate the law. We need to be thinking less in terms of what God did and more in terms of whether or not we are following those laws.
+ - Nothing liberates our greatness like the desire to help, the desire to serve.
+ - The spiritual journey, the path of recovery and personal growth, is a detoxification process in which we bring up and out the negative beliefs we have carried with us from the past and that now poison the present.
+ - Our key to transforming anything lies in our ability to reframe it.
+ - Silence is the Sabbath of the soul. Therein we rest, and therein we hear everything.
+ - May my heart be your shelter, and my arms be your home.
+ - Love in your mind produces love in your life. This is the meaning of Heaven. Fear in your mind produces fear in your life. This is the meaning of hell.
+ - Seek more opportunities to put more love in the world.
+ - You are loved, and your purpose is to love.
+ - Every relationship is a gift exchange.
+ - Actually, who are you not to be?
+ - Midlife is not the time to disenchant ourselves. It’s a time to turn on all our magic in full force.
+ - The meaningful question is never what we did yesterday, but what we have learned from it and are doing today.
+ - Claim the possibility of a miraculous shift toward global transformation, allow the thought to move through you like a wave of energy, then emerge ready for the task of doing your part to make it happen.
+ - Don’t go to work to make money; go to work to spread joy.
+ - It is not your job to seek for love. It IS your job to seek within yourself all the barriers against its coming.
+ - Hope is born of participation in hopeful solutions.
+ - Your character defects are not where you’re bad, but where you’re wounded. But no matter who or what causes the wound, it’s yours now and you’re responsible for it.
+ - The love in me salutes the love in you.
+ - Any time we read a newspaper or take any look at the world around us, we are aware of the cruelty and violence that dominates our world.
+ - Don’t think small and expect to have a big life.
+ - A holy relationship is where the brokenness and wounds of the world are not escaped so much as as transformed by love, not hidden from but risen above.
+ - It is your thoughts and your thoughts alone that determine what’s possible for you now.
+ - We are beautiful because God created us that way.
+ - Children are one of the greatest lessons in happiness, constantly challenging us to enjoy the moment, as the next one will not be the same.
+ - The real axis of social change is not horizontal, but vertical. We don’t need a whole bunch of people gathering to think shallow thoughts together. What we need is for as many people as are ready to gather and think deep thoughts together.
+ - Dear God, I surrender this thought to you, for I would see the miracle that lies behind it. Amen.
+ - Our spiritual mission is not to ignore the darkness, but to bring light TO the darkness. Ignoring darkness does not dispel it; only the light does. That is the difference between denial and transcendence.
+ - The purpose of our lives is to give birth to the best which is within us.
+ - Enlightenment is the key to everything, and it is the key to intimacy, because it is the goal of true authenticity.
+ - The key to intimacy is the commitment to honesty and to the radical forgiveness necessary in order for honesty to be safe.
+ - You don’t have to pray to attract great things, because great things are attracted to you already. Pray that you won’t throw them away once they get here.
+ - In the absence of love, we began slowly but surely to fall apart.
+ - In every heart there is an inner room, where we can hold our greatest treasures and our deepest pain.
+ - Relationships never end, because they’re of the mind; only bodies can separate. When you’re missing someone, know it just means that on a soul level they’ve come to visit.
+ - Life as we knew it is passing away, and something new is emerging to take its place, The Gift of Change: Spiritual Guidance for a Radically New Life.
+ - Real intimacy; real love has to do with a joining of the mind, a joining of the spirit, a joining of the heart.
+ - We don’t reach the light through endless analysis of the dark. We reach the light by choosing the light.
+ - It takes mystical insight to see the beauty and innocence in each other, even when that is not what we are showing to the world. That is why God is needed in intimate relationships, to move us beyond the perceptions that can so often poison love.
+ - When a woman rises up in glory, her energy is magnetic and her sense of possibility contagious.
+ - Instead of praying: ‘Dear God, bring me someone fabulous,’ try: ‘Dear God, make me into someone fabulous.’
+ - Creating the world we want is a much more subtle but more powerful mode of operation than destroying the one we don’t want.
+ - Everything we do is infused with the energy with which we do it. If we’re frantic, life will be frantic. If we’re peaceful, life will be peaceful. And so our goal in any situation becomes inner peace.
+ - It takes great courage and personal strength to hold on to our center during times of great hurt. It takes wisdom to understand that our reactiveness only fans the flames of false drama.
+ - Just like a sunbeam can’t separate itself from the sun, and a wave can’t separate itself from the ocean, we can’t separate ourselves from one another. We are all part of a vast sea of love, one indivisible divine mind.
+ - We are not here to fix, change or belittle another person. We are here to support, forgive and heal one another.
+ - Without nourishing our own souls, we can’t nourish the world, for we cannot give what we do not have. As we attend to our souls, we emanate invisibly and involuntarily the light we have received.
+ - Once you’ve had enough and you can’t do it anymore, you consider the possibility that there might be a better way. That’s when your head cracks open and God comes in.
+ - A person acting from a motivation of contribution and service rises to such a level of moral authority that worldly success is a natural result.
+ - The universe is intentional. It is always moving in the direction of greater love, regardless whether or not we consciously align with that love.
+ - I want to be a cheerleader for women who have never even considered running for office or being involved in a campaign, but who in the quietness of their hearts might think, ‘Why not me?’
+ - We want spiritual principles to be more than beautiful abstractions; we want them to actually transform our lives.
+ - A primary goal of the spiritual life is to learn to quiet the mind through prayer and meditation, through spiritual practice, so that we can hear what in both Judaism and Christianity, is called the small, still voice within.
+ - As we become purer channels for God’s light, we develop an appetite for the sweetness that is possible in this world. A miracle worker is not geared toward fighting the world that is, but toward creating the world that could be.
+ - I’ve come to trust not that events will always unfold exactly as I want, but that I will be fine either way. The challenges we face in life are always lessons that serve our soul’s growth.
+ - Spiritual growth is like childbirth: you dilate, then you contract, you dilate, then you contract again. as painful as it all feels, it’s the necessary rhythm for reaching the ultimate goal of total openness.
+ - Beauty is an internal light, a spiritual radiance that all women have, but most women hide – unconsciously denying its existence. What we do not claim, remains invisible.
+ - There is no peace without forgiveness.
+ - The world is terrified of joyful women. Make a stand. Be one anyway.
+ - The goal of spiritual practice is full recovery, and the only thing you need to recover from is a fractured sense of self.
+ - The deepest feelings always show itself in silence.
+ - Once the light of our awareness is cast on any darkness, then it cannot hide and it cannot remain. Such is the law of consciousness.
+ - It is absolutely a relationship with food that is a displaced relationship with God. And that displaced relationship with God takes two forms: our availability to other people and our availability to our own thoughts and feelings.
+ - Like a great athlete, we must have a very clear vision of what we want to accomplish before we make a move. Vision, in preparation for an action, is as important as the action itself.
+ - You can live your life out of a circumstance or you can live your life out of a vision.
+ - Looking for Mr. Right leads to desperation, because there is no Mr. Right. There is no Mr. Right, because there is no Mr. Wrong. There is whoever is in front of us and the perfect lessons to be learned from that person.
+ - Miracle workers learn to keep their own counsel. Something that’s important to know about spiritual wisdom is that, when spoken at the wrong time, in the wrong place, or to the wrong person, the one who speaks sounds more like a fool than a wise one.
+ - No matter what’s happening in your life, you can change the trajectory of events by closing your eyes, reviewing your thought and behavior, and sending love wherever you’ve been withholding it.
+ - Faith isn’t blind, it’s visionary.
+ - God exists in eternity. The only point where eternity meets time is in the present. The present is the only time there is.
+ - The work of intimacy, of course, is to learn to both show your own illumination, and to see it in a way that the physical eyes cannot reveal. In a way that only the heart can reveal: the illumined beauty in another person.
+ - God heard us. He sent help. He sent you.
+ - Even a happy life has a sad day. We fail to provide a context which says it’s okay to cry, it’s okay to be sad. So I think making the space for suffering is so important and making space for this expression of feelings in community.
+ - Think of your work life therefore, not as separate from your spiritual life but as central to your spiritual life. Whatever your business, it is your ministry.
+ - The transformation from body identification to spirit identification is the purpose of our lives.
+ - May we not succumb to thoughts of violence and revenge today, but rather to thoughts of mercy and compassion. We are to love our enemies that they might be returned to their right minds.
+ - Taking the time to meditate is as important as taking the time to breathe. One pumps oxygen into the body, the other pumps peace into the mind.
+ - And no one will listen to us until we listen to ourselves.
+ - Love is the essential reality and our purpose on earth. To be consciously aware of it, to experience love in ourselves and others, is the meaning of life. Meaning does not lie in things. Meaning lies in us.
+ - Who am I to be brilliant, gorgeous, talented, and fabulous?
+ - Love is all around us all the time. Love is the ethers that we swim in. Love is the amniotic fluid of the soul.
+ - Yes, we see that there are problems in the world. But we believe in a universal force that, when activated by the human heart, has the power to make all things right.
+ - Yes, whatever happened, happened; but what happens now is up to you. You can respond from ego, ensuring pain, or you can respond from spirit, ensuring a miracle.
+ - When we approach love and creativity with the level of conviction that the powers-that-be in the world today are approaching hatred and destruction, then and only then will we have a chance.
+ - If you’re busy regretting the past, then a new future can’t come in.
+ - Prayer enables us to transform the world because it transforms us.
+ - The highest level of creativity consists in being, not doing. When the being is intense enough, when the words are spoken enough, when the thoughts are thought enough, the doing will automatically follow.
+ - Happiness requires that we give up a worldly orientation-not worldly things, but a worldly attachment to things. We have to surrender all outcomes. We have to live here but appreciate the joke.
+ - Life is a book that never ends. Chapters close, but not the book itself. The end of one physical incarnation is like the end of a chapter, on some level setting up the beginning of another.
+ - Love is not neutral. It takes a stand. It is a commitment to the attainment of the conditions of peace for everyone involved in a situation.
+ - Whomever it is you were born to be, whatever your soul was coded to accomplish, whatever lessons you were born to learn, now is the time to get serious and get going.
+ - We may have bad weather in Ireland, but the sun shines in the hearts of the people and that keeps us all warm.
+ - Our kingdom is our life, and our life is our kingdom. We are all meant to rule from a glorious place. When God is on the throne, then so are we. When God is in exile, our lands are at war and our kingdoms are in chaos.
+ - Miracles begin when we consider the possibility that there might be another way.
+ - Relationships are our primary teacher. They are the context in which we either grow into God consciousness, or deny ourselves and others the opportunity to do so.
+ - The change we are looking for is always a change within ourselves. And the change will come. I’ve noticed that as long as I’m willing to be different, something or someone arrives to show me how.
+ - The path to self-esteem lies in getting over yourself. There is nothing to esteem about our smaller dramas; it’s our commitment to something beyond ourselves that is truly estimable to ourself and others.
+ - Love is the essential existential fact. It is our ultimate reality and our purpose on earth.
+ - Hatred is the spiritual malignancy of our species, and like any other form of cancer, does its most terrible work not outwardly, but from within us.
+ - No matter how sad we might be, the universe is still planning our happiness.
+ - Everything we do is infused with the energy with which we do it...
+ - Miracles occur naturally as expressions of love. When you choose to love, you choose to work miracles.
+ - Our barriers to love are rarely consciously chosen. They are our efforts to protect the places where the heart is bruised.
+ - Use each interaction to be the best, most powerful version of yourself.
+ - What the ego doesn’t want us to see is that our pain doesn’t come from the love we weren’t given in the past, but from the love we ourselves aren’t giving in the present.
+ - Dear God, Please send to me the spirit of Your peace. Then send, dear Lord, the spirit of peace from me to all the world. Amen.
+ - Once you reach a certain age, you’re either slowly dying or slowly being reborn. I want to choose the latter.
+ - The first step in forgiveness is the willingness to forgive.
+ - Love is about letting go of the fears that stand in front of our hearts.
+ - As long as there are ways we can serve, then we have a job to do.
+ - The role of a leader is not to rule over other people, but to hold a space for their own genius.
+ - The world in which we live today-reflecting in so many way the opposite of our sweetness and love-reminds us how desperately important it is to break the spell that’s been cast on the human race and retrieve our shining self.
+ - We don’t ask God for too much; in fact, we ask for too little. Turn to Him for everything. Give everything to God.
+ - The soul is the truth of who we are.
+ - The secret of success is to realize that the crisis on our planet is much larger than just deciding what to do with your own life.
+ - We tend to have tremendous faith in the power of our disasters and far too little faith in the power of miracles.
+ - Love is who we are, and when we deviate from that love we’re deviating from our ultimate, essential, eternal reality.
+ - The masculine DOES while the feminine IS. Major in the feminine, but minor in the masculine.
+ - The real transformation of the world comes not from what we are doing but from the consciousness from which we are doing it.
+ - Our past is a story existing only in our minds. Look, analyze, understand, and forgive. Then, as quickly as possible, chuck it.
+ - Because our consciousness is tied to the physical manifestation of reality, we are tied to the belief in separation.
+ - While overeating would be seen by some as an indulgence of self, it is in fact a profound rejection of self. It is a moment of self-betrayal and self-punishment, and anything but a commitment to one’s own well-being.
+ - Often we see a couple who has separated or divorced and look with sadness at the ‘failure’ of their relationship. But if both people learned what they were meant to learn, then that relationship was a success.
+ - Love brings up everything unlike itself.
+ - No one is any more or any less important than you are.
+ - Relationships are the Holy Spirit’s laboratories in which He brings together people who have the maximal opportunity for mutual growth.
+ - We are not held back by the love we didn’t receive in the past, but by the love we’re not extending in the present.
+ - Often faith isn’t hoping that good times are coming; it’s trying to see that the good times are here.
+ - Whenever we feel lost, or insane, or afraid, all we have to do is ask for His help. The help might not come in the form we expected, or even thought we desired, but it will come, and we will recognize it by how we feel. In spite of everything, we will feel at peace.
+ - The Founders didn’t mention political parties when they wrote the Constitution, and George Washington in essence warned us against them in his Farewell Address.
+ - Political system is contrary to everything a feminine heart stands for. It lacks tenderness. It lacks poetry. It doesn’t nurture. It doesn’t love. And without those things, a woman’s soul is bereft.
+ - Putting love first means knowing that the universe supports you in creating the good, the holy, and the beautiful. It means knowing that you’re on the earth for a purpose, and that the purpose itself will create opportunities for its accomplishment.
+ - Think of your career as your ministry. Make your work an expression of love in service to mankind.
+ - Every thought creates form on some level and all that our physical experience is – is a reflection of our thoughts.
+ - Spiritual progress is like detoxification. Things have to come up in order to be released. Once we have asked to be healed, then our unhealed places are forced to the surface.
+ - There is nowhere you need go to find God, for God is within you. There is no one you need ask if you are good enough, for He has already established He is exceedingly well pleased.
+ - Since our peace lies in loving as God loves, we must strive to love everyone. The only love that completes us is the love of God, and the love of God is the love of everyone.
+ - We are more afraid of excellence than of failure.
+ - Only what I’m not giving is what is lacking in any situation.
+ - Feminine power isn’t something we go out and acquire; it’s already within us. It’s something we become willing to experience. Something to admit we have.
+ - Achievement doesn’t come from what we do, but from who we are. Our worldly power results from our personal power. Our career is an extension of our personality.
+ - Jesus is a personal symbol of the Holy Spirit. Having been totally healed by the Holy Spirit, Jesus became one with him. Every thought, action, and deed of Jesus was guided by the Holy Spirit instead of ego.
+ - Often miracles are happening right in front of our eyes, but we think they should look different, so we miss them though they’re right there.
+ - We live in a world of constant juxtaposition between joy that’s possible and pain that’s all too common. We hope for love and success and abundance, but we never quite forget that there is always lurking the possibility of disaster.
+ - Personal growth can be painful, because it can make us feel ashamed and humiliated to face our own darkness. But our spiritual goal is the journey out of fear-based, painful mental habit patterns, to those of love and peace.
+ - Envision possibility. Don’t worry who else believes in it; the universe is only looking for instructions from you.
+ - Angry people cannot create a peaceful planet.
+ - God gives us His strength by giving us His vision of things. Our seeing people as innocent is the only way to achieve God’s peace.
+ - The purpose of daily prayer is the cultivation of a sense of the sacred. Sacred energy renews us.
+ - The opportunities for infinite possibility exist no matter what age we are.
+ - You are emerging from the cocoon of your former self. There are no limits to the extent of the transformation that’s possible for you.
+ - We cannot get to our knowledge because the world is too loud. And we tend to make it louder as we cry out in pain, pretending we are singing.
+ - Every relationship, every situation is part of a divinely created and highly specific curriculum for your soul growth.
+ - Sometimes the purpose of a day is to merely feel our sadness, knowing that as we do, we allow whole layers of grief, like old skin cells to drop off us.
+ - The one good thing about failure is that it makes you consider doing things a different way.
+ - The number one root of all illness, as we know, is stress.
+ - To the extent we are perceiving anyone’s guilt -choosing to focus on the errors of their personality rather than the eternal innocence of their spirit – we’re closing our hearts, deflecting a miracle and causing our own inevitable suffering.
+ - Forgiveness is ‘selective remembering’ – a conscious decision to focus on love and let the rest go.
+ - If you are not grieving, you are not conscious. But if you are not rejoicing in the possibilities of how this could all change, then you are not looking through the filter of the greatest spiritual perspicacity.
+ - When we think with love, we are literally co-creating with God.
+ - In our natural state, we are glorious beings. In the world of illusion, we are lost and imprisoned, slaves to our appetites and our will to false power.
+ - Imagine the week ahead unfolding in an ever-increasing flow of miracles. Allow the image to sink into your heart. Receive it with a big yes!
+ - Love is what we were born with. Fear is what we learned here.
+ - Lives with no more sense of spiritual meaning than that provided by shopping malls, ordinary television, and stagnant workplaces are barren lives indeed. Spirituality enriches culture.
+ - If you give your life as a wholehearted response to love, then love will wholeheartedly respond to you.
+ - We were all born carrying a promise – a promise to make the world better – and there’s a yearning to make good on that promise that none of us can suppress forever.
+ - We aren’t bodies at all; who we are is the love inside us, and it is that love alone that determines our value. When our minds are filled with light, there is no room for darkness.
+ - Forgiving the past means remembering the love there, and releasing all the rest as the illusion that it really was.
+ - Just as you wouldn’t leave the house without taking a shower, you shouldn’t start the day without at least 10 minutes of sacred practice: prayer, meditation, inspirational reading.
+ - Become more accepting. With every interaction, surrender any tendency to judge another person. Pray for a more accepting heart.
+ - In the Jewish religion it says – in the time of deepest darkest night act as if the morning has already come.
+ - Every act of kindness on your part is a boost to your own immune system.
+ - Forgiveness is the ultimate preventive medicine, as well as the greatest healer.
+ - God is a peaceful ground of being. He is the energy of nonviolence. To ask Him to help is to ask Him to turn us into profoundly peaceful people.
+ - I have heard it said that living out of our vision is more powerful than living out of our circumstance. Holding on to a vision invokes the circumstances by which the vision is achieved. Vision is content; material circumstances mere form.
+ - So it is that a new politics centers around the arousal of that power, using prayer and meditation to create a force field of transformation.
+ - Fill you mind with the meaningless stimuli of a world preoccupied with meaningless things, and it will not be easy to feel peace in your heart.
+ - I don’t feel there is any spiritual or metaphysical justification for turning our backs on human suffering.
+ - Your future isn’t programmed by your past; it’s programmed by your thoughts.
+ - Sadness is just a place on the map. Don’t try to avoid it, resist it or escape through substances. Settle it, allow it, and it will go.
+ - I embrace each moment as an opportunity for a miracle.
+ - You have to make a space in your heart, in your mind and in your life itself for authentic human connection.
+ - Truth will always reassert itself, given a symbolic three days. Three days represents the time it takes between the crucifixion and the resurrection, between an open-hearted response to hurt and the experience of rebirth that will always follow.
+ - Think of the mystical three days between the crucifixion and the resurrection as the time it takes for a situation to change once spirit has infused our consciousness. As we come to look at an experience differently, in time in begins to transform.
+ - For every person who might reject you if you live your truth, there are ten others who will embrace you and welcome you home.
+ - Whatever worked in the past, build on it; whatever didn’t work in the past, break the chain that binds you to it.
+ - As long as we remain vigilant at building our internal abundance – an abundance of integrity, an abundance of forgiveness, an abundance of service, an abundance of love – then external lack is bound to be temporary.
+ - In asking for miracles, we are seeking a practical goal: a return to inner peace. We’re not asking for something outside us to change, but for something inside us to change. We’re looking for a softer orientation to life.
+ - The greatest force of personal liberation is the decision to widen our circle of compassion, moving from focus on self to focus on service.
+ - The more you drop into your heart, the more God can drop into your mind.
+ - Next time you’re about to judge someone, attempt to understand them instead.
+ - The body IS a miracle, after all.
+ - Only write from your own passion, your own truth. That’s the only thing you really know about, and anything else leads you away from the pulse.
+ - The spiritual commitment is to make every situation an object of devotional connection.
+ - If we do not like what we see in the world, we must face what we don’t like in ourselves. As we change, the world will change with us.
+ - When a woman conceives her true self, a miracle occurs and life around her begins again.
+ - The only real failure is the failure to grow from what we go through.
+ - If you think there’s something you need in order to be happy, then you believe in lack. Then believing you lack, you will create more lack.
+ - With every thought we think, we either summon or block a miracle.
+ - The desire for transcendence is intimately connected with the desire for creativity. It is just as essential to who and what we are.
+ - There is within each of us the possibility of magnificence. Every moment is an opportunity to make it manifest. Let the spirit awaken you to a miraculous life.
+ - God cannot do for us what he cannot do through us.
+ - It’s the beginning of your day. You awake and look around you, feeling perhaps a joyful expectation, or perhaps an awful dread. No matter which, remember this: God loves you with an infinite love.
+ - In our ability to think about something differently lies the power to make it different.
+ - God would have us move to the highest level of our nature, and that means that we need to understand that our capacity to deal with the spirit-the darkness of the spirit with the light of the spirit as our greatest power.
+ - The outer kingdom is not our real home. The inner kingdom is our everything.
+ - Whether we love, or close our hearts to love, is a mental choice we make, every moment of every day.
+ - Who we are, not just the services and products we provide, creates money.
+ - With every thought we think, we either summon or block a miracle. It is not our circumstances, then, but rather our thoughts about our circumstances, that determine our power to transform them.
+ - No matter what mistakes we might have made yesterday, today is the day we can retrieve our innocence.
+ - Be the most wonderful expression of you that you’re capable of.
+ - The only way to end a culture of violence is to proactively create a culture of peace.
+ - Sometimes when everything has totally apart, the meaningless preoccupations that so often dominate our lives simply fall away. And what is left is who we really are, and who we really are is compassionate and intelligent and wise.
+ - I don’t think pain is a prerequisite for growth, but on the other hand, most of us choose very painful ways to learn.
+ - Trying to suppress or eradicate symptoms on the physical level can be extremely important, but there’s more to healing than that; dealing with psychological, emotional and spiritual issues involved in treating sickness is equally important.
+ - The issue is not whether or not you have that power, the issue is whether or not you use it.
+ - I’ve never seen service as separate from my spiritual practice or my spiritual teaching.
+ - Sex is not the ultimate high, but the ultimate high hangs out around sex. The ultimate high is the dance with another person, played so deep down and with such abandon that glee returns to grown-ups.
+ - Withholding love is a form of self-sabotage, as what we withhold from others we are withholding from ourselves.
+ - The biggest problem is our lack of “response-ability.” That’s what happens when money rather than love is the bottom line. People act like idiots.
+ - There is no amount of money, time or energy too great to spend on our children. They are our angels, our future. In failing them, we are failing ourselves.
+ - No one is longing to meet a desperate needy, angry, withholding, controlling person. If your beloved is out there they can’t pick up your signals if you’re dwelling in those spaces within yourself.
+ - The bottom line in love is not whether someone loves you, but whether someone chooses you.
+ - Love is to fear as light is to dark; in the presence of one, the other cannot exist. So wherever there is a place of fear in your life, think of one thing – even if it’s just a thought you can think-where you can generate love to cast out the fear.
+ - Nervous breakdowns can be highly underrated methods of spiritual transformation.
+ - In the Holy Relationship, it’s understood that we all have unhealed places, and that healing is the purpose of our being with another person. We don’t hide our weaknesses, but rather we understand that the relationship is a context for healing through mutual forgiveness.
+ - A long-term romance is like a rose bush. In any given season, a blossom might fall off. But if the plant is well nourished, then the season will come around again, and new blossoms appear.
+ - King Solomon, who supposedly was the wisest of all men, described his youth as his winter and his advanced years as his summer. We can be older than we used to be yet feel much younger than we are.
+ - Fear unchecked grows exponentially. Love poured forth has the power to remove it. Thus is the power of God in our lives.
+ - In each of us, there lies a divine connection to a power more powerful than hate or violence. Today is the day to attune to that power and use it on behalf of peace on earth.
+ - The cosmic spotlight isn’t pointed at you; it radiates from within you.
+ - We tend to lack humility toward love, to patronize it rather than bow before it, to put mundane considerations before the emotional need to hold someone in our arms.
+ - The places in our personality where we tend to deviate from love are not out faults, but our wounds. God doesn’t want to punish us, but to heal us. And that is how He wishes us to view the wounds in other people.
+ - Once we reach a certain age, we tend to recalibrate our expectations. We expect less from the world once we’ve seen it up close.
+ - Forgiveness is the choice to see people as they are now. When we’re mad at people, we’re angry because of something they said or did before this moment. By letting go of the past, we make room for miracles to replace our grievances.
+ - Some men know that a light touch of the tongue, running from a woman’s toes to her ears, lingering in the softest way possible in various places in between, given often enough and sincerely enough, would add immeasurably to world peace.
+ - What a Beethoven, Shakespeare or Picasso has done is not create something, so much as they have accessed that place within themselves from which they could express that which has been created by God.
+ - Every judgement blocks the light!
+ - Love is insistent on its own continuation. Every fraction of a second, someone somewhere falls in love, a former enemy becomes a friend, and a newborn baby is born into the world.
+ - When a woman falls in love with the magnificent possibilities within herself, the forces that would limit those possibilities hold less and less sway over her.
+ - We are dominated on this planet by a fear-based rather than a love-based thought system. Enlightenment involves relinquishing the thought system based on fear and instead accepting a thought system based on love.
+ - Where there is peace, there cannot be chaos; the two cannot coexist at the same time.
+ - When love isn’t in our lives, it’s on the way. If you know that a special guest is coming at five o’clock, do you spend the day messing up the home? Of course not. You prepare. And that is what we should do for love.
+ - Carrying the past in to the present, we program the future to continue the past. Letting go the past in the present, we free the future to be something else.
+ - On any given day, in any given moment, something could happen that opens up for you an entirely new path. Be still, be alert, be ready.
+ - I think the greatest gift we can give our children is to show them that devotion to God’s purposes – love for all beings – is the center of all right living.
+ - The universe is wired to give us what we need, yet we have to show up for the experience of life with a positive attitude in order to experience its gifts.
+ - Depression might have chosen you, but you don’t have to choose it back. Sometimes happiness comes with bootstraps, but so what? Pull ’em up. Choose joy.
+ - We can’t look to the world to restore our worth; we’re here to restore our worth to the world. The world outside us can reflect our glory, but it cannot create it. It cannot crown us. Only God can crown us, and he already has.
+ - Love is a wave flowing in the direction of bliss for all living things. It will carry you if you allow it to flow through you.
+ - Painful experiences are not meant to linger. They are meant to teach us what they need to teach us, and then dissolve.
+ - When a woman gives birth, two are born: a baby from the womb of its mother and a woman from the womb of her former existence.
+ - The Queen is coming to reclaim her girls.
+ - Think of everything you’ve ever experienced that was painful; that’s the meaning of Good Friday. Think of all the ways that love ultimately healed your heart; that’s the meaning of Easter.
+ - Our triumph over sorrow is not that we can avoid it but that we can endure it. And therein lies our hope; that in spirit we might become bigger than the problems we face.
+ - Spiritual Work is not easy. It means the willingness to surrender feelings that seem, while we’re in them, like our defense against a greater pain. It means that we surrender to God our perceptions of all things.
+ - Emmet Fox was one of the world’s greatest metaphysical teachers. His works have contributed profoundly to the spiritual understanding of millions of people, including myself.
+ - Love is within us. It cannot be destroyed, but can only be hidden.
+ - Cynicism is just an excuse for not helping.
+ - No conventional therapy can release us from a deep and abiding psychic pain. Through prayer we find what we cannot find elsewhere: a peace that is not of this world.
+ - Everything connects to everything; therefore, as we change, the world cannot but change with us.
+ - Desperately seeking something is not what attracts it to us. When we dwell, in deep peace and kindness, whatever would add to our happiness just flows to our door.
+ - No matter what is happening now, events will ultimately bend toward love the way a flower bends toward sunlight.
+ - The beauty of personal authenticity can compensate for the lost beauty of our youth.
+ - We’re often afraid of looking at our shadow because we want to avoid the shame or embarrassment that comes along with admitting mistakes.
+ - Don’t be concerned that things appear to be falling apart: this has to happen in order for something new and wonderful to emerge.
+ - Every moment is an invitation to live out of your weakness or to live out of your strength.
+ - Stop waiting for a producer. Produce yourself.
+ - The universe is conspiring at this moment to bring you happiness and peace.
+ - A hero is someone who stands in the community and speaks their hopes and speaks their passion. That’s almost an act of heroism nowadays because higher consciousness is so trivialized.
+ - Spiritual progress is like a detoxification.
+ - Think of one person who you are tempted for any reason to withhold love from, and pray for their happiness. In that moment your pain will stop.
+ - If you know what changes a heart, you know what changes the world.
+ - If you know what makes one person’s life change, then you know what makes a nation change – because a nation is simply a large group of individuals.
+ - When you carry yesterday’s thinking into today, you program tomorrow to be like yesterday.
+ - When an idea reaches critical mass there is no stopping the shift its presence will induce.
+ - There can be no darkness where I provide the light.
+ - When our minds are filled with light, there is no room for darkness.
+ - Sometimes what we deem a failure at the time it happens actually serves to foster a change within us that creates an even greater success down the road.
+ - The world won’t step into its greatness until we step into ours.
+ - Our internal state determines our experience of our lives; our experiences do not determine our internal state.
+ - To forgive is merely to remember only the loving thoughts you gave in the past, and those that were given you. All the rest must be forgotten.
+ - The Universe is either expressing a miracle or is pregnant with the next one.
+ - When we begin to see each other through what the metaphysician calls, the third eye, we begin to know each other on a level that is beyond what our physical eyes can see.
+ - The love is what’s left at the end because it’s the bedrock, fundamental reality that gets hidden all the time, but never really goes away.
+ - We love purely when we release other people to be who they are.
+ - When we stay close to the wisdom of our knowing, seeking solutions to our problems in the sanctuary of the heart and not in the vanity of the mind, then we can pretty much trust in the unfolding, mysterious wisdom of life.
+ - The field of quantum possibility, in which love has opened doors otherwise unimaginable, is our soul’s true habitat. The world of fear and limitation is not our home, and who among us is not profoundly weary of hanging out where we do not belong.
+ - The world is healed one loving thought at a time.
+ - The key to a successful career is realizing that it’s not separate from the rest of your life, but is rather an extension of your most basic self. And your most basic self is love.
+ - There cannot be too many glorious women.
+ - No matter what the problem, a miracle can solve it. Remember to ask for one...
+ - You get to decide what energy you choose to download in any moment. No one but you gets to decide who you wish to be.
+ - Nothing is so dangerous for our security as large groups of desperate people.
+ - Birth is violent, whether it be the birth of a child or the birth of an idea.
+ - You are completely at choice who you will be today in your interactions with others. Compassionate, kind, giving and forgiving will create one set of probabilities; angry, judgmental, critical and defensive will create another one altogether.
+ - We’re all assigned a piece of the garden, a corner of the universe that is ours to transform.
+ - The time to show up fully for life is right now, whatever the circumstances.
+ - We find our happiness to the extent to which we use our minds to bless the world, for that is the natural use of the mind. It is the reason we were born.
+ - In that Holy Place where you tell Him everything and he understands; there are angels who stand in wait to hear his every command. How may they serve you and increase your joy?
+ - The universe is already programmed to give each of us a year of happiness. Our challenge lies in programming ourselves to receive it.
+ - Faith doesn’t mean you don’t have to do the work; it just means you’re absolutely certain the work will pay off.
+ - Once you see that everything in life is a gift, you see that food is also a gift. If you are about to eat chemically processed, unhealthy food, you realize that to do so is, on a certain level, an act of violence against yourself.
+ - God’s truth is literal truth. The illumined mind has more operative cells. In reclaiming the mystical, we take back our whole selves. Formerly barren mental lands spring to new life through the planting of spiritual seeds.
+ - The world loves us when we choose to love the world.
+ - If you want to attract the coolest man in the world become the coolest woman in the world.
+ - I deepen my experience of God through prayer, meditation, and forgiveness.
+ - If we never take a risk, we’ll never know the parts of ourselves that would have emerged if we had.
+ - It doesn’t take money to turn off the television and cultivate real bonding time.
+ - Do not fear. Look beyond what’s dying to what’s being born.
+ - If our emotional stability is based on what other people do or do not do, then we have no stability. If our emotional stability is based on love that is changeless and unalterable, then we attain the stability of God.
+ - Romance is one of the sacred temples that dot the landscape of life.
+ - Even though modern life in many ways is nothing short of exhausting, we need to take responsibility for what is necessary to combat the stress and exhaustion of modern life.
+ - We are all part of a vast sea of love. One indivisible mind.
+ - God is definitely out of the closet.
+ - The Real You isn’t damaged goods. The Real You is the light of the universe.
+ - Attack thoughts towards others are attack thoughts towards ourselves.
+ - There are people today who look to fear to take us out of fear. But I believe that there are many, many more people who would look to love.
+ - I really got into Osho’s books. I have always loved his books. They were top notch.
+ - We experience who we really are, and what it is we are meant to do, in any moment when we pour our love into the universe.
+ - Every problem emerges from the false belief we are separate from one another, and every answer emerges from the realization we are not.
+ - Again – nothing you do or think or wish or make is necessary to establish your worth.
+ - Unless we can be like children, we can’t be happy.
+ - It is our own thoughts that hold the key to miraculous transformation.
+ - Sometimes a miracle is a change in material conditions, such as physical healing. At other times, it is a psychological or emotional change.
+ - Today is a day for sober and mature reflection, not glee. Mindless celebration is both spiritually inappropriate and politically naive.
+ - Bless more; blame less.
+ - We resist Joy on this planet more than we resist war.
+ - The wise person doesn’t ask, “What have I achieved?” but rather, “What have I contributed?”
+ - Spiritual growth increases our sense of what’s possible. And as we sense new possibility, we can step into that possibility. With every word, every thought, every action, we choose what we wish to call forth in life.
+ - The highest level of creativity consists in being, not doing.
+ - We need to change society’s ordering principle from economic to humanitarian values, from money as the bottom line to love as the bottom line.
+ - So many of us have not attended to the deeper issues in ourselves; in our minds, our hearts, and in our external manifestations that keep love at bay. We instead concentrate on making a list of what we’re looking for in another person.
+ - Your life has purpose as long as you dedicate it to love. It’s not what we do but who we are that forms our biggest contribution.
+ - I know. And that’s what took me so long.
+ - The choice to be used as an instrument of love, right here, right now, is a choice for personal empowerment.
+ - Great spiritual teachings do not change, but we do. As we grow older and wiser, we can receive the teachings at deeper levels.
+ - I find being a mother harder than I though it was going to be. That is a tremendous revelation for me personally. Much more time, more care, more attention and more effort needs to be spent on care for the children. That will save the world at large.
+ - There is no greater gift to future generations than that we do the work God has asked us to do: love one another, that the world might be made right.
+ - The week ahead is already programmed for fabulousness. Pray that your thinking be aligned with the force that makes it so.
+ - Joy is our goal, our destiny. We cannot know who we are except in joy. Not knowing joy, we do not know ourselves.
+ - Miracles are happening all the time, but if your eyes aren’t open and your ears aren’t open and your mind’s not open and your heart’s not open – then even though the miracles are there – you’re not!
+ - The mystical journey drives us into ourselves, to a sacred flame at our center.
+ - No company or organization filled with unhappy people will ultimately rise to its highest potential.
+ - At the highest level of awareness, the greatest gift given and received when you give someone flowers, is the joy of living a life based on love.
+ - What we give, we will receive, and what we withhold will be withheld from us.
+ - Once the Western mind was disconnected from its sense of divine responsibility and genuine reverence towards nature, all hell broke loose. And that’s where we are.
+ - Every time we open our hearts, we create the space for a global alternative.
+ - When we are centered in joy, we attain our wisdom.
+ - We are to love our enemies that they might be returned to their right minds.
+ - Imagine a temple inside your mind, a haven from the chaos of the world. Visit often.
+ - The purpose of our lives is to give birth to the best that is in us. It is only through our own personal awakening that the world can be awakened. We cannot give what we do not have.
+ - People don’t live in Los Angeles because we are tied to the same old, same old. We live in Los Angeles because of the intoxicating energy of new beginnings that permeate our city.
+ - You’ve committed no sins, just mistakes.
+ - Problems come about when we try to direct the flow of the universe rather than allow it to reveal its own design. Inherent in that design is a love for all living things.
+ - We think we need to create ourselves, always doing a paste-up job on our personalities. That is because we’re trying to be special rather than real. We’re pathetically trying to conform with all the other people trying to do the same.
+ - I can’t say that there are “things” that make me come alive. There are thoughts that make me come alive.
+ - It’s not just in some of us; it’s in everyone.
+ - In any moment, in any circumstance, a miracle will occur when we align ourselves with truth.
+ - Enchanted partnership begins with the conscious understanding, on the part of two people, that the purpose of their relationship is not so much material as spiritual, and the internal skills demanded by it are prodigious.
+ - Sex should be a deepening of communication, not a substitute for it.
+ - Love will be our medicine.
+
+500 quotes

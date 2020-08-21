@@ -1,0 +1,28 @@
+ - You can’t make an omelet without breaking a few eggs.
+ - The secret of freedom lies in educating people, whereas the secret of tyranny is in keeping them ignorant.
+ - Citizens, did you want a revolution without revolution?
+ - Terror is nothing more than justice, prompt, secure and inflexible.
+ - To punish the oppressors of humanity is clemency; to forgive them is cruelty.
+ - Softness to traitors will destroy us all.
+ - The king must die so that the country can live.
+ - Any law which violates the inalienable rights of man is essentially unjust and tyrannical; it is not a law at all.
+ - Any institution which does not suppose the people good, and the magistrate corruptible, is evil.
+ - No one loves armed missionaries.
+ - The revolution is the war of liberty against its enemies. The constitution is the rule of liberty against its enemies. The constitution is the rule of liberty when victorious and peaceable.
+ - Food that is necessary for man’s existence is as sacred as life itself. Everything that is indispensable for its preservation is the common property of society as a whole. It is only the surplus that is private property and can be safely left to individual commercial enterprise.
+ - Terror is only justice: prompt, severe and inflexible; it is then an emanation of virtue; it is less a distinct principle than a natural consequence of the general principle of democracy, applied to the most pressing wants of the country.
+ - Is it to be thought unreasonable that the people, in atonement for wrongs of a century, demand the vengeance of a single day?
+ - We must smother the internal and external enemies of the Republic or perish with it; now in this situation, the first maxim of your policy ought to be to lead the people by reason and the people’s enemies by terror.
+ - Peoples do not judge in the same way as courts of law; they do not hand down sentences, they throw thunderbolts; they do not condemn kings, they drop them back into the void; and this justice is worth just as much as that of the courts.
+ - When a Banker jumps out of a window, jump after him – that’s where the money is.
+ - Again, it may be said, that to love justice and equality the people need no great effort of virtue; it is sufficient that they love themselves.
+ - Crime butchers innocence to secure a throne, and innocence struggles with all its might against the attempts of crime.
+ - It is with regret that I pronounce the fatal truth: Louis ought to perish rather than a hundred thousand virtuous citizens; Louis must die that the country may live.
+ - By sealing our work with our blood, we may see at least the bright dawn of universal happiness.
+ - Atheism is aristocratic; the idea of a great Being that watches over oppressed innocence and punishes triumphant crime is altogether popular.
+ - Omelets are not made without breaking eggs.
+ - The aim of constitutional government is to preserve the Republic; that of revolutionary government is to lay its foundation.
+ - The general will rules in society as the private will governs each separate individual.
+ - Establish liberty on a rock of brass.
+
+26 quotes

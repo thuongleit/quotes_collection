@@ -1,0 +1,64 @@
+ - All knowledge is precious whether or not it serves the slightest human use.
+ - Luck’s a chance, but trouble’s sure.
+ - They put arsenic in his meat And stared aghast to watch him eat; They poured strychnine in his cup And shook to see him drink it up.
+ - Ten thousand times I’ve done my best and all’s to do again.
+ - Three minutes thought would suffice to find this out; but thought is irksome and three minutes is a long time.
+ - Life, to be sure, is nothing much to lose, But young men think it is, and we were young.
+ - With rue my heart is laden For golden friends I had, For many a rose-lipped maiden And many a lightfoot lad.
+ - Oh I have been to Ludlow fair, and left my necktie God knows where. And carried half way home, or near, pints and quarts of Ludlow beer.
+ - I could no more define poetry than a terrier can define a rat.
+ - Oh who is that young sinner with the handcuffs on his wrist? And what has he been after that they groan and shake their fists? And wherefore is he wearing such a conscience-stricken air? Oh they’re taking him to prison for the colour of his hair.
+ - Now hollow fires burn out to black, And lights are guttering low: Square your shoulders, lift your pack And leave your friends and go.
+ - Happy bridegroom, Hesper brings All desired and timely things. All whom morning sends to roam, Hesper loves to lead them home. Home return who him behold, Child to mother, sheep to fold, Bird to nest from wandering wide: Happy bridegroom, seek your bride.
+ - And silence sounds no worse than cheers After earth has stopped the ears.
+ - I, a stranger and afraid, in a world I never made.
+ - They say my verse is sad: no wonder; Its narrow measure spans Tears of eternity, and sorrow, Not mine. but man’s.
+ - And how am I to face the odds Of man’s bedevilment and God’s? I, a stranger and afraid In a world I never made.
+ - June suns, you cannot store them To warm the winter’s cold, The lad that hopes for heaven Shall fill his mouth with mould.
+ - The mortal sickness of a mind too unhappy to be kind.
+ - Hope lies to mortals And most believe her, But man’s deceiver Was never mine.
+ - Strapped, noosed, nighing his hour, He stood and counted them and cursed his luck; And then the clock collected in the tower Its strength, and struck.
+ - That is the land of lost content, I see it shining plain, the happy highways where I went and cannot come again.
+ - A moment’s thought would have shown him. But a moment is a long time, and thought is a painful process.
+ - The rainy Pleiads wester Orion plunges prone, And midnight strikes and hastens, And I lie down alone.
+ - The house of delusions is cheap to build but drafty to live in.
+ - I think that to transfuse emotion – not to transmit thought but to set up in the reader’s sense a vibration corresponding to what was felt by the writer – is the peculiar function of poetry.
+ - All knots that lovers tie Are tied to sever. Here shall your sweetheart lie, Untrue for ever.
+ - Great literature should do some good to the reader: must quicken his perception though dull, and sharpen his discrimination though blunt, and mellow the rawness of his personal opinions.
+ - Do not ever read books about versification: no poet ever learnt it that way. If you are going to be a poet, it will come to you naturally and you will pick up all you need from reading poetry.
+ - Stone, steel, dominions pass, Faith too, no wonder; So leave alone the grass That I am under.
+ - Therefore, since the world has still Much good, but much less good than ill, And while the sun and moon endure Luck’s a chance, but trouble’s sure, I’d face it as a wise man would, And train for ill and not for good.
+ - Give crowns and pounds and guineas But not your heart away; Give pearls away and rubies, But keep your fancy free.
+ - Could man be drunk for ever With liquor, love, or fights, Lief should I rouse at morning And lief lie down of nights. But men at whiles are sober And think by fits and starts, And if they think, they fasten Their hands upon their hearts.
+ - White in the moon the long road lies.
+ - In every American there is an air of incorrigible innocence, which seems to conceal a diabolical cunning.
+ - Ale, man, ale’s the stuff to drink for fellows whom it hurts to think.
+ - Tell me not here, it needs not saying, What tune the enchantress plays In aftermaths of soft September Or under blanching mays, For she and I were long acquainted And I knew all her ways.
+ - I sought them far and found them, The sure, the straight, the brave, The hearts I lost my own to, The souls I could not save They braced their belts about them, They crossed in ships the sea, They sought and found six feet of ground, And there they died for me.
+ - Shoulder the sky, my lad, and drink your ale.
+ - Poetry is not the thing said, but the way of saying it.
+ - Give me a land of boughs in leaf A land of trees that stand; Where trees are fallen there is grief; I love no leafless land.
+ - Perfect understanding will sometimes almost extinguish pleasure.
+ - There, by the starlit fences The wanderer halts and hears My soul that lingers sighing About the glimmering weirs.
+ - Earth and high heaven are fixed of old and founded strong.
+ - To justify God’s ways to man.
+ - The average man, if he meddles with criticism at all, is a conservative critic.
+ - The troubles of our proud and angry dust are from eternity, and shall not fail. Bear them we can, and if we can we must. Shoulder the sky, my lad, and drink your ale.
+ - The laws of God, the laws of man, He may keep that will and can; Not I: let God and man decree Laws for themselves and not for me.
+ - The bells they sound on Bredon, And still the steeples hum. “Come all to church, good people”- Oh, noisy bells, be dumb; I hear you, I will come.
+ - Lovers lying two and two Ask not whom they sleep beside, And the bridegroom all night through Never turns him to the bride.
+ - Nature, not content with denying him the ability to think, has endowed him with the ability to write.
+ - This is for all ill-treated fellows Unborn and unbegot, For them to read when they’re in trouble And I am not.
+ - These, in the day when heaven was falling, The hour when earth’s foundations fled, Followed their mercenary calling And took their wages and are dead. The British regulars who made the retreat from Mons, beginning August 24, 1914.
+ - I do not choose the right word, I get rid of the wrong one.
+ - Housman is one of my heroes and always has been. He was a detestable and miserable man. Arrogant, unspeakably lonely, cruel, and so on, but and absolutely marvellous minor poet, I think, and a great scholar.
+ - But if you ever come to a road where danger; Or guilt or anguish or shame’s to share. Be good to the lad who loves you true, And the soul that was born to die for you; And whistle and I’ll be there.
+ - Tomorrow, more’s the pity, Away we both must hie, To air the ditty and to earth I.
+ - We now to peace and darkness And earth and thee restore Thy creature that thou madest And wilt cast forth no more.
+ - Some men are more interesting than their books but my book is more interesting than its man.
+ - The fairies break their dances And leave the printed lawn.
+ - Experience has taught me, when I am shaving of a morning, to keep watch over my thoughts, because, if a line of poetry strays into my memory, my skin bristles so that the razor ceases to act.
+ - If a man will comprehend the richness and variety of the universe, and inspire his mind with a due measure of wonder and awe, he must contemplate the human intellect not only on its heights of genius but in its abysses of ineptitude...
+ - I find Cambridge an asylum, in every sense of the word.
+
+62 quotes

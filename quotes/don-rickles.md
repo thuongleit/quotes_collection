@@ -1,0 +1,81 @@
+ - You throw your best punch, otherwise don’t do it.
+ - Italians are fantastic people, really. They can work you over in an alley while singing an opera.
+ - I’ve got an accountant who’s been with me forty years. If he makes a mistake, he dies.
+ - When you stand alone and sell yourself, you can’t please everyone. But when you’re different, you can last.
+ - I used to play golf. I wanted to be a better player, but after a while I realized I’d always stink. And that’s when I really started to enjoy the game.
+ - If I were to insult people and mean it, that wouldn’t be funny.
+ - It’s very sweet to have people say nice things about you, and I always accept that.
+ - You know what’s funny to me? Attitude.
+ - I’ve never walked off stage and said, I shouldn’t have done that. Because when you do what I do, you’re like a fighter. You throw the right hand and say, That’s what got me to this dance. You can’t have doubt. If you have doubt, there’s no show.
+ - You’ve got to be able to sell yourself.
+ - I don’t do impressions.
+ - Asians are nice people, but they burn a lot of shirts.
+ - Show business is my life. When I was a kid I sold insurance, but nobody laughed.
+ - My whole act is off the top of my head.
+ - I take pride in being very unique in what I do. Nobody else can do what I do and I don’t mean to say that egotistically, it’s just something in my personality.
+ - I think if I took therapy, the doctor would quit. He’d just pick up the couch and walk out of the room.
+ - Room service is great if you want to pay $500 for a club sandwich.
+ - Showbiz is great if you’re successful.
+ - Struggling is hard because you never know what’s at the end of the tunnel.
+ - Women were afraid of me, they were scared to death. But I always say be yourself, if you’re funny then let your sense of humor go there. I mean there’s no sense hiding what you feel.
+ - They always use the word ‘insult’ with me, but I don’t hurt anybody. I wouldn’t be sitting here if I did. I make fun of everybody and exaggerate all our insecurities.
+ - Whatever you do to gain success, you have to hang in there and hope good things happen. Always think positive.
+ - You can’t study comedy; it’s within you. It’s a personality. My humor is an attitude.
+ - Every night when I go out on stage, there’s always one nagging fear in the back of my mind. I’m always afraid that somewhere out there, there is one person in the audience that I’m not going to offend!
+ - Alan King, a comedian I adored, was considered society, and I was considered the Jewish kid from the neighborhood.
+ - Political correctness? In my humor, I never talk about politics. I was never much into all that.
+ - I don’t care if the average guy on the street really knows what I’m like, as long as he knows I’m not really a mean, vicious guy. My friends and family know what I’m really like. That’s what’s important.
+ - I would describe myself as a guy that’s very normal but has the tendency to rib people, but never in a mean-spirited way.
+ - You lose your energy, you lose that excitement and it gets the audience up.
+ - I don’t feel an obligation to give everyone a hard time, but when they’re important people, it’s fun.
+ - I always rib people, but nobody ever gives me a hard time. I don’t know why. Maybe they’re afraid of what I might say. There’s probably a lesson in that somewhere, but I don’t know what it is.
+ - The man I adored, and miss him terribly, was Johnny Carson.
+ - In the 45 years I’ve worked in casinos, I dreamed of being honored by an organization like the American Gaming Association, especially since I don’t even have a hunting license.
+ - It takes many years to be a great comedian.
+ - I cannot tell a joke. But I can do a situation, that it becomes a joke.
+ - An insult comic is the title I was given. What I do is exaggeration. I make fun of people, at life, of myself and my surroundings.
+ - I’m very shy so I became very outgoing to protect my shyness.
+ - Who picks your clothes – Stevie Wonder?
+ - I don’t really tell a joke, I react to situations. The whole thing is just looking at somebody and showing all our weaknesses and exaggerating them, and that’s how it becomes funny.
+ - The old days were the old days. And they were great days. But now is now.
+ - I’ve never been mean-spirited, in my opinion. I never did anything below the belt.
+ - Half the battle is that people have to like you before you say one joke, one bit of humor.
+ - Smartphones. Who cares? Smartphones. I only have dummy phones.
+ - I grew up in an Orthodox family, as I grew older, I became Conservative and that’s how it ended up. But I’ve developed that Jewish feel to my act from my surroundings and my family.
+ - I have my own gym. When you do jokes and they sell, you get a gym.
+ - I’ve never gambled a dime. Never, in all my years in Vegas.
+ - When I got out of high school, I wanted to be an actor but was getting a lot of rejections. I was getting rejected by life. My mother, God rest her soul, told me not to quit.
+ - To my knowledge, I was the first guy really to do what I do. And then later on different comedians started trying doing it.
+ - I was sitting in the toilet and I was by myself. I was tired of playing with the roller, so I said I’d better write a book.
+ - Yeah, I make fun of blacks, and why not? I’m not a black.
+ - People think being in your seventies means sitting around in a chair with a blanket over your legs, drooling.
+ - I can sit all day in a comfortable chair and watch ball games, but I don’t need a blanket.
+ - Some people say funny things, but I say things funny.
+ - Some people call me a legend and the last of the greats, and I appreciate it.
+ - I have to have energy because I have a lot of expenses. A couple of cars, couple of dogs and a big estate.
+ - I was a mother’s boy.
+ - Well, I call myself an actor. I always wanted to be one.
+ - I do situations and make fun of authority and life.
+ - When you do see me, you’ll get the idea from when you see me that it’s all off the top of my head. A lot of it is a beginning, middle and the end. But it’s different every night. I have a lot of jokes in my back pocket I’ve said over the years.
+ - I still have drive, but everything is relative.
+ - I have no idea what I’m going to say when I stand up to give a toast. But I do know that anything I say I find funny.
+ - When I’m onstage, I’m acting.
+ - When I first went to Vegas, there were just high-rollers and gamblers and the wise guys treated you great.
+ - Everything I’ve ever done in my whole career, people might not know, I’ve never written anything down on paper.
+ - When you enter a room, you have to kiss his ring. I don’t mind, but he has it in his back pocket.
+ - I’d like to think my performance is today. I never try to – it’s so, as you know, watching me, I have a beginning, middle and ending. But every night the show changes and I relate to an audience and I relate to the young people.
+ - When you’re 18, you’re just so busy being scared and having fun – a crazy mixture – that you never thought of dying.
+ - It’s tough having the last name Rickles. Luckily, my kids handled it great.
+ - Eddie Fisher married to Elizabeth Taylor is like me trying to wash the Empire State Building with a bar of soap.
+ - I have a problem, if the light goes on on TV and it blinks midnight, I don’t know how to fix it.
+ - I’m always watching films. The Academy pretty much sends me every film that’s ever been done. I enjoy watching them, especially with the people I know.
+ - I was always the guy – out of insecurities, I was always making fun, even as a kid.
+ - The transformation has been unbelievable. When I started here, I worked in a place where the Sky Room was on the second floor.
+ - I’ve never had guys sit me down and say this is what you’ve got to do. It’s my personality that makes me one of a kind, and I believe that.
+ - The thing I love about Vegas is that it’s a melting pot. It’s like working Ellis Island.
+ - Everything I do on stage, I made up in saloons. I started doing it in front of people, and that became my performance. I never had writers.
+ - My style is my personality. It’s always been that way. Being a wiseguy and having fun. It’s always been that way for me, when I was in high school, and in the Navy. It’s not something I rehearse.
+ - To me, the stand up part in my life is great. I know I can do that. When I get an acting chance, I’m really thrilled.
+ - I never went out looking for glory.
+
+79 quotes

@@ -1,0 +1,25 @@
+ - The only way to learn mathematics is to do mathematics.
+ - Don’t just read it; fight it! Ask your own questions, look for your own examples, discover your own proofs. Is the hypothesis necessary? Is the converse true? Where does the proof use the hypothesis?
+ - The only way to learn mathematics is to do mathematics. That tenet is the foundation of the do-it-yourself, Socratic, or Texas method,...
+ - The best way to learn is to do; the worst way to teach is to talk.
+ - The beginner should not be discouraged if he finds he does not have the prerequisites for reading the prerequisites.
+ - What’s the best part of being a mathematician? I’m not a religious man, but it’s almost like being in touch with God when you’re thinking about mathematics. God is keeping secrets from us, and it’s fun to try to learn some of the secrets.
+ - The library is the mathematician’s laboratory.
+ - Applied mathematics will always need pure mathematics just as anteaters will always need ants.
+ - It is the duty of all teachers, and of teachers of mathematics in particular, to expose their students to problems much more than to facts.
+ - To be a scholar of mathematics you must be born with talent, insight, concentration, taste, luck, drive and the ability to visualize and guess.
+ - You are allowed to lie a little, but you must never mislead.
+ - The author discusses valueless measures in pointless spaces.
+ - The heart of mathematics consists of concrete examples and concrete problems. Big general theories are usually afterthoughts based on small but profound insights; the insights themselves come from concrete special cases.
+ - If the NSF had never existed, if the government had never funded American mathematics, we would have half as many mathematicians as we now have, and I don’t see anything wrong with that.
+ - The joy of suddenly learning a former secret and the joy of suddenly discovering a hitherto unknown truth are the same to me – both have the flash of enlightenment, the almost incredibly enhanced vision, and the ecstasy and euphoria of released tension.
+ - Feller was an ebullient man, who would rather be wrong than undecided.
+ - It saddens me that educated people don’t even know that my subject exists.
+ - When a student comes and asks, “Should I become a mathematician?” the answer should be no. If you have to ask, you shouldn’t even ask.
+ - Mathematics – this may surprise or shock some – is never deductive in creation.
+ - Many teachers are concerned about the amount of material they must cover in a course. One cynic suggested a formula: since, he said, students on the average remember only about 40% of what you tell them, the thing to do is to cram into each course 250% of what you hope will stick.
+ - I read once that the true mark of a pro – at anything – is that he understands, loves, and is good at even the drudgery of his profession.
+ - The mathematical fraternity is a little like a self-perpetuating priesthood. The mathematicians of today teach the mathematicians of tomorrow and, in effect, decide whom to admit to the priesthood.
+ - The computer is important, but not to mathematics.
+
+23 quotes

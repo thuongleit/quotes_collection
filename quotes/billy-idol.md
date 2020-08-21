@@ -1,0 +1,27 @@
+ - I love it when someone insults me. That means that I don’t have to be nice anymore.
+ - If your world doesn’t allow you to dream, move to one where you can.
+ - I rocked the cradle of love.
+ - Well there’s nothing to lose And there’s nothing to prove I’ll be dancing with myself.
+ - Such a human waste, your eyes without a face.
+ - It’s a nice day for a white wedding.
+ - Rock isn’t art, it’s the way ordinary people talk.
+ - If I only had the chance, I’d ask one to dance, and I’d be dancing with myself.
+ - There was a time when my whole life was in chaos, really, and I didn’t help myself sort it out. But one day I came to my senses, and I think I was lucky because a lot of people don’t.
+ - Your empty eyes seem to pass me by and leave me dancing with myself.
+ - Elvis a fight the dying light, Johnny Ray he’s always crying.
+ - Walk with electro-glide down the blue highway.
+ - I’m not talking with an American accent. I haven’t gone off and become Sammy Hagar.
+ - I don’t think punk ever really dies, because punk rock attitude can never die.
+ - I’m not trying to hide from my past. I want to roll in it. Like a dog, rolling in feces, I’m rolling in the feces of my greatest hits – that’s a bit of a wild way of looking at it, but I am a man, and we do like rolling in our own feces at times.
+ - I’m really a singer, so I love songs and I love singing. I like rap music, but I didn’t grow up freestyling.
+ - I think love’s exciting and happy, as well as being able to make you sad.
+ - It doesn’t matter about money; having it, not having it. Or having clothes, or not having them. You’re still left alone with yourself in the end.
+ - Let’s sink another drink, cause it will give me time to think.
+ - The biggest misconception people have about me is that I’m stupid.
+ - I don’t care what stage or what reason, as long as we’re playing.
+ - The world goes on, you go on and you change. You want to show the fans those changes, and you want to be able to verbalize them.
+ - My hair used to be real long, and my parents were encouraged when I cut it. They thought I was going ‘straight,’ but I was just getting weirder – at least in their eyes. I was getting into the punk thing.
+ - We want flesh, flesh for fantasy.
+ - When the other man has none, you don’t need a gun.
+
+25 quotes

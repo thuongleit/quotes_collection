@@ -1,0 +1,37 @@
+ - Artists are the gatekeepers of truth. We are civilization’s anchor. We are the compass for humanity’s conscience.
+ - Each and every one of you has the power, the will and the capacity to make a difference in the world in which you live in.
+ - These children and their parents know that getting an education is not only their right, but a passport to a better future – for the children and for the country.
+ - The Catholic Church had strict racial attitudes and intolerance for anybody who was not Catholic. When I look at a lot of Black ministers and what went on in the Black church, I was more caught up with those who were in Cadillacs and shiny suits than I was with those who were Kingian in their style.
+ - Fascism is fascism. Terrorism is terrorism. Oppression is oppression.
+ - If I’ve impacted on one heart, one mind, one soul, and brought to that individual a greater truth than that individual came into a relationship with me having, then I would say that I have been successful.
+ - Turning against the church I also had to turn against a lot of the teachings of people in my family who were very much of the church and caught in it, and every time I turned to find where resides the good in the church, all I saw was the demonic, the Lucifer of the journey.
+ - Art in its highest form is art that serves and instructs society and human development.
+ - Bring it on. Dissent is central to any democracy.
+ - We’ve come to this dark time in which the new Gestapo of Homeland Security lurks here, where citizens are having their rights suspended.
+ - The only thing left for Barack Obama to do is to work like a third world dictator and just put all these guys in jail.
+ - Colin Powell’s committed to come into the house of the master. When Colin Powell dares to suggest something other than what the master wants to hear, he will be turned back out to pasture.
+ - I think America offers a dream that cannot be fulfilled as easily anywhere else in the world as it could be fulfilled here. Although oppression was common to all of us, those styles of oppression gave us the opportunity to see the world in dimensions we didn’t quite see growing up in any one place.
+ - In poor environment, I find great inspiration. Many of the men and women whom I admire as artists, the things they write, the songs they sing, the admission is filled with inspired moments to overcome oppression.
+ - The sham engineers of the music industry, who steer the wheels of public opinion, are driving the good features of calypso into the ground. I shudder to think what these greedy men will eventually do to this true art form.
+ - If you believe in justice, if you believe in democracy, if you believe in people’s rights, if you believe in the harmony of all humankind – then you have no choice but to back Fidel Castro as long as it takes!
+ - Many who have nothing opposed to the few who have everything, and as long as these disparities remain, as long as these distances remain between people and forces, I think we’ll be in a perpetual state of upheaval.
+ - I’m called a folk singer, and I’m not too sure about that. I went about my life approaching music not from the point of view of a singer, but from the point of view of an actor. That’s how I first started to sing.
+ - I don’t find inspiration on Wall Street. I don’t find that in Beverly Hills. I don’t find that in places where opportunity resides unbridled, and I think the real creative energy and the real juice is in where people are caught, in the economic abyss.
+ - I come from a sense of struggle, a sense of using the instruments that were given to me to manipulate the environment in which I found myself, and joined up with those who are equally as skillful at manipulating that environment, as was I.
+ - Where is the raised voice of black America? Why are we mute?
+ - You can be arrested and not charged. You can be arrested and have no right to counsel.
+ - I’m very familiar with poverty. I find it easy to be with, whether I’m in America or in Africa or in Asia. Wherever I go and find the environment of those who are living in poverty and resisting poverty is a great in which I have great comfort.
+ - I didn’t like The Wiz and it wasn’t because black people were doing it. I didn’t like The Wiz because it was a badly made movie off a classic. Why are you remaking something unless you have something better in mind?
+ - Why are we mute? Where are our leaders, our legislators? Where is the church?
+ - Poverty continues to exist. Its appearance seems to be relentless in evidencing itself not only to all the things we experience here in America, but certainly what we see globally. And I don’t see anywhere any philosophical analysis that suggests we know how to get out of this.
+ - When I was 40 and looking at 60, it seemed like a thousand miles away. But 62 feels like a week and a half away from 80. I must now get on with those things I always talked about doing but put off.
+ - I am who I am despite what America has put before me. I am who I am despite the obstacles that we have all faced based upon race and based upon social and spiritual humiliation.
+ - To really know what progress we’re making for children, we have to know how many children we have to begin with. The simple act of counting is an expression of a country’s intent to take care of its people.
+ - The USA has more people in prison that any other country, including countries with much larger populations. 13% of the population is black but 80% of the people in prison are black, mostly for soft crimes.
+ - This generosity that has been offered to the United States says very much about the Venezuelan spirit.
+ - We Have Got To Bring Corporate America To Its Knees.
+ - I am a man who perceives life in a certain way, a man who rejects things that defecate on humankind, who rejects anything that will not give people room for dissent.
+ - John say’s it’s James who started first, James tells the story in reverse. I drag my belt from off me waist, you should have heard dem screaming round de place.
+ - I’ve always been supportive of the right of Israel as a state, and I’ve always fought against anti-Semitism, even in my own community.
+
+35 quotes

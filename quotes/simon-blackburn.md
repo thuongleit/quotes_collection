@@ -1,0 +1,26 @@
+ - People who have cut their teeth on philosophical problems of rationality, knowledge, perception, free will and other minds are well placed to think better about problems of evidence, decision making, responsibility and ethics that life throws up.
+ - The scientific world is to be less threatening than was feared. It is to made safe for human beings. And the way to make it safe is to reflect on the foundation of knowledge.
+ - When the hoary old question of nature versus nurture comes around, sides form quickly.
+ - An ethic gone wrong is an essential preliminary to the sweat shop or the concentration camp and the death march.
+ - It can seem an amazing fact that laws of nature keep on holding, that the frame of nature does not fall apart.
+ - The absolutist parades his good solid grounding in observation, reason, objectivity, truth and fact; the relativist sees only fetishes.
+ - Why should thinkers mock the simple pieties of the people?
+ - Chance is as relentless as necessity.
+ - The absolutist takes himself to read nature in her very own language, but the relativist insists that nature does not speak, and we hear only what we have elected to hear.
+ - Finding a mechanism does not bypass the problem of induction.
+ - Thoughts are strange things. they have ‘representational’ powers: a thought typically represents the world as being one way or another. A sensation, by contrast, seems to just sit there.
+ - We can grieve over lost powers and memories, or rejoice over gained knowledge and maturity, according to taste.
+ - If our best efforts come to nothing often enough, we need consolation, and thoughts of unfolding, infinite destiny, or karma, are sometimes consoling.
+ - Induction is the process of taking things within our experience to be representative of the world outside our experience. It is a process of projection or extrapolation.
+ - Respect, of course is a tricky term. I may respect your gardening by just letting you get on with it. Or, I may respect it by admiring it and regarding it as a superior way to garden.
+ - Contemporary culture is not very good on responsibility.
+ - The absolutist trumpets his plain vision; the relativist sees only someone who is unaware of his own spectacles.
+ - Nobody ever inferred from the multiple infirmities of Windows that Bill Gates was infinitely benevolent, omniscient, and able to fix everything.
+ - Since there is no telling in advance where it may lead, reflection can be seen as dangerous .
+ - The fantasist in whom the reality barrier has broken down is unreliable, believing things when he should not, and telling things as true when they are not.
+ - The absolutist takes himself to speak to the ages, with the tongue of angels, but the relativist hears only one version among others, the subjectivity of the here and now.
+ - Paradigms can be asked to show their worth, an some of them do not stand up.
+ - Wittgenstein imagined that the philosopher was like a therapist whose task was to put problems finally to rest, and to cure us ofbeing bewitched by them. So we are told to stop, to shut off lines of inquiry, not to find things puzzling nor to seek explanations. This is intellectual suicide.
+ - A god that created the world and then walked off the site leaving it to its own devices is not a fit object of worship, nor a source of moral authority.
+
+24 quotes

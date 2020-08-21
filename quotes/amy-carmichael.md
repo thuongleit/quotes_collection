@@ -1,0 +1,81 @@
+ - You can give without loving, but you cannot love without giving.
+ - Missionary life is simply a chance to die.
+ - Give me the Love that leads the way The Faith that nothing can dismay The Hope no disappointments tire The Passion that’ll burn like fire Let me not sink to be a clod Make me Thy fuel, Flame of God.
+ - When I consider the cross of Christ, how can anything that I do be called sacrifice?
+ - We have all eternity to celebrate the victories but only a few hours before sunset to win them.
+ - It is a safe thing to trust Him to fulfill the desires which He creates.
+ - If a sudden jar can cause me to speak an impatient, unloving word, then I know nothing of Calvary love. For a cup brimful of sweet water cannot spill even one drop of bitter water, however suddenly jolted.
+ - Let nothing be said about anyone unless it passes through the three sieves: Is it true? Is it kind? Is it necessary?
+ - Those who think too much of themselves don’t think enough.
+ - God, harden me against myself!
+ - It is not the place where we are, or the work that we do or cannot do that matters, it is something else. It is the fire within that burns and shines, whatever be our circumstances.
+ - Thank God, He doesn’t measure out grace in teaspoons.
+ - I would rather burn out than rust out.
+ - There is always something to be happy about if we look for it: ‘Two men looked through prison bars, The one saw mud, the other stars.’
+ - If the praise of others elates me and their blame depresses me; if I cannot rest under misunderstandin g without defending myself; if I love to be loved more than to love, to be served more than to serve, then I know nothing of Calvary love.
+ - Let us not be surprised when we have to face difficulties. When the wind blows hard on a tree, the roots stretch and grow the stronger, Let it be so with us. Let us not be weaklings, yielding to every wind that blows, but strong in spirit to resist.
+ - The saddest thing one meets is a nominal Christian.
+ - But God is the God of the waves and the billows, and they are still His when they come over us; and again and again we have proved that the overwhelming thing does not overwhelm. Once more by His interposition deliverance came. We were cast down, but not destroyed.
+ - A cup brimful of sweetness cannot spill even one drop of bitter water, no matter how suddenly jarred.
+ - The word comfort is from two Latin words meaning “with” and “strong” – He is with us to make us strong. Comfort is not soft, weakening commiseration; it is true, strengthening love.
+ - If I take offence easily; if I am content to continue in cold unfriendliness, though friendship be possible, then I know nothing of Calvary love.
+ - If I am afraid to speak the truth lest I lose affection, or lest the one concerned should say, “You do not understand”, or because I fear to lose my reputation for kindness; if I put my own good name before the other’s highest good, then I know nothing of Calvary love.
+ - Can we follow the Savior far, who have no wound or scar?
+ - Now you are deep in what seems to me a peculiarly selfless service. The spiritual training of children must be that. You work for the years you will not see. You work for the Invisible all the time, but you work for the Eternal. So it is all worthwhile.
+ - Does it not stir up our hearts, to go forth and help them, does it not make us long to leave our luxury, our exceeding abundant light, and go to them that sit in darkness?
+ - Our loving Lord is not just present, but nearer than the thought can imagine – so near that a whisper can reach Him.
+ - Satan is so much more in earnest than we are – he buys up the opportunity while we are wondering how much it will cost.
+ - God Hold us to that which drew us first, when the Cross was the attraction, and we wanted nothing else.
+ - We profess to be strangers and pilgrims, seeking after a country of our own, yet we settle down in the most un-stranger-like fashion, exactly as if we were quite at home and meant to stay as long as we could. I don’t wonder apostolic miracles have died. Apostolic living certainly has.
+ - I wish thy way. And when in me myself should rise, and long for something otherwise, Then Lord, take sword and spear And slay.
+ - Do not fight the thing in detail: turn from it. Look ONLY at your Lord. Sing. Read. Work.
+ - All along, let us remember we are not asked to understand, but simply to obey...
+ - It is great to be faced with the impossible, for nothing is impossible if one is meant to do it. Wisdom will be given, and strength. When the Lord leads, He always strengthens.
+ - O Love of God, do this for me: Maintain a constant victory.
+ - If I can enjoy a joke at the expense of another; if I can in any way slight another in conversation, or even in thought, then I know nothing of Calvary love.
+ - If you have never been hurt by a word from God, it is probably that you have never heard God speak.
+ - If I am perturbed by the reproach and misunderstanding that may follow action taken for the good of souls for whom I must give account; if I cannot commit the matter and go on in peace and in silence, remembering Gethsemane and the cross, then I know nothing of Calvary love.
+ - Even though we must walk in the land of fear, there is no need to fear. The power of His resurrection comes before the fellowship of His sufferings.
+ - If souls can suffer alongside, and I hardly know it, because the spirit of discernment is not in me, then I know nothing of Calvary love...
+ - Strength of my heart, I need not fail, Not mind to fear but to obey, With such a Leader, who could quail? Thou art as Thou wert yesterday. Strength of my heart, I rest in Thee, Fulfil Thy purposes through me.
+ - If I belittle those whom I am called to serve, talk of their weak points in contrast perhaps with what I think of as my strong points; if I adopt a superior attitude, forgetting “Who made thee to differ? and what hast thou that thou hast not received?” then I know nothing of Calvary love.
+ - If our children were to grow up truthful they much be taught by those who had a regard for truth; and not just a casual regard, a delicate regard. On this point we were adamant.
+ - If you are ever inclined to pray for a missionary, do it at once, where ever you are. Perhaps he may be in great peril at that moment.
+ - If I say, “Yes, I forgive, but I cannot forgive,” as though the God, who twice a day washes all the sands on all the shores of all the world, could not wash such memories from my mind, then I know nothing of Calvary love.
+ - If monotony tries me, and I cannot stand drudgery; if stupid people fret me and little ruffles set me on edge; if I make much of the trifles of life, then I know nothing of Calvary love.
+ - If I myself dominate myself, if my thoughts revolve round myself, if I am so occupied with myself I rarely have “a heart at leisure from itself,” then I know nothing of Calvary love.
+ - If I am content to heal a hurt slightly, saying “Peace, peace,” where is no peace; if I forget the poignant word “Let love be without dissimulation” and blunt the edge of truth, speaking not right things but smooth things, then I know nothing of Calvary love.
+ - If I slip into the place that can be filled by Christ alone, making myself the first necessity to a soul instead of leading it to fasten upon Him, then I know nothing of Calvary love.
+ - The night I sailed for China, March 3, 1893, my life, on the human side, was broken, and it never was mended again. But He has been enough.
+ - I believe truly that Satan cannot endure it and so slips out of the room – more or less – when there is a true song.
+ - If Thy dear home be fuller, Lord, For that a little emptier. My house on earth, what rich rewards. That guerdon were.
+ - Our enemy is more aware than we are of the spiritual possibilities that depend upon obedience.
+ - Blessed are the single-hearted, for they shall enjoy much peace. If you refuse to be hurried and pressed, if you stay your soul on God, nothing can keep you from that clearness of spirit which is life and peace. In that stillness you will know what His will is.
+ - If my attitude be on of fear, not faith, about the one who has disappointed me; if I say “Just what I expected,” if a fall occurs, then I know nothing of Calvary Love.
+ - There is only one way of victory over the bitterness and rage that comes naturally to us – To will what God wills brings peace.
+ - What is the secret to great living? Entire separation to Christ and devotion to Him. Thus speaks every man and woman whose life has made more than a passing flicker in the spiritual realm. It is the life that has no time for trifling that counts.
+ - Prayer is the core of the day. Take prayer out, and the day would collapse...
+ - If I do not give a friend “The benefit of the doubt,” but put the worst construction instead of the best on what is said or done, then I know nothing of Calvary love.
+ - He hath never failed thee yet. Never will His love forget. O fret not thyself nor let Thy heart be troubled, Neither let it be afraid.
+ - I don’t wonder apostolic miracles have died. Apostolic living certainly has.
+ - When an answer I did not expect comes to a prayer which I believed I truly meant, I shrink back from it; if the burden my Lord asks me to bear be not the burden of my heart’s choice, and I fret inwardly and do not welcome His will, then I know nothing of Calvary love.
+ - Oh, will you pray? Stop now and pray, lest desire turn to feeling and feeling evaporate.
+ - Love knows how to do without what it naturally wants. Love knows how to say, ‘What does it matter.’
+ - All life’s training is just exactly what is needed for the true Life-work, still out of view but far away from none of us. Don’t grudge me the learning of a new lesson.
+ - There are many rooms in the House of Pain.
+ - The best training is to learn to accept everything as it comes, as from Him whom our soul loves. The tests are always unexpected things, not great things that can be written up, but the common little rubs of life, silly little nothings, things you are ashamed of minding one scrap.
+ - It is a solemn thing to find oneself drawn out in prayer which knows no relief till the soul it is burdened with is born. It is no less solemn afterwards, until Christ is formed in them.
+ - If I put my own good name before the other’s highest good, then I know nothing of Calvary’s love.
+ - If I fear to hold another to the highest goal because it is so much easier to avoid doing so, then I know nothing of Calvary love.
+ - One must as willingly be nothing, as something.
+ - Nothing is worth doing at all, nothing is worth writing, which does not do something which will last.
+ - Every work undertaken in obedienced to a divine command, whether the work be that form of conflict with the powers of darkness that we call prayer, or whether it be the action that follows, leads sooner or later to a new demand on personal devotion to our Lord Jesus Christ.
+ - If by doing some work which the undiscerning consider ‘not spiritual work’ I can best help others, and I inwardly rebel, thinking it is the spiritual for which I crave, when in truth it is the interesting and exciting, then I know nothing of Calvary love.
+ - The only expenditure, and all its outworkings, for which God can be held to be responsible is that which He directs.
+ - Love accepts the trying things of life without asking for explanations. It trusts and is at rest.
+ - If the ultimate, the hardest, cannot be asked of me; if my fellows hesitate to ask it and turn to someone else, then I know nothing of Calvary love.
+ - Ours should be the love that asks not ‘how little?’ but, ‘how much?’ The love that delights to pour out everything upon the feet of our Beloved.
+ - If I find myself half-carelessly taking lapses for granted, “Oh, that’s what they always do.” “Oh, of course she talks like that, he acts like that,” then I know nothing of Calvary love.
+ - The mere telling of how a need was met is often like telling of a need, which is asking crookedly instead of straight out. But this much I will say – with every fresh need has come a fresh supply.
+
+79 quotes

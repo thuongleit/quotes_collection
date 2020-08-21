@@ -1,0 +1,51 @@
+ - I’m happy to be here. I’m happy to be anywhere. I’m not kidding.
+ - At that time I was making the largest salary known on television and I didn’t want to see it die because those were the years paying off when I wasn’t making anything.
+ - I went to a military school between the ages of six and 12 and later into the air force. You learn discipline and strength of character.
+ - I don’t watch a lot of television. Sports and news, that’s it.
+ - Barbara Eden is the most beautiful girl in the world.
+ - Comedy is not funny. Comedy is hard work and timing and lots and lots of rehearsals.
+ - I was born with success. Lucky for me, I am able to handle it. Also, I damn well deserve it.
+ - Well I think they broke the mould when they made me and being humble is one of my great assets.
+ - No no there wasn’t any planned 14th season, we all saw the writing on the wall. The ratings had been going down and so fourth, that curve goes on every show and in everybody’s life.
+ - Before I tried LSD, I’d been going to a psychologist for a couple of years. I found out about success that you have to fight for it a lot, then when you achieve it, you can’t give up the fight.
+ - A lot of times I talk to people, they say they don’t trust the doctors, they don’t trust the hospitals and that kind of stuff. Well, if you go to the hospital, you’ve got to trust somebody.
+ - My television and movie career has also taken me all over the world. I’ve had great times in the Far East, Russia, South America and Sweden – where I met my wife of 55 years, Maj.
+ - It’s my firm intention to whop cancer into submission and I truly believe I’ve given myself the best start possible by radically overhauling my diet and by staying true to my motto, which is: Don’t worry, be happy, feel good. The first thing I did when I was diagnosed was to turn vegan.
+ - All my heroes, I guess, like John Wayne and all those guys, they drank and they smoked and did all the manly things. It was expected of you. And now abstinence in all kinds of forms is a part of living. It’s a pretty – I don’t smoke anymore, I quit that 42 years ago.
+ - My credo is etched on my mirror in my bathroom and I see it when I brush my teeth in the morning. It says, “Don’t worry, Be Happy, Feel Good.” When you see that first thing, and you reflect on it, the rest of the day seems to glide by pretty well.
+ - There are very little things in this life I cannot afford and patience is one of them.
+ - I did successfully kick tobacco at the age of 34. I smoked for like 20 years, from 14 to 34.
+ - I liked Dallas better because it was more deceptive, you could do more with it.
+ - Don’t you find that the more you know, the more you don’t know and can’t ever learn because there’s too much stuff out there?
+ - When we started the show, ‘Dallas’ was known as the city where JFK was assassinated. By the end it was known as JR’s home town.
+ - Five hundred thousand Americans die from tobacco poisoning every year, and it’s legal. I don’t know, it just that’s the – you can’t stop giving people organs because of bad behavior. If you keep on having bad behavior, then of course they’ll deny you a liver, or whatever you need.
+ - I guess it was but I think peoples morality has changed. It’s gotten more liberal and more diverse and even in a sense much more fundamental, you take the fundamental religious right in this country, its got to go back about 50 years.
+ - Well yes so far, I was recently in Germany and they had me do six book signings a day and that was too much so I had them cut it down to about three. It becomes taxing at times but its a lot of fun and you meet a lot of nice people.
+ - It always annoys me when stars grumble about fans coming up to them in the street. I love it. These young stars today with all their airs and graces, they need to remember it is an honour and a privilege to make money from acting. How hard is it?
+ - I’m sure it is, I’m not for any kind of war, we’ve been engaged in several wars since the second world war and we lost in Korea, we lost in Vietnam, they are political wars, they have nothing to do with any real threat, nor does this one.
+ - I got to a point where kind of a oneness with everything and a great compassion. It teaches you compassion. It was a great, enlightening experience, a spiritual experience. Not particularly religious, but spiritual. It was great. I can still go there.
+ - I have been married for 58 years to the same woman. Our secret? Separate bathrooms.
+ - After ten or twelve years you can only play something so long and then you start to parody it.
+ - I never travel without my Stetson, but the more I wear it the more I realise that no one wears hats any more. When I was a kid everybody wore hats, especially in Texas, but I get off the plane in Dallas now and I’m the only guy with a hat. It’s amazing.
+ - I had a real epiphany. I guess it was during and after the operation. I did what’s a common thing; I kind of raised above the table and could look at me and listen to all the people talking and understand what they were saying and so forth.
+ - I think JR would make a better President than the one we have now.
+ - Good acting is all in the writing. If it isn’t on the page, then it really won’t make any difference. You cannot act on force of personality alone.
+ - I’m not well versed on the verbiage of the internet.
+ - I think that everybody in the world, whatever colour or creed, has a jerk like JR in his or her family somewhere. Whether it is a father, uncle, cousin or brother, everybody can identify with JR and that certainly had something to do with the success of ‘Dallas.’
+ - I have thousands and thousands of hats. Some are the most outrageous hats in the world. They are my disguise. I hide beneath them.
+ - Later on when it became a routine it was not as exciting I’ll admit that. The first three years were wonderful, the rest were just money making and having fun.
+ - Actors can’t retire. What would they do?
+ - I’ve travelled a huge amount, but almost all of it has been through work. I spent five years stationed in London in the special services of the American Air Force, producing and directing shows for the troops, which I absolutely loved.
+ - We’ve got to find another way of producing energy.
+ - My definition of a redundancy is an air-bag in a politician’s car.
+ - We did 356 ‘Dallas’ episodes between 1978 and 1991. The most memorable moment for me happened in 1980 when I got shot at the end of the third series. The rest is a blur.
+ - I drank my liver out.
+ - Marijuana you can give up, I’ve given it up for fifteen years now and it never occurs to me to smoke it anymore.
+ - I didn’t write the book to sell the book, but to tell my experiences.
+ - Well, I decided to stop. And I did. I stopped smoking, and I stopped speed at the same time.
+ - You know Hollywood is a weird and wonderful place, I didn’t know I Dream of Jeanie had been cancelled after 5 years until I went back to go on the lot to pick up some clothes and things I had in my dressing room.
+ - I barely watch TV apart from the news. Most of it is rubbish. There’s all this reality nonsense and dross. I think there’s a market for a well-produced, well-written melodrama like ‘Dallas.’ It’s pure entertainment.
+ - But there is no withdrawal, but with tobacco there is terrible withdrawal, it is almost impossible for a lot of people. I did, I went cold turkey, they never had any patches in those days but grass was not difficult, alcohol not difficult, but tobacco – oh my god.
+ - Once you get rid of integrity the rest is a piece of cake.
+
+49 quotes

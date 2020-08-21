@@ -1,0 +1,31 @@
+ - Some days you get up and put the horn to your chops and it sounds pretty good and you win. Some days you try and nothing works and the horn wins. This goes on and on and then you die and the horn wins.
+ - Thank you, ladies and gentlemen, for your magnificent indifference.
+ - As a musician you have to keep one foot back in the past and have one foot forward into the future.
+ - Where there’s no mutual respect, there’s trouble!
+ - Jazz will be the classical music of the future.
+ - The idea of life is to give and receive.
+ - I try to play the bare essence, to let everything be just what it’s supposed to be.
+ - Up, up the long, delirious, burning blue I’ve topped the wind-swept heights with easy grace, Where never the lark, nor even eagle flew- And, while with silent lifting mind I’ve trod The high, untrespassed sanctity of space, Put out my hand and touched the face of God.
+ - Mutual respect is so important because as soon as it disappears in relations between you and the next person, there’s trouble.
+ - Kenny Burrell is the grand master of jazz guitar.
+ - How do I know why Miles walks off the stage? Why don’t you ask him? And besides, maybe we’d all like to be like Miles, and just haven’t got the guts.
+ - When I grow up I want to be just like Benny Carter!
+ - It’s taken me all my life to learn what not to play.
+ - Learn to play the piano, man, and then you can figure out crazy solos of your own.
+ - Men have died for this music. You can’t get more serious than that.
+ - Everyone wants to put people on, I think. And get away with it! That’s the thing: put people on and get away with it! That’s a science in itself.
+ - I think the idea is now for blacks to write about the history of our music. It’s time for that, because whites have been doing it all the time. It’s time for us to do it ourselves and tell it like it is.
+ - There have been two great revelations in my life: The first was bepop, the second was homeopathy.
+ - I know all the Latin-American rhythms quite well, but I don’t play them exactly like they do in their own country – I add my personal touch.
+ - Bop is at the end of the road. Now everybody wants dance music.
+ - Nothing surpasses my performances with small bands, especially with Charlie Parker. A small band doesn’t forestall creativity.
+ - I’d like to play for you one of my compositions, my only composition.
+ - I was blessed that I got married early and had a good wife. That sort of kept me straight. Probably I would have been like Charlie Parker, you know, involved in drugs or alcohol or something like that if I hadn’t had this stability.
+ - I used to do a lot of apologizing for what the State Department had done.
+ - I don’t care much about music. What I like is sounds.
+ - One of the reasons we’re here is to be a part of this process of exchange.
+ - The sign of a mature musician is knowing what not to play.
+ - They’re not particular whether you’re playing a flat 5th or a ruptured 129th as long as they can dance.
+ - Miles got a mystique about him-plus he’s at the top of his profession. And he’s got way, way, way more money.
+
+29 quotes

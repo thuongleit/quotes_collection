@@ -1,0 +1,48 @@
+ - Conspicuous consumption of valuable goods is a means of reputability to the gentleman of leisure.
+ - Invention is the mother of necessity.
+ - The visible imperfections of hand-wrought goods, being honorific, are accounted marks of superiority in point of beauty, or serviceability, or both.
+ - The chief use of servants is the evidence they afford of the master’s ability to pay.
+ - No one travelling on a business trip would be missed if he failed to arrive.
+ - A protective tariff is a typical conspiracy in restraint of trade.
+ - Socialism is a dead horse.
+ - The walking stick serves the purpose of an advertisement that the bearer’s hands are employed otherwise than in useful effort, and it therefore has utility as an evidence of leisure.
+ - The first duty of an editor is to gauge the sentiment of his reader, and then to tell them what they like to believe...
+ - The dog commends himself to our favor by affording play to our propensity for mastery.
+ - Only individuals with an aberrant temperament can in the long run retain their self-esteem in the face of the disesteem of their fellows.
+ - Born in iniquity and conceived in sin, the spirit of nationalism has never ceased to bend human institutions to the service of dissension and distress.
+ - It frequently happens that an element of the standard of living which set out with being primarily wasteful, ends with becoming, in the apprehension of the consumer, a necessary of life.
+ - Conservatism is the maintenance of conventions already in force.
+ - All business sagacity reduces itself in the last analysis to judicious use of sabotage.
+ - The possession of wealth confers honor; it is an invidious distinction.
+ - With the exception of the instinct of self-preservation, the propensity for emulation is probably the strongest and most alert and persistent of the economic motives proper.
+ - The basis on which good repute in any highly organized industrial community ultimately rests is pecuniary strength; and the means of showing pecuniary strength, and so of gaining or retaining a good name, are leisure and a conspicuous consumption of goods.
+ - The thief or swindler who has gained great wealth by his delinquency has a better chance than the small thief of escaping the rigorous penalty of the law.
+ - The individual’s habits of thought make an organic complex, the trend of which is necessarily in the direction of serviceability to the life process. When it is attempted to assimilate systematic waste or futility, as an end in life, into this organic complex, there presently supervenes a revulsion.
+ - While the proximate ground of discrimination may be of another kind, still the pervading principle and abiding test of good breeding is the requirement of a substantial and patent waste of time.
+ - The machine technology takes no cognizance of conventionally established rules of precedence; it knows neither manners nor breeding and can make no use of any of the attributes of worth.
+ - Abstention from labor is the conventional evidence of wealth and is therefore the conventional mark of social standing.
+ - From the ownership of women the concept of ownership extends itself to include the products of their industry, and so there arises the ownership of things as well as of persons.
+ - It is always sound business to take any obtainable net gain, at any cost, and at any risk to the rest of the community.
+ - The office of the leisure class in social evolution is to retard the movement and to conserve what is obsolescent. This proposition is by no means novel; it has long been one of the commonplaces of popular opinion.
+ - In point of substantial merit the law school belongs in the modern university no more than a school of fencing or dancing.
+ - The institution of a leisure class has emerged gradually during the transition from primitive savagery to barbarism; or more precisely, during the transition from a peaceable to a consistently warlike habit of life.
+ - The addiction to sports, therefore, in a peculiar degree marks an arrested development in man’s moral nature.
+ - The taste of the more recent accessions to the leisure class proper and of the middle and lower classes still requires a pecuniary beauty to supplement the aesthetic beauty, even in those objects which are primarily admired for the beauty that belongs to them as natural growths.
+ - Labor wants pride and joy in doing good work, a sense of making or doing something beautiful or useful – to be treated with dignity and respect as brother and sister.
+ - In itself and in its consequences the life of leisure is beautiful and ennobling in all civilised men’s eyes.
+ - In aesthetic theory it might be extremely difficult, if not quite impracticable, to draw a line between the canon of classicism, or regard for the archaic, and the canon of beauty.
+ - It is much more difficult to recede from a scale of expenditure once adopted than it is to extend the accustomed scale in response to an accession of wealth.
+ - Inherited aptitudes and traits of temperament count for quite as much as length of habituation in deciding what range of habits will come to dominate any individual’s scheme of life.
+ - Beauty is commonly a gratification of our sense of costliness masquerading under the name of beauty.
+ - English orthography satisfies all the requirements of the canons of reputability under the law of conspicuous waste. It is archaic, cumbrous, and ineffective; its acquisition consumes much time and effort; failure to acquire it is easy of detection.
+ - In order to stand well in the eyes of the community, it is necessary to come up to a certain, somewhat indefinite, conventional standard of wealth.
+ - The aesthetic serviceability of objects of beauty is not greatly nor universally heightened by possession.
+ - In the rare cases where it occurs, a failure to increase one’s visible consumption when the means for an increase are at hand is felt in popular apprehension to call for explanation, and unworthy motives of miserliness are imputed.
+ - Loud dress becomes offensive to people of taste, as evincing an undue desire to reach and impress the untrained sensibilities of the vulgar.
+ - Instead of investing in the goods as they pass between producer and consumer, as the merchant does, the businessman now invests in the processes of industry.
+ - The early ascendancy of leisure as a means of reputability is traceable to the archaic distinction between noble and ignoble employments. Leisure is honourable and becomes imperative partly because it shows exemption from ignoble labour.
+ - Into the cultural and technological system of the modern world, the patriotic spirit fits like dust in the eyes and sand in the bearings. Its net contribution to the outcome is obscuration, distrust, and retardation at every point where it touches the fortunes of modern mankind.
+ - So soon as the possession of property becomes the basis of popular esteem, therefore, it becomes also a requisite to that complacency which we call self-respect.
+ - There are few things that so touch us with instinctive revulsion as a breach of decorum.
+
+46 quotes

@@ -1,0 +1,28 @@
+ - What is done can never be undone.
+ - The past was always there, lived inside of you, and it helped to make you who you were. But it had to be placed in perspective. The past could not dominate the future.
+ - Successful women don’t sleep until noon.
+ - I will never stop writing. People often ask when I will retire, but I say it’s none of their business. Writing defines who I am. I love the feeling of holding a finished book in my hands, and then I can’t wait to start the great adventure of writing the next one.
+ - Life always gets harder towards the summit – the cold increases, responsibility increases.
+ - My dear girl, you must cultivate a taste for the finer things. Civilized pleasures give meaning to life.
+ - The value of life lies not in the length of days, but in the use we make to them; a man may live long, yet get little from life. Whether you find satisfaction in life depends not on your tale of years, but on your will – Montaigne, Essays.
+ - We are each the authors of our own lives, Emma. We live in what we have created. There is no way to shift the blame and no one else to accept the accolades.
+ - Priceless things matter not for their value, but because they offer us an enduring reminder of stability and permanence.
+ - A person with taste is merely one who can recognize the greatest beauty in the simplest things.
+ - Even the most powerful woman needs a place to unwind.
+ - Elizabeth lay face-down on the massage table, and allowed Marco to relieve the stress of the business day with firm and knowing fingers. Success, she decided, was often a matter of knowing when to relax.
+ - Never let stress shape your strategy. Most women think better after a brisk walk, a light meal, a massage and a nap.
+ - Elizabeth studied the blurry tabloid photo, which showed her cousin Mary Stuart leaving a Paris disco at dawn, drunkenly clinging to the arm of a French tennis pro. The message was very clear. Put passion first and you end up neither loved nor respected.
+ - Edwina always enjoyed a morning ride. Some mornings she rode the horse, and some mornings she rode the groom.
+ - I am a huge admirer of Elizabeth I, and this intriguing biography gives a wonderful picture of the era.
+ - I work eight hours a day, but I’m not writing all that time. I’m thinking, editing, looking something up. Thinking is what I do a lot of.
+ - If anyone asks me whether I like being a popular writer, I ask them whether they think I’d rather be an unpopular writer.
+ - In my opinion, moderation is a vastly overrated virtue, particularly when applied to work.
+ - Life was life. It happened. You never knew what was going to come at you. Or how you could defend yourself.
+ - She put her hand in his, and he clasped it firmly, knowing he had been waiting for her all his life.
+ - He who ascends to mountaintops, shall find The loftiest peaks most wrapt in clouds and snow; He who surpasses or subdues mankind Must look down on the hate of those below.
+ - At the age of fifty-six Eleanor Stoddard was still a beautiful woman. She owned three hotels in France and another two in England. From nothing at all, she had built an empire. Eleanor had it all. Her one weakness was the young man sleeping beside her.
+ - Bookstores see a book by a woman and they put it in the romance section.
+ - Always present yourself as a woman who expects to succeed.
+ - This parting cannot be for long; for those who love as we do cannot be parted. We shall always be united in thought, and thought is a great magnet. I have often spoken to thee of reason, now i speak to thee of faith.
+
+26 quotes

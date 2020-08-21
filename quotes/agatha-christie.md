@@ -1,0 +1,268 @@
+ - A mother’s love for her child is like nothing else in the world. It knows no law, no pity, it dares all things and crushes down remorselessly all that stands in its path.
+ - To every problem, there is a most simple solution.
+ - Where large sums of money are concerned, it is advisable to trust nobody.
+ - Time is the best killer.
+ - The tragedy of life is that people do not change.
+ - An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her.
+ - Instinct is a marvelous thing. It can neither be explained nor ignored.
+ - Everybody said, “Follow your heart”. I did, it got broken.
+ - Imagination is a good servant, and a bad master.
+ - I don’t know. I don’t know at all. And that’s what’s frightening the life out of me. To have no idea...
+ - I like living. I have sometimes been wildly, despairingly, acutely miserable, racked with sorrow, but through it all I still know quite certainly that just to be alive is a grand thing.
+ - Books are a habit-forming drug.
+ - You should employ your little grey cells.
+ - One little Indian left all alone, he went out and hanged himself and then there were none.
+ - Poirot: Do not allow Hate into your heart, for it will make a home there. Jackie: If Love cannot live there, Hate works just as well.
+ - Good advice is always certain to be ignored, but that’s no reason not to give it.
+ - If you are to be Hercule Poirot, you must think of everything.
+ - I don’t think necessity is the mother of invention. Invention, in my opinion, arises directly from idleness, possibly also from laziness – to save oneself trouble.
+ - The simplest explanation is always the most likely.
+ - Sensationalism dies quickly, fear is long-lived.
+ - A mother’s love for her child is like nothing else in the world.
+ - Fear is incomplete knowledge.
+ - It’s astonishing in this world how things don’t turn out at all the way you expect them to.
+ - The first time you do a thing is always exciting.
+ - If you place your head in a lion’s mouth, then you cannot complain one day if he happens to bite it off.
+ - One of the luckiest things that can happen to you in life is, I think, to have a happy childhood.
+ - One doesn’t recognize the really important moments in one’s life until it’s too late.
+ - I just woke up feeling happy this morning. You know those days when everything in the world seems right.
+ - The young people think the old people are fools – but the old people know the young people are fools.
+ - In the midst of life, we are in death.
+ - Hercule Poirot: I am an imbecile. I see only half of the picture. Miss Lemon: I don’t even see that.
+ - Nobody knows what another person is thinking. They may imagine they do, but they are nearly always wrong.
+ - Everyone likes talking about himself. – Hercule Poirot.
+ - Assumptions are dangerous things.
+ - Dogs are wise. They crawl away into a quiet corner and lick their wounds and do not rejoin the world until they are whole once more.
+ - Do you know my friend that each one of us is a dark mystery, a maze of conflicting passions and desire and aptitudes?
+ - Use that fluff of yours you call a brain.
+ - He laughs best who laughs at the end.
+ - Everything must be taken into account. If the fact will not fit the theory – let the theory go.
+ - The truth, however ugly in itself, is always curious and beautiful to seekers after it.
+ - Elephants can remember, but we are human beings and mercifully human beings can forget.
+ - The supernatural is only the natural of which the laws are not yet understood.
+ - The human face is, after all, nothing more nor less than a mask.
+ - Writing is a great comfort to people like me, who are unsure of themselves and have trouble expressing themselves properly.
+ - You gave too much rein to your imagination. Imagination is a good servant, and a bad master. The simplest explanation is always the most likely.
+ - Never do anything yourself that others can do for you.
+ - But surely for everything you have to love you have to pay some price.
+ - The popular idea that a child forgets easily is not an accurate one. Many people go right through life in the grip of an idea which has been impressed on them in very tender years.
+ - What an absurdity to go and bury oneself in South America, where they are always having revolutions.
+ - If anyone is really determined to lend you a book, you never can get out of it!
+ - Oh, I’m not afraid of death! What have I got to live for after all? I suppose you believe it’s very wrong to kill a person who has injured you-even if they’ve taken away everything you had in the world?
+ - An ugly voice repels me where an ugly face would not.
+ - The human mind prefers to be spoon-fed with the thoughts of others, but deprived of such nourishment it will, reluctantly, begin to think for itself – and such thinking, remember, is original thinking and may have valuable results.
+ - One must make one’s own mistakes.
+ - Evil never goes unpunished, Monsieur. But the punishment is sometimes secret.
+ - Never go back to a place where you have been happy. Until you do it remains alive for you. If you go back it will be destroyed.
+ - The saddest thing in life and the hardest to live through, is the knowledge that there is someone you love very much whom you cannot save from suffering.
+ - Any woman can fool a man if she wants to and if he’s in love with her.
+ - Unless you are good at guessing, it is not much use being a detective.
+ - It is really a hard life. Men will not be nice to you if you are not good-looking, and women will not be nice to you if you are.
+ - The impossible could not have happened, therefore the impossible must be possible in spite of appearances.
+ - Very few of us are what we seem.
+ - No, my friend, I am not drunk. I have just been to the dentist, and need not return for another six months! Is it not the most beautiful thought? – Poirot.
+ - Women can accept the fact that a man is a rotter, a swindler, a drug taker, a confirmed liar, and a general swine, without batting an eyelash, and without its impairing their affection for the brute in the least. Women are wonderful realists.
+ - But no artist, I now realize, can be satisfied with art alone. There is a natural craving for recognition which cannot be gain-said.
+ - I believe, Messieurs, in loyalty – to one’s friends and one’s family and one’s caste.
+ - If you love, you will suffer, and if you do not love, you do not know the meaning of a Christian life.
+ - No innocent person ever has an alibi.
+ - There are questions that you don’t ask because you’re afraid of the answers to them.
+ - I didn’t want to work. It was as simple as that. I distrusted work, disliked it. I thought it was a very bad thing that the human race had unfortunately invented for itself.
+ - Surfing is like that. You are either vigorously cursing or else you are idiotically pleased with yourself.
+ - Coffee in England always tastes like a chemistry experiment.
+ - Our weapon is our knowledge. But remember, it may be a knowledge we may not know that we possess.
+ - One is left with the horrible feeling now that war settles nothing; that to win a war is as disastrous as to lose one.
+ - Men don’t understand how their mannerisms can get on women’s nerves so that you feel you just have to snap.
+ - With method and logic one can accomplish anything.
+ - You agree – I’m sure you agree that beauty is the only thing worth living for.
+ - I’m going to marry him. And if he thinks he can get divorced and married every two or three years in the approved Hollywood fashion, well, he never made a bigger mistake in his life. He’s going to marry and stick to me.
+ - One is alone when the last one who remembers is gone.
+ - I suppose without curiosity a man would be a tortoise. Very comfortable life, a tortoise has.
+ - If you’ve had a happy childhood, nobody can take that away from you...
+ - Desperate ills need desperate remedies.
+ - The happy people are failures because they are on such good terms with themselves they don’t give a damn.
+ - Tea! Bless ordinary everyday afternoon tea!
+ - Doctors can do almost anything nowadays, can’t they, unless they kill you while they’re trying to cure you.
+ - Everybody is very much alike, really. But fortunately, perhaps, they don’t realise it. – Miss Marple.
+ - It is ridiculous to set a detective story in New York City. New York City is itself a detective story.
+ - Words are such uncertain things, they so often sound well but mean the opposite of what one thinks they do.
+ - If you confront anyone who has lied with the truth, he will usually admit it – often out of sheer surprise. It is only necessary to guess right to produce your effect.
+ - There is something about conscious tact that is very irritating.
+ - I suppose it is because nearly all children go to school nowadays and have things arranged for them that they seem so forlornly unable to produce their own ideas.
+ - Many homicidal lunatics are very quiet, unassuming people. Delightful fellows.
+ - The best time to plan a book is while you’re doing the dishes.
+ - Now I am old-fashioned. A woman, I consider, should be womanly. I have no patience with the modern neurotic girl who jazzes from morning to night, smokes like a chimney, and uses language which would make a billingsgate fishwoman blush!
+ - In my end is my beginning – that’s what people are always saying. But what does it mean?
+ - Be sure thy sin will find thee out.
+ - Women observe subconsciously a thousand little details, without knowing they are doing so. Their subconscious mind adds these little things together – and they call the result intuition.
+ - One of us in this very room is in fact the murderer.
+ - As life goes on it becomes tiring to keep up the character you invented for yourself, and so you relapse into individuality and become more like yourself everyday.
+ - You know, Emily was a selfish old woman in her way. She was very generous, but she always wanted a return. She never let people forget what she had done for them – and, that way she missed love.
+ - I often wonder why the whole world is so prone to generalise. Generalisations are seldom if ever true and are usually utterly inaccurate.
+ - One of the saddest things in life, is the things one remembers.
+ - Everyone is a potential murderer-in everyone there arises from time to time thewish to kill-though not the will to kill.
+ - When the sea goes down, there will come from the mainland boats and men. And they will find ten dead bodies and an unsolved problem on Indian Island.
+ - Your not reliable. You wouldn’t be at all a comfortable sort of person to live with.
+ - I am not mad. I am eccentric perhaps – at least certain people say so; but as regards my profession. I am very much as one says, ’all there.
+ - Every murderer is probably somebody’s old friend.
+ - Intuition is like reading a word without having to spell it out. A child can’t do that because it has had so little experience. A grown-up person knows the word because they’ve seen it often before.
+ - You’ll be glad too, when the end comes.
+ - Prisoners at the bar, have you anything to say in your defence?
+ - Everything that has existed, lingers in the Eternity.
+ - When engaged in eating, the brain should be the servant of the stomach.
+ - It’s like all those quiet people, when they do lose their tempers they lose them with a vengeance.
+ - From an early age I knew very strongly the lust to kill...
+ - That is why most great love stories are tragedies.
+ - Self-preservation’s a man’s first duty. And natives don’t mind dying, you know. They don’t feel about it as Europeans do.
+ - You cannot mix up sentiment and reason.
+ - I did not deceive you, mon ami. At most, I permitted you to deceive yourself.
+ - One must accept the fact that we have only one companion in this world, a companion who accompanies us from the cradle to the grave – our own self. Get on good terms with that companion – learn to live with yourself.
+ - There is too much tendency to attribute to God the evils that man does of his own free will. I must concede you the Devil. God doesn’t really need to punish us, Miss Barton. We’re so busy punishing ourselves.
+ - There are many things that are unbelievable. Especially before breakfast, is it not? That is what one of your classics says. Six impossible things before breakfast.
+ - You regard it as impossible that a sinner should be struck down by the wrath of God! I do not!
+ - It is a curious thought, but it is only when you see people looking ridiculous that you realize just how much you love them.
+ - The truth often does sound unconvincing.
+ - If one sticks too rigidly to one’s principles, one would hardly see anybody.
+ - I live now on borrowed time, waiting in the anteroom for the summons that will inevitably come. And then – I go on to the next thing, whatever it is. One doesn’t, luckily, have to bother about that.
+ - I am not one to rely upon the expert procedure. It is the psychology I seek, not the fingerprint or the cigarette ash.
+ - Who is there who has not felt a sudden startled pang at reliving an old experience or feeling an old emotion?
+ - I am all that there is of the most real.
+ - I always think loyalty’s such a tiresome virtue.
+ - Authors were shy, unsociable creatures, atoning for their lack of social aptitude by inventing their own companions and conversations.
+ - I can think of nothing more soul destroying in life than to persist in trying to do a thing you want desperately to do well, and to know that you are at the best second rate.
+ - I have no pity for myself either. So let it be Veronal. But I wish Hercule Poirot had never retired from work and come here to grow vegetable marrows.
+ - I know there’s a proverb which that says ‘To err is human,’ but a human error is nothing to what a computer can do if it tries.
+ - If we seek to keep the past alive, we end, I think, by distorting it.
+ - With thought, all problems can be resolved.
+ - In my experience, people who go about looking for trouble usually find it.
+ - There are more important things than finding the murderer. And justice is a fine word, but it is sometimes difficult to say exactly what one means by it. In my opinion, the important thing is to clear the innocent. – Hercule Poirot.
+ - Truth, however bitter, can be accepted, and woven into a design for living.
+ - If I were at any time to set out on a career of deceit, it would be of Miss Marple that I should be afraid.
+ - Those who never think of money need a great deal of it.
+ - There is no detective in England equal to a spinster lady of uncertain age with plenty of time on her hands.
+ - Never worry about what you say to a man. They’re so conceited that they never believe you mean it if it’s unflattering.
+ - Real evidence is usually vague and unsatisfactory. It has to be examined – sifted. But here the whole thing is cut and dried. No, my friend, this evidence has been very cleverly manufactured – so cleverly that it has defeated its own ends.
+ - Words, madmoiselle, are only the outer clothing of ideas.
+ - The urge to write one’s autobiography, so I have been told, overtakes everyone sooner or later.
+ - To care passionately for another human creature brings always more sorrow than joy; but at the same time, Elinor, one would not be without experience. Anyone who has never really loved has never really lived...
+ - More children suffer from interference than from non-interference.
+ - There is nothing more thrilling in this world, I think, than having a child that is yours, and yet is mysteriously a stranger.
+ - Nothing, I believe, is so full of life under the microscope as a drop of water from a stagnant pool.
+ - There is no question of defence. I have always acted in accordance with the dictates of my conscience. I have nothing with which to reproach myself.
+ - When a man is really in love he can’t help looking like a sheep.
+ - I do not argue with obstinate men. I act in spite of them.
+ - Most successes are unhappy. That’s why they are successes – they have to reassure themselves about themselves by achieving something that the world will notice.
+ - I continued to do arithmetic with my father, passing proudly through fractions to decimals. I eventually arrived at the point where so many cows ate so much grass, and tanks filled with water in so many hours. I found it quite enthralling.
+ - The past is the father of the present.
+ - We owe most of our great inventions and most of the achievements of genius to idleness either enforced or voluntary.
+ - When the fact doesn’t meet the theory then let go the theory.
+ - A man when he is making up to anybody can be cordial and gallant and full of little attentions and altogether charming. But when a man is really in love he can’t help looking like a sheep.
+ - I would like it to be said that I was a good writer of detective and thriller stories.
+ - It is completely unimportant. That is why it is so interesting.
+ - I like to inquire into everything. Hercule Poirot is a good dog. The good dog follows the scent, and if, regrettably, there is no scent to follow, he noses around – seeking always something that is not very nice.
+ - You have a tendency, Hastings, to prefer the least likely. That, no doubt, is from reading too many detective stories.
+ - I specialize in murders of quiet, domestic interest.
+ - Evil is not something superhuman, it’s something less than human.
+ - To count – really and truly to count – a woman must have goodness or brains.
+ - At the small table, sitting very upright, was one of the ugliest old ladies he had ever seen. It was an ugliness of distinction – it fascinated rather than repelled.
+ - There are doubtless certain unworldly people who are indifferent to money. I myself have never met one.
+ - Where do one’s fears come from? Where do they shape themselves? Where do they hide before coming out into the open?
+ - There’s nothing so dangerous for anyone who has something to hide as conversation.
+ - It is my experience that no one, in the course of conversation, can fail to give themselves away sooner or later. Everyone has an irresistible urge to talk about themselves.
+ - Hasting – There are times when it is one’s duty to assert oneself.
+ - Mr. Jesmond made a peculiar noise rather like a hen who has decided to lay an egg and then thought better of it.
+ - The out-of-date returns in due course as the picturesque.
+ - The heart of a woman who loves will forgive many blows.
+ - Bad temper is its own safety valve. He who can bark does not bite.
+ - I was thinking, that when my time comes, I should be sorry if the only plea I had to offer was that of justice. Because it might mean that only justice would be meted out to me.
+ - No sign, so far, of anything sinister – but I live in hope.
+ - Any coincidencce is worth noticing. You can throw it away later if it is only a coincidence.
+ - Don’t think. That is the wrong way to bring anything back. Let it go. Sooner or later it will flash into your mind.
+ - These little grey cells. It is up to them.
+ - Youth is a failing only too easily outgrown.
+ - To keep something wild is far more difficult than to preserve it.
+ - There’s too much tendency to attribute to God the evils that man does of his own free will.
+ - Beastly things, teeth. Give us trouble from the cradle to the grave.
+ - But I know human nature, my friend, and I tell you that, suddenly confronted with the possibility of being tried for murder, the most innocent person will lose his head and do the most absurd things.
+ - How often have I not heard a perfectly intelligent female says, in the tone of one clinching an argument, ‘Edgar says – ’ And all the time you are perfectly aware that Edgar is a perfect fool.
+ - And so could you know it if you would only use the brains the good God has given you. Sometimes I really am tempted to believe that by inadvertence, He passed you by.
+ - Things go entirely differently from the way you planned them.
+ - One place is very like another.
+ - What I feel is that if one has got to have a murder actually happening in one’s house, one might as well enjoy it, if you know what I mean.
+ - Achievement brings with it its own anticlimax.
+ - One does what one can, not what one cannot.
+ - You can only really get under anybody’s skin if you are married to them.
+ - Exactly! It is absurd – improbable – it cannot be. So I myself have said. And yet, my friend, there it is! One cannot escape from the facts.
+ - Evil is not any superhuman, but it is HUMAN.
+ - Why shouldn’t I hate her? She did the worst thing to me that anyone can do to anyone else. Let them believe that they’re loved and wanted and then show them that it’s all a sham.
+ - It’s so much nicer to be a secret and delightful sin to anybody than to be a feather in his cap.
+ - Three months seems to me quite a reasonable time to complete a book, if one can get right down to it.
+ - An appreciative listener is always stimulating.
+ - Courage is the resolution to face the unforeseen.
+ - Writers are diffident creatures – they need encouragement.
+ - It’s not a man’s working hours that are important – it’s his leisure hours. That’s the mistake we all make.
+ - I think, myself, that one’s memories represent those moments which, insignificant as they may seem, nevertheless represent the inner self and oneself as most really oneself.
+ - Curious things, habits. People themselves never knew they had them.
+ - The things young women read nowadays and profess to enjoy positively frighten me.
+ - I have a certain experience of the way people tell lies.
+ - I’m sure you have a theme: the theme of your life. You can embellish it or desecrate it, but it’s your theme, and as long as you follow it, you will experience harmony and peace of mind.
+ - When you find that people are not telling you the truth – look out!
+ - Oh, no, I’m not brave. When a thing is certain, there’s nothing to be brave about. All you can do is to find your consolation.
+ - She was a lucky woman who had established a happy knack of writing what quite a lot of people wanted to read.
+ - Juliet singles out Romeo. Desdemona claims Othello. They have no doubts, the young, no fear, no pride.
+ - In old days the public didn’t really mind much about accuracy, but nowadays readers take it upon themselves to write to authors on every possible occasion, pointing out flaws.
+ - The lure of the past came up to grab me. To see a dagger slowly appearing, with its gold glint, through the sand was romantic. The carefulness of lifting pots and objects from the soil filled me with a longing to be an archaeologist myself.
+ - Hate doesn’t last. Love does.
+ - One never quite allows for the moron in our midst.
+ - People should be interested in books, not their authors.
+ - One of the oddest things in life, as we all know, is the way that when you have heard a thing mentioned, within twenty-four hours you nearly always come across it again.
+ - I have often had occasion to notice how, where a direct question would fail to elicit a response, a false assumption brings instant information in the form of a contradiction.
+ - It is clear that the books owned the shop rather than the other way about. Everywhere they had run wild and taken possession of their habitat, breeding and multiplying, and clearly lacking any strong hand to keep them down.
+ - Does the real thing ever have the perfection of a stage performance?
+ - We are the same people as we were at three, six, ten or twenty years old. More noticeably so, perhaps, at six or seven, because we were not pretending so much then.
+ - There hung about her the restrained energy of a whiplash.
+ - The rottenness comes from within.
+ - Every man should have aunts. They illustrate the triumph of guess work over logic.
+ - There is no greater mistake in life than seeing things or hearing them at the wrong time.
+ - A great many men are mad, and no one knows it. They do not know it themselves.
+ - Until one looks back on one’s own past one fails to realise what an extraordinary view of the world a child has.
+ - I’ve a theory that one can always get anything one wants if one will pay the price. And do you know what the price is, nine times out of ten? Compromise.
+ - Bitterness leads nowhere. It turns back on itself. It is the eternal cul-de-sac.
+ - Sometimes I feel sure he is as mad as a hatter and then, just as he is at his maddest, I find there is a method in his madness.
+ - People who can be very good can be very bad too.
+ - At my time of life, one knows that the worst is usually true.
+ - Nurses – nurses, you’m all the same. Full of cheerfulness over other people’s troubles.
+ - A woman who doesn’t lie is a woman without imagination and without sympathy.
+ - The trouble with you and me, is that we don’t live in the real world. We dream of fantastic things that may never happen.
+ - I married an archeologist because the older I grow, the more he appreciates me.
+ - Wonderful things, horses. Never know what they will do, or won’t do.
+ - I’ve got an uncle myself. Nobody should be held responsible for their uncles. Nature’s little throwbacks – that’s how I look at it.
+ - He was very much a man of moods, possibly owing to what is styled the artistic temperment. I have never seen, myself, why the possession of artistic ability should be supposed to excuse a man from a decent exercise of self-control.
+ - Ideas are like everything else. They’ve got to be marketed.
+ - To win a war is as disasterous as to lose one.
+ - It is odd how, when you have a secret belief of your own which you do not wish to acknowledge, the voicing of it by someone else will rouse you to a fury of denial.
+ - Crime is terribly revealing. Try and vary your methods as you will, your tastes, your habits, your attitude of mind, and your soul is revealed by your actions.
+ - It’s very inconvenient to be loved. Nearly everyone has found that out, sooner or later. The fewer people who love you the less you will have to suffer.
+ - I’ve always noticed that if you speak the truth in a rather silly way nobody believes you.
+ - What good is money if it can’t buy happiness?
+ - The contemporary historian never writes such a true history as the historian of a later generation.
+ - I’ve always believed in writing without a collaborator, because where two people are writing the same book, each believes he gets all the worry and only half the royalties.
+ - What they need is a little immorality in their lives. Then they wouldn’t be so busy looking for it in other people’s.
+ - I always take abroad with me one really good soft pillow – to me it makes all the difference between comfort and misery.
+ - And if you cast down an idol, there’s nothing left.
+ - Of course I despise money when I haven’t got any. It’s the only dignified thing to do.
+ - Things never come when they are expected.
+ - Very unfortunately, she had no husband. She had never had a husband, and therefore did not kill a husband.
+ - One knows so little. When one knows more it is too late.
+ - And, of course, afterwards – one always hears these things afterwards, so much better if one heard them before – we found out that dozens of empty brandy bottles were taken out of the house every week!
+ - The whole thing was like a nine-month ocean voyage to which you never got acclimatized.
+ - To feel admiration for a man all through one’s married life would, I think, be excessively tedious.
+ - It’s a mystery to me how anyone ever gets any nourishment in this place. They must eat their meals standing up by the window so as to be sure of not missing anything.
+ - I can’t imagine why everybody is always so keen for authors to talk about writing. I should have thought it was an author’s business to write, not talk.
+ - They tried to be too clever – and that was their undoing.
+ - Everything has got its right size. When it is its right size and well run it’s the tops.
+ - You’re shocked, Mr. Burton, at hearing what our gossiping little town thinks. I can tell you this – they always think the worst!
+ - Time does not dispose of a question – it only presents it anew in a different guise.
+ - Never tell all you know – not even to the person you know best.
+
+266 quotes

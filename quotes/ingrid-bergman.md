@@ -1,0 +1,42 @@
+ - Be yourself. The world worships the original.
+ - Getting old is like climbing a mountain; you get a little out of breath, but the view is much better!
+ - You must train your intuition – you must trust the small voice inside you which tells you exactly what to say, what to decide.
+ - I hate Sunday, I can’t wait for Monday so I can go back to work again.
+ - I was the shyest human ever invented, but I had a lion inside me that wouldn’t shut up!
+ - One is never too old for romance.
+ - A kiss is a lovely trick designed by nature to stop speech when words become superfluous.
+ - Happiness is good health and a bad memory.
+ - Thank you for your coffee, seignior. I shall miss that when we leave Casablanca.
+ - A kiss is a secret told to the mouth instead of the ear; kisses are the messengers of love and tenderness.
+ - I regret the things I didn’t do, not what I did.
+ - I don’t worry about it because we are all growing old. If I were the only one I would worry. But we’re all in the same boat, and all of my friends are coming with me. We all go toward old age. How many years left we don’t know. We just have to accept it.
+ - I always felt guilty. My whole life.
+ - If you took acting away from me, I’d stop breathing.
+ - I’ve never sought success in order to get fame and money; it’s the talent and the passion that count in success.
+ - I remember one day sitting at the pool and suddenly the tears were streaming down my cheeks. Why was I so unhappy? I had success. I had security. But it wasn’t enough. I was exploding inside.
+ - Give me an hour and I’ll make a lifetime out of it.
+ - I thank God who slowly dressed me in a heavy skin, otherwise I would now be dead.
+ - I have no regrets. I wouldn’t have lived my life the way I did if I was going to worry about what people were going to say.
+ - Cancer victims who don’t accept their fate, who don’t learn to live with it, will only destroy what little time they have left.
+ - On acting to daughter Isabella Rossellini: Keep it simple. Make a blank face and the music and the story will fill it in.
+ - Never again! I can see no reason for marriage – ever at all. I’ve had it. Three times is enough.
+ - It is not whether you really cry. It’s whether the audience thinks you are crying.
+ - The best way to keep young is to keep going in whatever it is that keeps you going. With me that’s work, and a lot of it. And when a job is finished, relax and have fun.
+ - Just give the Italians a chance for drama and they take it with both hands.
+ - Time is shortening. But every day that I challenge this cancer and survive is a victory for me.
+ - I don’t think anyone has the right to intrude in your life, but they do. I would like people to separate the actress and the woman.
+ - There’s nothing like a love song to give you a good laugh.
+ - Until 45 I can play a woman in love. After 55 I can play grandmothers. But between those ten years, it is difficult for an actress.
+ - In Hollywood, you’re never any better than your last picture.
+ - There are advantages to being a star though – you can always get a table in a full restaurant.
+ - The first time an autograph hunter told me, ‘You are my mother’s favorite actress,’ I aged twenty years.
+ - I’m only interested in two kinds of people, those who can entertain me and those who can advance my career.
+ - I didn’t choose acting. It chose me.
+ - I can do everything with ease on the stage, whereas in real life I feel too big and clumsy. So I didn’t choose acting. It chose me.
+ - I have had my different husbands, my families. I am fond of them all and I visit them all. But deep inside me there is the feeling that I belong to show business.
+ - I do not know how to kiss, or I would kiss you. Where do the noses go?
+ - I made so many films which were more important, but the only one people ever want to talk about is that one with Bogart.
+ - The theater was my mother and my father.
+ - I have grown up alone. I’ve taken care of myself. I worked, earned money and was independent at 18.
+
+40 quotes

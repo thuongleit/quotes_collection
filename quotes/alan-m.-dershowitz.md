@@ -1,0 +1,102 @@
+ - Question authority; but, raise your hand first.
+ - It is difficult to offend a New Yorker.
+ - A good lawyer knows how to shut up when he’s won his case.
+ - I have always considered “Pascal’s Wager” a questionable bet to place. Any God worth “believing in” would surely prefer an honest agnostic to a calculating hypocrite.
+ - There are two kinds of terrorism. Rational terrorism such as Palestinian terrorism and apocalyptic terrorism like Sept. 11. You have to distinguish between the two.
+ - A library is a place where you learn what teachers were afraid to teach you.
+ - Freedom of speech means freedom for those who you despise, and freedom to express the most despicable views. It also means that the government cannot pick and choose which expressions to authorize and which to prevent.
+ - I learn from experience.
+ - The defendant wants to hide the truth because he’s generally guilty. The defense attorney’s job is to make sure the jury does not arrive at that truth.
+ - I came from a poor family, so working and going to school at the same time was natural. It taught me multi-tasking, although we didn’t call it that back then. I learned I could never be idle, I need to be doing many things at once.
+ - You’re absolutely right: Bob Grant is a racist, Bob Grant is a bigot, he’s a despicable talk show host and I agree with that.
+ - Nobody wants justice.
+ - Censorship laws are blunt instruments, not sharp scalpels. Once enacted, they are easily misapplied to merely unpopular or only marginally dangerous speech.
+ - We have to fulfill what the real meaning of the Second Amendment is: reasonable access to guns for self-protection and for hunting. And there’s no room in America for these semiautomatic, automatic and other kinds of weapons that are simply designed to cause mass havoc.
+ - I’ve had such a satisfying life professionally and personally. I hope my tombstone says, ‘Never boring.’
+ - When you discriminate against anyone, you discriminate against everyone. It’s a display of terrible intolerance.
+ - The best answer to bad speech is good speech.
+ - The Internet knows no national borders.
+ - It’s never acceptable to target civilians. It violates the Geneva Accords, it violates the international law of war and it violates all principles of morality.
+ - I think mistakes are the essence of science and law. It’s impossible to conceive of either scientific progress or legal progress without understanding the important role of being wrong and of mistakes.
+ - We don’t have an Official Secrets Act in the United States, as other countries do. Under the First Amendment, freedom of the press, freedom of speech, and freedom of association are more important than protecting secrets.
+ - Good character consists of recognizing the selfishness that inheres in each of us and trying to balance it against the altruism to which we should all aspire. It is a difficult balance to strike, but no definition of goodness can be complete without it.
+ - In today’s distorted world of ‘human rights,’ truth takes a back seat to ideology, and false claims – especially those that ‘support’ radical ideologies – persist even after they have been exposed.
+ - Asymmetrical warfare is a euphemism for terrorism, just like collateral damage is a euphemism for killing innocent civilians.
+ - Hypocrisy is not a way of getting back to the moral high ground. Pretending you’re moral, saying your moral is not the same as acting morally.
+ - The worst mistake you can make is underrating your enemy. Assuming that they’re evil – I think it’s a terrible thing to do.
+ - In the real world in which we live, you always have to choose between evils. And in choosing between evils, you have to have moral criteria for how to make those choices.
+ - I think we have to give religion its due. I think we have to respect those for whom religion is important, but equally respect those who can achieve good morality without religion.
+ - Our First Amendment expresses a far different calculus for regulating speech than for regulating nonexpressive conduct and that is as it should be. The right to swing your fist should end at the tip of my nose, but your right to express your ideas should not necessarily end at the lobes of my ears.
+ - The threat or fear of violence should not become an excuse or justification for restricting freedom of speech.
+ - Judges are the weakest link in our system of justice, and they are also the most protected.
+ - For most people, the question why be good – as distinguished from merely law abiding – is a simple one. Because God commands it, because the Bible requires it, because good people go to Heaven and bad people go to Hell.
+ - I understand that it’s good tactics to categorize me as a close-minded, unobjective extremist, but nobody that respects me has those views.
+ - Great research universities must insist on independence from government and on the exercise of academic freedom.
+ - In my neighborhood, everyone had an opinion on the local cantor. You didn’t go to a synagogue to listen to the rabbi’s sermon. You went to listen to the cantor. It was like a concert.
+ - I love discomfort. I mean, my whole life is discomfort. One reason I can never retire is that the idea of just sitting on the beach totally comfortable is not a desideratum in my life. I like ambiguity, I like conflict, I like uncertainly.
+ - The law is agnostic about truth. It’s very skeptical of ultimate truth. That’s why freedom of speech permits lies to be told.
+ - I love to play. I love, opera, hiking and museums. The one thing I don’t do is sit. I have a tremendous amount of energy.
+ - The struggle for morality never stays won. It’s always in process.
+ - All sides in a trial want to hide at least some of the truth.
+ - Doing something because God has said to do it does not make a person moral: it merely tells us that person is a prudential believer, akin to the person who obeys the command of an all-powerful secular king.
+ - Candor and accountability in a democracy is very important. Hypocrisy has no place.
+ - There will never be another Ed Koch. He was an original, but he represented a significant, if shrinking, segment of American Jewry who refused to compromise their liberal values, their support for Israel or their Jewish pride.
+ - Laws are important precisely because in a democracy they reflect the attitudes and aspirations of those they govern.
+ - No country in the history of the world has ever contributed more to humankind and accomplished more for its people in so brief a period of time as Israel has done since its relatively recent rebirth in 1948.
+ - There’s simply nothing in there that would justify second degree murder.
+ - The court of last resort is no longer the Supreme Court. It’s ‘Nightline.’
+ - I was critical of race-based affirmative action early on in my career and I’ve changed my mind. And I’ve publicly acknowledged that I was wrong.
+ - There are many levels of truth.
+ - The vast majority of gun owners don’t kill, but people who do kill, tend to kill with guns, and often with illegal guns.
+ - I’ve thought hard about my psychological connections and I think I’ve managed to separate out the psychological from the legal, moral, and political.
+ - If you’re a prosecutor, and you believe the defendant is guilty, you only talk about ultimate truth, but not intermediate truth. If you’re the defense attorney, you care deeply about intermediate truth, but you tend to neglect ultimate truth.
+ - I have been defending Israel’s right to exist, and to defend itself against terrorism, for many years-on college campuses, in television appearances and in debate.
+ - I read in the newspaper that the Catholic Church finally decided that it had been theologically improper to try to convert the Jews. Whoops! Sorry for all those inquisitions, crusades, and autos-da-fe. Previous popes were wrong – infallible, perhaps, but wrong.
+ - Ideas don’t desert you; ideas aren’t treasonous to you, but people can be.
+ - If torture is going to be administered as a last resort in the ticking-bomb case, to save enormous numbers of lives, it ought to be done openly, with accountability, with approval by the president of the United States or by a Supreme Court justice.
+ - Accusations fit on Greenwald really sounds like he’s against all surveillance unless you can find a guy with the Al Qaeda card, wearing an Al Qaeda baseball cap, an Al Qaeda uniform.
+ - I think there would be less torture with a warrant requirement than without one.
+ - I was a Jewish rabbinical student for 12 years, and studied the Bible all the time.
+ - The Israeli military plays more than a critical role in defending the citizens of the Jewish state. It also plays an important social, scientific and psychological role in preparing its young citizens for the challenging task of being Israelis in a difficult world.
+ - Being offended by freedom of speech should never be regarded as a justification for violence.
+ - It simply cannot be disputed that for decades the Palestinian leadership was more interested in there not being a Jewish state than in there being a Palestinian state.
+ - What the United States has to do is send a clear message to Iran that they will not be able to develop nuclear weapons. Why endure the difficulty of sanctions if they are not going to be able to develop nuclear weapons anyway?
+ - All religions and cultures suffer from sources that preach hate against the ‘other.’ Throughout history some have, tragically, practiced what their sources preached, while some have sought to dismiss or even counteract the hateful words of their sources.
+ - I tell my students, if you ever become comfortable with your role as criminal defense lawyer, it’s time to quit. It should be a constant source of discomfort, because you’re dealing with incredible moral ambiguity, and you’ve been cast into a role which is not enviable.
+ - My goal is always to keep support for Israel a bi-partisan issue and never make a national election any kind of referendum on Israel.
+ - Most liberal democracies don’t try to figure out what the truth is.
+ - Israel and the Palestinians must resolve their own differences. The United States can play an important role as facilitator and guarantor.
+ - I am a peace supporting Jew.
+ - There is a paranoid streak in American life. Radio talk show hosts tend to foment that paranoid streak in American life.
+ - I know Obama, I like Obama, I voted for Obama.
+ - Twenty five percent of Israeli citizens are not even Jewish. Anybody can become an Israeli citizen if you qualify. Religion is not a criterion for citizenship.
+ - Well, many insane people and seriously mentally ill people seem very reasonable.
+ - Rights are not self-evident. They’re not unalienable. They are subject to modification just like anything else.
+ - A state has the right to prohibit the killing of dogs and bears whether for film or for other purposes.
+ - I’m not a single-issue person, but I spend so much time on Israel because it is so unfairly condemned around the world.
+ - Scientists search for truth. Philosophers search for morality. A criminal trial searches for only one result: proof beyond a reasonable doubt.
+ - The first rule for escaping prison in the United States is always having someone more important than yourself to incriminate.
+ - I feel like my 50 years at Harvard were an interlude. I’m really a New Yorker.
+ - Well, first of all, no professor should be able to say, I refuse to defend my position. I refuse to debate my position.
+ - If America has the right to target Osama bin Laden, or terrorists, of course Israel has the right to defend itself from terrorism.
+ - When I was 14 or 15, a camp counselor told me I was smart. I had never been very good in school, but he told me once that I was smart but my mind operated a little differently.
+ - The law is agnostic about truth.
+ - This is not about celebrity justice, this is about the rights of the children.
+ - President Obama has earned my vote on the basis of his excellent judicial appointments, his consensus-building foreign policy and the improvements he has brought about in the disastrous economy he inherited.
+ - I think that lawyers are terrible at admitting that they’re wrong. And not just admitting it – also realizing it.
+ - I generally don’t select my chicken or my hamburgers based on the personal ideology of the person who is either flipping the hamburgers or making the money back at corporate headquarters. But if people want to do that, they’re free to do it.
+ - The Second Amendment has no place in modern society.
+ - Any human being has private thoughts.
+ - I’ve thought of publishing a book of my hate mail, but I don’t own the rights to the letters.
+ - A criminal trial is never about seeking justice for the victim. If it were, there could be only one verdict: guilty.
+ - There’s no evidence that I’m aware of that guns protect liberty.
+ - Individuals have the right to pick and choose which expressions to condemn, which to praise and which to say nothing about. Governments, however, must remain neutral as to the content of expression. And governments must protect the rights of all to express even the most despicable of views.
+ - Imagine a legal system in which lawyers were equated with the clients they defended and were condemned for representing controversial or despised clients.
+ - I don’t believe in firing professors. They have academic freedom.
+ - I think extremists within the base may very well move the Democratic party away from its pro-Israel position.
+ - I think that lawyers are terrible at admitting that they’re wrong. And not just admitting it; also realizing it. Most lawyers are very successful, and they think that because they’re making money and people think well of them, they must be doing everything right.
+ - The prosecution wants to make sure the process by which the evidence was obtained is not truthfully presented, because, as often as not, that process will raise questions.
+ - I charge my wealthy clients a lot and put 10 per cent in a fund which I use to pay the expenses of my poorer clients. When the government gangs up on the poor schnook in the street, someone has to stand up for him.
+ - All speech should be presumed to be protected by the Constitution, and a heavy burden should be placed on those who would censor to demonstrate with relative certainty that the speech at issue, if not censored, would lead to irremediable and immediate serious harm.
+
+100 quotes

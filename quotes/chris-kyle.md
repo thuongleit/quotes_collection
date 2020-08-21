@@ -1,0 +1,49 @@
+ - I’m just trying to get back to normal life.
+ - I really don’t care what people think of me. I’ve got my family. I’ve got my friends. Yes, I have been trained to be a little more aggressive if I need to be, but I don’t go around thumping people.
+ - Im not a redneck, Im from Texas.
+ - I’m willing to meet my creator and answer every shot that I took.
+ - I don’t know if I’m the best of the best. But I did know that if I quit, I wouldn’t be.
+ - I’ve lived the literal meaning of the ‘land of the free’ and ‘home of the brave.’ It’s not corny for me. I feel it in my heart. I feel it in my chest. Even at a ball game, when someone talks during the anthem or doesn’t take off his hat, it pisses me off. I’m not one to be quiet about it, either.
+ - People tell me I saved hundreds and hundreds of people. But I have to tell you: it’s not the people you saved that you remember. It’s the ones you couldn’t save. Those are the ones you talk about. Those are the faces and situations that stay with you forever.
+ - In my experience, Marines are gung ho no matter what. They will all fight to the death. Everyone of them just wants to get out there and kill. They are bad-ass, hard-charging mothers.
+ - I don’t shoot people with Korans. I’d like to, but I don’t.
+ - I did want to be the top sniper.
+ - It is our duty to serve those who serve us.
+ - It was my duty to shoot the enemy, and I don’t regret it. My regrets are for the people I couldn’t save: Marines, soldiers, buddies. I’m not naive, and I don’t romanticize war. The worst moments of my life have come as a SEAL. But I can stand before God with a clear conscience about doing my job.
+ - Just because war is hell doesn’t mean you can’t have a little fun.
+ - It’s not a problem taking out someone who wants your people dead. That’s not a problem at all.
+ - But in that backroom or whatever it is when God confronts me with my sins, I do not believe any of the kills I had during the war will be among them. Everyone I shot was evil. I had good cause on every shot. They all deserved to die.
+ - Every person I killed I strongly believe that they were bad. When I do go face God there is going to be lots of things I will have to account for but killing any of those people is not one of them.
+ - You have to slow your heart rate, stay calm. You have to shoot in between your heartbeats.
+ - But real life doesn’t travel in a perfect straight line; it doesn’t necessarily have that ‘all lived happily ever after’ bit. You have to work on where you’re going.
+ - I’m just trying to be the me that I am and not all of this other crap. I just want to be the family man, and if somehow I can make the money to get my ranch and get the hell away from everybody else, that would be awesome.
+ - I thought I should be stronger than was possible.
+ - Maybe war isn’t really fun, but I certainly was enjoying it.
+ - I really don’t care what people think of me.
+ - In the end, my story, in Iraq and afterward, is about more than just killing people or even fighting for my country. It’s about being a man. And it’s about love as well as hate.
+ - I am not a fan of politics.
+ - I’m trying to raise the awareness of the troops that, when they deploy and go to war, it’s not just them at war – it’s also their family. Their family is having to go through all the hardships and the stresses.
+ - Great way to fight a war – be prepared to defend yourself for winning.
+ - Savage, despicable evil. That’s what we were fighting in Iraq. That’s why a lot of people, myself included, called the enemy ‘savages.’ There really was no other way to describe what we encountered there.
+ - The Navy credits me with more kills as a sniper than any other American service member, past or present.
+ - It’s funny – sometimes the strongest individuals feel the worst when events are out of their control, and they can’t really be there for the people they love. I’ve felt it myself.
+ - I don’t have to psych myself up, or do something special mentally – I look through the scope, get my target in the cross hairs, and kill my enemy, before he kills one of my people.
+ - Savage, despicable evil. That’s what we were fighting in Iraq.
+ - I have a master chief that always said, punch and run.
+ - What wounded veteran’s don’t need is sympathy. THey need to be treated like the men they are: equals, heroes, and people who still have tremendous value for society.
+ - I am a much better father and husband than I ever was a sniper.
+ - But I wondered, how would I feel about killing someone? Now I know. It’s no big deal.
+ - One was to be a cowboy and another was to be in the military. I grew up extremely patriotic and riding horses.
+ - No, the best way to stop a vehicle is to shoot the driver. And that you can do with a number of weapons.
+ - You’re not just going out there, maybe sacrificing your own life. There’s also sacrifices still going on at home. You can serve in the military and have a good marriage, but you just need to be aware of it so you can take those steps to take care of it.
+ - Other people are talking about writing books about my life, or about some of the things I’ve done. I find it strange, but I also feel it’s my life and my story, and I guess I better be the one to get it on paper the way it actually happened.
+ - Decades of Saddam’s rule made what could have been a fairly rich country, due to its oil reserves, into a very poor one.
+ - None of my problems come from the people I’ve killed.
+ - The rules are drawn up by lawyers who are trying to protect the admirals and generals from the politicians; they’re not written by people who are worried about the guys on the ground getting shot.
+ - I just want to get the bad guys but if I can’t see them, I can’t shoot them.
+ - There’s no reason someone who has fought for their country should be homeless of jobless.
+ - The media cause more problems than they do good.
+ - I would love for people to be able to think of me as a guy who stood up for what he believed in and helped make a difference for the vets.
+ - If you see anyone from about sixteen to sixty-five and they’re male, shoot ’em. Kill every male you see.
+
+47 quotes

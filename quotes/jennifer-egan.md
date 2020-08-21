@@ -1,0 +1,69 @@
+ - There’s a fine line between thinking about somebody and thinking about not thinking about somebody, but I have the patience and the self-control to walk that line for hours – days, if I have to.
+ - I’m sorry and I believe in you and I’ll always be near you, protecting you, and I will never leave you, I’ll be curled around your heart for the rest of your life.
+ - I don’t want to fade away, I want to flame away – I want my death to be an attraction, a spectacle, a mystery. A work of art.
+ - Read at the level at which you want to write. Reading is the nourishment that feeds the kind of writing you want to do.
+ - It’s finished. Everything went past, without me.
+ - I listened to classic rock and roll, and punk rock. ‘Goon Squad’ provides a pretty accurate playlist of my teenage years, though it leaves out ‘The Who,’ which was my absolute favorite band.
+ - There are so many ways to go wrong. All we’ve got are metaphors, and they’re never exactly right. You can never just Say. The. Thing.
+ - Redemption, transformation – God how she wanted these things. Every day, every minute. Didn’t everyone?
+ - I guess in my own life, privacy, anonymity, and the mystery of being lost are important. I also feel that people are mysterious and complex no matter what they do, and no matter how hard they try to reveal their own mystery.
+ - That we have some history together that hasn’t happened yet.
+ - She’d risked everything, and here was the result: the raw, warped core of her life.
+ - I’m a dogged person. I respond to adversity with a steely resistance.
+ - Her only thought was of getting away, as if she were carrying a live grenade from inside the house, so that when it exploded, it would destroy just herself.
+ - I am at my worst trying to write about things that overlap with my life.
+ - The problem was precision, perfection; the problem was digitization, which sucked the life out of everything that got smeared through its microscopic mesh.
+ - Kissing Mother Superior, incompetent, hairball, poppy seeds, on the can.
+ - The sky was electric blue above the trees but the yard felt dark. Stephanie went to the edge of the lawn and sat her forehead on her knees. The grass and soil were still warm from the day. She wanted to cry but she couldn’t. The feeling was too deep.
+ - The world is full of shitheads, Rhea. Don’t listen to them – listen to me. And I know that Lou is one of those shitheads. But I listen.
+ - I can’t tell if she’s actually real, or if she’s stopped caring if she’s real or not. Or is not caring what makes a person real?
+ - Rich children are always blond, Jocelyn goes. It has to do with vitamins.
+ - But it was another girl, young and new to the city, fiddling with her keys.
+ - Now that Scotty has entered the realm of myth, everyone wants to own him. And maybe they should. Doesn’t a myth belong to everyone?
+ - It’s turning out to be a bad day, a day when the sun feels like teeth.
+ - We live in a moment and a culture when reading is really endangered. There’s simply no way to write well, though, if you’re not reading well.
+ - I hope to keep writing journalism as long as I write fiction; it’s afforded me such amazing adventures and opportunities. It does take a lot of time, so it’s hard to do both at once, but I try to do a big journalism piece every couple of years, and I’ll hopefully continue with that.
+ - She looks like someone I want to know, or maybe even be.
+ - When does a fake Mohawk become a real Mohawk? Who decides? How do you know if it’s happened?
+ - I think the one thing that’s changed over time is that I’ve come to realise, as a fiction writer, the fact that I don’t think it will work out, doesn’t mean that it actually won’t.
+ - I was a stepchild in two different families. The hardest thing about being a stepchild is you know that in some way everything would be easier if you didnt exist.
+ - Oh we’ll know each other forever, Bix says. The days of losing touch are almost gone.
+ - Everybody sounds stoned, because they’re e-mailing people the whole time they’re talking to you.
+ - I think ethical ambivalence is a kind of innoculation, a way of excusing yourself in advance for something you actually want to do. No offense.
+ - I think, The world is actually huge. That’s the part no one can really explain.
+ - Kathy was a Republican, one of those people who used the unforgivable phrase “meant to be” – usually when describing her own good fortune or the disasters that had befallen other people.
+ - Everyone we’ve lost, we’ll find. Or they’ll find us.
+ - This is the music business. ‘Five years is five hundred years’ – your words.
+ - The music industry is an interesting lens through which to look at change, because it has had such a difficult time adjusting to the digital age.
+ - The answers were maddeningly absent – it was like trying to remember a song that you knew made you feel a certain way, without a title, artist, or even a few bars to bring it back.
+ - Too clear, too clean. The problem was precision, perfection;.
+ - Vinegar: that’s what fear smells like.
+ - He looks tired, like someone walked on his skin and left footprints.
+ - I know I’m famous and irresitible – a combination whose properties closely resemble radioactivity – and I know that you in this room are helpless against me.
+ - I think, for one thing, all of us remember those teenage years and those songs that we fell in love with and the music scene that we were part of. So, in a certain way, music cuts through time like almost nothing else. You know, it makes us feel like we’re back in an earlier moment.
+ - Americans are less selfish than some of our politicians believe and will respond with reason and resilience to passionate clarity.
+ - No one is waiting for me. In this story, I’m the girl no one is waiting for.
+ - I felt more doubtful than usual with ‘Goon Squad,’ because I knew that the book’s genre wasn’t easily named – Novel? Stories? Novel-in-stories? – and I worried that its lack of a clear category would count against it. My hopes for it were pretty modest.
+ - Structural dissatisfaction: Returning to circumstances that once pleased you, after having experienced a more thrilling or opulent way of life, and finding that you can no longer tolerate them.
+ - Because you can’t write habitually and well all the time, you have to be willing to write badly. That’s how you get the regularity that enables you to be present for the good stuff.
+ - Nineteen eighty is almost here, thank God. the hippies are getting old, they blew their brains on acid and now they’re begging on street corners all over San Francisco. Their hair is tangled and their bare feet are thick and gray as shoes. We’re sick of them.
+ - Technology makes everyone feel old. A laptop is old after two years. Someone always has something newer. Everyone seems to feel obsolete now, even the young.
+ - The bottom line is that I like my first drafts to be blind, unconscious, messy efforts; that’s what gets me the best material.
+ - If I had a view like this to look down on every day, I would have the energy and inspiration to conquer the world. The trouble is, when you most need such a view, no one gives it to you.
+ - I haven’t had writer’s block. I think it’s because my process involves writing very badly.
+ - That adage about ‘Write what you know’ is basically the opposite of the way I function. I write about what I’m curious to find out.
+ - One area I have a huge amount of trouble in is writing about myself. I get a heavy, almost depressed feeling.
+ - Like all failed experiments, that one taught me something I didn’t expect: one key ingredient of so-called experience is the delusional faith that it is unique and special, that those included in it are privileged and those excluded from it are missing out.
+ - I had this idea that I could hire myself out as a person to go on archeological digs and dig, without any training! I actually wrote to a number of archeology departments and offered up my services.
+ - If you don’t have people that the reader cares about and stories that are gripping, you’ve got nothing.
+ - And Alex understood that Scotty Hausmann did not exist. He was a word casing in human form: a shell whose essence has vanished.
+ - There’s something very strange about associating me with that prize. I had hoped for it in a more directed way as a journalist. Somehow as a journalist you know there are Pulitzers out there and you can work hard and get one. To win it for Fiction seems unbelievable.
+ - A sense of that kind of narrative movement that we experience online could have been in my mind easily, though not consciously. I do rely so much on my unconscious, the way I write my stuff the way I do. I let my unconscious work. I have better ideas that way and more interesting work.
+ - What he needed was to find fifty more people like him, who had stopped being themselves without realizing it.
+ - Even the financial disclosure statements that political bloggers were required to post hadn’t stemmed the suspicion that people’s opinions weren’t really their own. “Who’s paying you?” was a retort that might follow any bout of enthusiasm, along with laughter – who would let themselves be bought?
+ - I’ve never been that confident. I don’t tend to think, swaggeringly, I’m going to ace this. It’s just not who I am.
+ - I don’t really know where my ideas come from. I start with a time and a place. That’s what I need to get started, and an intellectual question.
+ - It was the hat. He looked sweet in the hat. How could a man in a fuzzy blue hat have used human bones to pave his roads?
+ - I wonder what Proust would have made of our present-day locus of collective fantasy, the Internet. I’m guessing he would have seized on its wistful aspect, pointing out gently and with wry humor that much of what beguiles us is the act of reaching for what isn’t there.
+
+67 quotes

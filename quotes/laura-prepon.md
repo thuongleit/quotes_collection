@@ -1,0 +1,59 @@
+ - I’m not a sun person.
+ - I love being a redhead. It’s a rare thing, so I think there’s a bond between redheads.
+ - For some reason, I like to put myself in situations where I don’t even know how I ended up there. I never want to be complacent or comfortable in a role.
+ - There’s nothing you could say that would shock me.
+ - Free love sounds great.
+ - The fact that anyone would find me sexy is very, very flattering, but ridiculous. I so don’t believe it. But I’m flattered. Truth is, I don’t lift a finger to look sexy. Ever.
+ - Food nourishes you, brings people together, and I feel that anybody can bond over food.
+ - Well, I had done nudity in one other thing, but nudity for an actress is a very particular thing. It has to do with the material, and making sure it’s not gratuitous, that it’s done in a way that’s shot beautifully, and it’s for a reason. And I’d never played a lesbian before.
+ - Whenever there’s a nude scene, it’s always uneasy. You’re not in the comfort of your own home with your significant other.
+ - It was really cool because you can tell that she directs in a way that she wants to be spoken to, as an actress. That’s really nice, and you appreciate that. Dealing with the actors was more important to her than anything else, which was really nice.
+ - I’m the type of person that will do triple sessions in one day. I’ll do Pilates, I’ll do spinning, and then I’ll go to the gym and do weights – which is insane.
+ - Every girl on TV, in real life, sure you want to meet that soul mate and fall in love and have the big thing, but until that happens, you gotta kiss a lot of frogs.
+ - When you work with an actor, it’s cool because they know what it’s like to be directed themselves. Jodie directed a scene with me and Taylor that was when she starts talking to me again in prison and it’s our first actual confrontation that we have, where some stuff comes out.
+ - In any character I ever play, whether she’s good or bad or whatever, my most important thing is heart.
+ - I’m obsessed with ‘Homeland.’ It’s not even okay.
+ - Food is a passion because I basically grew up in a kitchen. My mother was a gourmet chef and I’m the youngest of five kids. We would always congregate in the kitchen.
+ - Acting wasn’t even in my world at all. My oldest sister worked at ‘Glamour’ magazine and said I should model, but I had no interest.
+ - The main thing I learned doing love scenes with a woman was, if it’s there, it’s there.
+ - I’ve realized how important it is to have women in your life. You get to a certain age where you’re like, ‘I need women around.’
+ - They have to be able to spark my interest so I want to pursue it, and they have to have an awesome personality, really laid-back. All those things are sexy to me.
+ - You can always turn a bad kisser into a good one.
+ - My fitness routine includes things that are not stressful on my body – swimming, yoga, stretching, and rebounding. When I used to kill myself in the gym, it had an adverse effect on me because my body would be so stressed out and constantly in fight-or-flight mode.
+ - I like to think I’ll just be walking down the street one day and stop and meet someone, like, ‘Oh my God, you’re awesome,’ and then we start dating.
+ - I used to wear boxers and a tank top, but now I sleep in the nude. It’s kind of weird, because I used to have to wear something to bed, whether it was a tank top or whatever. And now if I have any clothes at all on, it’s really hard to get to sleep.
+ - I eat super clean and am always watching what I eat.
+ - The thing that sucks is that there’s so much false data because people are in mystery as to what Scientology is, so they just kind of make up stuff.
+ - I’ve never played a manipulative, drug-smuggling lesbian before. For me, it’s pushing me in an area that’s great. There are days when I’d read the script and I’d be like, “Oh, God, I can’t believe I have to do that.”
+ - I’m the tomboy so I got to be a little butch.
+ - The worst diets are ones that restrict your calories too much and try to trick your body. You have no energy, and it’s ridiculous.
+ - Here’s the thing – Making out with a girl on camera – they’re beautiful and soft, and I get why you guys are into it.
+ - When you eat pure food that isn’t genetically modified, your physical and mental state does improve and it’s worth the effort to make that happen.
+ - There’s a particular hierarchy in the prison – class distinctions, high-school cliques. You have to learn how to navigate.
+ - As actresses, our schedules are really wonky and we work weird hours. For me, personally, I watch pretty much everything on Netflix, and I watch all the episodes in a row, when I can. I don’t really watch much of any live TV anymore, and I feel like a lot of people are doing that now.
+ - When you’re in prison, there’s no hiding. These women are not hiding behind towels and shower curtains. They go to the bathroom with no doors on the stalls. It would actually look weird, if these women were hiding.
+ - It’s cool because you get to see that some of these women are there because they should be. They’re actually not good people to be in society. And then, other people are there because they just made a really retarded mistake.
+ - My vintage Levi’s are my favorite on the show, ’cause they really fit.
+ - Modest. When they meet me, they think I’m going to be outgoing, but I like things low-key. I don’t like people to think I’m bragging.
+ - When you’re in prison, and we’re left to our own devices, you’re stripped of everything, and you really get to see who these people are, the good and the bad.
+ - The first acting I ever did was an Italian commercial. Once I did that, I said, ‘this acting thing is awesome.’
+ - I don’t want to do anything like Can’t Hardly Wait, I don’t want to do anything like Scream. I saw all those movies, and they were good, but they’re just not what I want to do.
+ - My family was very unorthodox. My mother was very eccentric and amazing. She always treated us like adults.
+ - What’s great is that a lot of us are playing so against type in this, and it’s awesome. All of the writers put faith in the fact that we know what we’re doing. We have creative freedom, and it’s awesome. I think it all worked out. Everybody on the show is so good.
+ - Even in real life, I’d rather hang out with guys.
+ - I don’t know how people recognize me.
+ - I get to wake up and do what I love every day and I don’t take that for granted. I feel grateful for it every day.
+ - People in general have a preconceived idea of what prison is, from seeing documentaries or whatever.
+ - I always have really fresh, hormone-free, additive-free chicken, healthy veggies, and brown rice in the fridge to grab because I’m always on the go.
+ - Well, the clothes are really cool that we wear. The sets are so funny, because it’s like everything is so real.
+ - On a lot of shows that I’ve done, we had the same directors, which was cool. But then, it’s also great to do shows where the director changes every week because you get to see all these different personalities and see what you like dealing with better, as an actor. But, Jodie was amazing.
+ - When you’re not under a ‘series regular’ contract, and other jobs come up, you try to juggle everything.
+ - Netflix is amazing ’cause they trust the creator to do their job, and they trust us to do our job. They’re really smart and just let us do our thing and deliver a great job.
+ - I love entertaining and doing Martha Stewart stuff.
+ - But, I swear, they’re turning Donna into Annie Hall this season. More ties. More suits. But they’re also keeping her really motivated, ya know? Like, wanting to be a rock journalist. Wanting to be the first woman president.
+ - But now that I’m a blonde, guys are so blatant about coming on to me.
+ - Now that I know what goes into making a pilot, keeping it on the air, and keeping your fans, I’m at a point now where I do a pilot and just hope for the best. If it doesn’t work out, it doesn’t work out.
+ - And my mouth is not a sewer, although some people may think it is.
+ - For me, personally, I watch pretty much everything on Netflix, and I watch all the episodes in a row, when I can.
+
+57 quotes

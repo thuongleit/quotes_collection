@@ -1,0 +1,27 @@
+ - Oh my God, I can’t believe what you did for me – thank you. I love you so much.
+ - If I have a 12 or 14 hour workday, I am home the next. I cut out anything that is frivolous or doesn’t need to be done.
+ - I don’t want to lose my fitness. I’m 45. I have two babies. I’ve got a long way to go and I want to keep in tiptop shape. There’s no magic bullet.
+ - What I lack in energy, I have in wisdom.
+ - I’ve had the time to go through all the life phases with my parents, from being a bratty teenager, pushing them away, to saying later on, ‘Oh my God, I can’t believe what you did for me – thank you. I love you so much.’
+ - For women of a certain age, how do you meet a guy, fall in love, and decide he’s the right man to have children with? Your clock’s ticking, you’re looking at him, and it’s a crazy, pressure-filled experience.
+ - I’ve been working so hard for the past eight years and I’m tired – but I’m also deliciously tired because what a wonderful life I’ve lived.
+ - When ‘Desperate Housewives’ ends, I think my girls will be about the kindergarten age. I will be so happy to be there for them through that huge transition.
+ - I’ll tell you my routine – it’s really exciting. I feed, I burp, I change diapers, I pump. And then I have a tiny window of time to myself.
+ - I try to balance it out on the whole. Being a mum is always the priority. Next, it’s taking care of yourself. Right now, I get to only work two days a week – it’s a dream. I can’t imagine how hard it is for mothers who work 40 hours a week.
+ - I have good genes in my family, so we’ll see just how long I’ll be around.
+ - I’d never say no to surgery in the future, because I feel like, as I get older, I’m going to face temptation more.
+ - It’s not like I’m cooking! I’m breastfeeding – I feel like that’s the best cooking I could do.
+ - I would ask my dad what he did, and he’d say, ‘I listen to people’s problems.’ In some way what he did for a living is in my genes.
+ - I use as high SPF as I can get, and I live under a hat like a mushroom all the time. Someone said they’re worried about their kids getting older and doing drugs, and I got this look of horror on my face and thought, ‘What if my girls don’t wear hats?’ But at 13 months old, they could say ’hat.
+ - I’d like to be a wife and mother. I guess I’ll know Mr. Right when I meet him.
+ - Your forties is not the time to be thinking about getting pregnant.
+ - I have always wanted to know what’s going on under the surface.
+ - I really romanticized being pregnant. Then I realized, this is awful!
+ - Some people think wearing powder ages them, but try it anyway. For me it mattes my makeup and blends it well.
+ - I really have to force myself to tidy up around the house.
+ - I really love and it is important to me to be physically fit.
+ - With the red hair, you get the white skin; it’s a package deal. The cons are that you never look particularly attractive on the beach. The pros are in a softly lit room, you look pretty.
+ - I like bringing the girls on set, but if I can’t do that then the next day I feel I have to be uber-mum to make up for it. Then I’m exhausted and feel like I’m running in fumes.
+ - I couldn’t do an acting job just to be working. It really had to have some soul to it.
+
+25 quotes

@@ -1,0 +1,27 @@
+ - If blue collar jobs are leaving and white collar jobs are outsourced what color collar jobs are left?
+ - The difference between a friend and an acquaintance is that a friend helps; an acquaintance merely advises...
+ - With radio, the listener absorbs everything.
+ - Soon it will be a sin of parents to have a child that carries the heavy burden of genetic disease. We are entering a world where we have to consider the quality of our children.
+ - The radio was my pal. I was just crazy about it.
+ - When Solomon said there was a time and a place for everything he had not encountered the problem of parking his automobile.
+ - I’m still excited at being at a microphone and talking to listeners. I love that. It’s the most basic element of what I do and I still enjoy it very much.
+ - People are always ready to admit a man’s ability after he gets there.
+ - One trouble with being efficient is that it makes everybody hate you so.
+ - Meanwhile, the meek are a long time inheriting the earth.
+ - Nobody cares about your wardrobe, what your tie looks like, or even if you’re wearing one, and I don’t.
+ - Some are pre-taped interviews because maybe we can’t get that person live or maybe we’re not sure it’s going to work out right so we tape it an hour in advance.
+ - Between 2 and 5 I’m reading in to find out what’s been going on while I’ve been asleep.
+ - I was encouraged to read aloud in class and vocalize.
+ - But when you see personal artifacts relating to – by genealogy at least – a living human being, it was just more impressive to me than just about anything I’ve ever read about slavery before.
+ - I used to listen to the soap operas with my grandmother.
+ - Any outfit that has to beg its listeners for money is an organization that has to constantly please its listeners or it will dry up and go away. It shouldn’t work when you think about it.
+ - I’ve never been able to predict the future of anything.
+ - I’m a very straight-laced, conservative news kind of guy.
+ - In college, I got interested in news because the world was coming apart. The civil rights movement, the antiwar movement, the women’s right movement. That focused my radio ambitions toward news.
+ - The pictures are created by the listener, with a little help from the broadcaster. The pictures are perfect. If you’re showing pictures, different things in that picture can distract from the spoken word.
+ - Public radio has always been so powerless.
+ - That’s the problem with news interviews, you work your tail off to get prominent figures in the news on the radio, but once they’ve been on, the event passes, the urgency, the issues you talked about evaporate.
+ - At a tiny station in New Albany, Indiana, which is right across from the river from Louisville, Kentucky, where I grew up. The Louisville stations were loath to hire beginners, so I had to go across the river.
+ - It’s also a more personal medium. It seems to go directly to one’s brain. There are no pictures to distract.
+
+25 quotes

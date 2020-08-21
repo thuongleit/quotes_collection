@@ -1,0 +1,46 @@
+ - We want lives of simple, predictable ease-smooth, even trails as far as the eye can see-but God likes to go off-road.
+ - When you die, you graduate. I don’t worry about death. Sickness teaches there is joy in everything. Take joy in your sickness because a lot of times God is telling you: ‘You may not know it, but you’re more blessed than you realized.’
+ - God doesn’t promise tomorrow, he does promise eternity.
+ - You think Vietnam was bad? Vietnam is nothing next to Kosovo.
+ - We live in an anaesthetized society.
+ - Every one of our greatest national treasures, our liberty, enterprise, vitality, wealth, military power, global authority, flow from a surprising source: our ability to give thanks.
+ - In other words, Social Security is every bit as insecure as the stock market.
+ - Risk is the inevitable product of liberty – and it’s responsible not only for great tragedy, but also great triumph.
+ - Love can achieve unexpected majesty in the rocky soil of misfortune.
+ - The art of being sick is not the same as the art of getting well.
+ - If you think Independence Day is America’s defining holiday, think again. Thanksgiving deserves that title, hands-down.
+ - I hate to tell you, but it’s not always pretty up there on Capitol Hill and there have been other scandals as you know that have been more than simply naughty e-mails.
+ - The real sin with Social Security is that it’s a long-term rip-off and a short-term scam.
+ - Many people don’t give a rip about politics and know as much about public affairs as they know about the topography of Pluto.
+ - Somewhere near you, somebody right now is trying to help the indigent and poor – providing food, shelter, clothing or simple kindness.
+ - You’re young and you’re bulletproof and invincible. But never underestimate the power of other people’s love and prayer.
+ - Sometimes, political campaigns make decent people act and talk like perfect buffoons.
+ - Well, we can’t afford blindness anymore. There are tens of thousands of thugs who loathe liberty and love death, and want to annihilate Western civilization.
+ - To have faith is to believe in truth, believe that truth confers special power on those lucky enough to get a little insight, and to know in our hearts that all these things come from God, which is why we should never get too cocky about our successes.
+ - Pet lovers know that animals sometimes understand us better than we do, and the annals of human sin and desire provide plenty of stories to drive the point home.
+ - President Bush has committed billions to the fight against AIDS, thus making retroviral drugs available to millions of HIV-positive Africans.
+ - In many cases, a bout with sickness stretches your soul, opens your eyes, and introduces you to a world of unimagined grandeur, possibility and joy.
+ - The secret of learning to be sick is this: Illness doesn’t make you less of what you were. You are still you.
+ - We believe. We believe in our destiny as a nation. We believe we have been called to do good, to spread the blessings of liberty and encourage the sense of trust upon which free societies depend.
+ - When politicians rush to fix things, it’s a sure sign that either the intended patient is dead or fully healed.
+ - The business of peace requires more than showing up with paint brushes, foodstuffs and an oil pipeline or two.
+ - One of the problems with NPR is that there is so much political correctness that if you’ve got a name that looks like it was made up by Rudyard Kipling, you’ve got a better chance of getting hired. I’m a white guy named Tony Snow, for heaven’s sake. That’s as white as it goes.
+ - There is no Senate rule governing the proper uses of the filibuster.
+ - Voting is a right best exercised by people who have taken time to learn about the issues.
+ - The last person to achieve unambiguous victory in an air war was Zeus.
+ - That said, ID does not qualify as science because it gives us nothing to test or measure. Science requires replicable tests involving measurable variables.
+ - If you disaggregate, things fall apart.
+ - Sure, science involves trial and error. Scientists refine theories each day. But as they do, they help us grasp more clearly the wonders of the world and the universe.
+ - It is a common mistake these days to politicize anything and everything, including music.
+ - Today there are about 40 million retirees receiving benefits; by the time all the baby boomers have retired, there will be more than 72 million retirees drawing Social Security benefits.
+ - George W. Bush broke a mold four years ago: Even though he lost the popular vote, he governed as if he had won by acclamation.
+ - Yet, it ought to be obvious that good music generally occupies a higher plane that mere politics. Great writers can express moods through melody and capture experiences we share most powerfully – love, lust, longing; joy, rage, fear; triumph, yearning and confusion.
+ - It makes no sense to pack an auditorium with 5,000 people and then tell them to keep quiet.
+ - American journalists and politicians made a perfect spectacle of themselves in discussing the Abu Ghraib prison controversy.
+ - It serves notice that President Bush is serious about promoting freedom, because free societies are a lot more peaceable than dictatorships and monarchies.
+ - George Bush has become something of an embarrassment.
+ - Investigators have discovered that dogs can laugh, which can’t be too big of a surprise.
+ - The United States spends more money on African aid than any nation on earth.
+ - We’ve got to rebuild human hearts – and persuade people that hope isn’t just possible, but essential.
+
+44 quotes

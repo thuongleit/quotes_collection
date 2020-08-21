@@ -1,0 +1,26 @@
+ - There is the illusion of the world and the reality of the Torah.
+ - I prefer a powerful and proud Jewish State that is hated by the entire world than an Auschwitz that is loved by one and all.
+ - It is incumbent upon us to understand our greatness and believe in it so that we do not cheapen and profane ourselves.
+ - No trait is more justified than revenge in the right time and place.
+ - The Jew is upset because the nations of the world – the United Nations – lash him, brand him as racist and evil, hate him and openly demonstrate their desire to destroy him.
+ - Never, ever deal with terrorists. Hunt them down and, more important, mercilessly punish those states and groups that fund, arm, support, or simply allow their territories to be used by the terrorists with impunity.
+ - Love has its place, as does hate. Peace has its place, as does war. Mercy has its place, as do cruelty and revenge.
+ - The Jewish nation is indeed, the heart of the world and there is no reason for the existence of empires, kings, rulers, masses or systems aside from their reaction to the Jewish people.
+ - The observant Jew has his own sense of values. Torah Judaism is his blueprint for this life, his target for existence.
+ - There is no greater anti-Semite that the Jewish one, and none hates the Jewish people more than the Jewish traitor and apostate.
+ - Above all, it is not decency or goodness of gentleness that impresses the Middle East, but strength.
+ - Every man judges his own happiness and satisfaction with life in terms of his possession or lack of possession of those things that he considers worthwhile and valuable.
+ - Let us not suffer from a national amnesia that causes us to forget who and what we are.
+ - The Jew does not wish to be isolated. He fears being alone, without allies.
+ - Life is essentially a question of values.
+ - Surely it is time for Jews, worried over the huge growth of Arabs in Israel, to consider finishing the exchange of populations that began 35 years ago.
+ - I see all this and know that if we are to save the Jewish state and its three-and-a-half million Jews from terrible horrors, we must rise up and demand a fundamental change in the very system of government.
+ - One of the great problems with Americans is that – being a decent people – they assume that everyone else is equally decent.
+ - If we ever hope to rid the world of the political AIDS of our time, terrorism, the rule must be clear: One does not deal with terrorists; one does not bargain with terrorists; one kills terrorists.
+ - For so long as the Jew has even one ally, he will be convinced – in his smallness of mind – that his salvation came from that ally. It is only when he is alone – against all of his own efforts and frantic attempts – that he will, through no choice, be compelled to turn to G-d.
+ - The fact is, that with the creation of the Jewish state in 1948, hundreds of thousands of Jews fled Arab countries, almost all of whom left behind all their property for which compensation was never paid.
+ - The difference is that if we turn from the Gentile first, we will have the Almighty as the immediate staff and our comfort. If not, we will have neither the Gentile nor, for a terrible stage, the Almighty.
+ - The poor Palestinians who today kill Jews with explosives and firebombs and stones are part of the same people who when they had all the territories they now demand be given to them for their state -attempted to drive the Jewish state into the sea.
+ - The banding together by the nations of the world against Israel is the guarantee that their time of destruction is near and the final redemption of the Jew at hand.
+
+24 quotes

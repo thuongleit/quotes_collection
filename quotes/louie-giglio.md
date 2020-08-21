@@ -1,0 +1,103 @@
+ - God’s plans for your life far exceed the circumstances of your day.
+ - Worship is our response, both personal and corporate, to God for who He is, and what He has done; expressed in and by the things we say and the way we live.
+ - To us, waiting is wasting. To God waiting is working.
+ - You never lose by giving it all to Jesus.
+ - Worship is when we give God His breath back.
+ - God is always seeking you. Every sunset. Every clear blue sky. Each ocean wave. The starry hosts of night. He blankets each new day with the invitation, ‘I am here.’
+ - Whenever you say ‘yes’ to anything, there is less of you for something else. Make sure your ‘yes’ is worth the less.
+ - God is using your present circumstances to make you more useful for later roles in His unfolding story.
+ - Don’t overcomplicate God’s will. Just stay connected to Jesus. Love Him. Look into His eyes. He will lead. Follow. Repeat.
+ - Worry and worship cannot exist in the same space. One always displaces the other. Choose worship.
+ - God is not a taker. God is a giver.
+ - Passion is the degree of difficulty we are willing to endure to accomplish the goal.
+ - Worship is our response to what we value most. As a result, worship fuels our actions, becoming the driving force of all we do.
+ - Sin doesn’t make us bad, sin makes us dead. The gospel doesn’t make us better, the gospel makes us alive.
+ - Our scars are a witness to the world. They are apart of our story. Healed wounds that are symbols that God has restored us.
+ - When the enemy comes with shame and blame, tell him to go measure the distance from east to west and get back to you.
+ - Nothing steals God’s glory more than worrying believers who are driven through life by fear.
+ - Gratitude grows from a seed called grace. If you’re not grateful you might still be trying to earn what God freely gives.
+ - You don’t have to know everything about the mountain in front of you to take the next step.
+ - Every great thing requires a great sacrifice.
+ - Jesus has enough, is enough, and will be enough.
+ - This is an amazing thought: a God who is indescribable.
+ - When we are foolish God intervenes.
+ - The wonderful living Word of God is more precious than anything else that we have.
+ - It’s a big world. Don’t get trapped by tiny dreams and feeble problems. Time for big prayers and bold faith.
+ - Yet, Jesus is selfless in the way He gives His life away for you. So if your gaze is on Him, you will treat others as He is treating you.
+ - If only we knew what was happening when we pray, we would never cease to pray.
+ - The world has been tragic since the day Adam and Eve sinned in the garden. From that moment murder, mayhem and war entered the scene and we are still suffering the consequences of a man-driven, self-serving, short-sighted environment.
+ - Thank you Jesus you are a stone mover. And you can move any stone away.
+ - Not going to give casual worship to a God of extravagant beauty and grace!
+ - In the end, our worship is more about what we do than what we say.
+ - The Father doesn’t give life directions in one big bundle because the goal is knowing Him, not the plan.
+ - If our worship isn’t visible, comprehensive and extravagant, the gospel we heard must have been tiny, empty and cheap.
+ - It’s easy: You simply follow the trail of your time, your affection, your energy, your money, and your allegiance. At the end of that trail you’ll find a throne; and whatever, or whoever, is on that throne is what’s of highest value to you. On that throne is what you worship.
+ - Crazy is good. The alternative is normal.
+ - Brokenness is the bow from which God launches the arrow of healing.
+ - God has plans and purposes for each of our lives. But the beauty is that He doesn’t call us and leave us on our own. Jesus actually lives in us to pull off the amazing things that He has invited us into.
+ - When God breathes He breathes on hard-hearted people.
+ - God calls each and every star by name. It’s not likely He has forgotten yours.
+ - Humility is not a character trait to develop, it’s the natural by-product of being with Jesus.
+ - Some of us attend the church on the corner, professing to worship the living God above all. Others, who rarely darken the church doors, would say worship isn’t a part of their lives because they aren’t “religious.” But everybody has an altar. And every altar has a throne.
+ - It’s not the elements of our worship that are awesome. It’s the object of our worship Who is awesome.
+ - It’s not that we should declare the praises of God. It’s that we may.
+ - Who knows who’s waiting right now for one of us to invite them into God’s family?
+ - If you have a story of grace, then you have a story of grace to tell.
+ - God’s words trump all opinions, including mine, and in the end, I believe God’s words lead to life.
+ - Accept the fact that you’re never gonna be someone else and embrace the fact that the world needs you as God made you to be.
+ - Simply by our proximity to Jesus, we can bring hope and life to people and places trapped in discouragement and despair.
+ - There is a ripple effect to the gospel that’s inevitable. There’s a ripple effect to true grace. It doesn’t lead us to only sit and contemplate what hap- pened to us. It leads us to proclaim what’s happened to us – and what can happen to anybody and everybody on the planet.
+ - As an overflow of my life – the wake I leave behind with my little dash on earth – I want others to fall in love with Jesus and know of His great hope and purpose for their lives.
+ - Hear Jesus as a family and serve Him. Care about people and love people.
+ - No big shocker that following Jesus is costly. The best things in life always are.
+ - It’s time to blow out the candles on the pity party cake.
+ - As long as I can remember, the compelling force behind my calling is a desire to know Jesus more and to make Him known. I believe I was created for a relationship with Jesus, so growing in my relationship with Him and worshiping Him with all my heart and life is preeminent.
+ - It doesn’t really matter how rich you are, we’re all just renting here on earth! It all belongs to the Lord.
+ - God’s purposes and plans will not fail. Before you spend all your prayer time telling Him about yours, ask about His.
+ - The stakes are too high for us to die with a small vision.
+ - You never shrink in stature by lifting someone else up...
+ - But to mean it when I say that I want my life to count for His glory is to drive a stake through the heart of self – a painful and determined dying to me that must be a part of every day I live.
+ - If you’re waiting with God, waiting is okay. If you’re always waiting on God, you’ll be frustrated. God never seems to work at the speed that we want Him to.
+ - There is a direct correlation between your appreciation of what Christ has done for you and the expression of worship.
+ - At the heart of it all, Passion exists to see a generation stake their lives on what matters most. For us, that’s the fame of the One who rescues and restores, and the privilege we have to fully leverage our lives by amplifying His name in everything we do.
+ - Life comes from death. To the degree that I can live in the death of Jesus – to that degree I can channel God’s life to others.
+ - The Gospel is not about going from bad to good, it’s about going from dead to alive!
+ - This is the residue of sin on planet earth. Things are broken. People are hurting. The night is here. Darkness is upon us. Yet shining in the night is a Savior, and He has come to shine on you.
+ - Christ didn’t die just so you could make to heaven; He lives so you can make it through earth!
+ - Don’t dwell on your insufficiency, but dwell on God’s all-sufficiency.
+ - I’m dead in the water if I can’t see the all sufficient glory of God.
+ - Quit trying to do what I already know you can’t do and let Christ do what only He can through you.
+ - We may say we value this thing or that thing more than any other, but the volume of our actions speaks louder than our words.
+ - If Jesus is here we are going to walk out of this place to live our lives to the glory of God the Father.
+ - Sin has a way of shrinking God down and puffing ourselves up.
+ - God isn’t waiting on our memo. He is waiting on us to focus enough on Him that we get His memo.
+ - There’s no doubt we were unworthy, but we were never worthless. Big difference.
+ - God is huge! He is ginormous! He is greater than every thought we have ever had of Him.
+ - Sin doesn’t make you bad, it makes you dead.
+ - It’s horrifying and absurd to think that there are currently more slaves on earth than at any other time in human history.
+ - While we were at rest, Christ was in rescue mode. While we were doing nothing, He was doing EVERYTHING. He was down in the depths of the earth fighting for our freedom.
+ - Life only works when Jesus is everything and we are fully submitted to Him.
+ - Worship starts with seeing something great and then reflecting it to the world. Let’s see God so we can reflect God.
+ - Why are all Christians happy and praising Jesus? It’s because we are not DEAD! We may be imperfect, but we aren’t DEAD!
+ - Jesus doesn’t just want songs. He wants justice for the people on planet Earth.
+ - Limit your thinking and expectation today to only the things God can do.
+ - God is coming to intersect us in our funeral processions.
+ - Whether it’s an attorney or a bond trader or a journalist, or a musician or pastor, you want to do your best. You don’t want to seek acclaim. You don’t want to seek awards. You want to seek to do your best at what God’s given you.
+ - As long as we are faking it we are just showing the world how to fake it – but they already are! They want to see us get real.
+ - It is not God’s will that you limp along in life believing that you are inadequate.
+ - Every Christian became a missionary the moment God breathed his Spirit into him or her.
+ - Your life may be messed and your foolishness may have put you into captivity but Jesus can do the whatever it is that is immeasurably more in your life.
+ - Everything thing we’re doing is coming out of the living Word of God.
+ - The only wounds that define us are the wounds of Jesus Christ.
+ - Faithfully carry what God has put in your hands right now. This is God’s will.
+ - God always gets the glory when Jesus comes.
+ - If you’ve been served by God, you’ve arrived.
+ - God doesn’t call people to a job description, He calls people to Himself and His mission in the world.
+ - We get into captivity because of our foolishness and we are more foolish that we want to admit.
+ - My life is not about the set list, it is to be set apart.
+ - The bound are going to go free because Jesus is in this Dome.
+ - We are responsible for our captivity to sin. In our foolishness, we forget God. However, God intervenes!
+ - If only everyone could know we’ve been created by and for God! If only we could all comprehend that we’re precious to Him, housing mirrored souls designed to reflect His glory.
+ - It is because of our foolishness that we forget who God is.
+
+101 quotes

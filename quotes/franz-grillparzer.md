@@ -1,0 +1,205 @@
+ - Moons and years pass by and are gone forever, but a beautiful moment shimmers through life a ray of light.
+ - Prose talks and poetry sings.
+ - No one will stop to help you when you are in need, but everyone forces opinions upon you that you do not require.
+ - Uneducated people are unfortunate in that they do grasp complex issues, educated people, on the other hand, often do not understand simplicity, which is a far greater misfortune.
+ - History is the zoology of the human race.
+ - Progress will always have as its recourse to exaggerate what it cannot surpass.
+ - Gold is the gift of vanity and common pride, but flowers are the gift of love and friendship.
+ - Perhaps the most embarrassing experience is being caught at a lie by a simpleton who sneers at our asinine cleverness.
+ - Schiller moves upward. Goethe comes from up above.
+ - Disregard for the consequences and for right and wrong nowadays passes as energy.
+ - Art compares to nature like wine to the grape.
+ - Austrian soldiers are like horses: brave but easily frightened.
+ - Poetry, it is often said and loudly so, is life’s true mirror. But a monkey looking into a work of literature looks in vain for Socrates.
+ - Dilettantes appreciate the work, professors the master at the same time.
+ - No shortcomings of other people cause us to be more intolerant than those which are caricatures of our own.
+ - Without a notion of the transcendental, human beings would, indeed, be animals; however, only fools can be convinced of it, and only degenerates need such a conviction.
+ - The uneducated person perceives only the individual phenomenon, the partly educated person the rule, and the educated person the exception.
+ - The course of modern learning leads from humanism via nationalism to bestiality.
+ - Jealousy is a grievous passion that jealously seeks what causes grief.
+ - Gold schenkt die Eitelkeit, der rauhe Stolz, Die Freundschaft und die Liebe schenken Blumen. Gold is the gift of vanityand pride, Friendship and love offer flowers.
+ - Let no one say that taking action is hard. Action is aided by courage, by the moment, by impulse, and the hardest thing in the world is making a decision.
+ - Since love is folly, a foolish woman is more dangerous than a wise one.
+ - Freedom requires guns.
+ - The most irascible person is most likely to become apathetic in dangerous situations.
+ - Our poetry emulates the recent progress in military strategy: Our army’s strength is the foot soldiers.
+ - Love wants to be confirmed with concrete symbols, but recklessness loves instability.
+ - Plato calls complacency the companion of loneliness.
+ - The noble woman is half a man, even a complete one. Only their imperfections make them women.
+ - Strength, strength alone, is honorable, the German nation clamors in its majesty. But since it is hard to muster strength so suddenly, they have to make do with boorishness.
+ - Genius unrefined resembles a flash of lightning, but wisdom is like the sun.
+ - How frightening it is to have reached the height of human accomplishment in art that must forever borrow from life’s abundance.
+ - Christianity is the religion of melancholy and hypochondria. Islam, on the other hand, promotes apathy, and Judaism instills its adherents with a certain choleric vehemence, the heathen Greeks may well be called happy optimists.
+ - To declaim freedom verses seems like a poem within a poem; freedom requires guns, it requires arms, but no feet.
+ - No spoon has yet destroyed a mouth, but the knife of war cuts portions that are hard to swallow. Perhaps the big mouths of the privileged are able to cope with them, but they dull the teeth of the little people and ruin their stomachs.
+ - A pious woman’s neighbor, a philanthropist’s child, a liberal’s servant – these three have a hard life.
+ - My anger thought you too ignoble for my love, and close examination finds you too magnificent, and only equals are joined together smoothly.
+ - The manifestation of poetry in external life is formal perfection. True sentiment grows within, and art must represent internal phenomena externally.
+ - Swear words and profanities are mere abbreviations of speech, similar to the abbreviations in writing.
+ - A person who looks different all the time frightens me. Only one animal changes its skin: the snake.
+ - The way in which modern German poetry follows theories reminds me of pupils who, scolded by their teacher for their insubordination, justify themselves by saying that they invented new rules of propriety according to which they are quite well- behaved.
+ - Captivating the spirit of the age is a matter of great talent; being swept away by it characterizes an average mind. The two are as different from one another as activity and passivity.
+ - Never expect any recognition here – the system prohibits it. The cross is not affixed to the genius, no, the genius is affixed to the cross.
+ - The cradle of the future is the grave of the past.
+ - Woman is the crown of all creation, but Man is the head who wears it, and even the servant is master in his house.
+ - The ramparts of Vienna are crumbling into the sand; no one wants to live so confined, however, the entire country is already surrounded by a Chinese wall!
+ - Pity, but never love bestows kind words upon the slave.
+ - In certain countries, people seem to be think that three asses together make one intelligent person. However, that is completely wrong. Several asses in concreto make the ass in abstracto and that is a most terrifying animal.
+ - People of talent resemble a musical instrument more closely than they do a musician. Without outside help, they produce not a single sound, but given even the slightest touch, and a magnificent tune emanates from them.
+ - The graceful flowers of innocence are more valuable than the laurel crown of fame.
+ - A woman’s passion is not the measure of a man’s love.
+ - At certain times, men regard poetry merely as a bright flame, but to women it was, and always will be, a warm fire.
+ - Man will return to his origins. Goethe has finally become as squiggly as the city of his fathers.
+ - As youth lives in the future, so the adult lives in the past: No one rightly knows how to live in the present.
+ - Beauty satisfies the senses completely and at the same time uplifts the soul. That which gratifies the senses is pleasant, and that which uplifts the soul without being sensual in the least is good, true, right, anything you like, but not beautiful.
+ - There is one privilege we’ll never lose; currently it’s called nationality. It means that everyone was born somewhere, which is infact self-evident.
+ - This searching and doubting and vacillating where nothing is clear but the arrogance of quest. I, too, had such noble ideas when I was still a boy.
+ - You can make the best of it and be content, or you can complain, it makes no difference. What does it matter that human beings judge the things that exist?
+ - German diligence is actually endurance.
+ - The main reason why men and women make different aesthetic judgments is the fact that the latter, generally incapable of abstraction, only admire what meets their complete approval.
+ - Gratitude is a fickle thing, indeed. A person taking aim presses the weapon to his chest and cheek, but when he hits, he discardsit with indifference.
+ - Genius differs from talent not by the amount of original thoughts, but by making the latter fertile and by positioning them properly, in other words, by integrating everything into a whole, whereas talent produces only fragments, no matter how beautiful.
+ - The military and the clergy cause us much annoyance; the clergy and the military, they empty our wallets and rob our intelligence.
+ - I know how ingratitude burns, how falsehood tortures, for I have been deceived in friendship and in love; I have learned to lose and to resign myself.
+ - Servants honor their master by their service.
+ - What a pathetic creature is man! His senses are awakened by the hope for the very thing whose consummation puts him to sleep.
+ - Is it true that one travels in order to know mankind? It is easier to get to know other people at home, but abroad one gets to know oneself.
+ - Soon there will be nothing truly profound that is not achieved by everyone, and of the difficult things in this world only one will be left: simplicity.
+ - The prince exults whomever he selects as his consort, but the queen, rather than elevating the subject of her choice, humiliates him as a man. By all that is right, a man is not intended to be the husband of his wife, but a woman is to be her husband’s wife.
+ - Piety is the fermentation of the forming mind and the putrefaction of the disintegrating one.
+ - Critics are reprimanded when they get sarcastic. How absurd! Is the torch of criticism supposed to shine without burning?
+ - The spirit of poetry combines the profundity of the philosopher and the child’s delight in bright pictures.
+ - Someone who is reluctant to say what he needs to say, often ends up doing so with an insolence whose crassness is proportionate tohis fear, once he gathers the necessary courage.
+ - Distinctly different as a child, as an adolescent, in his prime and in his old age, man considers himself as one, not because he acts, but because he knows.
+ - To test a modest man’s modesty do not investigate if he ignores applause, find out if he abides criticism.
+ - Those who want to row on the ocean of human knowledge do not get far, and the storm drives those out of their course who set sail.
+ - Historical! Must it be historical to catch your attention? Even though historicity, like notoriety, denotes nothing more than thatsomething has occurred.
+ - In early times, before the floods swept across the world, there was life, albeit odd, as one can see from the fossils of mammoth bones, and there was the regime of Prince Metternich.
+ - Reason and the ability to use it are two separate skills.
+ - Mankind is getting smarter every day. Actually, it only seems so. At least we are making progress. We’re progressing, to be sure, ever more deeply into the forest.
+ - When mundane, lowly activities are at stake, too much insight is detrimental – far-sightedness errs in immediate concerns.
+ - The old harlot, German philosophy, has finally turned into a church lady.
+ - Although your knowledge is weak and small, you need not be silent: since you cannot be judges be at least witnesses.
+ - You ardently strive for freedom, and I do wish you were free – but, rather than for your sake, so that government won’t be.
+ - The character of the crowds is made up of mimicry and hostility.
+ - Many said selfishness was the flaw of our modern age; but then self-conceit emerged from a corner of the deepest hell to join selfishness.
+ - Even with limited intelligence, knowing oneself is not as difficult as some say, but to act according to what one has realized about oneself in real life is as difficult as practicing anything else, compared to theory.
+ - Drink and be thankful to the host! What seems insignificant when you have it, is important when you need it.
+ - I notice well that one stray step from the habitual path leads irresistibly into a new direction. Life moves forward, it never reverses its course.
+ - Once you have looked at the land from atop the Kahlenberg, you will understand what I write and who I am.
+ - In Germany, a certain artistic sense is fairly common, but the artist’s sense is foreign there.
+ - It is good insofar as it is not evil.
+ - Do hurry and proclaim the concordat. Then castrate yourselves to keep from sinning.
+ - Grief, first take on shape! what is shapeless causes fear and torment but when the enemy materializes, half the victory is won.
+ - I’d wish the government took honest people into consideration, it shows enough consideration for scoundrels.
+ - The German mind, may it live! Almost invisible as a mind, it finally manifests itself assertively as a conviction.
+ - If human beings are immortal, so are animals. If matter has the ability to remember, it also has the ability to think.
+ - Finally and long overdue, your people, oppressed and disgraced by hatred and maliciousness, have achieved justice: now you enjoy full citizen’s rights, but you’ll remain Jews nonetheless.
+ - Do old people always live in the past? What yesterday was firm and true, may not be so today.
+ - What’s the meaning of all the pious clamor, condemning cocks and hens? Those who have no teeth are the greatest meat-haters.
+ - Women, children, Tyroleans and preachers want to create a new kingdom of God, but the God of their kingdom looks like women, children, preachers, and Tyrolians.
+ - You even called me stupid in your verse, and I’m almost agreeing, for where stupidity is involved, you are quite an expert, friend.
+ - Lap-dogs and blood-hounds enjoy the greatest respect at court; house-dogs and no dogs at all are not even considered.
+ - If only it were God’s will that printed and written materials have as much influence on the people as the princes and their censors fear! Considering the countless good books we have, the world would have changed for the better a long time ago.
+ - I cannot be exacting because I respect myself.
+ - In order to succeed in a profession, a person not only needs to have its good, but also its bad qualities. The former are the spirit, the latter is the body of the job.
+ - Whoever places his trust into a system will soon be without a home. While you are building your third story, the two lower ones have already been dismantled.
+ - Just as the queen bee, the highest-ranking, peerless creature of her hive, is surrounded by lowly drones to please her, whereas the workers produce honey, the same way is the one who sits on the throne an equal only to himself, and no one’s companion.
+ - Today is, after all, today, but yesterday is of the same substance as tomorrow.
+ - From a distance the rushing of the torrent delights and uplifts us, but it rocks us in a flimsy boat, we are overwhelmed by despair. The same applies to danger.
+ - How can you say that love is blind? Keener than a young eagle’s is its sight.
+ - The thing that pleases is not always good and, helas, the good thing does not always please.
+ - He who takes people for smart pays an expensive lesson.
+ - A heart that overflows may seek out merrymaking and boisterous festivities to quietly rejoice, unnoticed amidst the reveling crowds.
+ - The state has no religion for the simple reason that it has each and everyone.
+ - Bunglers and pedants judge art according to genre; they approve of this and dismiss that genre, but instead of genres, the open-minded connoisseur appreciates only individual works.
+ - Morality, a muzzle for the will; logic, a climbing iron for the mind.
+ - What is done for the children is doubly beneficial, since their success, obvious to everyone, educates the parents as well.
+ - It is not a matter of desire, but of coercion and duty.
+ - When we interpret nature, we refer phenomena that are rarely entirely unintelligible back to something that actually exists, but is equally unintelligible.
+ - The plot! The plot! What kind of plot could a poet possibly provide that is not surpassed by the thinking, feeling reader? Form alone is divine.
+ - Our age believed herself pregnant with auspicious progeny, but when her hour came, it turned out to be dropsy.
+ - When the theater gates open, a mob pours inside, and it is the poet’s task to turn it into an audience.
+ - Do you think that it is possible to have a mere taste of commonness? Either one hates it or makes common cause with it.
+ - An uprising would punish only the country, and that is out of the question. But there is yet another approach, the most effectiveform of resistance: contemptuous compliance.
+ - Art is eternally young, but the poet ages. If only he remained as young as art! If only it aged with him!
+ - There shall be no slave in your home, male or female: Least of all the mother of your son.
+ - Much as I honor the wisdom of the princess – there is something more dashing about a man.
+ - I would love to be able to write a tragedy in my imagination – it would turn into a masterpiece.
+ - The likeness of the world? A shadow! And world’s glory? A dream!
+ - How great seems human progress when we consider where it began, and how insignificant, when we contemplate the goals for which itstrives.
+ - Science and art, or by the same token, poetry and prose differ from one another like a journey and an excursion. The purpose of the journey is its goal, the purpose of an excursion is the process.
+ - It is open to question whether the highly individualized characters we find in Shakespeare are perhaps not detrimental to the dramatic effect. The human being disappears to the same degree as the individual emerges.
+ - The art of acting presupposes three phases: understanding a part, intuiting a part, and contemplating the essence of a part.
+ - Metaphysics must be based on what exists, for it has the task of explicating it.
+ - The first indication of a young person’s growing smarter is that he no longer understands the things which he used to consider quite intelligible and self-evident.
+ - I love the pride whose measure is its own eminence and not the insignificance of someone else.
+ - A love that dies has never lived.
+ - A cure by regression is homeopathic, like healing the damage done by ministers and ignorance with stupidity and Jesuits.
+ - If someone were to think that trees are made to support the sky, they would all seem too short.
+ - Mozart starved, but you allow Thalberg and Liszt make tons of gold: Of course, you may think that someone immortal cannot die of hunger.
+ - Man lives two lives, woe, were it otherwise! One is seized by death, the other one, his honor, remains.
+ - Since people no longer attend church, theater remains as the only public service, and literature as the only private devotion.
+ - Robespierre, this pedant of freedom!
+ - Those whom the gods chose as their property must not consort with mortals.
+ - Caution is the daughter of circumspection, but she tends to outgrow her mother.
+ - Compilers resemble gluttonous eaters who devour excessive quantities of healthy food just to excrete them as refuse.
+ - Prose and poetry are as different as food and drink.
+ - If we notice a few errors in the work of a proven master, we may and even will often be correct; if we believe, however, that he is completely and utterly mistaken, we are in danger of missing his entire concept.
+ - Why I love the ancients so much? Aside from everything else, when I read them, the entire past between them and me unfolds at thesame time. The hearts of how many heroes and poets may have been set on fire by Plutarch’s biographies which now inspire me with their own and with borrowed flames!
+ - The Germans believe that, no matter where, they can get by on knowledge alone. Art, however, requires skill.
+ - Turning popular opinion upside down does not make an original.
+ - It’s actually the spirit helping the spirit; it is the doctor, the bed, the potion.
+ - Let the will embrace the highest ideals freely and with infinite strength, but let action first take hold of what lies closest.
+ - In the arts, foolhardiness is always harmful; even worse, however, is clumsiness.
+ - Right and proof are two crutches for everything bent and crooked that limps along.
+ - I understand the phrase “Honor the Women” all too well: the poet has probably a wife of his own, but he prefers to honor another.
+ - I look around me and nowhere do I see a stamp of disapproval with which nature marked a woman’s candid brow.
+ - It is the emotions to which one objects in Germany most of all.
+ - A book is quite a beautiful thing, even more so learning. Together, however, all they amount to is called book-learning.
+ - Before passing different laws for different people, I’d relinquish myself unto you as your slave.
+ - A flutist who is moved to tears by his own performance will soon make the listeners laugh because of the sounds that he produces.
+ - Feeling and thinking are actually the blind man who carries the lame.
+ - Chance arrives unannounced. It emerges, and when it leaves, we are lucky if the changes it has produced are only external.
+ - Transcendence: that which transcends experience.
+ - North and West have always vied for power and territory, but their recent competition as to which one is more insidious of the twohas been more peaceful.
+ - I am a woman, and even if I could proceed with harshness and rigidity, it would disgust me nonetheless.
+ - A tailor can adapt to any medium, be it poetry, be it criticism. As a poet, he can mend, and with the scissors of criticism he candivide.
+ - It’s the misfortune of German authors that not a single one of them dares to expose his true character. Everyone thinks that he has to be better than he is.
+ - Profundity easily turns into dullness and astuteness deteriorates into wit. Be guided by natural common sense and it will accommodate great and small.
+ - Nothing genuinely historical was ever lost in this country. For this reason we have two ruling parties: villains and fools.
+ - Praised be the good willing women who understand and take part in the fun – the body is an exacting beater, and even the heart is made of flesh.
+ - The courts used to be, fair and square, the avengers of secular crimes; but nowadays they demand respect even for the criminal.
+ - Human life, old and young, takes place between hope and remembrance. The young man sees all the gates to his desires open, and the old man remembers – his hopes.
+ - Ideas are not thoughts; the thought respects the boundaries that the idea ignores thereby failing to realize itself.
+ - Who claims that the heathen’s view of the world is incorrect? Life gives you nothing! It is ruled by false gods! Nothing remains true to you but your own self; provided you remain true to it.
+ - In the long run, only woman remains true to mankind’s foremost mission. Whatever she achieves, she achieves through herself, and alone. Man’s master is the – public.
+ - The sun of a prince’s good graces resembles that in the skies in that it shines most kindly upon the blackest people.
+ - Do not push so fast ahead, do slow down a bit! Otherwise you won’t catch up with yourselves.
+ - To enlist the support of the people and of parliament, you only have to propose a profitable villainy.
+ - Only by himself, with one acre and a house, will a dunce be a dunce. Once he manages to gain power, he’ll turn into a scoundrel.
+ - The ideas of an age are most abundant where they are not crowded by original ideas.
+ - I’ve never been on good terms with God, but now I’m becoming His intimate, for He is truly absolute and extremely legitimate.
+ - Erroneous views and presumptuousness send a talent to the insane asylum.
+ - Genius resembles a bell; in order to ring it must be suspended into pure air, and when a foreign body touches it, its joyful toneis silenced.
+ - You say I’m small? I certainly can relate, although it is a matter of perspective. The distance is deceptive, my friend, you standtoo low.
+ - No matter which word it is, when I pronounce repeatedly, it ends up sounding utterly ridiculous and meaningless to me.
+ - Two soldiers and a villain are enough to blow up the rights of the citizens.
+ - A wise man can and should stand above his times, not so the poet, but he should be their apex.
+ - The present is never poetic as it serves necessity, necessity, however, is prosaic.
+ - Love! Hate! Is there no third?
+ - The verdict on Prince Metternich will soon be out: An excellent diplomat and a bad politician.
+ - Why do villains have so much influence? Because the honest people are terribly dense.
+ - Boundless in your charity, but shrewd and cautious as a lender, you delight all those today whom you made beggars the day before.
+ - A man may welcome his beloved with circumstance, but a woman’s love and her concern for his well-being are discreet.
+ - Trousers and the reputation of not being a thief are similar in the following way: There is no particular honor in having them butonce they are lost, everyone thinks they have the right to insult us.
+ - What raises great poetry above all else – it is the entire person and also the entire world.
+ - As far as the arts and the sciences are concerned, the German mind appreciates most highly that which it does not understand of the latter, and that which it does not enjoy of the former.
+ - The real genres: good and bad.
+ - They are miserly, the princes of Austria, you need not grieve about it; they may not donate anything, but they allow themselves tobe fleeced, the good lords.
+ - When receiving an order, many servants repeat their “yes” numerous times, especially the lazy ones.
+ - Let the famous not denounce fame. Far from being empty and meaningless, it fills those it touches with divine power.
+ - Why does the past look so enticing to us? For the same reason why from a distance a meadow with flowers looks like a flower bed.
+ - Isn’t it awful that cold feet make for a cold imagination and that a pair of woollen socks induce good thoughts!
+
+203 quotes

@@ -1,0 +1,22 @@
+ - Systems permit ordinary people to achieve extraordinary results predictably.
+ - Systems run the business and people run the systems.
+ - Organize around business functions, not people. Build systems within each business function. Let systems run the business and people run the systems. People come and go but the systems remain constant.
+ - Building a World Class Company is a commitment to the integration of passion, purpose, and practice.
+ - If your business requires your presence you don’t have a business, you have a job.
+ - Most entrepreneurs fail because they are working IN their business rather than ON their business.
+ - Great people have a vision of their lives that they practice emulating each and every day. They go to work on their lives, not just in their lives.
+ - If your business depends on you, you don’t own a business – you have a job. And it’s the worst job in the world because you’re working for a lunatic!
+ - The true start-up of a business is what happens before you start-up.
+ - A true business opportunity is the on that an entrepreneur invents to grow him or herself. Not to work in, but to work on.
+ - The entrepreneur in us sees opportunities everywhere we look, but many people see only problems everywhere they look. The entrepreneur in us is more concerned with discriminating between opportunities than he or she is with failing to see the opportunities.
+ - Great businesses are not built by extraordinary people but by ordinary people doing extraordinary things.
+ - I believe the difference between great people and everyone else is that great people create their lives actively, while everyone else is created by their lives, passively waiting to see where life takes them next.
+ - You have to see the pattern, understand the order and experience the vision.
+ - What is the first step to take and how do you measure your progress? How far have you gone and how close are you to getting to your goals?
+ - The greatest business people I’ve met are determined to get it right no matter what the cost.
+ - If everybody’s doing everything, then who’s accountable for anything?
+ - A martial arts practice hall, a dojo, is a place you go to practice being the best you can be. But the true combat in a dojo is not between one person and another as most people believe it to be. The true combat in a martial arts practice hall is between the people within ourselves.
+ - What is your Primary Aim? Where is the script to make your dreams come true?
+ - With no clear picture of how you wish your life to be, how on earth are you going to live it?
+
+20 quotes

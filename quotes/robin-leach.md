@@ -1,0 +1,22 @@
+ - It is usually people in the money business, finance, and international trade that are really rich.
+ - Travel is very subjective. What one person loves, another loathes.
+ - Never give up if you really want something, keep plugging away at it and your dreams can come true.
+ - I like to see things start, grow, and then move on to better things.
+ - You can’t reward people who don’t want to work with more money than they would make while they were working.
+ - In Italy, they add work and life on to food and wine.
+ - If we can make America great again and if we can get everybody working and bettering their lot in life, then this becomes the great country that it once was, that it’s ceased to be.
+ - Nobody would watch Lifestyles of the Poor and the Unknown.
+ - When I interview people, and they give me an immediate answer, they’re often not thinking. So I’m silent. I wait. Because they think they have to keep answering. And it’s the second train of thought that’s the better answer.
+ - There are some people who get money just because they’ve got large families. So if it pays to make large families and earn more money than you would earn out at work, why not have more families, larger families? That’s wrong.
+ - I built the ideal house down in the Caribbean. All Englishmen dream of leaving the rain of England and getting a place in the sun – out in the grounds with separate guest houses; that is the ideal scenario.
+ - Travel is very subjective. What one person loves, another loathes. I would say a private paradise in the Caribbean. If you want culture and class, I would say Tuscany. If you want exotic, I would say Bangkok, Thailand.
+ - They say that art comes from the soul. The more drama in an artist’s life, the more he can draw on for his art. Van Gogh and Picasso had troubled souls, but poor Steve Kaufman has been shot once, stabbed 3 times – all by women. That is a lot of drama for great art.
+ - Celebrities are nowhere as rich as some people think they are.
+ - The system is wrong where it rewards the lack of interest in work with money, so you don’t have to work.
+ - You know, I run the Vegas Deluxe website and that really is 24 hours a day, seven days a week. And we have more stars going through this city with shows. We have more disc jockeys playing in nightclubs here, we have more parties, more of everything than any other city in the world. So it’s non-stop.
+ - I would never go back to doing the show again. I mean, every day I think about Lifestyles because somebody comes up to me and tells me how much they love the show and I should bring it back, but this is not the time to bring it back. I don’t think it would be as successful today as it once was.
+ - I’m not a politician. I don’t pretend to be a politician. I’m an independent.
+ - Whoever would have guessed that in the land of cheap sausages and mashed potatoes there could be such a change which would actually bring the French from Paris every weekend to invade Britain en masse to eat great food and drink great wine.
+ - I’m convinced that if the same opportunities were made available to everybody, people would want to better their lot in life.
+
+20 quotes

@@ -1,0 +1,115 @@
+ - Genius sometimes consists of knowing when to stop.
+ - Silence is the ultimate weapon of power.
+ - Belgium is a country invented by the British to annoy the French.
+ - Always choose the hardest way, on it you will not find opponents.
+ - Patriotism is when love of your own people comes first; nationalism, when hate for people other than your own comes first.
+ - The graveyards are full of indispensable men.
+ - A man of character finds a special attractiveness in difficulty, since it is only by coming to grips with difficulty that he can realize his potentialities.
+ - Yes, it is Europe, from the Atlantic to the Urals, it is Europe, it is the whole of Europe, that will decide the fate of the world.
+ - The better I get to know men, the more I find myself loving dogs.
+ - Character is the virtue of hard times.
+ - The leader must aim high, see big, judge widely, thus setting himself apart form the ordinary people who debate in narrow confines.
+ - Treaties are like roses and young girls. They last while they last.
+ - China is a big country, inhabited by many Chinese.
+ - Greatness is a road leading towards the unknown.
+ - Nothing great will ever be achieved without great men, and men are great only if they are determined to be so.
+ - How can you govern a country which has 246 varieties of cheese?
+ - Don’t ask me who’s influenced me. A lion is made up of the lambs he’s digested, and I’ve been reading all my life.
+ - Only by coming to grips with difficulty can you realize your full potential.
+ - Don’t think of yourself as indispensable or infallible. The cemeteries of the world are full of indispensable men.
+ - France has lost the battle but she has not lost the war.
+ - There can be no other criterion, no other standard than gold. Yes, gold which never changes, which can be shaped into ingots, bars, coins, which has no nationality and which is eternally and universally accepted as the unalterable fiduciary value par excellence.
+ - There can be no prestige without mystery, for familiarity breeds contempt.
+ - I wouldn’t mind dying for France, but not for Air France.
+ - For glory gives herself only to those who have always dreamed of her.
+ - It’s better to have a bad plan then no plan at all.
+ - I respect only those who resist me, but I cannot tolerate them.
+ - Long live free Quebec!
+ - What do you take me for, an idiot?
+ - Betting against gold is the same as betting on governments. He who bets on governments and government money bets against 6,000 years of recorded human history.
+ - One must wait until the evening to see how splendid the day was; one cannot judge life until death.
+ - Deliberation is the work of many men. Action, of one alone.
+ - The leader is always alone before bad fates.
+ - I am not bad, thank you. But don’t worry, one of these days I shall certainly die.
+ - France has no friends, only interests.
+ - Difficulty attracts the characterful man, for it is by grasping it that he fulfils himself.
+ - Politics, when it is an art and a service, not an exploitation, is about acting for an ideal through realities.
+ - Faced with crisis, the man of character falls back upon himself.
+ - One does not arrest Voltaire.
+ - Victory often goes to the army that makes the least mistakes, not the most brilliant plans.
+ - The great leaders have always stage-managed their effects.
+ - I grew up to always respect authority and respect those in charge.
+ - When I want to know what France thinks, I ask myself.
+ - It’s impossible in normal times to rally a nation that has 265 kinds of cheese.
+ - Love is the strongest force the world possesses, and yet it is the Greatness is a road leading towards the unknown.
+ - I am a man who belongs to no-one and who belongs to everyone.
+ - You have to be fast on your feet and adaptive or else a strategy is useless.
+ - Old age is a shipwreck.
+ - Adversity attracts the man of character. He seeks out the bitter joy of responsibility.
+ - France cannot be France without greatness.
+ - No country without an atom bomb could properly consider itself independent.
+ - You may be sure that the Americans will commit all the stupidities they can think of, plus some that are beyond imagination.
+ - Nothing builds authority up like silence, splendor of the strong and shelter of the weak.
+ - All my life I have had a certain idea of France.
+ - Men are of no importance. What counts is who commands.
+ - Long live Montreal, Long live Quebec! Long live Free Quebec!
+ - Faced with crisis, the man of character falls back on himself. He imposes his own stamp of action, takes responsibility for it, makes it his own.
+ - The evolution toward Communism is inevitable.
+ - It is not tolerable, it is not possible, that from so much death, so much sacrifice and ruin, so much heroism, a greater and better humanity shall not emerge.
+ - The future does not belong to men...
+ - You start out giving your hat, then you give your coat, then your shirt, then your skin and finally your soul.
+ - A true leader always keeps an element of surprise up his sleeve, which others cannot grasp but which keeps his public excited and breathless.
+ - It will not be any European statesman who will unite Europe: Europe will be united by the Chinese.
+ - When I am right, I get angry. Churchill gets angry when he is wrong. We are angry at each other much of the time.
+ - Since a politician never believes what he says, he is quite surprised to be taken at his word.
+ - Never relinquish the initiative.
+ - Whatever happens, the flame of the French resistance must not be extinguished and will not be extinguished. Tomorrow, as today, I will speak on Radio London.
+ - I have come to the conclusion that politics are too serious a matter to be left to the politicians.
+ - Authority doesn’t work without prestige, or prestige without distance.
+ - History does not teach fatalism. There are moments when the will of a handful of free men breaks through determinism and opens up new roads.
+ - Diplomats are useful only in fair weather. As soon as it rains they drown in every drop.
+ - The Jews remain what they have been at all times: an elite people, self-confident and domineering.
+ - In order to become the master, the politician poses as the servant.
+ - At the root of our civilization, there is the freedom of each person of thought, of belief, of opinion, of work, of leisure.
+ - I always thought I was Jeanne d’Arc and Bonaparte. How little one knows oneself.
+ - No, I’m not talking about the Russians; I mean the Germans. In spite of everything, to have pushed so far!
+ - In the tumult of men and events, solitude was my temptation; now it is my friend. What other satisfaction can be sought once you have confronted History?
+ - Hearing Mass is the ceremony I most favor during my travels. Church is the only place where someone speaks to me and I do not have to answer back.
+ - Deliberation is a function of the many; action is the function of one.
+ - France was built with swords. The fleur-de-lis, symbol of national unity, is only the image of a spear with three pikes.
+ - The true statesman is the one who is willing to take risks.
+ - You’ll live. Only the best get killed.
+ - Men can have friends, statesmen cannot.
+ - Today we are crushed by the sheer weight of the mechanized forces hurled against us, but we can still look to the future in which even greater mechanized forces will bring us victory. Therein lies the destiny of the world.
+ - I myself have become a Gaullist only little by little.
+ - Only peril can bring the French together. One can’t impose unity out of the blue on a country that has 265 different kinds of cheese.
+ - Old France, weighed down with history, prostrated by wars and revolutions, endlessly vacillating from greatness to decline, but revived, century after century, by the genius of renewal!
+ - The desire of privilege and the taste of equality are the dominant and contradictory passions of the French of all times.
+ - They really are bad shots.
+ - Every Frenchman wants to enjoy one or more privileges; that’s the way he shows his passion for equality.
+ - How can anyone govern a nation that has two hundred and forty-six different kinds of cheese?
+ - To govern is always to choose among disadvantages.
+ - No policy is worth anything outside of reality.
+ - I feel not a person but an instrument of destiny.
+ - The perfection preached in the gospels never yet built an empire. Every man of action has a strong dose of egotism, pride, hardness, and cunning.
+ - Leaders of men are later remembered less for the usefulness of what they have achieved than for the sweep of their endeavors.
+ - Gentlemen, I am ready for the questions to my answers.
+ - I have heard your views. They do not harmonize with mine. The decision is taken unanimously.
+ - For all of us Frenchmen, the guiding rule of our epoch is to be faithful to France.
+ - In war, the policy of least exertion always risks being paid for dearly.
+ - My dear and old country, here we are once again together faced with a heavy trial.
+ - I’m not at all embarrassed to be a revolutionary.
+ - In the tumult of great events, solitude was what I hoped for. Now it is what I love. How is it possible to be contented with anything else when one has come face to face with history?
+ - I might have had trouble saving France in 1946 – I didn’t have television then.
+ - I have tried to lift France out of the mud. But she will return to her errors and vomitings. I cannot prevent the French from being French.
+ - A great country worthy of the name does not have any friends.
+ - In politics it is necessary either to betray one’s country or the electorate. I prefer to betray the electorate.
+ - It so happens that the world is undergoing a transformation to which no change that has yet occurred can be compared, either in scope or in rapidity.
+ - Once upon a time there was an old country, wrapped up in habit and caution. We have to transform our old France into a new country and marry it to its time.
+ - As an adolescent I was convinced that France would have to go through gigantic trials, that the interest of life consisted in one day rendering her some signal service and that I would have the occasion to do so.
+ - The cabinet has no propositions to make, but orders to give.
+ - I cannot prevent the French from being French.
+ - These people really aim very badly.
+ - He who laughs last didn’t get the joke.
+
+113 quotes

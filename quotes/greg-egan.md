@@ -1,0 +1,27 @@
+ - Mathematics catalogues everything that is not self-contradictory; within that vast inventory, physics is an island of structures rich enough to contain their own beholders.
+ - Diaspora starts about a thousand years from now. Most of human civilisation has moved inside computers; essentially, a major branch of our descendants consists of conscious software.
+ - I admire David Lynch so much, and I think he made some bad decisions with Lost Highway.
+ - Widespread caffeine use explains a lot about the twentieth century.
+ - Fandom is about fandom, it’s a great big social club.
+ - You know what they say the modern version of Pascal’s Wager is? Sucking up to as many Transhumanists as possible, just in case one of them turns into God.
+ - No, that’s journalism. The truth is whatever you can’t escape.
+ - If we spend all our time gazing at the wonders ahead without remembering where we’re standing right now, we’re going to trip and fall flat on our face, over and over agaain.
+ - Would I have been happier? Maybe. But then, happiness was overrated.
+ - Everyone here would die for the sake of truth. Everyone here lies constantly for the tiniest chance of personal gain. This is what it means to be a scientist.
+ - Nobody wants to spend eternity alone.
+ - The Universe may be stranger than we can imagine, but it’s going to have a tough time outdoing Egan.
+ - Screw every known human culture.
+ - I’ve been taking longer to write stories lately.
+ - Australian SF book publishing has undergone a boom recently, and sometimes it’s easier for new writers to sell a book to a local publisher first, which then makes a US edition more likely.
+ - Being rewarded for anything other than the quality of their work is the fastest way to screw-up a writer-and it isn’t only new ones who suffer from that.
+ - On his eighteenth day in the tiger cage, Robert Stoney began to lose hope of emerging unscathed.
+ - I’ve supported myself by writing since 1992, and I’m probably very nearly unemployable by now because employers are likely to be put off by the long gap.
+ - I hadn’t given much thought to the prospect of a Hugo nomination at the time it happened, but obviously once you’re nominated, winning one seems a bit less far-fetched than before.
+ - A story in Asimov’s is read by hundreds of thousands of people.
+ - For there is a truth which cannot be bought or sold, imposed by force, resisted or escaped.
+ - Pop science goes flying off in all kinds of fashionable directions, and it often drags a lot of SF writers with it. I’ve been led astray like that myself at times.
+ - I think new writers everywhere need opportunities to get published.
+ - I’m rarely grabbed by anything the way I was when I was 10 years younger. About the only relatively new artists whose albums I own are Beck, and They Might Be Giants.
+ - I don’t have any structured grand plan; I just intend to keep writing about the things that interest me-some of which change, some of which don’t.
+
+25 quotes

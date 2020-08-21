@@ -1,0 +1,93 @@
+ - We’re plugged in 24 hours a day now. We’re all part of one big machine, whether we are conscious of that or not. And if we can’t unplug from that machine, eventually we’re going to become mindless.
+ - Suppose time is a circle, bending back on itself. The world repeats itself, precisely, endlessly.
+ - I am spellbound by the plays of Shakespeare. And I am spellbound by the second law of thermodynamics. The great ideas in science, like the Cro-Magnon paintings and the plays of Shakespeare, are part of our cultural heritage.
+ - The tragedy of this world is that no one is happy, whether stuck in a time of pain or joy.
+ - If a person holds no ambitions in this world, he suffers unknowingly. If a person holds ambitions, he suffers knowingly, but very slowly.
+ - As a scientist, I don’t believe science will ever discover whether God exists. Nor do I believe religion will ever prove it.
+ - You’ve made something grand, but it will be grander if it has feeling and beauty and harmony.
+ - So many little lives, amounting to nothing. I ask you: What is infinity multiplied by zero? It is hardly worth our discussion.
+ - The world is moving faster and faster, but where are we going?
+ - We often do not see what we do not expect to see.
+ - The tragedy of this world is that everyone is alone. For a life in the past cannot be shared with the present.
+ - A person who cannot imagine the future is a person who cannot contemplate the results of his actions. Some are thus paralyzed into inaction.
+ - The urge to discover, to invent, to know the unknown, seems so deeply human that we cannot imagine our history without it.
+ - It is a world of impulse. It is a world of sincerity. It is a world in which every word spoken speaks just to that moment, every glance given has only one meaning, each touch has no past or no future, each kiss is a kiss of immediacy.
+ - Time is the clarity for seeing right and wrong.
+ - A life is a moment in season. A life is one snowfall. A life is one autumn day. A life is the delicate, rapid edge of a closing door’s shadow. A life is a brief movement of arms and of legs.
+ - Who would fare better in this world of fitful time? Those who have seen the future and live only one life? Or those who have not seen the future and wait to live life? Or those who deny the future and live two lives?
+ - You say, “Something important really happened here. I really had hold of something I was visited by the muse.” And that’s enough to make you continue the months and years to finish the whole book.
+ - Sadness is no more than a bit of acid transfixed in the cerebellum.
+ - Faith is the ability to honor stillness at some moments, and at others to ride the passion and exuberance.
+ - As long as God does not intervene in the contemporary universe in such a way as to violate physical laws, science has no way of knowing whether God exists or not. The belief or disbelief in such a Being is therefore a matter of faith.
+ - In a world without future, each moment is the end of the world.
+ - The history of science can be viewed as the recasting of phenomena that were once thought to be accidents as phenomena that can be understood in terms of fundamental causes and principles.
+ - Novels aren’t pedagogical instruments, or instructions in law or physics or any other discipline. A novel has to be an emotional experience, a trip of the imagination, and because science has raised so many issues that concern and affect humans, it’s a good starting place for me.
+ - No one knows the nature of God, or even if God exists. In a sense, all of our religions are literary works of the imagination.
+ - Order is the law of nature, the universal trend, the cosmic direction. If time is an arrow, that arrow points toward order. The future is pattern, organization, union, intensification; the past, randomness, confusion, disintegration, dissipation.
+ - I wouldn’t overall say that The Diagnosis it’s a funny book. I would say that it has comic moments. It’s a modern tragedy.
+ - I consider myself a spiritual atheist. I certainly believe there are forces bigger than ourselves, and that we should be searching, individually, for meaning in our lives. But I don’t believe there’s a supreme being, an intelligence that created everything.
+ - As human beings, don’t we need questions without answers as well as questions with answers, questions that we might someday answer and questions that we can never answer?
+ - My second novel, Good Benito, was not finished. I wished that I had spent another year with it.
+ - A good book changes for you every few years because you are in a different place in your own life. That’s a sign of a good novel. Not only will two different readers get something different but so will a single reader at different points in his life.
+ - Despite our strongly felt kinship and oneness with nature, all the evidence suggests that nature doesn’t care one whit about us. Tornadoes, hurricanes, floods, earthquakes and volcanic eruptions happen without the slightest consideration for human inhabitants.
+ - While people brood, time skips ahead without looking back.
+ - Each person who gets stuck in time gets stuck alone.
+ - Imagine a world in which there is no time. Only images.
+ - Time is a rigid, bonelike structure, extending infinitely ahead and behind, fossilizing the future as well as the past.
+ - Everyone shares the same fate.
+ - A world with one month is a world of equality.
+ - It’s the Platonic philosophy in The Republic that philosophers should lead the country...
+ - Is it possible for a person to love without wanting love back? Is anything so pure? Or is love, by its nature, a reciprocity, like oceans and clouds, an evaporating of seawater and a replenishing by rain?
+ - We live in a highly polarized society. We need to try to understand each other in respectful ways. To that end, I believe that we should make room for both spiritual atheists and thinking believers.
+ - I have a number of vague ideas where I just have the core or kernel of the idea. I feel like I need some time for my mind to fill up again. I feel empty. Right now.
+ - I think e-mail is representative of our fast food mentality in the United States, where everything has gotten faster and faster, and we’re required to respond to inputs more quickly with less time for thought and reflection. I believe that we need to slow down.
+ - What sense is there in continuing when one has seen the future?
+ - I think it is always a long shot getting a book made into a film. Making that book into a film is going to be quite a challenge.
+ - A world in which time is absolute is a world of consolation. For while the movements of people are unpredictable, the movement of time is predictable. While people can be doubted, time cannot be doubted. While people brood, time skips ahead without looking back.
+ - In a world in which time is a circle, every handshake, every kiss, every birth, every word, will be repeated precisely.
+ - In a world without future, each parting of friends is a death. In a world without future, each loneliness is final. In a world without future, each laugh is the last laugh. In a world without future, beyond the present lies nothingness, and people cling to the present as if hanging from a cliff.
+ - I re-read a lot of books that I like a lot. There are some books that I try to reread every couple of years. A good book changes for you every few years because you are in a different place in your own life.
+ - All writers have roots they draw from – travel, work, family. My roots are in science and it is fertile ground for fiction.
+ - It’s not necessarily a large number of people that affect the culture. You don’t count the number of influential voices, you weigh them. A hundred people can affect the culture.
+ - I still will sit down at the piano and play when I am wrestling with something emotionally or just want to move into the musical world.
+ - Some say it is best not to go near the center of time. Life is a vessel of sadness, but is noble to live life and without time there is no life. Others disagree. They would rather have an eternity of contentment, even if that eternity were fixed and frozen, like a butterfly mounted in a case.
+ - Unfortunately, public debates do not have much room for subtlety. The audience wants a quick thrust at your opponent, not a slow and convoluted series of moves. Whenever Obama uses subtleties in discussing a complex issue, he gets creamed.
+ - For it is only habit and memory that dulls the physical passion. Without memory, each night is the first night, each morning is the first morning, each kiss and touch are the first.
+ - As both a scientist and a humanist myself, I have struggled to understand different claims to knowledge, and I have eventually come to a formulation of the kind of religious belief that would, in my view, be compatible with science.
+ - Franz Kafka is an idea person. His books begin and end in ideas. Ideas have always been important to me in my writing. To the point that I have to be careful that they don’t take over.
+ - My writings are an exploration, and I think a lot of writers would tell you this, but in writing, you’re not simply putting down things that are already known to you. You’re actually discovering in the writing process, you’re actually creating knowledge.
+ - Continents of memory had been lost.
+ - Another strand of my writing is the importance of the idea. If you think about fiction writing as a spectrum, where at one end of the spectrum in the infrared, are the story tellers, and the people for whom creation of wonderful characters and telling a good story is the most important thing.
+ - With a background in science I am extremely interested in the meeting ground of science, theology, and philosophy, especially the ethical questions at the border of science and theology.
+ - For my students who are trying to learn the craft of writing in a writing class – contemporary literature is what’s most useful.
+ - Where are the one billion people who lived and breathed in the year 1800, only two short centuries ago?
+ - A writer is someone who has a one-man tent in the desert and occasionally he sees the footprint of an other writer – in the form of a review or something.
+ - No one ever expects poetry to sell.
+ - I love the fact publishers are still publishing unprofitable material. It’s a challenge to the powers that be. It’s saying there is a real literature in this country and we will keep publishing it.
+ - I oppose any belief that contradicts experimental evidence as determined by the methods of science. All beliefs not in such contradiction may be considered as faith. Whether faith in a particular belief is beneficial or not is another matter.
+ - In this world, artists are joyous. Unpredictability is the life of their paintings, their music, their novels. They delight in events not forecasted, happenings without explanation, retrospective.
+ - I consider myself an essayist and a fiction writer. In the essays, I certainly have been influenced by some of the leading science essayists. Like Loren Eiseley, Stephen Jay Gould, Lewis Thomas.
+ - In fiction writing, I would say there are several different strands that have been woven through my own writing, and each influenced by a different group of writers.
+ - The target of power is more interesting than its quantity.
+ - The time-deaf are unable to speak what they know. For speech needs a sequence of words, spoken in time.
+ - But what is the past? Could it be, the firmness of the past is just illusion? Could the past be a kaleidoscope, a pattern of images that shift with each disturbance of a sudden breeze, a laugh, a thought? And if the shift is everywhere, how would we know?
+ - In fiction writing ideas have to be handled extremely carefully. You can’t let your characters just be mouthpieces for your ideas. They have to live and breathe on their own.
+ - Every reader gets something different from a book and every reader, in a sense, completes it in a different way.
+ - Except for a God who sits down after the universe begins, all other gods conflict with the assumptions of science.
+ - I have too many friends who tell me that they spend the first hour of every morning going through their e-mail messages. I’d like to use my time more carefully.
+ - I think all tragedies are best told with some humor. You have to relieve the darkness to let the reader get through it. Also, that life has happiness and sadness mixed together. If you told a story that was all darkness, it wouldn’t be real.
+ - I have always loved magic realism as a form of writing. I have also been fascinated for a long time with the intersection of science and religion.
+ - If you over-plot your book you strangle your characters. Your characters have to have enough freedom and life to be able to surprise you.
+ - Scientists will forever have to live with the fact that their product is, in the end, impersonal.
+ - Music is, of course, a universal emotional experience, cutting across cultures and languages. I studied piano for ten years as a child and consider that experience one of the most valuable in my life.
+ - Writers are a loosely knit community – community is an overstated word. Writers don’t see each other very much.
+ - I should have written books instead of reading them.
+ - Each time is true, but the truths are not the same.
+ - The Book of Telling tells of a woman’s journey to uncover the secret life of her father and to find herself in the process, an unusual counterpoint between personal history and the history of a young nation. Haunting, powerful, and beautifully written.
+ - If I were not a writer, I would spend more time doing the things that I am already doing, which include doing research in physics, teaching, and running a nonprofit organization with a mission to empower women in Cambodia.
+ - I think what gets you through a small writing project, is just one burst of inspiration. A book, especially a longer book, it’s a different kind of force that pushes you through it. It’s a vision of the whole thing.
+ - I’ve taken a philosophical position on e-mail. Although I think it’s a wonderful communication technology, and it has a lot of good uses, it is abused quite a lot.
+ - Every essay – the subject matter of every essay – is ultimately about the essayist; him or herself. That ultimately, every essayist is writing about his or her view of the world.
+ - People are content to live in contradictory worlds, so long as they know the reason for each.
+
+91 quotes

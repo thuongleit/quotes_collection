@@ -1,0 +1,24 @@
+ - In science fiction a fantastic event or development is considered rationally.
+ - The zombie is in a lot of ways the perfect horror movie bad guy. It plays on so many fears all at once. The fear of predators, the fear of disease and the fear of loved ones betraying us – the ones we care about are turning around and trying to eat us.
+ - One should be willing to throw away a dozen ideas to come up with a good one, just as one should throw away a dozen words to come up with the right one.
+ - I don’t know if there is any one secret to successful writing, but one important step is to move beyond imitation and discover what you can write that no one else can – that is, find out who you are and write that in an appropriate narrative and style.
+ - We live in a world where everybody’s supposed to be cool and act tough and put up fronts, and everybody is so cynical.
+ - I really like people who can do both drama and comedy and not some like middle of the road do both drama and comedy. I’m not talking about some guy who does these bland dramedies all the time. I’m talking about people that have done heavy drama and who have done heavy comedy.
+ - I love Groot so much I get teary eyed when I think of him sometimes. Essentially, all the Guardians start out the movie as bastards – except Groot. He’s an innocent. He’s a hundred percent deadly and a hundred percent sweet. He’s caught up in Rocket’s life, really.
+ - God giving man life and taking it away is not nearly so bad as God taking away childhood and giving him life.
+ - Thinking that everything is going to come together in a perfect way is not necessarily the way it’s going to happen.
+ - When I was a kid, I was obsessed with different planets in the solar system, and I used to create, for every single planet, a different alien race with a certain kind of pet, a certain kind of house, a certain kind of water system, and everything.
+ - I hope I’m still alive to see an expedition set off for Mars.
+ - Every movie I’ve ever made has just kind of come together.
+ - When people go to the theater, people say they want something different, but what they really want is something the same with slight permutations. To really not know what is going to happen next is a hard thing.
+ - But if you, as an independent filmmaker or a ‘serious’ filmmaker, think you put more love into your characters than the Russo Brothers do Captain America, or Joss Whedon does the Hulk, or I do a talking raccoon, you are simply mistaken.
+ - It also is true that some ideas naturally work themselves out over a longer period of time than a single human life can encompass.
+ - I always like to think that I make movies that are like Nirvana songs. They have a slow verse and then they pop into high gear and then they go back into slow and then they pop into high gear again.
+ - The writer’s genetic inheritance and her or his experiences shape the writer into a unique individual, and it is this uniqueness that is the writer’s only stuff for sale.
+ - In hard-core science fiction in which characters are responding to a change in environment, caused by nature or the universe or technology, what readers want to see is how people cope, and so the character are present to cope, or fail to cope.
+ - I don’t really like movies that are all one or the other. It’s really about the play between both of them. Now that I’ve said that, there’s actually lots of movies that I like that are one or the other but it’s just not for me as a filmmaker.
+ - My brain has always been wired in such a way that I’d rather communicate to a smaller audience who really get turned on by what I do than meet a wider audience and give them milk.
+ - It’s definitely not the character who it is in the comics, I’ll say that much.
+ - I like to plan everything out and know exactly what we’re doing. It’s always important to me to work with a cast and a crew that not only I respect their talent but I really like them as people.
+
+22 quotes

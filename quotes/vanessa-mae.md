@@ -1,0 +1,23 @@
+ - Violin playing is a physical art with great traditions behind it.
+ - But I still think it’s mind over matter in the sense that if you’re strong, you can combat anything.
+ - Music will always be my greatest passion.
+ - I will be the Thai equivalent of Eddie the Eagle.
+ - In an ideal world, I’d spend every weekend at my home in Zermatt in Switzerland.
+ - In winter I go skiing on Saturdays and Sundays when the slopes are quieter due to changeover day for tourists, and in summer I hike up into the mountains at sunset, just as the village is settling down to dinner.
+ - When I hit my 20s, I took a chill pill and relaxed because throughout my teens I was churning out an album a year. It was a treadmill of work then recording, promoting and touring.
+ - Beethoven and Beatles, Mozart and Michael Jackson, Paganini and Prince – I like them all.
+ - All the time I’m changing as an artist and as a person.
+ - The stage is the best experience in the world. It’s a great compliment to be able to share the music, because people can hear my album but they don’t get to make the connection in the same way as when it’s one-to-one.
+ - People find it hard to understand how I can risk ruining my career as a musician by injuring myself on the slopes, but I’ve always been a tomboy.
+ - But I don’t mind, I’m a bit of a touring animal. When I’m on tour that is the greatest thrill for me, playing to a live audience.
+ - For example, I loved English and history at school. I would have loved to have done a degree in either. But my Mom said I didn’t have time for university.
+ - To even get to the Olympics, I have to qualify for the 2013 World Championships and the standard is high. I know I am always going to be a few points behind the top guys.
+ - I started skiing around the same time as I began playing the piano, at around four, before moving to the violin at five.
+ - Kids can be born with potential but unless it’s encouraged – pushed, even – I don’t think it will ever come to fruition.
+ - I could have taken the easy life and just done classical, but I felt very strongly about the album, my first pop album, the first time that I’d fused so many influences. I was very proud when it was in the charts in 25 countries at once.
+ - I’ve decided to make my main priority for the next two years not playing the violin, but training for the 2014 Winter Olympics in Sochi, Russia.
+ - But I don’t think I’ve grown up to be a damaged adult.
+ - Music is about the performance.
+ - I don’t mind about the boos from the audience.
+
+21 quotes

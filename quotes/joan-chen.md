@@ -1,0 +1,33 @@
+ - If you know how to do a job very well, you keep doing it.
+ - All Asian parents are into your children having a respectable, decent stable job. Acting was unimaginable to my parents.
+ - The young people, they don’t knock on the door politely and say “May I come in?” They barge in, they take your seat, and you’re obsolete unless you recreate and somehow find grace somewhere else. Another profession may not be like that.
+ - Acting for me is not a bad habit like smoking that I must make an effort to quit. I love acting; I love directing.
+ - When you feel so strongly about something and other people feel equally strongly, you have to feel stronger about it in order to succeed.
+ - There are many ways you can make money. Certain ways will make you happy, certain other ways will make other people happy. But if you go in because there’s money in there, you’re bound to fail, bound to fail!
+ - It’s the sacrifice I’m not willing to make right now to leave my children because I felt it wasn’t only my choice.
+ - My fairy-tale life ended the moment I wanted to apply for a passport.
+ - I miss directing. I see stories in images and music more so than in dialogue.
+ - I would never offer advice without the person asking for it. I, in general, don’t believe in giving advice, actually, as a human being I don’t.
+ - Since my mom is the President of Ballet Hawaii, I’m always in touch with stuff going on.
+ - There are a lot of stereotypes to be broken which I think a lot of us are doing. What I do is, as soon as people try to pin me down to one kind of part, I’ll play a very different kind of role, so it explodes that stereotype.
+ - I take class. I’m always ballet ready. I’m ready to go – got my tights and my shoes.
+ - I grew up in Honolulu. It’s not the ballet cultural mecca by any stretch of the imagination. People are much more familiar with hula than they are with ballet.
+ - I will always have a career. I believe in working. I don’t believe that taking care of your house and children is enough for a woman. You don’t feel complete.
+ - There is no theoretical study of motherhood. You know, before I became a mother, I did play a mother, but I was like – I was more thinking of my own mother. I was doing my mother.
+ - Not very many companies go through Hawaii on their way to anywhere. San Francisco Ballet was the only company I remember, and Bolshoi, coming through Hawaii when I was younger.
+ - I enjoy going back to work now because cinema is going through an exciting period because young people are now going back to the movie theaters. But things are different though.
+ - Acting is actually private.
+ - I don’t want to tell people what I make. It’s a lot more than I ever dreamed of as a kid. I never think about it.
+ - For the past few years, I was the more visible Asian performer, and I think it gave young girls a kind of role model showing it’s possible to actually reach success doing movies.
+ - I love any opportunity to be able to dance. It’s in my blood. I mean, I need to do it as an artist. I need to always do it.
+ - Since age 14, I know what actors fear, what they like; I know how to get things out of them and I listen to them better, since I’ve been there.
+ - As an actress I find the most enjoyable part of acting is really just to please the director. I just want to please my director.
+ - I never went on an audition – when they were really looking at everybody.
+ - The difference between me and American-born actors is that I came here with the expectation of not being treated fairly.
+ - How I was raised is what I am today.
+ - All teenagers have this desire to somehow run away.
+ - I danced in a Lifetime film. We shot in Canada and I got to work with a lot of the dancers who do So You Think You Can Dance, Canada.
+ - I went to the International Ballet competition when I was 15 or 16 and that was the first time I competed. I didn’t get very far but it was the first time that I realized what I needed to do to become a dancer. I realized how hard it was.
+ - I don’t find intimate scenes more difficult than other scenes.
+
+31 quotes

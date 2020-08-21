@@ -1,0 +1,30 @@
+ - If the history of science shows us anything, it is that we get nowhere by labeling our ignorance “God”.
+ - You can find religions without creationism, but you never find creationism without religion.
+ - The battle for evolution seems never-ending. And the battle is part of a wider war, a war between rationality and superstition.
+ - The fact that both Jews and Christians ignore some of God’s or Jesus’s commands, but scrupulously obey others, is absolute proof that people pick and choose their morality not on the basis of its divine source, but because it comports with some innate morality that they derived from other sources.
+ - Religion is based on dogma and belief, whereas science is based on doubt and questioning.
+ - Evolution tells us where we came from, not where we can go.
+ - Why, exactly, are scientists supposed to accord “respect” to a bunch of ancient fables that are not only ludicrous on their face, but motivate so much opposition to science?
+ - The biogeographic evidence for evolution is now so powerful that I have never seen a creationist book, article, or lecture that has tried to refute it. Creationists simply pretend that the evidence doesn’t exist.
+ - There is no horror, no amount of evil in the world, that a true believer can’t rationalize as consistent with a loving God. It’s the ultimate way of fooling yourself.
+ - We don’t have faith in reason; we use reason because, unlike revelation, it produces results and understanding. Even discussing why we should use reason employs reason!
+ - If the history of science teaches us anything, it is that what conquers our ignorance is research, not giving up and attributing our ignorance to the miraculous work of a creator.
+ - We are the one creature to whom natural selection has bequeathed a brain complex enough to comprehend the laws that govern the universe. And we should be proud that we are the only species that has figured how we came to be.
+ - In the end theologians are jealous of science, for they are aware that it has greater authority than do their own ways of finding “truth”: dogma, authority, and revelation. Science does find truth, faith does not.
+ - We humans have many vestigial features proving that we evolved. The most famous is the appendix.
+ - A well-understood and testable hypothesis like sexual selection surely trumps an untestable appeal to the inscrutable caprices of a creator.
+ - It is clear, then, that whatever genetic heritage we have, it is not a straitjacket that traps us forever in the “beastly” ways of our forebears. Evolution tells us where we came from, not where we can go.
+ - Faith is a padlock of the mind, and few keys can open it.
+ - These mysteries about how we evolved should not distract us from the indisputable fact that we did evolve.
+ - Theology is the post hoc rationalization of what you want to believe.
+ - Damn, but science is just a constant feed of cool new facts and theories. Theology doesn’t come close.
+ - Can a geology teacher blithely tell his students that the earth is flat, or a European history professor that the Holocaust didn’t happen? That’s not academic freedom, but dereliction of duty.
+ - It takes a profound hypocrisy to try to reconcile for others things that you can’t reconcile for yourself.
+ - If you can’t think of an observation that could disprove a theory, that theory simply isn’t scientific.
+ - Because of the hegemony of fundamentalist religion in the United States, this country has been among the most resistant to the fact of human evolution.
+ - Come on, readers, give me one example of a question that religion has answered to everyone’s satisfaction one example of a “truth” found in religion’s quest for truth.
+ - In religion, faith is a virtue. In science, faith is a vice.
+ - Some believers are fundamentalists about everything, but every believer is a fundamentalist about something.
+ - We now have many of the answers that once eluded Darwin, thanks to two developments that he could not have imagined: continental drift and molecular taxonomy.
+
+28 quotes

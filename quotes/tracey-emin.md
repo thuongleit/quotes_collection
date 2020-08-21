@@ -1,0 +1,49 @@
+ - Sometimes i feel lonely, but it’s ok.
+ - What’s really good about the word ‘art’ is that ‘art’ is a word like ‘love,’ or ‘god,’ or whatever. It transcends so many things...
+ - I want to spend my life with someone and do nice things and go on adventures, read books and have nice food and celebrate things. I don’t want to spend the rest of my life in the bedroom like some people who just go to bed and never get out again.
+ - I really love animals. My cat is my little soul mate. He’s not just a cat, he’s my friend.
+ - What is truth? Truth doesn’t really exist. Who is going to judge whether my experience of an incident is more valid than yours? No one can be trusted to be the judge of that.
+ - People try constantly to use me, and I hate it.
+ - Being an artist and having to be responsible for the art that you make is really quite challenging, and as you get older it becomes more and more difficult.
+ - They grew really quickly. One minute I didn’t have any tits and the next I had the biggest tits in the world.
+ - Strolling on the plateau of life, desperate for the mountain, I never thought that I would get this far. It’s only art that has carried me through, given me faith in my own existence. But now I am approaching a point in my life where I desire more...
+ - When I am ill or upset he jumps up on to the bed to curl up close beside me. But if I am in bed with a hangover he will have nothing to do with me.
+ - I’m a terrible cook, but if I could cook, I would see that in art as well, it’s how much creative energy you put into something.
+ - For me, being an artist with a high profile is a good thing for art.
+ - Most people don’t do something seminal. I’ve done it twice: with my tent and my bed. Picasso did it with Cubism.
+ - I feel physically ill if I don’t make work, I don’t create. I don’t feel very good. I don’t feel right, I feel wrong.
+ - Art is like a lover whom you run away from but who comes back and picks you up.
+ - I’ve never been married because, first of all, I don’t think I’ve ever seriously been asked by anyone who I wanted to marry. And also I’m monogamous.
+ - I’ve got over so much. Mum wouldn’t want anything to come into my life that would make me fragile again.
+ - I don’t ask for an apology because it’s only tomorrow’s fish-and-chip paper.
+ - The words went round and round and round in my mind and my body, until I knew they were no longer my words but something that had been carved into my heart. And now my soul was crying.
+ - Theres different kinds of love, and Id never experienced that kind of totally platonic love. All the love Ive experienced has always been a kind of deal, and now, as I get older, I realise that theres this other love out there.
+ - I thought it would be my one and only exhibition, so I decided to call it My Major Retrospective.
+ - I am fiercely independent and I probably wouldn’t be if it wasn’t for the way in which I was brought up.
+ - All the mistakes I’ve ever made in my life have been when I’ve been drunk. I haven’t made hardly any mistakes sober, ever, ever.
+ - When it comes to words I have a uniqueness that I find almost impossible in art – and it’s my words that actually make my art quite unique.
+ - I’m not opposed to commerce, even though I’m an artist.
+ - All the people in the late ’80s and early ’90s were really hell-bent on doing something for themselves, and they wouldn’t take no for an answer. There was a lot of determination, and I was definitely part of that way of thinking.
+ - My influences were from Europe from between 1900 and 1945. My favorite artists were Egon Schiele or Edvard Munch. I wasn’t interested in contemporary art at all.
+ - My mum has never wanted me to have children. She thinks I would be destroying my life, even now.
+ - I’ve worked really hard. I’ve made three pieces of seminal art in my life. If I died tomorrow, I’d be remembered for making them. There are a lot of artists who, no matter how hard they work in their lives, will never make anything seminal.
+ - I found that life has to be edited to continue.
+ - One thing that success has taught me is censorship.
+ - It pleases me that people can be interactive.
+ - People don’t remember. Revenge is sweet.
+ - I’ve been slagged off completely by the art world.
+ - Maybe I don’t believe things myself, as well. Truth is such a transient thing.
+ - I’m not trying to find another thing that’s wrong with me, but I’m such a nice person, and I have a couple of drinks and I’m really good fun and then I’m really not fun.
+ - The wheel that squeaks gets the oil.
+ - There’s so much stuff said about me that’s not true, so now if something is hurtful and wrong, I send an e-mail or letter immediately, saying, This is not true.
+ - If I didn’t want to work for a couple of years, I wouldn’t have to-it’s a great feeling, to know I’m doing it because I want to do it.
+ - It’s my memory, and what happened between that moment 10 or 15 years ago and now, there’s a lot of gray area.
+ - I had become conscious of my physicality, aware of my presence and open to the ugly truths of the world. At the age of thirteen, I realised that there was a danger in innocence and beauty, and I could not live with both.
+ - There is nothing difficult about my work, and people get to hear it from me.
+ - It wasn’t so much destroying my dancing, it was destroying me.
+ - There is no comparison between him and me; he developed a whole new way of making art and he’s clearly in a league of his own. It would be like making comparisons with Warhol.
+ - If I were really, truly in love with someone who was truly in love with me, then I would get married, but that would be the only reason I’d get married.
+ - I’m totally monogamous when I’m in a relationship, and when I’m not in a relationship, I don’t sleep around. So when I’m not with someone, I’m really on my own.
+ - The idea that I’m going to have to sit down to write some fiction where I’m going to have to think of a plot would really scare me, because it would come out a mess.
+
+47 quotes

@@ -1,0 +1,37 @@
+ - Don’t try so hard to fit in, and certainly don’t try so hard to be different just try hard to be you.
+ - I don’t mind if people look at me like I’m crazy. I’m just being me.
+ - There are so many great things in life; why dwell on negativity?
+ - It is important in this journey to remember that just because someone has inflicted hurt upon us, it does not give us the right to do the same. Body shaming and hurtful tactics will never get the job done.
+ - I’m very proud of my skin and my face, and I have no problem not wearing makeup. I don’t wear makeup because I feel like I need to cover myself up or because I don’t feel confident. I wear makeup because it’s fun; it’s like painting on my face.
+ - I was actually supposed to be a basketball player, not an actress. My parents had me playing basketball on competitive teams when I was in kindergarten. Even though my heart belongs to the arts, I’m a tomboy at heart, too.
+ - A, surround yourself by positive people who will help you reach your goal and support you. And B, go for it!
+ - Shake It Up is a buddy comedy based around dance. It’s about two best friends Rocky and CeCe who live out their dream as background dancers on a show called Shake It Up Chicago. They have to navigate life as young teens going to school and dancing on the show.
+ - To me locs are a symbol of strength and beauty.
+ - I think women are very powerful and I think we’re more powerful together than separated.
+ - It’s so hard for women to be happy for one another, like genuinely happy. Once you find that, you know you’ve found true SELF happiness.
+ - Determination. No matter what field you’re in, determination will surely get you to the top.
+ - To me, America is a symbol of all different views, different types of people coming together.
+ - I want to show that you don’t have to be older to live your dreams; you can do it at any age.
+ - I am scared of spiders! And I still get a little afraid every time I have to do something new or have to get out in front of a big crowd. The first time I sang “Swag It Out” live, I was really scared.
+ - The best thing is to realize that you are who you are and you gotta work with what you got.
+ - Money does not make you look expensive, it’s taste.
+ - That’s what is really cool about this whole new wave of makeup artistry and people on Instagram and YouTube: It’s about doing it for yourself and experimenting. People don’t wear makeup to impress people or because they’ll be seen in public. It’s more of a hobby now, just because it’s fun.
+ - I grew up watching “That’s So Raven” and “Lizzie McGuire,” and I said to myself that I could do that one day, and here I am. This is a dream come true and I am just ecstatic to be here living out my childhood dreams.
+ - Shake It Up definitely teaches kids about the importance of reaching for your dreams and setting high goals. It also teaches great lessons about friendship and family.
+ - I just see me, an ordinary girl. I know my life is not typical, but I have tried to stay really grounded and true to myself. My family really helps me with that.
+ - I would say my best decision I ever made was to pursue my dream and give it my all. Thankfully, I have not yet made really bad decisions, I’m the kind of person to play it on the safe side.
+ - The secret to a really great friendship is just creating fun memories whenever you’re with that person.
+ - I’ve been blessed with good eyebrows, and I’ve worked very hard for them. Get a good brow pencil, fill them in a bit, make them perfect, and I guarantee you’ll feel better. At least it works for me.
+ - I am really good at making Top Ramen. I also love it when my mom makes vegetarian lasagna for me.
+ - I love seeing young people take a stance and not be afraid to say how they feel, and protest when they feel things are wrong or unjust.
+ - I’m one of those people who doesn’t follow trends. I set them.
+ - My wearing my hair in locs on an Oscar red carpet was to showcase them in a positive light, to remind people of color that our hair is good enough.
+ - I couldn’t choose between all of those things! I looooove acting and dancing on Shake It Up, and I am currently in the recording studio working on my music. And one of my dreams is to walk down the runway during fashion week!
+ - I always have my own music on my iPod, especially songs that I am going to record. Besides that, I have lots of others ranging from Chris Brown to Beyonce’, Michael Jackson, Rascal Flatts and Adele.
+ - Well, I would say that Shake It Up was a chance for me to do two things I really love: acting and dancing.
+ - Chanel all the way! Just because not only do they have timeless pieces, but since it is the epitome of class and elegance.
+ - One of my dreams is to walk down the runway during Fashion Week!
+ - I have a job that allows me not to look perfect all the time. I can just go looking the way I look, have my hair just any old type of way.
+ - I have a really strong passion for what I do. I don’t see myself doing anything else.
+
+35 quotes

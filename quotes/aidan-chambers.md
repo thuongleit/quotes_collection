@@ -1,0 +1,31 @@
+ - History dies without the present. There is no future without the path made to it by the past.
+ - You have to know your own truth and stick to it. And never despair. Never give up. There’s always hope.
+ - I thought how lovely and how strange a river is...
+ - Self pity is a disease which does not kill but corrodes.
+ - Sometimes the course of our lives depends on what we do or don’t do in a few seconds, a heartbeat, when we either seize the opportunity, or just miss it. Miss the moment and you never get a chance again.
+ - The books, the authors who matter the most are those who speak to me and speak for me all those things about life I most need to hear as the confession of myself.
+ - I huff and puff and struggle with every sentence, paragraph and page – sometimes every word as well.
+ - Rooms are a fixed size, which can’t be altered without pulling down walls and building new ones. They should be unchanging in shape and proportions. But sometimes they do change depending on who’s in them.
+ - Readers are made by readers – it is so obvious it is almost banal to say it.
+ - And trust dies from ifs and buts.
+ - When you are in your teenage years you are consciously experiencing everything for the first time, so adolescent stories are all beginnings. There are never any endings.
+ - We resent being faced with facts we’d prefer to ignore as much as being wrongly accused of doing something we haven’t.
+ - And when someone else speaks your name you feel pleased. You feel wanted. You feel there. Alive. Even if they’re saying your name with dislike, at least you know you’re you, that you exist.
+ - You become a reader by reading the literature, not by reading the handbooks about it.
+ - Life is not like a novel, but a novel can be like life. The best ones always are.
+ - There are times when you don’t know yourself. There are times when you don’t want to know yourself. There are times when you want to be what you have never allowed yourself to be before.
+ - Is it better to go with the flow or let the flow go?
+ - However much you love somebody, you should always keep a part of yourself to yourself. Never give it all. You can never be yourself otherwise.
+ - Belief means willing yourself to give all your attention to living with loving gladness in the world you think really exists.
+ - If a boy, if a man, asks you if you’re all right and you say yes, he’ll always believe you and get on with what he wants to do. It’s just the way they’re made.
+ - Doing anything when you’re bored is very very boring. Anyway, doing nothing is the point of being bored. The pleasure of being bored ismooning about and doing nothing.
+ - I will not compromise on language or content. At 15, people can handle the same language as me, they’re just as complicated as me and are very interested in thinking about important questions for the first time.
+ - He thought: How difficult it is to explain yourself to yourself. Sometimes there only is, and no knowing.
+ - Fame, money and the size of the market are not very important to me. What is, is writing a book that is worth doing and then publishing it. I don’t write books for entertainment, for people to pass the time then throw away.
+ - I cannot live without reading.
+ - You get to be wiser by storying the world and seeing it through other forms of consciousness than your own.
+ - The plain unwelcome fact is that sometimes life stymies you.
+ - I don’t actually think “true love” is such a good term because love can only be true. If it isn’t true it can’t be love.
+ - The most memorable people in life will be the friends who loved you when you weren’t very lovable.
+
+29 quotes

@@ -1,0 +1,38 @@
+ - Strangers are just friends waiting to happen.
+ - We come into the world alone. We go away the same. We’re meant to spend the interlude between in closeness or so we tell ourselves. But it’s a long way from the morning to the evening.
+ - Never fear being alone, because you never are.
+ - If you love somebody, tell them.
+ - There is no other way to find ourselves but in each others faces.
+ - Extending your hand is extending yourself.
+ - Be gentle with me, new love. Treat me tenderly. I need the gentle touch, the soft voice, the candlelight after nine. There’s been so many who didn’t understand so give me all the love I see in your timid eyes but give it gently Please.
+ - It’s nice sometimes to open up the heart a little and let some hurt come in. It proves you’re still alive.
+ - The journey back is always longer than the forward run.
+ - Cats have it all – admiration, an endless sleep, and company only when they want it.
+ - Once I thought ideas were exceptions not the rule. That is not so. Ideas are so plentiful that they ride on air. You have only to reach out and snatch one.
+ - Love is a sweet thing caught a momentand held in a golden eye.
+ - I am not a joiner. Somewhere I once said that people join clubs now for the very reason they once carried them, a need for security. Maybe I’m alone more often than I should be, because I try to find security within myself.
+ - Even when you feel you’ve reached the end or edge of life, hold on. Life itself will ultimately take care of you.
+ - People are not born bastards. They have to work at it.
+ - There’s no misery in not being loved, only in not loving.
+ - May your hand be full for always if only with another hand. May your heart be empty only long enough to give you cause to fill it up again with love. May your soul be lost by you only to be found by God.
+ - No map to help us find the tranquil flat lands, clearings calm, fields without mean fences. Rolling down the other side of life our compass is the sureness of ourselves. Time may make us rugged, ragged round the edges, but know and understand that love is still the safest place to land.
+ - Poetry is fact given over to imagery.
+ - I chose the shadows; they did not choose me. I stay here securely not just because I feel plain, but because disappearance is by now the easy way. The habit. The worn path that I can trod knowingly and be assured safe passage home.
+ - To understand others you should get behind their eyes and walk down their spines.
+ - I’ve been going a long time now along the way I’ve learned some things. You have to make the good times yourself take the little times and make them into big times and save the times that are all right for the ones that aren’t so good.
+ - People ask me why I connected. It was presumptuous of me to say, but I’m Everyman. The difference is I put my thoughts into words.
+ - Everybody has the answers or they’ll make them up for you. Just once I’d like to hear a brand-new question.
+ - Watch the indolent butterfly playing on the tall flower in the yard and think about the sun going down. It always does you know.
+ - Unless you call attention to your presence who will know you’re there? Even a country has to weave and wave a flag as proof of its existence.
+ - A poet can’t afford to be aloof. The tools of his trade are the people he bumps up against.
+ - If I could do it over, I’d do better.
+ - The gifts that one receives for giving are so immeasurable that it is almost an injustice to accept them.
+ - We will all wake up semi-angels, If we wake at all.
+ - I’ve come to terms with it, it knows I know.
+ - The world needs writers. We will always be necessary. There are few professions that can claim that distinction.
+ - It happens just because we need to want and to be wanted too, when love is here or gone to lie down in the darkness and listen to the warm.
+ - I cannot speculate on what our cluttered mind will save- sleepy Sundays, or a nosebleed after love. I know only the dying heart needs the nourishment of memory to live beyond too many winters.
+ - I have never known a cat that couldn’t quiet me down just by walking slowly past my chair.
+ - Laws and machines are shaped to fit the classes.
+
+36 quotes

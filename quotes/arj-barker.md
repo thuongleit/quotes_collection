@@ -1,0 +1,25 @@
+ - I hate all generalisations.
+ - I’m in love with a philosophy major, and she doesn’t even know I exist. And what’s worse, she can prove it.
+ - I was high on life but eventually I built up a tolerance.
+ - A woman is a highly developed, deeply intelligent, infinitely complicated being. And it needs to be carefully tricked into doing things.
+ - It’s gotten to the point where I think my friends would rather hang out with their own kids than hang out with me. And I’m like, “Alright, but where’s the loyalty, man. I’ve known you for twenty-five years. How long have you known your baby, like, a month?”
+ - I’m not even worried about settling down. I think it’s way too early. I’m 25 and I’m in show business. I mean, if things go well, my wife hasn’t even been born yet.
+ - I’m thinking of switching banks, and my friend said, ‘Well, what’s wrong with Citibank?’ Well, they can’t spell ‘city.’ I hope their math is better than their English is.
+ - My friend and I were up to all sorts of shenanigans at school. But one time it ended up disrupting the whole class and we got in trouble. His parents told him he wasn’t allowed to hang out with me any more. I had a friendship break-up in third grade. It was brutal.
+ - I love New York, though I’ll never eat any of the ice creams that they sell in the park. That’s just disgusting. You see the little picture of them? They all have a little bite taken out of them already.
+ - I’m trying to feel terrified and alone. And regret every decision I’ve ever made, drenched in a cold sweat. It’s called going to sleep. Maybe you’ve heard of it.
+ - I believe that if you go on a date and get to second base and then you go home alone and rub one out, that’s like runs batted in.
+ - I fainted last night! Luckily I was going to bed at the time so I didn’t get hurt.
+ - I was troubled by the presence of a shoe museum because it forced me to ask a very burning question: would my body be able to physically survive the amount of dope I would need to smoke in order to visit a shoeseum?
+ - My general rule of thumb is, once something’s a ride at Disneyland, I assume that it is no longer a threat in real life. Which is why I don’t expect to get attacked by a giant tea cup anytime soon.
+ - I never smoke grass and drive my car because, for one thing, no matter how many letters I write to the road commissions, they still refuse to start designing highways with second-chance exits.
+ - You can get tested now for early onset Alzheimer’s. Hold on a second, could someone hire a marching band, cause I’m so happy I feel like having a parade. You mean I can find out early if I’m going to die of a super horrible disease that there’s no cure for? Well, whoopee!
+ - I just got a new iPod. It’s got 80 gigabytes. Because I like to jog for three weeks at a time and I do not want to hear the same song twice.
+ - I deserve someone who likes me for who I am pretending to be.
+ - Nobody can ever learn our military’s secrets – unless, you know, they happen to have the Discovery Channel. Then, it’s pretty easy, just tune in for a few minutes.
+ - I was a typical kid. I dug holes in the yard, threw rocks, had plum battles with the neighbours and used trash can lids as shields. I was always outside getting dirty.
+ - You know the little camel on the pack of cigarettes? They just found out that’s not even a camel. It’s actually a horse with a big, old tumor growing out of its mouth.
+ - I never thought I’d be a comedian. But, growing up, I simply loved watching comedy. The ’80s was huge for comedy in the US. Eddie Murphy blew me away with his film Delirious.
+ - From an early age, I was trying to get laughs, but it wasn’t a conscious thing. I think I was about six months old when I first realized I needed friends in life and making people laugh worked for me. By nine months, I came out of my shell.
+
+23 quotes

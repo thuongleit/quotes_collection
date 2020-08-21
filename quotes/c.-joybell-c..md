@@ -1,0 +1,62 @@
+ - Don’t be afraid of your fears. They’re not there to scare you. They’re there to let you know that something is worth it.
+ - The only way that we can live, is if we grow. The only way that we can grow is if we change. The only way that we can change is if we learn. The only way we can learn is if we are exposed. And the only way that we can become exposed is if we throw ourselves out into the open. Do it. Throw yourself.
+ - No, this is not the beginning of a new chapter in my life; this is the beginning of a new book! That first book is already closed, ended, and tossed into the seas; this new book is newly opened, has just begun! Look, it is the first page! And it is a beautiful one!
+ - The strength of a woman is not measured by the impact that all her hardships in life have had on her; but the strength of a woman is measured by the extent of her refusal to allow those hardships to dictate her and who she becomes.
+ - We can’t be afraid of change. You may feel very secure in the pond that you are in, but if you never venture out of it, you will never know that there is such a thing as an ocean, a sea. Holding onto something that is good for you now, may be the very reason why you don’t have something better.
+ - The unhappiest people in this world, are those who care the most about what other people think.
+ - You will find that it is necessary to let things go; simply for the reason that they are heavy. So let them go, let go of them. I tie no weights to my ankles.
+ - There is some kind of a sweet innocence in being human- in not having to be just happy or just sad- in the nature of being able to be both broken and whole, at the same time.
+ - The most adventurous journey to embark on; is the journey to yourself, the most exciting thing to discover; is who you really are, the most treasured pieces that you can find; are all the pieces of you, the most special portrait you can recognize; is the portrait of your soul.
+ - Yesterday I was sad, today I am happy! Yesterday I had a problem, today I still have the same problem! But today I changed the way I look at it!
+ - A clown on a throne is still a clown. A king in rags is still a king.
+ - Last night I lost the world, and gained the universe.
+ - There are still some wonderful people left in this world! They are diamonds in the rough, but they’re around! You’ll find them when you fall down– they’re the ones who pick you up, who don’t judge, and you had to fall down to see them! When you get up again, remember who your true friends are!
+ - The day I understood everything, was the day I stopped trying to figure everything out. The day I knew peace was the day I let everything go.
+ - Don’t let a thief into your house three times. The first time was enough. The second time was a chance. The third time means you’re stupid.
+ - Ends are not bad things, they just mean that something else is about to begin. And there are many things that don’t really end, anyway, they just begin again in a new way. Ends are not bad and many ends aren’t really an ending; some things are never-ending.
+ - I’m not in search of sanctity, sacredness, purity; these things are found after this life, not in this life; but in this life I search to be completely human: to feel, to give, to take, to laugh, to get lost, to be found, to dance, to love and to lust, to be so human.
+ - Don’t think about making life better for other people who don’t even deserve you, rather, focus on making your life the best, for yourself and those who love you.
+ - You only need one man to love you. But him to love you free like a wildfire, crazy like the moon, always like tomorrow, sudden like an inhale and overcoming like the tides. Only one man and all of this.
+ - Many people do not fall in love; they fall in love with the idea of themselves being in love. They never see the other person. I don’t ask for much; I only ask to be seen.
+ - I think that we are like stars. Something happens to burst us open; but when we burst open and think we are dying; we’re actually turning into a supernova. And then when we look at ourselves again, we see that we’re suddenly more beautiful than we ever were before!
+ - The only person who can pull me down is myself, and I’m not going to let myself pull me down anymore.
+ - Hypocrisy annoys me, people need to look into mirrors. Let me hold a mirror in front of your face.
+ - The dance between darkness and light will always remain – the stars and the moon will always need the darkness to be seen, the darkness will just not be worth having without the moon and the stars.
+ - Love is like a good cake; you never know when it’s coming, but you’d better eat it when it does!
+ - I don’t fit into any stereotypes. And I like myself that way.
+ - Do not yearn to be popular; be exquisite. Do not desire to be famous; be loved. Do not take pride in being expected; be palpable, unmistakable.
+ - Some people are like thorns. But you have to let them be thorns, because thorns can’t turn into petals. The trick is not letting them prick you; never let a thorn prick you!
+ - If you find a man who trusts you, who isn’t afraid, who sees you for who you are, and if it feels like he knows you for who it is that you simply are, and thinks all of that is beautiful; know that you have found a rare thing.
+ - You will manage to keep a woman in love with you, only for as long as you can keep her in love with the person she becomes when she is with you.
+ - Grace is what picks me up and lifts my wings high above and I fly! Grace always conquers! Be graceful in everything; in anger, in sadness, in joy, in kindness, in unkindness, retain grace with you!
+ - Be careful not to mistake insecurity and inadequacy for humility! Humility has nothing to do with the insecure and inadequate! Just like arrogance has nothing to do with greatness!
+ - I can’t decide whether I’m a good girl wrapped up in a bad girl, or if I’m a bad girl wrapped up in a good girl. And that’s how I know I’m a woman!
+ - Never waste any amount of time doing anything important when there is a sunset outside that you should be sitting under!
+ - I’m unpredictable, I never know where I’m going until I get there, I’m so random, I’m always growing, learning, changing, I’m never the same person twice. But one thing you can be sure of about me; is I will always do exactly what I want to do.
+ - University can teach you skill and give you opportunity, but it can’t teach you sense, nor give you understanding. Sense and understanding are produced within one’s soul.
+ - No, I am not bitter, I am not hateful, and I am not unforgiving. I just don’t like you.
+ - There is something simply beautiful and simply innocent, in being human. It is just so innocent and beautiful. I love it.
+ - In this world, it is too common for people to search for someone to lose themselves in. But I am already lost. I will look for someone to find myself in.
+ - If people are going to be allowed to say “we love you” and “I love you”, they’d better have the backbone to prove it. Love isn’t just a word.
+ - When you look for a man- what you want to look for is a man with the heart of a poor boy and the mind of a conqueror.
+ - I don’t understand why people care so much about showing that they are good; because I am rather comfortable with having badness, quite okay with being inexplicable. They tire themselves so. The light is beautiful; but light can’t hide treasures like the darkness can.
+ - It is beautiful to discover our wings and learn how to fly; flight is a beautiful process. But then to rest on the wings of God as He flies: this is divine.
+ - It is only when you accept how different you all are, that you will be able to see how much the same you all are. Don’t expect anybody to be the same as you, then you will see that you are in many ways the same as everybody.
+ - People have to forgive. We don’t have to like them, we don’t have to be friends with them, we don’t have to send them hearts in text messages, but we have to forgive them, to overlook, to forget. Because if we don’t we are tying rocks to our feet, too much for our wings to carry!
+ - I find no importance in showing others that I am happy; it’s not important to me that they know or think that I am happy but what is important to me is that I am happy. I am interested in being happy, not in making others think or know that I am.
+ - It is when you lose sight of yourself, that you lose your way. To keep your truth in sight you must keep yourself in sight and the world to you should be a mirror to reflect to you your image; the world should be a mirror that you reflect upon.
+ - The journey to a thousand stars is not too far a journey in the quest to have true love abiding in a pure heart.
+ - Peace is not a result inside us from everything around us. Peace is not submissive nor passive. On the contrary, peace is an overwhelming force which comes from within us, disrespectful of everything around us, a firm coalition of spirit and soul standing against all the unrest that abounds.
+ - This is the key to life: To expect everything to be given to you from above, yet to be genuinely surprised and forever grateful, when they are. Expecting all good things to be yours, while not knowing how to take anything for granted. If there may be a key in life, this is the key.
+ - You can see the whole entire world in the eyes of a person who knows how to simply stand there and take all of it into him but then you can look into the eyes of someone else and the whole entire world goes away and all that’s left is you.
+ - People wait around too long for love. I’m happy with all of my lusts!
+ - My spirit is healthy, yes. But I tell you, my flesh is healthy too. I am enlightened and free, but I am also lustful and carnal.
+ - Women waste so much time wearing no perfume. As for me, in every step that I have taken in life, I have been accompanied by an exquisite perfume!
+ - Thus is the nature of love: that you must use it! A love unused is not love! If it is something that sits on the shelf that you don’t know what to do with, it is not true to the nature of love! Use love!
+ - I tell people not to be afraid of their fears; because their fears are not there to scare them, they’re there to let them know that something is worth it. Yet I am often afraid. I guess that means in my life, lots of things have been worth it!
+ - It is not needful for our dreams to be very grand nor very big. It is only needful for our dreams to be very shiny.
+ - One of the most beneficial and valuable gifts we can give to ourselves in this life: is allowing ourselves to be surprised! It is okay if life surprises you. Its a good thing!
+ - You deserve to be with somebody, who knows you’re the one, from that very first moment he lays eyes on you. Do I believe in love at first sight? But of course! Love cannot be tamed nor bridled by things like time, circumstance, and logic!
+ - The only thing that will ever make me fall in love is: if I fall in love.
+
+60 quotes

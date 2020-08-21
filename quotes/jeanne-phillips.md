@@ -1,0 +1,26 @@
+ - You have only one life to live, so live it without worrying about what others may think.
+ - Communication is the key to successful relationships.
+ - Sometimes the most important conversations are the most difficult to engage in.
+ - Sometimes funerals and weddings bring out the worst rather than the best in people.
+ - Just because a jackass brays does not mean you have to pay attention.
+ - Like a stone thrown into a pond, a good deed can create ripples that extend far beyond the initial splash.
+ - Because there can be consequences for saying the first thing that pops into our heads, it is prudent to exercise tact.
+ - The harder you try to control your girlfriend the further you’ll drive her away, so stop acting like a dumbbell.
+ - Staying in a marriage without love is like serving a life sentence with an incompatible cell mate.
+ - A man who doesn’t make you feel special, wanted or important would make a very poor husband.
+ - Twins have a special bond. They feel safer with each other than with their peers.
+ - It takes time to really get to know someone. Take the time because in the early months of a relationship, both parties are in the “selling” phase.
+ - People who are angry at themselves sometimes blame others. It’s a sign of immaturity.
+ - Much as we might wish it, looks don’t always last forever. That’s why, if you’re looking for a long-term relationship, it’s extremely important to take into consideration qualities that will last.
+ - Pets require feeding, training, affection and exercise, but in return they offer unconditional love and companionship.
+ - Many people with physical disabilities have romantic lives and good marriages to partners who see past their disabilities and recognize all of the things they can do.
+ - Although there have been warnings that it was coming for years, the Alzheimer’s epidemic is here now and millions more families will be touched by this progressive – and ultimately fatal – disease unless its course can be altered.
+ - What other people think is their problem.
+ - The best exercise in the world is to bend down and help someone up.
+ - Being “in love” shouldn’t cause stress; it should relieve it.
+ - Do not jump the gun because of gossip.
+ - Men like women who are fun to be around, who are kind, intelligent, honest and who don’t play games.
+ - The surest way to get what you need is to communicate.
+ - Marriage is a big adjustment for anyone – male or female. There is no guarantee that a person who has become set in his or her ways can successfully make that transition.
+
+24 quotes

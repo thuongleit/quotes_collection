@@ -1,0 +1,62 @@
+ - Courage – a perfect sensibility of the measure of danger, and a mental willingness to endure it.
+ - War is cruel and you cannot refine it.
+ - War is cruelty. There is no use trying to reform it. The crueler it is, the sooner it will be over.
+ - The only good Indian is a dead Indian.
+ - The way to success is strategically along the way of least expectation and tactically along the line of least resistance.
+ - The voice of the people is the voice of humbug.
+ - War is the remedy that our enemies have chosen, and I say let us give them all they want.
+ - A battery of field artillery is worth a thousand muskets.
+ - I make up my opinions from facts and reasoning, and not to suit any body but myself. If people don’t like my opinions, it makes little difference as I don’t solicit their opinions or votes.
+ - My aim, then, was to whip the rebels, to humble their pride, to follow them to their inmost recesses, and make them fear and dread us. Fear is the beginning of wisdom.
+ - Hold the fort! I am coming!
+ - I knew wherever I was that you thought of me, and if I got in a tight place you would come-if alive.
+ - Some of you young men think that war is all glamour and glory, but let me tell you, boys, it is all hell!
+ - I think I understand what military fame is; to be killed on the field of battle and have your name misspelled in the newspapers.
+ - It is only those who have neither fired a shot nor heard the shrieks and groans of the wounded who cry aloud for blood, more vengeance, more desolation. War is hell.
+ - After all, I think Forrest was the most remarkable man our Civil War produced on either side.
+ - I would make this war as severe as possible, and show no symptoms of tiring till the South begs for mercy.
+ - We have good corporals and good sergeants and some good lieutenants and captains, and those are far more important than good generals.
+ - If I had my choice I would kill every reporter in the world, but I am sure we would be getting reports from Hell before breakfast.
+ - I begin to regard the death and mangling of a couple thousand men as a small affair, a kind of morning dash-and it may be well that we become so hardened.
+ - The carping and bickering of political factions in the nation’s capital reminds me of two pelicans quarreling over a dead fish.
+ - Grant stood by me when I was crazy, and I stood by him when he was drunk, and now we stand by each other.
+ - I hate newspapermen. They come into camp and pick up their camp rumors and print them as facts. I regard them as spies, which, in truth, they are.
+ - We cannot change the hearts of the people of the South, but we can make war so terrible that they will realize the fact that however brave and gallant and devoted to their country still they are mortal and should exhaust all peaceful remedies before they fly to war.
+ - You people of the South don’t know what you are doing. This country will be drenched in blood, and God only knows how it will end.
+ - He belonged to that army known as invincible in peace, invisible in war.
+ - The whole army is burning with an insatiable desire to wreak violence upon South Carolina. I almost tremble for her fate.
+ - You might as well appeal against the thunderstorm.
+ - War’s Legitimate Object Is More Perfect Peace.
+ - We can make war so terrible and make them so sick of war that generations pass away before they again appeal to it.
+ - There is many a boy here today who looks on war as all glory, but, boys, it is all hell. You can bear this warning voice to generations yet to come. I look upon war with horror.
+ - If nominated, I will not run; if elected, I will not serve.
+ - At first you will make headway, but as your limited resources begin to fail, shut out from the markets of Europe as you will be, your cause will begin to wane. If your people will but stop and think, they must see that in the end you will surely fail.
+ - Many and many a person in Georgia asked me why we did not go to South Carolina; and, when I answered that we were en route for that State, the invariable reply was, – Well, if you will make those people feel the utmost severities of war, we will pardon you for your desolation of Georgia.
+ - You people speak so lightly of war; you don’t know what you’re talking about. War is a terrible thing!
+ - This war differs from other wars, in this particular. We are not fighting armies but a hostile people, and must make old and young, rich and poor, feel the hard hand of war.
+ - War is at best barbarism.
+ - I intend to make Georgia howl.
+ - An Army is a collection of armed men obliged to obey one man. Every change in the rules which impairs the principle weakens the army.
+ - Every attempt to make war easy and safe will result in humiliation and disaster.
+ - If you don’t have my army supplied, and keep it supplied, we’ll eat your mules up, sir.
+ - I want peace, and believe it can only be reached through union and war, and I will ever conduct war with a view to perfect an early success.
+ - If the people raise a great howl against my barbarity and cruelty, I will answer that war is war, and not popularity seeking.
+ - But, my dear sirs, when peace does come, you may call on me for any thing. Then will I share with you the last cracker, and watch with you to shield your homes and families against danger from every quarter.
+ - Wars are not all evil, they are part of the grand machinery by which this world is governed.
+ - I see every chance of a long, confused and disorganizing civil war, and I feel no desire to take a hand therein.
+ - It’s a disagreeable thing to be whipped.
+ - I beg to present you as a Christmas gift the city of Savannah.
+ - Oh, it is all folly, madness, a crime against civilization.
+ - The scenes on this field would have cured anybody of war.
+ - There will soon come an armed contest between capital and labor. They will oppose each other, not with words and arguments, but with shot and shell, gun-powder and cannon. The better classes are tired of the insane howling of the lower strata and they mean to stop them.
+ - Though I never ordered it, and never wished for it, I have never shed any tears over the event, because I believe that it hastened what we all fought for, the end of the war.
+ - I know I had no hand in making this war, and I know I will make more sacrifices to-day than any of you to secure peace.
+ - An army to be useful must be a unit, and out of this has grown the saying, attributed to Napoleon, but doubtless spoken before the days of Alexander, that an army with an inefficient commander was better than one with two able heads.
+ - War is too serious a matter to leave to soldiers.
+ - Grant stood by me when I was crazy...
+ - If forced to choose between the penitentiary and the White House for four years, I would say the penitentiary, thank you.
+ - If nominated by either party, I should peremptorily decline, and even if unanimously elected, I should decline to serve.
+ - You cannot qualify war in harsher terms than I will.
+ - I will accept no commission that would tend to create a rivalry with Grant. I want him to hold what he has earned and got. I have all the rank I want.
+
+60 quotes

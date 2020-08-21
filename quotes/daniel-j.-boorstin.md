@@ -1,0 +1,68 @@
+ - Education is learning what you didn’t even know you didn’t know.
+ - The greatest obstacle to discovery is not ignorance – it is the illusion of knowledge.
+ - Freedom means the opportunity to be what we never thought we would be.
+ - As you make your bed, so you must lie in it.
+ - Planning for the future without a sense of history is like planting cut flowers.
+ - Throught human history, illusions of knowledge, not ignorance, have proven to be the principal obstacles to discovery.
+ - Some are born great, some achieve greatness, and some hire PR officers.
+ - The hero created himself; the celebrity is created by the media.
+ - By reading we discover our world, our history, and ourselves.
+ - The fog of information can drive out knowledge.
+ - Knowledge is not simply another commodity. On the contrary. Knowledge is never used up. It increases by diffusion and grows by dispersion.
+ - I have observed that the world has suffered far less from ignorance than from pretensions to knowledge. It is not skeptics or explorers but fanatics and ideologues who menace decency and progress. No agnostic ever burned anyone at the stake or tortured a pagan, a heretic, or an unbeliever.
+ - The most promising words ever written on the maps of human knowledge are terra incognita, unknown territory.
+ - Nothing is really real unless it happens on television.
+ - Disagreement produces debate but dissent produces dissension.
+ - Our discontent begins by finding false villains whom we can accuse of deceiving us. Next we find false heroes whom we expect to liberate us. The hardest, most discomfiting discovery is that each of us must emancipate himself.
+ - The Republic of Technology where we will be living is a feedback world.
+ - Books are messengers of freedom. They can be hidden under a mattress or smuggled into slave nations.
+ - While knowledge is orderly and cumulative, information is random and miscellaneous.
+ - The traveler used to go about the world to encounter the natives. A function of travel agencies now is to prevent this encounter.
+ - The hero was distinguished by his achievement; the celebrity by his image or trademark. The hero created himself; the celebrity is created by the media. The hero was a big man; the celebrity is a big name.
+ - The traveler was active; he went strenuously in search of people, of adventure, of experience. The tourist is passive; he expects interesting things to happen to him. He goes ‘sight-seeing.’
+ - A celebrity is a person known for his well-knownness. Celebrities intensify their celebrity images simply by being well known for relations among themselves. By a kind of symbiosis, celebrities live off each other.
+ - The traditional novel form continues to enlarge our experience in those very areas where the wide-angle lens and the Cinema screen tend to narrow it.
+ - God is the celebrity author of the world’s best seller. We have made god into the biggest celebrity of all, to contain our own emptiness.
+ - Dispersed as the Jews are, they still form one nation, foreign to the land they live in.
+ - Never have people been more the masters of their environment. Yet never has a people felt more deceived and disappointed. For never has a people expected so much more than the world could offer.
+ - Climaxing a movement for calendar reform which had been developing for at least a century, in 1582 Pope Gregory ordained that October 4 was to be followed by October 15.
+ - There is no disinfectant like success.
+ - The hero was distinguished by his achievement; the celebrity by his name or trademark.
+ - Each living art object, taken out of its native habitat so we can conveniently gaze at it, is like an animal in a zoo. Something about it has died in the removal.
+ - When I was living in England I found that the more I lived abroad, the more American I discovered I was.
+ - In America, communities existed before governments. There were many groups of people with a common sense of purpose and a feeling of duty to one another before there were political institutions.
+ - The Christian test was a willingness to believe in the one Jesus Christ and His Message of salvation. What was demanded was not criticism but credulity. The Church Fathers observed that in the realm of thought only heresy had a history.
+ - There was a time when the reader of an unexciting newspaper would remark, ‘How dull is the world today!’ Nowadays he says, ‘What a dull newspaper!’
+ - The institutional scene in which American man has developed has lacked that accumulation from intervening stages which has been so dominant a feature of the European landscape.
+ - More appealing than knowledge itself is the feeling of knowledge.
+ - What preoccupies us, then, is not God as a fact of nature, but as a fabrication useful for a God-fearing society. God himself becomes not a power but an image.
+ - Jeffersonian isolationism expressed an essentially cosmopolitan spirit. The Jeffersonian was determined – even at the expense of separating himself from the rest of the globe, and even though he be charged with provincial selfishness – to preserve America as an uncontaminated laboratory.
+ - Water, that wonderful, flowing medium, the luck of the planet – which would serve humankind in so many ways, and which would give our planet a special character.
+ - If our knowledge is, as I believe, only an island in an infinite sea of ignorance, how can we in our short lifetime find satisfaction in exploring our little island? How can we persuade ourselves to be exhilarated by our meager knowledge and yet not be discouraged by the ocean vistas?
+ - History had been man’s effort to accomodate himself to what he could not do. Amereican history in the 20th century would, more than ever before, test man’s ability to accomodate himself to all the new things he could do.
+ - Since the Creator had made the facts of the after-life inaccessible to man, He must not have required that man understand death in order to live fruitfully.
+ - In the twentieth century our highest praise is to call the Bible ‘The World’s Best Seller.’ And it has come to be more and more difficult to say whether we think it is a best seller because it is great, or vice versa.
+ - It is only a short step from exaggerating what we can find in the world to exaggerating our power to remake the world.
+ - While the easiest way in metaphysics is to condemn all metaphysics as nonsense, the easiest way in morals is to elevate the common practice of the community into a moral absolute.
+ - When the necessary eleven days were added, George Washington’s birthday, which fell on February 11, 1731, Old Style, became February 22, 1732, New Style.
+ - Until now when we have started to talk about the uniqueness of America we have almost always ended by comparing ourselves to Europe. Toward her we have felt all the attraction and repulsions of Oedipus.
+ - Any government which made the welfare of men depend on the character of their governors was an illusion.
+ - It is very unlikely that the computer will displace the books, except in areas where we need information speedily.
+ - We must abandon the prevalent belief in the superior wisdom of the ignorant.
+ - An enamored amateur need not be a genius to stay out of the ruts he has never been trained in.
+ - What is more natural in a democratic age than that we should begin to measure the stature of a work of art-especially of a painting-by how widely and how well it is reproduced?
+ - Standing, standing, standing – why do I have to stand all the time? That is the main characteristic of social Washington.
+ - Where ruts have not yet been worn, it requires less effort to stay out of them.
+ - While the Jeffersonian did not flatly deny the Creator’s power to perform miracles, he admired His refusal to do so.
+ - No agnostic ever burned anyone at the stake or tortured a pagan, a heretic, or an unbeliever.
+ - Formerly, a public man needed a private secretary for a barrier between himself and the public. Nowadays he has a press secretary, to keep him properly in the public eye.
+ - The computer can help us find what we know is there. But the book remains our symbol and our resource for the unimagined question and the unwelcome answer.
+ - We need not be theologians to see that we have shifted responsibility for making the world interesting from God to the newspaperman.
+ - There is no known device for artistic contraception.
+ - Historians will not fail to note that a people who could spend $300 billion on defense refused to spend a tiny fraction of that total to keep their libraries open in the evening.
+ - American civilization, from its beginnings, had combined a dogmatic confidence in the future with a naive puzzlement over what the future might bring.
+ - In the small town each citizen had done something in his own way to build the community. The town booster had a vision of the future which he tried to fulfill. The suburb dweller by contrast started with the future.
+ - The image is made to order, tailored to us. An ideal, on the hand, has a claim on us. It does not serve us, we serve it. If we have trouble striding toward it, we assume the matter is with us, and not the ideal.
+ - The problem for us is less to discover the way it really is than to see the meaning of the way.
+
+66 quotes

@@ -1,0 +1,40 @@
+ - The best thing about waking up early is seeing the sun rise.
+ - Sometimes things just happen in the moment.
+ - A lot of people forget that their individuality is what makes them so special. Growing up, there’s a lot of pressure to be normal. but normal isn’t as fun as being yourself. And it’s those things about you that really draw people to you.
+ - I just remind myself that the gifts I have, I’ve been given for a reason and that every day brings new opportunities to use them.
+ - I’m really passionate about music.
+ - In terms of fashion, I love adding a fun scarf to whatever I’m wearing – it’s a great way to dress up a plain outfit!
+ - When things get tough, you should seek out someone like a coach or friend or family member to talk things through with.
+ - People need to realize bullying has just as much of an impact online because words are so cutting and difficult to deal with.
+ - I want to make music that stands the test of time.
+ - Being bullied is something I experienced in school, and it is not fun.
+ - I love Adele. Natasha Bedingfield is cool, those sort of people.
+ - I definitely get stage fright.
+ - I just want to challenge myself and play some different characters.
+ - My personal style is really different from ‘Lemonade Mouth.’
+ - There’s a reason why bullying takes such a strong form online. People don’t have to push back as much as they would in real life.
+ - Songwriting is actually a really great outlet. I kind of recommend it. You get to sum up whatever is going on in your life in a song, then perform it really passionately.
+ - The cool thing about doing a voice-over into a different language is that you get to bring the character of your own culture into it.
+ - I don’t want to be one of those people that’s constantly promoting myself on Twitter. I think the fun thing about Twitter is being able to share all the little random things that happen in my life.
+ - Cool is overrated. Be a geek for what you Love.
+ - I think it’s awesome to be able to make people laugh.
+ - Professionally, the first time I sang was on ‘Alice Upside Down.’ It was the first movie that I did, and I had this little mini singing part.
+ - The biggest klutz would be myself, so if I could offer help to myself I would. I’m the most off my game most often.
+ - Growing up, theres a lot of pressure to be normal. But normal isnt as fun as being yourself.
+ - I love Cher Lloyd’s music. I didn’t actually hear her music as I was creating my own, but it’s cool that we have styles that are considered to be similar.
+ - I like to think about what the song is saying, the story of it, and conveying the mood of that to the audience. But at the same time, sharing through interacting with them and engaging them.
+ - I recommend doing some sort of acting class, something that can eventually get you in front of an agent or a manager, and practice is very important.
+ - It’s easy to question yourself and ask if you’re doing a good job, but there are so many different factors to landing a role. I remind myself that a lot of it is completely out of my control.
+ - I just want to get into the action. And voice-over work is all action.
+ - Practicing going over scenes and in front of the camera just to see how that feels, and then ultimately just finding a way to expose yourself to people. That’s what I did.
+ - I think it can be fun to write about relationships just because so many people can relate to what you are feeling.
+ - The voting station was like a block and a half from my house, so me and my parents just walked on over and cast our ballots, and it was really cool. I love the civic pride of being a part of this national activity.
+ - I love Beyonce. She’s so fierce. I also love Lily Allen, and she was an influence on my music.
+ - I’ve learned from personal experience that insecurity and doubting yourself can really hurt you.
+ - I want people to be able to relate to the music, to enjoy the music, in a sense of it being fun and interesting and maybe kind of quirky. I want people to be impacted by the story.
+ - I really do like Bruno Mars. I think he’s very good. And I love Maroon 5.
+ - I think I learned a lot about collaboration and about joint creativity with other people. It is honestly so much fun and I don’t think that I would have had the same album if I had just written it by myself.
+ - I think it’s a part of being a citizen in a country, to know what is going on and to have a say in how they want their country being run. You know, that’s a part of the privilege of democracy.
+ - I really like ‘This Side of Paradise’ by F. Scott Fitzgerald. I think it’s a cool description of a character.
+
+38 quotes

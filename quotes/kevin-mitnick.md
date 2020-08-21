@@ -1,0 +1,63 @@
+ - Social engineering bypasses all technologies, including firewalls.
+ - There is no patch for stupidity.
+ - I was addicted to hacking, more for the intellectual challenge, the curiosity, the seduction of adventure; not for stealing, or causing damage or writing computer viruses.
+ - My primary goal of hacking was the intellectual curiosity, the seduction of adventure.
+ - As a young boy, I was taught in high school that hacking was cool.
+ - You can’t go to Windows Update and get a patch for stupidity.
+ - You can never protect yourself 100%. What you do is protect your self as much as possible and mitigate risk to an acceptable degree. You can never remove all risk.
+ - Companies spend millions of dollars on firewalls and secure access devices, and it’s money wasted because none of these measures address the weakest link in the security chain: the people who use, administer and operate computer systems.
+ - Social engineering is using deception, manipulation and influence to convince a human who has access to a computer system to do something, like click on an attachment in an e-mail.
+ - I can go into LinkedIn and search for network engineers and come up with a list of great spear-phishing targets because they usually have administrator rights over the network. Then I go onto Twitter or Facebook and trick them into doing something, and I have privileged access.
+ - Choosing a hard-to-guess, but easy-to-remember password is important!
+ - The key to social engineering is influencing a person to do something that allows the hacker to gain access to information or your network.
+ - The human. Now you know all about your target.
+ - The intent of the individuals who created the DDoS attacks has nothing to do with hacking, and they are vandals, not hackers.
+ - I characterize myself as a retired hacker. I’m applying what I know to improve security at companies.
+ - New security loopholes are constantly popping up because of wireless networking. The cat-and-mouse game between hackers and system administrators is still in full swing.
+ - I get hired to hack into computers now and sometimes it’s actually easier than it was years ago.
+ - It’s true, I had hacked into a lot of companies, and took copies of the source code to analyze it for security bugs. If I could locate security bugs, I could become better at hacking into their systems. It was all towards becoming a better hacker.
+ - Oracle, for example, has even hired people to dumpster dive for information about its competitor, Microsoft. It’s not even illegal, because trash isn’t covered by data secrecy laws.
+ - Social engineering is using manipulation, influence and deception to get a person, a trusted insider within an organization, to comply with a request, and the request is usually to release information or to perform some sort of action item that benefits that attacker.
+ - If you go to a coffee shop or at the airport, and you’re using open wireless, I would use a VPN service that you could subscribe for 10 bucks a month. Everything is encrypted in an encryption tunnel, so a hacker cannot tamper with your connection.
+ - Of course I’m sure half the people there hate me and half the people like me.
+ - I get hired by companies to hack into their systems and break into their physical facilities to find security holes. Our success rate is 100%; we’ve always found a hole.
+ - Some people think technology has the answers.
+ - I trust online banking. You know why? Because if somebody hacks into my account and defrauds my credit card company, or my online bank account, guess who takes the loss? The bank, not me.
+ - My argument is not that I shouldn’t have been punished, but that the punishment didn’t fit the crime.
+ - Any type of operating system that I wanted to be able to hack, I basically compromised the source code, copied it over to the university because I didn’t have enough space on my 200 megabyte hard drive.
+ - The hacker mindset doesn’t actually see what happens on the other side, to the victim.
+ - Social engineers veil themselves in a cloak of believability.
+ - It’s actually a smarter crime because imagine if you rob a bank, or you’re dealing drugs. If you get caught you’re going to spend a lot of time in custody. But with hacking, it’s much easier to commit the crime and the risk of punishment is slim to none.
+ - Security is always going to be a cat and mouse game because there’ll be people out there that are hunting for the zero day award, you have people that don’t have configuration management, don’t have vulnerability management, don’t have patch management.
+ - Garbage can provide important details for hackers: names, telephone numbers, a company’s internal jargon.
+ - We have problems with our physical security, operational security through to management.
+ - For the average home-user, anti-virus software is a must.
+ - I did get a huge endorphin rush when I was able to crack a system because it was like a video game.
+ - But a lot of businesses out there don’t see the return on investment, they look at it as a liability, and until they can understand that proactive security actually returns, gives them a return on investment, it’s still a hard sell for people.
+ - It was used for decades to describe talented computer enthusiasts, people whose skill at using computers to solve technical problems and puzzles was – and is – respected and admired by others possessing similar technical skills.
+ - I’m still a hacker. I get paid for it now. I never received any monetary gain from the hacking I did before. The main difference in what I do now compared to what I did then is that I now do it with authorization.
+ - I think it goes back to my high school days. In computer class, the first assignment was to write a program to print the first 100 Fibonacci numbers. Instead, I wrote a program that would steal passwords of students. My teacher gave me an A.
+ - I made stupid decisions as a kid, or as a young adult, but I’m trying to be now, I’m trying to take this lemon and make lemonade.
+ - A hacker doesnt deliberately destroy data or profit from his activities.
+ - Hackers are breaking the systems for profit. Before, it was about intellectual curiosity and pursuit of knowledge and thrill, and now hacking is big business.
+ - I got so passionate about technology. Hacking to me was like a video game. It was about getting trophies. I just kept going on and on, despite all the trouble I was getting into, because I was hooked.
+ - Both social engineering and technical attacks played a big part in what I was able to do. It was a hybrid. I used social engineering when it was appropriate, and exploited technical vulnerabilities when it was appropriate.
+ - The perfect PIN is not four digits and not associated with your life, like an old telephone number. It’s something easy for you to remember and hard for other people to guess.
+ - When an attacker fails with one person, they often go to another person. The key is to report the attack to other departments. Workers should know to act like they are going along with what the hacker wants and take copious notes so the company will know what the hacker is trying to find.
+ - My actions constituted pure hacking that resulted in relatively trivial expenses for the companies involved, despite the government’s false claims.
+ - I believe in having each device secured and monitoring each device, rather than just monitoring holistically on the network, and then responding in short enough time for damage control.
+ - No way, no how did I break into NORAD. That’s a complete myth. And I never attempted to access anything considered to be classified government systems.
+ - When I was in prison, a Colombian drug lord, offered me $5 million in cash to manipulate a computer system so that he would be released. I turned him down.
+ - I saw myself as an electronic joy rider.
+ - Steve Wozniak and Steve Jobs founded Apple Inc, which set the computing world on its ear with the Macintosh in 1984.
+ - Are hackers a threat? The degree of threat presented by any conduct, whether legal or illegal, depends on the actions and intent of the individual and the harm they cause.
+ - So the ethic I was taught in school resulted in the path I chose in my life following school.
+ - So what I was essentially doing was, I compromised the confidentiality of their proprietary software to advance my agenda of becoming the best at breaking through the lock.
+ - I could have evaded the FBI a lot longer if I had been able to control my passion for hacking.
+ - I was pretty much the government’s poster boy for what I had done.
+ - Should we fear hackers? Intention is at the heart of this discussion.
+ - No company that I ever hacked into reported any damages, which they were required to do for significant losses. Sun didn’t stop using Solaris and DEC didn’t stop using VMS.
+ - All they need to do is to set up some website somewhere selling some bogus product at twenty percent of the normal market prices and people are going to be tricked into providing their credit card numbers.
+ - Back in my day, I would probe by hand. Now you can get commercial software that does the job for you.
+
+61 quotes

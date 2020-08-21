@@ -1,0 +1,23 @@
+ - On my business card, I am a corporate president. In my mind, I am a game developer. But in my heart, I am a gamer.
+ - If we stay in one place, we will become outdated.
+ - Engineering is not quite as important as imagination.
+ - Video games are meant to be just one thing. Fun. Fun for everyone!
+ - If you do the same thing as others, it will wear you out. Nintendo is not good at competing so we always have to challenge the status quo by making something new, rather than competing in an existing market.
+ - Please understand, I am not saying that technology is unimportant. I understand that technology is important.
+ - For young players, classic games are brand new. For older players, they bring back memories and make you feel good.
+ - Customers do not want online games.
+ - As we learned a bitter lesson with the launch of the Nintendo 3DS, we are trying to take every possible measure so that the Wii U will have a successful launch.
+ - At the moment, most customers do not wish to pay the extra money for connection to the Internet, and for some customers, connection procedures to the Internet are still not easy.
+ - The entire Nintendo group will carry on the spirit of Mr. Yamauchi by honoring, in our approach to entertainment, the sense of value he has taught us – that there is merit in doing what is different – and at the same time, by changing Nintendo in accordance with changing times.
+ - Some argue that our success is short-lived and temporary. So, we now need to make efforts to constantly expand the player base by offering services and titles that can appeal, not only to those who have never played games, but also to those who play them hard.
+ - In order to expand the gaming population, it is taken for granted that we need to offer games to satisfy veteran gamers. At the same time, I believe that we need to make a new proposal, so that those who do not play games can say, ‘I can do it’ and, ‘I want to touch it.’
+ - No one else can match the environment we’re creating for expanding the game experience to everyone. Our path is not linear, but dynamic.
+ - With the DS and Wii, following the titles that were released at launch, the momentum dropped when there was a gap in software releases. We’re making plans so that this type of thing won’t happen.
+ - If you want our world-known names, you can’t have them unless you own the Nintendo machine.
+ - Except for its backward compatibility with existing Wii software and accessories, we have so far failed to make propositions worthy of Wii U’s position as a successor to the Wii system.
+ - I apologize to those supporting Wii U about the lack of new titles from Nintendo in January and February but please understand we will have new titles to offer from March onward.
+ - Although many believe that technology automatically enables more realistic expression, I believe that is just not correct.
+ - I’ve never been able to control a first-person shooter, but as soon as I used the Revolution controller, I found it very easy to control the game. So, I think that’s a genre that’s particularly well suited for the controller.
+ - In order to realize the goal of creating a new starting line that anyone can instinctively understand we have come up with a design that differs greatly from any of today’s controllers. We have also made bold innovations in play style as well.
+
+21 quotes

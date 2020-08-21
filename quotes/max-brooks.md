@@ -1,0 +1,60 @@
+ - Sometimes you find your path, sometimes it finds you.
+ - Most people don’t believe something can happen until it already has. That’s not stupidity or weakness, that’s just human nature.
+ - Fear is the most basic emotion we have. Fear is primal. Fear sells.
+ - The highest distinction is service to others.
+ - Lies are neither bad nor good. Like a fire they can either keep you warm or burn you to death, depending on how they’re used.
+ - Generation Z, they cleaned up their own mess.
+ - Fear is the most valuable commodity in the universe.
+ - There’s a word for that kind of lie. Hope.
+ - I think that most people would rather face the light of a real enemy than the darkness of their imagined fears.
+ - The dead walk among us. Zombies, ghouls-no matter what their label-these somnambulists are the greatest threat to humanity, other than humanity itself.
+ - When I believe in my ability to do something, there is no such word as no.
+ - I don’t know if great times make great men, but I know they can kill them.
+ - Remember; no matter how desperate the situation seems, time spent thinking clearly is never time wasted.
+ - The monsters that rose from the dead, they are nothing compared to the ones we carry in our hearts.
+ - They didn’t break me. I broke myself.
+ - Use your head; cut off theirs.
+ - Secrecy is a vacuum and nothing fills a vacuum like paranoid speculation.
+ - If you believe you can accomplish everything by “cramming” at the eleventh hour, by all means, don’t lift a finger now. But you may think twice about beginning to build your ark once it has already started raining.
+ - Imagine what could be accomplished if only the human race would shed its humanity.
+ - There comes a point when you have to realize that the sum of all your blood, sweat, and tears will ultimately amount to zero.
+ - Whatever bro, tell it to the whales.
+ - To know is always better, no matter what the answer might be.
+ - Can you ever “solve” poverty? Can you ever “solve” crime? Can you ever “solve” disease, unemployment, war, or any other societal herpes? Hell no.
+ - Organize before they rise!
+ - My coping mechanism with my dyslexia is to use wit and humor.
+ - If I thought there was any hope of turning ‘World War Z’ into a movie, I wouldn’t have written it as a giant, epic, global story, because that requires a giant, epic, global budget.
+ - Zombies don’t run. They don’t dance. They don’t say, “More brains.” There is no Thriller Night. Those are stereotypes that are perpetrated by Hollywood, which I think is very irresponsible because it can get you killed.
+ - Zombies let us explore notions of the apocalypse – no water, food, medical care, the government imploding – while letting us sleep at night.
+ - There comes a point where emotions must give way to objective facts.
+ - Americans worship technology. It’s an inherent trait in the national zeitgeist.
+ - I’m not a horror fan. I’m an anti-horror fan. I think horror fans feel deep down in the pit of their souls, they feel safe, and therefore bored. And therefore they want to be scared.
+ - Survival is the key word to remember – not victory, not conquest, just survival.
+ - Often, a school is your best bet-perhaps not for education but certainly for protection from an undead attack.
+ - But no matter what happens to the surviving humans, there will always be the walking dead.
+ - Before I’m a zombie nerd, before I’m a science-fiction nerd, I am a history nerd.
+ - I wrote ‘The Zombie Survival Guide’ because I wanted to read it, and nobody else was writing it. All I’ve been doing with everything I’ve written is answering questions that I had.
+ - We relinquished our freedom that day, and we were more than happy to see it go. From that moment on we lived in true freedom, the freedom to point to someone else and say “They told me to do it! It’s their fault, not mine.” The freedom, God help us, to say “I was only following orders.”-World War Z.
+ - Looking for love on the internet is like Janet Leigh asking Norman Bates if he likes her body.
+ - A true crisis. Class 3 outbreaks, more than any other, demonstrate the clear threat posed by the living dead. Zombies will number in the thousands, encompassing an area of several hundred miles.
+ - After all we’d been through, we still couldn’t take our heads from out of our asses or our hands from around each other’s throats.
+ - The dead walk among us.
+ - Zombies are apocalyptic in nature. They belong to a class of monster that doesn’t just hunt humans, but seeks to obliterate that entire human race.
+ - When I was 16, the first book I ever actually purchased with my own money, in fact, and had read on my own time was ‘Hunt for Red October’ by Tom Clancy.
+ - Zombies will try to scale any surface no matter how unfeasable or even impossible. In all but the easiest situations, these attempts have met with failure. Even in the case of ladders, when simple hand-over-hand coordination is required, only one in four zombies will succeed.
+ - I think the general anxiety of the 1960s – ’70s spawned our interest in the living dead. When people worry about the end of their world, they need a safe vessel for all their fears. Zombies provide that vessel because they’re ’safe.
+ - Any survival guide will tell you, don’t buy a pair of combat boots before any disaster. They’ll tear your feet up. Or water – don’t bring water with you because it’ll tire you out and you’ll lose too much fluid. Bring a water pump.
+ - I think Americans are at our best when we recover from a crisis. We’ve suffered some blows that other countries would have never recovered from.
+ - Of all the weapons discussed in this book, nothing is more important than your primary firearm. Keep it cleaned, keep it oiled, keep it loaded, keep it close. With a cool head, steady hand, and plenty of ammunition, one human is more than a match for an army of zombies.
+ - You assume things, like whatever country has more firepower wins the wars, and that’s actually not true at all.
+ - Hooking on scuba gear and blindly diving into zombie-infested water is a wonderful way to mix the two childhood terrors of being eaten and drowning.
+ - We’ve been at peace about as long as e were at war.
+ - With so much protection, wouldn’t one be able to wander among the undead ranks, taunting them at will with no danger of repercussion?
+ - When I started writing, there was nothing about zombies. It was all teen movies, which to me are scarier than zombies, but that’s another story.
+ - I don’t mind my work being a record of the time it was written in.
+ - The bottom line is I’m a slow zombie guy – I’m always a slow zombie guy but I also know I’m in the minority.
+ - They were viewed very much like castles, I suppose: as crumbling, obsolete relics, with no real modern function other than as tourist attractions. But when the skies darkened and the nation called, both reawoke to the meaning of their existence. One shielded our bodies, the other, our souls.
+ - I think the fascination with zombies is that they don’t obey the rules of monsters. The first rule of monsters is that you have to go find them. You have to make a conscious choice to go to the swamp or the desert or the abandoned summer camp.
+ - Zombies have no memories of their former life. You wont see the undead trying to wash windows or do your taxes. All they know how to do is swarm and feed.
+
+58 quotes

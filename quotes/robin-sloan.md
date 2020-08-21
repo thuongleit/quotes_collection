@@ -1,0 +1,26 @@
+ - Walking the stacks in a library, dragging your fingers across the spines – it’s hard not to feel the presence of sleeping spirits.
+ - There is no immortality that is not built on friendship and work done with care. All the secrets in the world worth knowing are hiding in plain sight.
+ - All the secrets of the world worth knowing are hiding in plain site.
+ - Your life must be an open city, with all sorts of ways to wander in.
+ - Kat bought a New York Times but couldn’t figure out how to operate it, so now she’s fiddling with her phone.
+ - A clerk and a ladder and warm golden light, and then: the right book exactly, at exactly the right time.
+ - Our books still do not require batteries. But I am no fool. It is a slender advantage.
+ - You know, I’m really starting to think the whole world is just a patchwork quilt of crazy little cults, all with their own secret spaces, their own records, their own rules.
+ - I walk alone in the darkness and wonder how a person would begin to determine the circumference of the earth. I have no idea. I’d probably just google it.
+ - I sit up straight and do the first thing a person is supposed to do in an emergency, which is send a text message.
+ - Let me give you some advice: make friends with a millionaire when he’s a friendless sixth-grader.
+ - I loved The Chronicles of Narnia. I loved The Chronicles of Prydain. Basically, ‘Chronicles of’ – I was in!
+ - Are there sexual fetishes that involve books? There must be. I try not to imagine how they might work.
+ - America pays defense contractors to build aircraft carriers. Google pays brilliant programmers to do whatever the hell they want.
+ - Neel takes a sharp breath and I know exactly what it means. It means: I have waited my whole life to walk through a secret passage built into a bookshelf.
+ - Then: I google “time-series visualization” and start work on a new version of my model, thinking that maybe I can impress her with a prototype. I am really into the kind of girl you can impress with a prototype.
+ - Her home is the burrow of a bibliophile hobbit – low-ceilinged, close-walled, and brimming over with books.
+ - I feel a little whirl of dislocation – the trademark sensation of the world being more closely knit together than you expected.
+ - I’ve never listened to an audiobook before, and I have to say it’s a totally different experience. When you read a book, the story definitely takes place in your head. When you listen, it seems to happen in a little cloud all around it, like a fuzzy knit cap pulled down over your eyes.
+ - Why does the typical adventuring group consist of a wizard, a warrior, and a rogue, anyway? It should really be a wizard, a warrior, and a rich guy. Otherwise who’s going to pay for all the swords and spells and hotel rooms?
+ - Imagination runs out. But it makes sense, right? We probably just imagine things based on what we already know, and we run out of analogies in the thirty-first century.
+ - If this sounds impressive to you, you’re over thirty.
+ - So I switch to my MacBook and make my rounds: news sites, blogs, tweets. I scroll back to find the conversations that happened without me during the day. When every single piece of media you consume is time-shifted, does that mean it’s actually you that’s time-shifted?
+ - The thinnest tendrils of dawn are creeping in from the east. People in New York are softly starting to tweet.
+
+24 quotes

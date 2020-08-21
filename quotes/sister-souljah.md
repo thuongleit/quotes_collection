@@ -1,0 +1,25 @@
+ - I’m not who you think i am. If you love me, you love me for the wrong reasons.
+ - My definition of good is that you understand that this is a question of power. That you be willing to give up some power. That you be willing to give up some resources.
+ - Love and build, love and work, love and fight. Always love first. Anything placed before love will fail.
+ - Rage is the opposite of thought, whoever has put you in this frame of mind has more control over you right now, than you have over yourself. If he is your opponent and you will face him today, you will be defeated.
+ - I never said I was an angel. Nor am I innocent or holy like the Virgin Mary. What I am is natural and serious and as sensitive as an open nerve on an ice cube.
+ - No one can remain married today because they are not married to the one they love, they are married to their sacrifice, and pretending to love is too damned painful. Love and build, love and work, love and fight. Always love first. Anything placed before love will fail.
+ - Black people don’t know what white people are talking about when they talk about a Sister Souljah moment. I tell them it’s the moment you meet a proud, beautiful black woman you can never forget.
+ - If black people kill black people every day, why not have a week and kill white people?
+ - Racism is a system of power and in the absence of power you cannot be considered a racist.
+ - To be a real man or woman, you’ve got to know what you believe in. You’ve got to understand that your actions have consequences and that they are connected to everything that you are.
+ - Shakespeare wrote about love. I write about love. Shakespeare wrote about gang warfare, family feuds and revenge. I write about all the same things.
+ - If you do something positive, something positive will come back to you. If you consciously do negative things, then negativity will rule your life.
+ - Now I realized that me and him were just alike. We were both born to win. And, when we were not winning, it was OK ’cause we were busy planning to win.
+ - Bill Clinton is like a lot of white politicians. They eat soul food, they party with black women, they play the saxophone, but when it comes to domestic and foreign policy, they make the same decisions that are destructive to African people in this country and throughout the world.
+ - I don’t want to be limited or ghettoized in any way.
+ - Drugs is a government game, Bilal. A way to rob us of our best black men, our army. Everyone who plays the game loses. Then they get you right back where we started, in slavery! Then they get to say “This time you did it to yourself.” I won’t play that game.
+ - Unless you are a part of someone’s life every day or even just with them most of the time, you will never really know what they have and had, what happened with them and how they really are, what they do, why they do it that way and what they feel.
+ - It was the emotion I hated the most of all emotions, shame.
+ - So if you’re a gang member and you would normally be killing somebody, why not kill a white person?
+ - History is history. What is done is done.
+ - I think America loves cooperative black men. I am not against Colin Powell, but I know who he is.
+ - It might be hard to believe, but the air in prison is different. There’s like one thousand people sucking on the one little piece of fresh air until it turns stale.
+ - I was well known to African Americans before Bill Clinton discovered me. He was like Christopher Columbus riding up on something he didn’t understand.
+
+23 quotes

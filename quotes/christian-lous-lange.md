@@ -1,0 +1,36 @@
+ - Technology is a useful servant but a dangerous master.
+ - All species capable of grasping this fact manage better in the struggle for existence than those which rely upon their own strength alone: the wolf, which hunts in a pack, has a greater chance of survival than the lion, which hunts alone.
+ - Concord, solidarity, and mutual help are the most important means of enabling animal species to survive.
+ - Moreover, if the territorial state is to continue as the last word in the development of society, then war is inevitable.
+ - Internationalism is a community theory of society which is founded on economic, spiritual, and biological facts. It maintains that respect for a healthy development of human society and of world civilization requires that mankind be organized internationally.
+ - Hand in hand with nationalist economic isolationism, militarism struggles to maintain the sovereign state against the forward march of internationalism.
+ - Internationalism is a social and political theory, a certain concept of how human society ought to be organized, and in particular a concept of how the nations ought to organize their mutual relations.
+ - It is against this concept of the sovereign state, a state isolated by protectionism and militarism, that internationalism must now engage in decisive battle.
+ - The free trade movement in the middle of the last century represents the first conscious recognition of these new circumstances and of the necessity to adapt to them.
+ - Within each such social group, a feeling of solidarity prevails, a compelling need to work together and a joy in doing so that represent a high moral value.
+ - Internationalism on the other hand admits that spiritual achievements have their roots deep in national life; from this national consciousness art and literature derive their character and strength and on it even many of the humanistic sciences are firmly based.
+ - Just as characteristic, perhaps, is the intellectual interdependence created through the development of the modern media of communication: post, telegraph, telephone, and popular press.
+ - The main concept is that of an international solidarity expressed in practice through worldwide division of labor: free trade is the principal point in the program of internationalism.
+ - Like all social theories, internationalism must seek its basis in the economic and technical fields; here are to be found the most profound and the most decisive factors in the development of society.
+ - Propaganda must appeal to mankind’s better judgment and to the necessary belief in a better future. For this belief, the valley of the shadow of death is but a war station on the road to the blessed summit.
+ - Europe cannot survive another world war.
+ - Upon the union of the male germ cell with the female egg cell, a new cell is created which almost immediately splits into two parts. One of these grows rapidly, creating the human body of the individual with all its organs, and dies only with the individual.
+ - The idea of eternity lives in all of us. We thirst to live in a belief which raises our small personality to a higher coherence – a coherence which is human and yet superhuman, absolute and yet steadily growing and developing, ideal and yet real.
+ - It is an accepted commonplace in psychology that the spiritual level of people acting as a crowd is far lower than the mean of each individual’s intelligence or morality.
+ - Earlier ages fortified themselves behind the sovereign state, behind protectionism and militarism.
+ - Today we stand on a bridge leading from the territorial state to the world community. Politically, we are still governed by the concept of the territorial state; economically and technically, we live under the auspices of worldwide communications and worldwide markets.
+ - History shows us that other highly developed forms of civilization have collapsed. Who knows whether the same fate does not await our own?
+ - The territorial state is such an ancient form of society – here in Europe it dates back thousands of years – that it is now protected by the sanctity of age and the glory of tradition. A strong religious feeling mingles with the respect and the devotion to the fatherland.
+ - The theoretically unrestricted right to develop power, to wage war against other states, is antisocial and is doubly dangerous, because the state as a mass entity represents a low moral and intellectual level.
+ - Militarism is basically a way of thinking, a certain interpretation of the function of the state; this manner of thinking is, moreover, revealed by its outer forms: by armaments and state organization.
+ - Modern techniques have torn down state frontiers, both economical and intellectual. The growth of means of transport has created a world market and an opportunity for division of labor embracing all the developed and most of the undeveloped states.
+ - But teleological considerations can lead no further than to a belief and a hope. They do not give certainty.
+ - No state is free from militarism, which is inherent in the very concept of the sovereign state. There are merely differences of degree in the militarism of states.
+ - In particular, the efforts to reestablish peace after the World War have been directed toward the formation of states and the regulation of their frontiers according to a consciously national program.
+ - Every time economic and technical development takes a step forward, forces emerge which attempt to create political forms for what, on the economic-technical plane, has already more or less become reality.
+ - The sovereign state has in our times become a lethal danger to human civilization because technical developments enable it to employ an infinite number and variety of means of destruction.
+ - The simultaneous reactions elicited all over the world by the reading of newspaper dispatches about the same events create, as it were, a common mental pulse beat for the whole of civilized mankind.
+ - A pacifist will often – at least nowadays – be an internationalist and vice versa. But history shows us that a pacifist need not think internationally.
+ - Only recently, during the nineteenth century, and then only in Europe, do we meet forms of the state which have been created by a deliberate national feeling.
+
+34 quotes

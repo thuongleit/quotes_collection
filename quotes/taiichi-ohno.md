@@ -1,0 +1,22 @@
+ - Without standards, there can be no improvement.
+ - Having no problems is the biggest problem of all.
+ - Ask ‘why’ five times about every matter.
+ - Progress cannot be generated when we are satisfied with existing situations.
+ - Costs do not exist to be calculated. Costs exist to be reduced.
+ - Standards should not be forced down from above but rather set by the production workers themselves.
+ - The more inventory a company has, the less likely they will have what they need.
+ - When you are out observing on the gemba, do something to help them. If you do, people will come to expect that you can help them and will look forward to seeing you again on the gemba.
+ - No goal, regardless of how small can be achieved without adequate training.
+ - Data is of course important in manufacturing, but I place the greatest emphasis on facts.
+ - No one has more trouble than the person who claims to have no trouble.
+ - All we are doing is looking at the time line, from the moment the customer gives us an order to the point when we collect the cash. And we are reducing the time line by reducing the non-value adding wastes.
+ - And we are reducing the time line by reducing the non-value adding wastes.
+ - We are doomed to failure without a daily destruction of our various preconceptions.
+ - If you are going to do TPS you must do it all the way. You also need to change the way you think. You need to change how you look at things.
+ - The only place that work and motion are the same thing is the zoo where people pay to see the animals move around.
+ - The slower but consistent tortoise causes less waste and is more desirable than the speedy hare that races ahead and then stops occasionally to doze. The Toyota Production System can be realized only when all the workers become tortoises.
+ - Also, bad quality causes big disruptions in my river system.
+ - My first move as the manager of the machine shop was to introduce standardized work.
+ - I’m proud to be Japanese and I wanted my country to succeed. I believed my system was a way that could help us become a modern industrial nation. That is why I had no problem with sharing it with other Japanese companies, even my biggest competitors.
+
+20 quotes

@@ -1,0 +1,34 @@
+ - Man never made any material as resilient as the human spirit.
+ - Unsolicited advice is the junk mail of life.
+ - There was never a night or a problem that could defeat sunrise or hope.
+ - The day the Lord created hope was probably the same day he created Spring.
+ - Talent is a flame. Genius is a fire.
+ - If we try and fail, we have temporary disappointments. But if we do not try at all, we have permanent regrets.
+ - September tries its best to have us forget summer.
+ - If a June night could talk, it would probably boast it invented romance.
+ - Laziness has many disguises. Soon “winter doldrums” will become “spring fever.”
+ - A half-truth is usually less than half of that.
+ - Life is supposed to be a series of peaks and valleys. The secret is to keep the valleys from becoming Grand Canyons.
+ - It is almost impossible to watch a sunset and not dream.
+ - We may pass violets looking for roses. We may pass contentment looking for victory.
+ - People who say, ‘Let the chips fall where they may,’ usually figure they will not be hit by a chip.
+ - No symphony orchestra ever played music like a two-year-old girl laughing with a puppy.
+ - You are mature when you know what is foolhardy and what is courage.
+ - I like the word “indolence.” It makes my laziness seem classy.
+ - Tranquility is like quicksilver. The harder you grab for it, the less likely you will grasp it.
+ - We grow a little every time we do not take advantage of somebody’s weakness.
+ - This is the end of the day, but soon there will be a new day.
+ - Ideas are like wandering sons. They show up when you least expect them.
+ - Books had instant replay long before televised sports.
+ - An extravagance is something that your spirit thinks is a necessity.
+ - Sooner or later we all quote our mothers.
+ - We must escape our illusions of correctness to understand the actions and beliefs of others.
+ - The average man will bristle if you say his father was dishonest, but he will brag a little if he discovers that his great-grandfather was a Pirate.
+ - There is no psychiatrist in the world like a puppy licking your face.
+ - Women have a favorite room, men a favorite chair.
+ - Americans are optimists. They hope they’ll be wealthy someday – and they’re positive they can get one more brushful of paint out of an empty can.
+ - Few things move as quietly as the future.
+ - A friend is a lot of things, but a critic isn’t.
+ - What a strange world this would be if we all had the same sense of humor.
+
+32 quotes

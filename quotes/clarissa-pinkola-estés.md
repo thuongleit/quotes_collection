@@ -1,0 +1,93 @@
+ - When a great ship is in harbor and moored, it is safe, there can be no doubt. But that is not what great ships are built for.
+ - The wild woman is fluent in the language of dreams, images, passion, and poetry.
+ - My brain has no heart, and my heart has no brain. That’s why when I speak my mind, I appear heartless and when I do what’s in my heart I seem thoughtless.
+ - Be proud of your scars. They have everything to do with your strength, and what you’ve endured. They’re a treasure map to the deep self.
+ - One of the most calming and powerful actions you can do to intervene in a stormy world is to stand up and show your soul. Struggling souls catch light from other souls who are fully lit and willing to show it.
+ - If you have yet to be called an incorrigable, defiant woman, don’t worry, there is still time.
+ - All that you are seeking is also seeking you. If you lie still, sit still, it will find you. It has been waiting for you a long time.
+ - Bone by bone, hair by hair, Wild Woman comes back. Through night dreams, through events half understood and half remembered...
+ - The body remembers, the bones remember, the joints remember, even the little finger remembers. Memory is lodged in pictures and feelings in the cells themselves. Like a sponge filled with water, anywhere the flesh is pressed, wrung, even touched lightly, a memory may flow out in a stream.
+ - The soul has no gender.
+ - Within every woman there is a wild and natural creature, a powerful force, filled with good instincts, passionate creativity, and ageless knowing.
+ - Go out in the woods, go out. If you don’t go out in the woods nothing will ever happen and your life will never begin.
+ - When a women speaks her truth, fires up her intention and feeling, stays tight with the instinctive nature, she is singing, she is living in the wild breath-stream of the soul.
+ - To be ourselves causes us to be exiled by many others, and yet to comply with what others want causes us to be exiled from ourselves.
+ - Healthy wolves and healthy women share certain psychic characteristics: keen sensing, playful spirit, and a heightened capacity for devotion. Wolves and women are relational by nature, inquiring, possessed of great endurance and strength.
+ - Ours is not the task of fixing the entire world at once, but of stretching out to mend the part of the world that is within our reach.
+ - I hope you will go out and let stories happen to you, and that you will work them, water them with your blood and tears and you laughter till they bloom, till you yourself burst into bloom.
+ - Be wild; that is how to clear the river.
+ - Failure is a greater teacher than success.
+ - The psyches and souls of women also have their own cycles and seasons of doing and solitude, running and staying, being involved and being removed, questing and resting, creating and incubating, being of the world and returning to the soul-place.
+ - With the wild nature as ally and teacher we see not through two eyes but through the many eyes of intuition. With intuition we are like the starry night, we gaze at the world through a thousand eyes. The wild woman is fluent in the language of dreams, images, passion, and poetry.
+ - I hope you will go out and let stories happen to you.
+ - Stories are medicine.
+ - Friends who love you and have warmth for your creative life are the very best suns in the world.
+ - Though her soul requires seeing, the culture around her requires sightlessness. Though her soul wishes to speak its truth, she is pressured to be silent.
+ - To love pleasure takes little. To love truly takes a hero who can manage his own fear.
+ - Three things differentiate living from the soul verses living from the ego only: the ability to sense and learn new ways, the tenacity to ride a rough road, and the patience to learn deep love over time.
+ - The quintessential feminine Self stands at the center of the psyche and it is wild, meaning natural and free, and utterly wise. It is not ‘something’ we must strive to create. This Self is already fully present, burning strong and waiting for us to come into its presence.
+ - Mindful choosing of friends and lovers, not to mention teachers, is critical to remaining conscious, remaining intuitive, remaining in charge of the fiery light that sees and knows.
+ - All strong souls first go to hell before they do the healing of the world they came here for. If we are lucky, we return to help those still trapped below.
+ - Rather than chairs and tables, I preferred the ground, trees, and caves, for in those places I felt I could lean against the cheek of God.
+ - The way to maintain one’s connection to the wild is to ask yourself what it is that you want. This is the sorting of the seed from the dirt. One of the most important discriminations we can make in this matter is the difference between things that beckon to us and things that call from our souls.
+ - I have to go to the woods, and I have to meet the wolf, or else my life will never begin.
+ - Solitude is not an absence of energy or action, as some believe, but is rather a boon of wild provisions transmitted to us from the soul.
+ - A healthy woman is much like a wolf: robust, chock-full, strong life force, life-giving, territorially aware, inventive, loyal, roving.
+ - When seeking guidance, don’t ever listen to the tiny-hearted. Be kind to them, heap them with blessing, cajole them, but do not follow their advice.
+ - How does one know if she has forgiven? You tend to feel sorrow over the circumstance instead of rage, you tend to feel sorry for the person rather than angry with him. You tend to have nothing left to say about it all.
+ - Anytime we feed soul, it guarantees increase.
+ - Stories are medicine. They have such power; they do not require that we do, be, act anything – we need only listen.
+ - If you’ve lost focus, just sit down and be still. Take the idea and rock it to and fro. Keep some of it and throw some away, and it will renew itself. You need do no more.
+ - For myself, solitude is rather like a folded-up forest that I carry with me everywhere and unfurl around myself when I have need.
+ - Any time I find medicine that’s helpful, I share it with everyone I know.
+ - To be poor and be without trees, is to be the most starved human being in the world. To be poor and have trees, is to be completely rich in ways that money can never buy.
+ - The craft of questions, the craft of stories, the craft of the hands – all these are the making of something, and that something is soul. Anytime we feed soul, it guarantees increase.
+ - The point of art is not simply to express ourselves, but to create an external, concrete form in which the soul of our lives can be evoked and contained.
+ - When a creature is exposed to violence, it will tend to adapt to that disturbance, so that when the violence ceases or the creature is allowed its freedom, the healthy instinct to flee is hugely diminished, and the creature stays put instead.
+ - The desire to force love to live only in its most positive form is what causes love ultimately to fall over dead.
+ - Mend the part of the world that is within your reach.
+ - Long ago the word alone was treated as two words, all one. To be all one meant to be wholly one, to be in oneness, either essentially or temporarily. That is precisely the goal of solitude, to be all one.
+ - The predation of wolves and women by those who misunderstand them is strikingly similar.
+ - It’s not by accident that the pristine wilderness of our planet disappears as the understanding of our own inner wild nature fades.
+ - A woman who is starved for her real soul-life may look ‘cleaned up and combed’ on the outside, but on the inside she is filled with dozens of pleading hands and empty mouths.
+ - We all wish to be brave and strong in the face of disaster. We all wish to be looked up to for our endurance and efforts to help others.
+ - To be strong does not mean to sprout muscles and flex. It means meeting one’s own numinosity without fleeing, actively living with the wild nature in one’s own way. It means to be able to learn, to be able to stand what we know. It means to stand and live.
+ - Ritual is one of the ways in which humans put their lives in perspective, whether it be Purim, Advent, or drawing down the moon. Ritual calls together the shades and specters in people’s lives, sorts them out, puts them to rest.
+ - A lover cannot be chosen a la smorgasbord. A lover has to be chosen from soul-craving. To choose just because something mouthwatering stands before ou will never satisfy the hunger of the soul-self. And that is what the intuition is for; it is the direct messenger of the soul.
+ - Tell the truth about your wound, and then you will get a truthful picture of the remedy to apply to it. Don’t pack whatever is easiest or most available into the emptiness. Hold out for the right medicine. You will recognize it because it makes your life stronger rather than weaker.
+ - There will always be times when you feel discouraged. I too, have felt despair many times in my life, but I do not keep a chair for it; I will not entertain it. It is not allowed to eat from my plate.
+ - It is worse to stay where one does not belong at all than to wander about lost for a while and looking for the psychic and soulful kinship one requires.
+ - The most important thing is to hold on, hold out, for your creative life, for your solitude, for your time to be and do, for your very life.
+ - Asking the proper questions is the central action of transformation. Questions are the key that causes the secret doors of the psyche to swing open.
+ - To create one must be willing to be stone stupid, to sit upon a throne on top of a jackass and spill rubies from one’s mouth. Then the river will flow, then we can stand in the stream of it raining down.
+ - When women are relegated to moods, mannerisms, and contours that conform to a single ideal of beauty and behavior, they are captured in both body and soul, and are no longer free.
+ - Asking the proper question is the central act of transformation!
+ - Without art we live under the illusion that there is only time, and not eternity.
+ - Our own sorrows seem heavy enough, even when lifted by certain long-term joys. But watching others hurt is the breaker of most any heart.
+ - So, let us push on now, and remember ourselves back to the wild soul. Let us sing her flesh back onto our bones.
+ - Modern storytellers are the descendants of an immense and ancient community of holy people, troubadours, bards, griots, cantadoras, cantors, traveling poets, bums, hags and crazy people.
+ - Since time out of mind, a considered act of heroism has been the cure for stultifying ambivalence.
+ - To love means to embrace and at the same time to withstand many endings, and many many beginnings- all in the same relationship.
+ - At bottom is the best soil to sow and grow something new again. In that sense, hitting bottom, while extremely painful, is also the sowing ground.
+ - Dogs are the magicians of the universe.
+ - Art is not meant to be created in stolen moments only.
+ - If women were in charge of everything, there would be women tyrants. If black people were in charge, there would be black tyrants. If Hispanics were in charge, then Hispanic tyrants.
+ - When you feel bad, find a person to talk to and cry with, to tell of your anger and other helpless feelings.
+ - I am built close to the ground and of extravagant body.
+ - Story is far older than the art of science and psychology, and will always be the elder in the equation no matter how much time passes.
+ - Story is a medicine which strengthens and arights the individual and the community.
+ - Just because a woman is silent does not mean she agrees.
+ - A runner is real when she takes the first step.
+ - I became married at a young age and had two daughters and divorced at 26. I had to go on welfare to make ends meet. I had no way to support myself.
+ - The deterioration of symbols is natural. They wear out, needing to be reclaimed, recreated; returned to the spirit.
+ - This kind of forgetting does not erase memory, it lays the emotion surrounding the memory to rest.
+ - Like all other lonely or hungry things, ego loves the light. It sees light, and the possibility of being close to the soul, and it creeps up to it and steals one of its essential camouflages. In a hunger for soul, our own ego-self steals the pelt.
+ - It is in the middle of misery that so much becomes clear. The one who says, ‘Nothing good came of this’ is not yet listening.
+ - Freud’s translator accidentally omitted ‘fashion’ in the psychoanalytic list of primary instinctual drives; along with the drive to sexuality there is the drive to wear odd garments that may cut off circulation, occlude vision, make toes grow sideways, cause riots.
+ - We practice conscious forgetting by refusing to summon up the fiery material, we refuse to recollect. To forget is an active, not a passive endeavor. It means to not haul up certain materials, or turn them over and over, to not work oneself up by repetitive thought, picture, or emotion.
+ - It’s not the failure that holds us back but the reluctance to begin over again that causes us to stagnate.
+ - Nurture is like psychic Wheaties.
+ - Latina women are proud to be called Mrs. That simply means that we have a family.
+ - If logic was anything, all men would ride sidesaddles...
+
+91 quotes

@@ -1,0 +1,48 @@
+ - Tourism is the biggest industry in the world.
+ - You can’t learn passion, either you’ve got it or you haven’t.
+ - We are drowning in images. Photography is used as a propaganda tool, which serves to sell products and ideas. I use the same approach to show aspects of reality.
+ - I try to photograph my own and society’s hypocrisy.
+ - Photography is the simplest thing in the world, but it is incredibly complicated to make it really work.
+ - All photography is propaganda.
+ - The knack is to find your own inspiration and take it on a journey to create work that is personal and revealing.
+ - Criticism is hypocrisy; society is hypocrisy. I’m a tourist. I’m a consumer. I do the things that I photograph and can be criticized of.
+ - Wealthy people have not disappeared, they are just not so willing to show off their wealth.
+ - I avoid Facebook, LinkedIn and Twitter, and if I need to communicate with someone, I email direct.
+ - I think the ordinary is a very under-exploited aspect of our lives because it is so familiar.
+ - Taking photos is a form of collecting.
+ - Part of the role of photography is to exaggerate, and that is an aspect that I have to puncture. I do that by showing the world as I really find it.
+ - My black-and-white work is more of a celebration and the color work became more of a critique of society.
+ - Color was the palette of commercial photography and snapshot photography.
+ - The thing about tourism is that the reality of a place is quite different from the mythology of it.
+ - I accept that all photography is voyeuristic and exploitative, and obviously I live with my own guilt and conscience. It’s part of the test and I don’t have a problem with it.
+ - Nobody thinks about technical issues anymore because cameras or camera phones take care of that automatically. On the other hand, you still have the option of controlling every technical aspect. It’s the most accessible, democratic medium available in the world.
+ - I am not a huge follower of music and tend to like one CD and play it to death, usually when I am washing up.
+ - Choosing sepia is all to do with trying to make the image look romantic and idealistic. It’s sort of a soft version of propaganda.
+ - With photography, I like to create a fiction out of reality. I try and do this by taking society’s natural prejudice and giving this a twist.
+ - I see things going on before my eyes and I photograph them as they are, without trying to change them. I don’t warn people beforehand. That’s why I’m a chronicler. I speak about us and I speak about myself.
+ - The easy bit is picking up a camera and pointing and shooting. But then you have to decide what it is you’re trying to say and express.
+ - Everyone is a photographer now, remember. That’s the great thing about photography.
+ - When a mother takes pictures of her children on the beach, she doesn’t take herself for an artist; she does it for love, which is an excellent reason, from my point of view.
+ - Filming is always a challenge because I’m not used to it. But I approach it head-on. I’m not technically brilliant, but it’s the spirit that counts.
+ - I am what I photograph.
+ - Dictators are interesting, no?
+ - I never think of photographs as being individual. Always as a group.
+ - Photography’s central role is to be the absolute medium of the day. It is fantastic that there is no longer any technical intimidation.
+ - I always take photographs when I attend a funeral. Most people there know who I am and expect me to be there with my camera.
+ - I have been photographing people dancing for 20 or 30 years now, and I think I will eventually do a book of dancing photos.
+ - Unless it hurts, unless there’s some vulnerability there, I don’t think you’re going to get good photographs.
+ - For those aspiring to make a living from travel photography, it’s a sad fact that the boring shots are the shots that are going to make you money.
+ - I am not as cross about Thatcher now as I was in the ’80s. Begrudgingly, I can see that some of her policies helped modernise Britain.
+ - I get up early and open my emails, write cheques, and answer the phone; whatever needs to be done.
+ - I am a big fan of Jim Jarmusch, and I do love big screen documentaries.
+ - Most of the photographs people take with their cameraphones are of little value in terms of documentary.
+ - Work harder, get closer and be passionate about what you photograph.
+ - When I first started learning how to take photographs, you had to spend the first six months figuring out what an f-stop was. Now you just go and take pictures.
+ - I toyed with the notion of being an actor, and am so glad that this whim did not go any further.
+ - Most of the pictures we consume are propaganda.
+ - I am kept awake by the list of possibilities for shooting more photos and deciding what I must prioritise next.
+ - The danger is, you have a formula and you just repeat it.
+ - There are two parts to the process: taking the picture and finding ways of using it.
+ - I am away so much, so I rarely see live TV, but I use iPlayer to catch programmes.
+
+46 quotes

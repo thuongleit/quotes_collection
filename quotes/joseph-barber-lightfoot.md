@@ -1,0 +1,26 @@
+ - Eternal truth, eternal righteousness, eternal love; these only can triumph, for these only can endure.
+ - God helping me, I will help my brothers and sisters in Christ, because they are my brothers and sisters.
+ - Not only must the message be correctly delivered, but the messenger himself must be such as to recommend it to acceptance.
+ - There is no persuasiveness more effectual than the transparency of a single heart, of a sincere life.
+ - Try to help others. Consult their weaknesses, relieve their maladies; strive to raise them up, and by so doing you will most effectually raise yourself up also.
+ - The future is hidden by a dark impenetrable veil, and yet we struggle to pierce through it.
+ - This fear of the Lord is indeed the beginning of wisdom. This consciousness of sin is the straight pathway to heaven.
+ - It is strange to reflect how much energy is thrown away in attempting to know the unknowable.
+ - God gave you not a spirit of faithlessness, not a spirit of despair.
+ - The tillage of the soil occupies the vast majority of those who work for their own bread.
+ - Absolve me, teach me, purify me, strengthen me: take me to Thyself, that I may be Thine and Thine only.
+ - Yes, forget your weakness, whatever that weakness may be. It is egotism, it is selfishness after. all, for it is a dwelling on self. Forget your weakness; and remember your strength.
+ - There will be no misgiving, no shrinking back, no calculation of overpowering odds, no terror of possible consequences, if you frankly accept the gift which God offers you tomorrow.
+ - Words contract a significance which clings to them long after the condition of things to which they owe it has passed away.
+ - The Church in England is the Church of England.
+ - I will not be discouraged by failure; I will not be elated by success.
+ - But there is another danger besetting your path. I mean the error of regarding your own capacities instead of your work, of putting self-consciousness in place of God.
+ - God is the last link of the chain, but He is the first also.
+ - If you are apostles at all, you are apostles, not of men, nor by man. Your sufficiency is of God.
+ - Plant thy foot firmly in the prints which His foot has made before thee.
+ - We do not realise that we are children of eternity. If we did, then success would be no success, and failure would be no failure to us.
+ - The success and the failure are not my concern, but His.
+ - To make your people understand what righteousness is, this must be the basis of all your teaching.
+ - God did not give you the spirit of cowardice.
+
+24 quotes

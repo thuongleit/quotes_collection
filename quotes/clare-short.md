@@ -1,0 +1,22 @@
+ - One must strike the right balance between speed and quality.
+ - People have accused me of being in favor of globalization. This is equivalent to accusing me of being in favor of the sun rising in the morning.
+ - Most of us women like men, you know; it’s just that we find them a constant disappointment.
+ - To tackle the underlying roots of violence and conflict, we need a massive international effort to reduce poverty and injustice, and to promote development, democracy and human rights.
+ - We all understand that America feels so angry, they want to get somebody, but you can’t just have lots of planes and guns and ships and make everybody do your bidding.
+ - It needs to become as easy to get hold of a condom in a poor country as Coca-Cola.
+ - The Middle East is more angry than ever. I’m afraid that the sort of deceit on the route to war was linked to the lack of preparation for afterwards and the chaos and suffering that continuous – so it won’t go away will it?
+ - Israel is much worse than the original apartheid state.
+ - The latter-day robber barons are discovering that better conditions and rewards for workers pay off in a world where consumers increasingly demand ethical standards.
+ - And if you remember the other part of the context is we were then all deceived about the French position and told the French had said they’d veto any second resolution – which wasn’t true, we now know.
+ - And we know there has been horrendous loss of life and suffering and we know that there is anger. Anyone who came anywhere near the general election in constituencies with a substantial Muslim population knows that.
+ - I think the suffering, violence and cruelty and Guantanamo and the rest is going to go on and on in Iraq.
+ - I think the good old British democracy should keep scrutinising and pressing to get the truth out.
+ - Of course we need action, but it should be Just action.
+ - I mean that the time where we need International agreement more than ever on the environment and the rest, poverty we are breaking up our International Institutions and the rule of law and Tony Blair is part of it.
+ - But then Iraq happened after September 2001 and America claimed that Al Qaeda was there, and we all know that was a lie and we now know that our own Prime Minister deceived the country terribly.
+ - We need to keep this Labour government, it has a good chance of another term.
+ - The Liberals have been pressing for the brief on the basis of which he said there was authority for war.
+ - That feeds anger, and I mean when we went and at last thank heavens got towards peace in Northern Ireland we went for justice within Northern Ireland as well as using security well, as well as a political settlement, but surely that is the lesson.
+ - I also believe that US backing for Israeli policies of expansion of the Israeli state and oppression of the Palestinian people is the major cause of bitter division and violence in the world.
+
+20 quotes

@@ -1,0 +1,121 @@
+ - Violence generates more violence; hatred produces more hatred. Peace cannot be conquered. Peace cannot be the result of violence. Peace comes to us only when we dissolve the Ego, when we destroy within us all those psychological factors that produce war.
+ - We need to transmute the lead of personality into the gold of the Spirit. This work is only possible in the laboratory of the Alchemist.
+ - Wisdom and Love must balance mutually. Wisdom without Love it’s a destructive element. Love without Wisdom can leads us to error: love is law, but conscious love.
+ - We should cultivate the serenity, because in the substance of sincerity germinate the most beautiful flowers of the Spirit.
+ - The Gnostic only can wake up to the true state of Illumination by understanding and disintegrating dreams.
+ - Kindness is a much more crushing force than anger.
+ - May the star of Bethlehem shine in your path.
+ - The Perfect Matrimony is the union of two beings; one who loves more, and the other who loves better. The best religion available to the human race is Love.
+ - Gnosis is lived upon facts, withers away in abstractions, and is difficult to find even in the noblest of thoughts.
+ - To discover our own intimate contradictions is a success in itself because our interior judgment is spontaneously free. The man guided by the voice of the Consciousness walks victorious through the Correct Path.
+ - The sun of truth rises in the human being and illuminates his world when he lifts his mind from the darkness of ignorance and selfishness into the light of wisdom and altruism.
+ - When the mind stops searching, when it stops wanting refuge, when it no longer goes in search of security, when it no longer craves more books and information, when it ignores even the memory of desire, only then will Love arrive within.
+ - It’s too sad to live eating theories. The best thing is to transmute wisdom into love.
+ - We are asleep people, unconscious people, and this is what is serious. Unfortunately, we think the best of ourselves and not even suspect that we are asleep.
+ - Freedom is something that we got to achieve inside ourselves. Nobody can achieve it outside oneself.
+ - Be humble in order to attain enlightenment. Thus, after attaining it, be more humble still.
+ - The Sun Stone, the famous Aztec calendar, is unquestionably a perfect summary of science, philosophy, art and religion.
+ - Really Love itself is the extract of the whole Knowledge, it is written that in last synthesis the Wisdom can be reduced into Love, and the Love into Happiness.
+ - The Cause and Effect law is the secret gearing in the machinery of Nature.
+ - The physical union of a man and a woman, in essence, is a supernatural act, a reminiscence of paradise, the most beautiful of all the hymns of praise dedicated to the Creator by the creature; it is the alpha and the omega of all creation.
+ - The Gnostic needs a lot of patience because any act of impatience leads him to failure.
+ - Life’s experiences should turn into real understanding.
+ - In life, the only thing of importance is a radical, total, and definitive change. The rest, frankly, is of no importance at all.
+ - In the Art, Science, Philosophy and Mystic rests the temple of Wisdom.
+ - Inside the man all the elements that form the Universe and all the existing principles are interrelated: He touches the earth with the feet; with the arms the air and with the head the sky and through the Spirit he gets in touch with the Divinity, where he comes from and where he should return.
+ - The hour has arrived to abandon theories and go directly to what is practical.
+ - Defeatist thoughts handicap persons from elevating their mechanistic life to superior states. The majority of persons consider themselves defeated even before beginning the struggle or the Gnostic esoteric work.
+ - Jealousy destroys the matrimonies; jealousy destroys the friendships, jealousy provokes religious wars, fratricidal hates, murderers and all kind of suffering.
+ - All the laws of Nature exist inside us, and if we don’t find them inside ourselves we will never find them outside.
+ - In order to walk the path of the edge of the penknife the patience of the Saint Job is needed. In order to walk the path of the edge of the penknife the tenacity of the well tempered steel is needed.
+ - Sexual pleasure is a legitimate right of the human being.
+ - The time has come for us to understand that the Eternal Feminine is the greatest power in this Universe.
+ - Patience is the Gnostic’s scale and the humble the garden’s door.
+ - We pay Karma not only for the evil we do but also for the good left undone, being able to do it.
+ - The true Human Being is the Innermost, He does not have problems. The problems are from the mind.
+ - Cruelty will continue existing on the face of the Earth as long as we have not learned to put ourselves in the place of others.
+ - If evolution exists in every living species, likewise so too does devolution.
+ - As long as we continue to be imprisoned within the corrupt and rancid norms of the intellect, it will be more than impossible to experience that which is not of the mind, that which is not of time, that which is real.
+ - The mind should turn into a serene and stormless lake, where is reflected the complete panorama of the starry sky.
+ - Whoever submits himself to a super-discipline can expect great triumphs.
+ - The human society is the extension of the individual. Therefore, if we really want a radical change, if we want a better world, we need to change individually.
+ - The heat of charity opens the doors of the heart. The heat of charity brings solar faith to the Mind. Charity is Conscious Love.
+ - All religions are precious pearls strung on the golden thread of divinity.
+ - Authentic faith is lived wisdom, exact cognition, direct experience.
+ - A person is what is his life; if that person doesn’t modify nothing inside himself, if he doesn’t transform radically his life, if he doesn’t work upon himself, then he is wasting miserably his time.
+ - To Investigate in the superior worlds, the logic thinking and the exact concept are needed.
+ - The pain is the outcome of our bad deeds.
+ - Vanity is a relative of Pride; Vanity is talkative, pride is silent. When Vanity and Pride get together, they could make monstrosities.
+ - We are all human beings. As such, we are part of a big family: the human family. The pain of any human being will somehow affect the entire family.
+ - A soft word pacifies anger, and the discordant words break the harmony of the cosmic diapason, and generate disorders...
+ - Karma is a medicine which is given for our own good. Karma is the law of compensation, not of vengeance.
+ - The healthy man is the thin man. But you don’t need to go hungry for it: Remove the flours, starches and sugars; that’s all.
+ - Sexual energy is divided into three distinct types. First: the energy having to do with the reproduction of the species. Second: the energy having to do with the spheres of thought, feeling and will. Third: the energy that is found related with the world of pure Spirit.
+ - Only by realizing what selfishness and lack of generosity really are can the delicious fragrance of true love and effective generosity, which is not of the mind, burst forth in our hearts...
+ - Those who don’t have a wife should sublimate their sexual energies with outdoor sports or long walks.
+ - Let’s work and rest happily, abandon us to the course of life; let’s run out the muddy and rotten water of the daily thinking and within the Void will flow the Gnosis and with it, the Joy for living.
+ - Three marital bonds exist: Karmic, Dharmic and Cosmic. The first are of pain, misery, hunger, nakedness, disgrace. The second are of success, bliss, love, financial progress, etc. The third are only for the select, pure and holy souls and bring inexhaustible happiness.
+ - Genuine faith is living knowledge, exact cognition, direct experience. For many centuries faith and belief have been confused, and now it takes great effort and exertion to make people understand that faith is true knowledge and not futile beliefs.
+ - The best didactic for the elimination of the Ego it is found in the everyday life intensively lived.
+ - The Woman, the Eternal Feminine envelops with her gaze of light the entire planet.
+ - Only with the death it comes what’s new, if the germen doesn’t die, the plant will not be born.
+ - Whoever wants light, should give light, so he receives his payment.
+ - Death is profoundly meaningful. Discovering what it is in itself we will know the secret of life.
+ - Love is a delicious experience, it’s the fire that consumes, it’s Divine Wine, rapture for the one who drinks it.
+ - It is painful to comprehend how the mind becomes fixed little by little as time goes by. The mind is the executioner of reality, the slayer of the true; the mind is the destroyer of love.
+ - The society is the extension of the individual. If the individual is greedy, cruel, merciless, egoistic, etc. so it will be the society.
+ - The Alchemy’s secret key is hidden in the laboratory of the man and woman.
+ - The Conscious will is represented by the Sacred Woman, Maria, Isis, who crushes the descending serpent’s head.
+ - The Truth is the unknown from moment to moment, our minds must be always alert with full attention, free from prejudices, misconceptions, so it can be really receptive.
+ - We have to speak the truth always, at any cost, and no matter what.
+ - Delirium tremens in a drunk alcoholic are an unmistakable symptom, but those intoxicated with theories are easily mistaken for geniuses.
+ - There are strange moments in life when the mind rests without any kind of worries. When our mind is quiet, when our mind is in silence, then the new arrives.
+ - Emotion is what counts: it is more valuable than anything.
+ - It is ridiculous, frighteningly ridiculous to make wars in the name of peace.
+ - The Intuitive one can read where the Master doesn’t write and listen where the Master doesn’t talk.
+ - The fear and the search for security have turned the world into a horrific hell.
+ - Everything is the result of the Law of Action and Consequence but with the possibility that a superior law transcends an inferior law.
+ - The Gnostic Anthropology addresses the magnificence of the Being, your inner being.
+ - When the mind is in a passive and receptive state, absolutely still and in silence, the Essence or Buddhata is liberated from the mind, and ecstasy arrives.
+ - It is absurd to go away from the world while searching the Truth because it is in the world and inside the man here and now.
+ - The stubborn stops when finding a mistake, the wise man will not stop until finding the true.
+ - The exterior image of a human being and the diverse circumstances that surround him are the exact result of his interior image and of his psychological processes.
+ - The pain does not bring perfection because the pain is from Satan. The Great Divine Reality is happiness, peace, abundance and perfection. The Great Reality can’t create the pain. What is perfect can’t create pain. What is perfect only conceives happiness.
+ - Real Understanding manifests itself as spontaneous natural and simple action, free of the depressing process of choice, pure without indecisions of any type.
+ - We need something that encourages us to work, we need an intimate aid. This is only possible through meditation.
+ - Only the great Souls can and know how to love.
+ - When we have many things within ourselves which are neither known nor accepted, then such things complicate our lives horrifyingly, and in fact provoke all sorts of situations which could be avoided through knowledge of ourselves.
+ - One can’t tear up the darkness with a slap but bringing the light. Neither the error gets undone by fighting It hand-to-hand, but spreading the truth, without attacking the error.
+ - Wanting to transform the World it is impossible without the blaze of love. Only love can truly transform the World.
+ - Cacao has great nutritional value, a lot of protein, which strengthens a person, and without sugar it is not fattening.
+ - The experiences of life must be transformed into true comprehension...
+ - It’s impossible to be refined when we don’t know how to listen.
+ - Dictators from the past, tyrants, were not unaware that it is easier to govern and enslave a nation of drinkers than that of abstainers.
+ - Death is the return to the very beginning of one’s life, with the possibility of repeating it again.
+ - When wholeheartedly we help someone, when in a natural and spontaneous way we care for the tree and water the flowers in the garden even though no one required us, there is authentic generosity, genuine sympathy, true love.
+ - The one who has real Faith doesn’t need to believe.
+ - Each atom in Nature is the body of a virginal sparkle that incessantly evolves through time and space.
+ - The advanced organizations of Thinking must teach with their example by cooperating. Every human organization can cooperate in one or another way for the common good. We are a family and we should not miserably torment each other’s life because that’s absurd.
+ - To remember oneself and to relax the body is something we have to do constantly.
+ - Only through the Sacrifice it is possible for an inferior energy to be transformed into energy of a superior and different type.
+ - It’s indispensable to fully understand the basis and modus operandi of the Law of Karma to orientate the ship of our life in a positive and exemplary way.
+ - The scenes of existence can be modified. One creates his own circumstances.
+ - We need patient people who are able to endure the toughest disciplines.
+ - Understanding transformed into secret means of action is splendid, wonderful, edifying and essentially dignifying.
+ - Wherever a ray of solar light can reach, man can reach.
+ - Each one projects his own defects over the others, each one see in other his own defects.
+ - The failure of so many marriages is due to their getting married out of animal passion and not out of love.
+ - Whoever has the mind stuffed with theories and more theories, suffers horribly because he is unable to realize nothing of what they have read...
+ - To live the practical aspect of life as part of our schooling is formidable, but to adopt living it as our ultimate goal is absurd.
+ - What’s interesting is to see us as we really are; only in this way we could arrive to the truly knowledge of one-self.
+ - A hard word follows us and later falls upon him who pronounced it, like a ray of vengeance...
+ - The man would stop suffering, when he become capable of dissolving the I.
+ - All the defects are obstacles that anchors the mind to the external senses.
+ - The strong tendency to blame others is a barrier, an obstacle for the comprehension of our own mistakes.
+ - The feeling that someone owes us something, the pain for the harm that others caused us, etc., stops the inner progress of the soul.
+ - It is necessary for the mind to become free of the illusions of this world and become a fine and marvelous instrument of the Inner Being.
+ - All the Cosmic Drama, as it is written in the four Gospels, should be lived inside ourselves, here and now. The isn’t something merely historic, it’s something to live, here and now!
+ - When consciousness has awakened it is not something sensational or spectacular. It’s simply a reality as natural as the one of a tree that has growth slowly and developed without starts or sensational stuffs. Nature is Nature.
+ - A well-paid four-hour workday will increase the number of workers.
+
+119 quotes

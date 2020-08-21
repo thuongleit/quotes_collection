@@ -1,0 +1,76 @@
+ - Astronomy’s much more fun when you’re not an astronomer.
+ - The guitar has a kind of grit and excitement possessed by nothing else.
+ - The biggest emotion in creation is the bridge to optimism.
+ - Everybody thought I was a bit of an eccentric for wanting to be out there looking at the stars, but I still do.
+ - The guitar was my weapon, my shield to hide behind.
+ - When I’m gone, people will no doubt remember me for Queen, but I would much rather be remembered for attempting to change the way we treat our fellow creatures.
+ - Queen songs are not about the life of a rock star – they tend to be about the lives of normal people, which is why I think the songs connect so much. We’re very lucky that they seemingly connect with every generation.
+ - There are times when I flick through magazines and think I’m in danger of becoming a prisoner of my own hair.
+ - I go through major crises every few months, but then I have great peaks of belief and creativity. I’m a weird kind of animal.
+ - To my mind Keep Yourself Alive was never really satisfactory. Never had that magic that it should have had.
+ - I tend to be not a person who does everything right all the time.
+ - I think music is about our internal life. It’s part of the way people touch each other. That’s very precious to me. And astronomy is, in a sense, the very opposite thing. Instead of looking inwards, you are looking out, to things beyond our grasp.
+ - My mum says I wanted to be a surgeon, but I don’t remember that. I think from the time I knew what was happening, I wanted to be a guitar player.
+ - I’m a much better musician than astronomer. I think the world got the right choice.
+ - I’m the nice guy who sits there signing everything that’s put in front of me.
+ - My children hate me being such a big star. It’s very hard for them to have a father who is always in the public eye.
+ - I spent 20 years of my life building up Queen, and now Im spending years of my life trying to get away from it.
+ - I don’t think anybody comes close to The Beatles, including Oasis.
+ - I have to build my own boat this time. It’s a big sea out there, and I have a pretty small boat. I have a lot of belief in it.
+ - My big hobby is photography. I collect stereo photographs from the 19th century.
+ - You want to go in the steam bath to get your vocals sounding well, but you don’t want your fingers to get soft.
+ - There is no way that you can ever really repeat something. I have this great belief that the magic of the moment can never be recaptured.
+ - A good video can make all the difference.
+ - Each gig should be unique. You’re always treading that line between keeping yourself fresh and giving people something they want to hear.
+ - A Queen track has those big, thick, block harmonies.
+ - I was an incurable romantic then, same as I am now. I was always pining away after somebody.
+ - We wouldn’t have put it out with the name Queen on it if we didn’t think it was musically up to scratch.
+ - Sanctions always hurt the poor, the weak, the children.
+ - Doing Made In Heaven was like assembling a jigsaw puzzle, but I wouldn’t have put my seal of approval on it if I hadn’t thought it was up to standard.
+ - I was actually perfectly happy when I had no money, which lasted right up until we had a hit with Killer Queen, in 1974. I never wanted for anything.
+ - There’s nothing I’m embarrassed about.
+ - I’d put a lot of work into playing guitar, and was thinking I was pretty damn good. But Hendrix came along and destroyed everyone.
+ - I despise the Lottery. There’s less chance of you becoming a millionaire than there is of getting hit on the head by a passing asteroid.
+ - If I go to places where other people are playing, I often get up and play myself. I just enjoy the sound and feel of playing.
+ - Every time I listen to Jeff Beck my whole view of guitar changes radically. He’s way, way out, doing things you never expect.
+ - Queen songs tend to be about very personal things: personal dreams and personal ambitions.
+ - We’ve done an arrangement with an orchestra, but I think the best stuff tends to come when it’s just the four of us.
+ - Einstein got most of the things right about black holes. I’m not an expert, I must admit.
+ - I like to go for a walk or swimming or in the garden when I can. It’s a busy kind of life, but I guess I’m lucky.
+ - I really thought I was pretty good before I saw Hendrix, and then I thought: Yeah, not so good.
+ - I’m pretty basic as far as technique is concerned. I don’t use many gadgets, and I like the sound my guitar makes, anyway.
+ - People have been rumouring that Queen are going to split up for the last eight years at least. I’ve got some great cuttings at home from people saying ‘One thing is certain, Queen will no longer exist in a year’s time.’ And that was in 1973.
+ - For a time I didn’t want to answer any questions about Queen. I’d like to be viewed as something alive and relevant, not some fossil.
+ - Amazing uke playing to be relished.
+ - I like a big neck – thick, flat and wide. I lacquered the fingerboard with Rustin’s Plastic Coating. The tremolo is interesting in that the arm’s made from an old bicycle saddle bag carrier, the knob at the end’s off a knitting needle and the springs are valve springs from an old motorbike.
+ - I’m not a person for sitting on beaches. What would I do?
+ - I’m into paradoxes. I wanted to make an album about them, but the group told me I was a pretentious fart. They were right.
+ - We do play to our audience. It’s very important. You can’t create music in a vacuum.
+ - Not for a million – years. I mean, I like the INXS boys, but I found the process very degrading, really. Reality television has eaten away at our standards of excellence. I don’t like this whole culture, which has evolved, of TV being the king.
+ - In print, people can do anything to you. Everything you do is picked apart. People love it; they’re waiting for you to make a mistake.
+ - Mantovani was a great influence on me.
+ - The Wedding March has a bit of a death march in it.
+ - There are a lot of things in Queen albums that you don’t expect; that’s why we threw them in.
+ - Sometimes if the guitar is the last thing to go on, it’s very fresh.
+ - From the beginning of Queen there was such momentum that I never had any time to do anything else. My energy was 95% focused on the band.
+ - On the first few albums the songs would grow into strange shapes.
+ - I never took sheet music seriously. I could do better myself just by listening to other people and using my own intuition.
+ - It’s wonderful for me to see what ‘We Will Rock You’ has done. ‘We Will Rock You’ and ‘We Are the Champions’ have kind of transcended the normal framework of where music is listened to and appreciated – they’ve become part of public life, which I feel wonderful about.
+ - There are times when I’ve been feeling something and played a solo that I’ve never been able to repeat.
+ - I think Queen tribute bands are great. However, we have to keep them at arm’s length, otherwise it could be too dangerous.
+ - I think a lot of people would be better off in America, where at least you would find some radio station somewhere that would play you.
+ - I don’t surf the net in general. I have someone do it for me instead, because I find it sluggish.
+ - I’m hopeless at playing scales. Try and be instinctive first and analytic afterwords, although it’s good to study the theory of music.
+ - I had this big thing about guitar harmonies. I wanted to be the first to put proper three-part harmonies onto a record. That was an achievement.
+ - What we were trying to do differently was this sort of layered sound.
+ - I’ve always lived in that guitar world. I have noticed kids being more into the real essence of guitar music now.
+ - I just want to be able to play as fast as my brain goes, and my brain doesn’t go all that fast.
+ - I tend not to write on guitar very often. I tend to start off with keyboards.
+ - When we were touring heavily in America, we based ourselves there for a couple of years, but now we’re all back here and it seems to be the place.
+ - Queen had its time and place, and at the moment I’m not concentrating on that era.
+ - At the moment the Queen stuff does sell really well, but there’s no guarantee it’ll go on forever.
+ - I think Hammer’s very cool: he has a great voice and great presence.
+ - The potential audience seems to be dwindling in the states. I was kind of embarrassed for the band because of the size of the audience.
+ - The first nine albums there was never a Synthesiser, never any Orchestra. There was never any other player except us on the albums.
+
+74 quotes

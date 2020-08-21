@@ -1,0 +1,38 @@
+ - It is not knowledge, but the act of learning, not possession but the act of getting there, which grants the greatest enjoyment.
+ - Mathematics is the queen of the sciences.
+ - The Infinite is only a manner of speaking.
+ - Mathematical discoveries, like springtime violets in the woods, have their season which no human can hasten or retard.
+ - You have no idea, how much poetry there is in the calculation of a table of logarithms!
+ - The enchanting charms of this sublime science reveal only to those who have the courage to go deeply into it.
+ - Mathematicians stand on each other’s shoulders.
+ - Sophie Germain proved to the world that even a woman can accomplish something in the most rigorous and abstract of sciences and for that reason would well have deserved an honorary degree.
+ - In mathematics there are no true controversies.
+ - Arc, amplitude, and curvature sustain a similar relation to each other as time, motion, and velocity, or as volume, mass, and density.
+ - If others would but reflect on mathematical truths as deeply and continuously as I have, they would make my discoveries.
+ - I have the vagary of taking a lively interest in mathematical subjects only where I may anticipate ingenious association of ideas and results recommending themselves by elegance or generality.
+ - There are problems to whose solution I would attach an infinitely greater importance than to those of mathematics, for example touching ethics, or our relation to God, or concerning our destiny and our future; but their solution lies wholly beyond us and completely outside the province of science.
+ - There have been only three epoch-making mathematicians, Archimedes, Newton, and Eisenstein.
+ - The problem of distinguishing prime numbers from composite numbers and of resolving the latter into their prime factors is known to be one of the most important and useful in arithmetic.
+ - Ask her to wait a moment I am almost done.
+ - When a philosopher says something that is true then it is trivial. When he says something that is not trivial then it is false.
+ - Mathematics is concerned only with the enumeration and comparison of relations.
+ - Life stands before me like an eternal spring with new and brilliant clothes.
+ - Further, the dignity of the science itself seems to require that every possible means be explored for the solution of a problem so elegant and so celebrated.
+ - By explanation the scientist understands nothing except the reduction to the least and simplest basic laws possible, beyond which he cannot go, but must plainly demand them; from them however he deduces the phenomena absolutely completely as necessary.
+ - Theory attracts practice as the magnet attracts iron.
+ - To such idle talk it might further be added: that whenever a certain exclusive occupation is coupled with specific shortcomings, it is likewise almost certainly divorced from certain other shortcomings.
+ - Response, when asked how he came upon his theorems.
+ - The higher arithmetic presents us with an inexhaustible store of interesting truths – of truths, too, which are not isolated, but stand in a close internal connection, and between which, as our knowledge increases, we are continually discovering new and sometimes wholly unexpected ties.
+ - Finally, two days ago, I succeeded – not on account of my hard efforts, but by the grace of the Lord. Like a sudden flash of lightning, the riddle was solved. I am unable to say what was the conducting thread that connected what I previously knew with what made my success possible.
+ - Less depends upon the choice of words than upon this, that their introduction shall be justified by pregnant theorems.
+ - You know that I write slowly. This is chiefly because I am never satisfied until I have said as much as possible in a few words, and writing briefly takes far more time than writing at length.
+ - I am giving this winter two courses of lectures to three students, of which one is only moderately prepared, the other less than moderately, and the third lacks both preparation and ability. Such are the onera of a mathematical profession.
+ - I have had my results for a long time: but I do not yet know how I am to arrive at them.
+ - His second motto: Thou, nature, art my goddess; to thy laws my services are bound.
+ - No contradictions will arise as long as Finite Man does not mistake the infinite for something fixed, as long as he is not led by an acquired habit of mind to regard the infinite as something bounded.
+ - It may be true, that men, who are mere mathematicians, have certain specific shortcomings, but that is not the fault of mathematics, for it is equally true of every other exclusive occupation.
+ - I believe you are more believing in the Bible than I. I am not, and, you are much happier than I.
+ - We must admit with humility that, while number is purely a product of our minds, space has a reality outside our minds, so that we cannot completely prescribe its properties a priori.
+ - When I have clarified and exhausted a subject, then I turn away from it, in order to go into darkness again.
+
+36 quotes

@@ -1,0 +1,68 @@
+ - What hurts people a lot is taking humiliation.
+ - Because I’m associated with an avant-garde sensibility, people think I’m looking down on popular culture, but I don’t want to be part of a new elitism.
+ - Clint Eastwood said, the only things America has contributed to civilization are the western and jazz. And I don’t think westerns are bad, but lots of people make great cinema. But jazz is right there.
+ - What keeps me going is a constant sense of disappointment with what I’ve already done...
+ - I prefer the mystic clouds of nostalgia to the real thing, to be honest.
+ - The gap between rich and poor is, in fact, widening enormously. This idea of building up the powers of people who are already powerful and keeping everyone else back is a recipe for endless misery and conflict.
+ - Love is blind. My politics has been, too. I think you can fall in love with ideas, and you can fall in love with people. It’s a very subjective experience. And I’m loyal to that experience.
+ - I don’t do live things.
+ - I don’t find the business easy. The moment you start talking about the business, you start sounding like someone in Spinal Tap.
+ - When I’m singing I try not be a singer with a capital S. I just try to get it out so I feel comfortable with it.
+ - The missing links in my life’s work, no less!
+ - I’m naturally quite conformist, really. If I go to a country and they say, “You’ve got to drive on the right,” I’m not going to drive on the left to show that I’m different. I’m able to stick to the law.
+ - The things that I draw on, and the world that I feel part of, aren’t particularly youth culture.
+ - I can’t imagine my life without the extraordinary bebop jazz revolution in New York in late ’40s and ’50s.
+ - Drinking was a big help with me making music, because drinking gives you courage. But it also makes you reckless, and that’s the trouble.
+ - People are quite shocked when you remind them that Elvis Presley and Frank Sinatra never wrote a song that they recorded in their lives, as far as I know.
+ - Because of my politics, people think I’m anti-American. But I was quite the reverse. What I don’t like about the United States is when the government acts like an old, imperial 18th- or 19th-century European power.
+ - People have habits about what they think songs should be like. There’s the folky thing of: “Poor me, I’m a sensitive person in a cruel world.” Or the pop thing of: “Hey, look at me, I’m sexy.”
+ - The most effective instruments do have a vocal quality.
+ - When there is a voice in a piece of music, we tend to focus on the voice. That is probably something from when we were babies and we depended on hearing our mother’s voice.
+ - It just doesnt mean anything to me, the high-profile, big money side of things. I just want enough to live on, and to be able to get on with what I do, and hang around my friends.
+ - I find it hard to take rock groups very seriously or treat them with respect. There is something absurd about these gloomy young men getting together and banging away.
+ - Im not, by nature, a collaborator. My biggest influences were people like painters and poets. These are solitary workers.
+ - On the whole, I tend not to listen to my peers.
+ - I’m not a soldier for anything, either. I’m only a singer and I don’t think it makes a difference what we sing.
+ - I don’t know how many thoughts we have a second, but it’s quite an amazing number, and just to pin down the appropriate sequence of those, all you really need is a pencil and a piece of paper.
+ - I think the people who did well, or are happy, in a youth industry, they define themselves out of the business after a decade or so.
+ - People say, oh it’s a shame, you’re not nostalgic about the ’60s. Well actually, it’s quite good, when you think of it. Wouldn’t it be sad if I was sitting here wishing it back?
+ - We’ve all got to earn a living. And writing songs is what I do. But when I’ve done a record, it’s not that I think it’s better or worse than anyone else’s, but if I think that nobody else would have done it if I hadn’t, well then that’s ok.
+ - I know people who grow old and bitter. I want to keep making a fresh start. I don’t want them to defeat me. That would be suicidal.
+ - When I lost the use of my hi-hat and bass drum legs, I became basically a singer. I was a drummer who did a bit of singing, and then I became a singer who did a bit of percussion.
+ - I get slightly irritated by people who say they’re natural rebels because it just means that they’re going to be against whatever anybody does, which is almost like saying you might as well leave it as it is.
+ - There are people I would like to work with. Its a bit harder, because I live out in the sticks anyway, and plus being in a wheelchair means that I cant really circulate. So I tend to stick to my own thing.
+ - I don’t want to be a professional cripple. And I don’t see the suicide stuff as tragic.
+ - I only choose musicians who I think will emerge, can emerge, with their own character, while still going along with the tune in question.
+ - In the past, so many of my records, really, have been sketches for records that never really got made.
+ - My heroes are people like Picasso and Miro and people who at last really reach something in their old age, which they absolutely couldn’t ever have done in their youth.
+ - The United States is a country where everybody can start again.
+ - I looked at what adults were doing and how they wanted to earn money, and I really didn’t want to do that. I wanted to go away.
+ - I’m not full of malice, but I do dislike Neil Diamond a lot, and I’m sorry that I’ve done a Neil Diamond song.
+ - I play music a lot but on my own mostly, so it was nice to be around other people. There was a certain sense a relief in the physical act of just playing and being with other musicians.
+ - Being big and famous doesn’t get you more freedom, it gets you less.
+ - I think that pop, and to some extent rock, are like sport and fashion industry in that they’re about the exuberance of youth. That’s the sort of subliminal ideology.
+ - There are a lot of composers who were fantastic, but I challenge them to write a record that you could play five times a day for two months on the radio, songs that people will want to dance to on a Saturday night.
+ - I find writing songs hard, because it does not come naturally to me. I never set out to be a songwriter or a singer.
+ - I would like to think that the singer is the butterfly, and the drummer was just the little grub in the ground, working to become a caterpillar.
+ - Anybody who thinks pop music’s easy should try to make a pop single and find out that it isn’t.
+ - People who had empires, unfortunately, want them back eventually, somehow, someway.
+ - I’ve always liked pop music. There was a bit of a misunderstanding with the avant-garde rock scene, because I think I was sort of swimming the wrong way, really.
+ - I really liked them, not just Syd, but all of them. Roger was very important, I thought, his contribution. And so was Rick’s organ playing. It was a good band. It became something else completely, obviously.
+ - There are singers that I have enjoyed, from Nina Simone and Ray Charles onward. But the music that made music the number one thing for me as a youth was jazz.
+ - I was a latecomer to politics. Maybe I’m just very slow. I got to everything when everyone else had left.
+ - I’m just a very primitive, infantile folk singer.
+ - In theory, I’d like to work in a group. But the group I’d like to work in, all the musicians in them are long since dead.
+ - Potentially, America is really the greatest, but it’s not yet, I don’t think. It’s too much like an old-fashioned empire, waving the stick and dropping too many bombs on too many people.
+ - Those nations of artists, finding their own individualism, and kind of standing against the world: to me that’s the ultimate nightmare. I want to get lost and diffused in the world.
+ - This constant pressure from record companies to come up with a hit single or something like that, I find completely tiresome.
+ - We did not get any money from the early records. It was all taken by crooked managers. It is just a gangster’s paradise.
+ - What I like about popular culture is its accessibility, and I’ve covered popular songs because they are amazing things.
+ - There’s no field of music which doesn’t have good ideas.
+ - I do think there are deep structural things that are wrong in the world.
+ - I consider myself a sit-down comedian really, as much as anything else. I love comedy. Life is a cosmic joke.
+ - The cultural mix that’s happened in the United States is wonderful! Funny enough, one of the most wonderful things about it is that there is no American race.
+ - If you’ve never felt that you quite got a hold of it, you just feel that before you die, you’ve got to try and get it right once. And hope that the experience you have makes up for the some of the diminishing energy.
+ - I have never felt in tune with the whole rock industry.
+ - Even if you’re specific about the character of the song, it’s more exciting to place them, juxtapose them in such a way as to make an adventure out of the sequence of the songs.
+
+66 quotes

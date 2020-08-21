@@ -1,0 +1,56 @@
+ - One of the joys of reading is the ability to plug into the shared wisdom of mankind.
+ - I think I have a pugnacious style. My style is not pretty. I don’t use words like “amber” or “opaque.”
+ - Tea Party members go to meetings on Medicare scooters.
+ - As a writer, you explore all kinds of different emotions.
+ - Richard Price, who has made a fortune writing fake ghetto books, says he takes a cab into the ghetto, transcribes Black speech for a brief time and returns home. His fake ghetto books have bought him a townhouse in Gramercy Park and home on Staten Island.
+ - When I say Afro-American aesthetic, I’m not just talking about the United States, I’m talking about the Americas. People in the Latin countries read my books because they share the same international aesthetic that I’m into and have been into for a long time. And it’s multicultural.
+ - I was challenged to a fistfight by Margo Jefferson, the Pulitzer Prize winner, New York Times writer, who is part of a feminist clique at the Times, which believes that Black men are the principal threat to the women of the world.
+ - What was once dormant is now a Creeping Thing.
+ - Richard Price got a million dollar advance on one fake film book based on a paragraph outline and is able to seduce gullible White reviewers who know less about ghetto life than he. The New York Times has devoted more space to Price’s tourist, ghetto writing than to any Black writer in history.
+ - David Simon goes to the Jewish Weekly and said he’s made all this money, but he can’t enjoy it because of criticism by people like Ishmael Reed.
+ - Multicultural is not a description of a category of American writing-it is a definition of all American writing.
+ - Joel Chandler Harris, who created a multi billion dollar industry, everything from his books, to Disney’s “Song of the South” based upon the Uncle Remus stories. He got his start by transcribing the stories of slave Informants. I’m sure that none them got a dime.
+ - I walked out on American Gangster: this evil piece of dreck. Defenders of this junk say that these movies give Black actors jobs. So did “Birth of a Nation.”
+ - In Haitian mythology there is the figure Ghede, who in West Africa, is Iku, whose role is to show “each man his devil.” He’s represented by a figure wearing a top hat and smoking a cigar. That’s my gig.
+ - My generation of writers has been prone to premature illness and death, especially the women. When Black male writers meet it’s like a session of the American Diabetic Association.
+ - My stuff is direct. Critics have compared my writing style with boxing all the way back to 1978 when my first book of essays appeared: it was compared to Muhammad Ali’s style.
+ - The descendants of Holy Roman Empire monarchies became feeble-minded in the twentieth century, and after World War I had been done in by the democracies; some were kept on to entertain the tourists, like the one they have in England.
+ - For generations comedians have made jokes about Scots-Irish in the South inter-breeding. “I am my own grandpa” and all that stuff; you know, because they all were marrying their first cousins.
+ - My work holds up the mirror to hypocrisy, which puts me in a tradition of American writing that reaches back to Nathaniel Hawthorne.
+ - Given all of the anti-Muslim propaganda that’s being disseminated by The American Nazi media, you have to be careful. It can stress you out.
+ - Native Americans were driven off their land. Lincoln even took part in the Black Hawk campaign against the Native Americans in Illinois. While they were being exterminated and driven off their land, Whites were collecting assets.
+ - I think Black intellectuals see too deeply. That’s the problem. It’s a cause of anxiety, because we see things differently.
+ - A lot of great art comes from the Afro-American male experience. Black men are geniuses, and many times their desperation, their position as being pariahs, leads them to great originality.
+ - I have Black guys who tell me they put my books on their bed stands to read at night like something for guidance or information. That really pleases me a lot. I think my work has changed some things. It’s changed me.
+ - The Afrocentric exploration of the black past only scratches the surface. A full examination of the ancestry of those who are referred to in the newspapers as blacks and African Americans must include Europe and Native America.
+ - I consider racism to be a medical problem. Racists need serious medical and psychiatric help, because they are killing themselves and making others suffer along with them.
+ - No one says a novel has to be one thing. It can be anything it wants to be, a vaudeville show, the six o’clock news, the mumblings of wild men saddled by demons.
+ - I’ve always wondered why European politicians as a group seemed brighter than American politicians as a group. Maybe it’s becausemany American politicians have the race issue to fall back on. They become lazy, suspicious of innovative ideas, and as a result American institutions atrophy.
+ - Another California study counted 30,000 substance abusers who are pregnant are White woman. So, The Wire paints the picture of drug addiction, drug dealing, and drug abuse as being a specifically a Black issue.
+ - I asked Joe Weixlmann why he would print a death threat like that in light of the fact that there are all of these armed ideological nuts wandering around loose. He said that for him, to “ice” someone means to reprimand them.
+ - I guess when it comes to this privileged White racist feminist movement they respect someone who treats them rough: John Wayne. Frank Sinatra. Phillip Roth.
+ - A black boxer’s career is the perfect metaphor for the career of a black male. Every day is like being in the gym, sparring with impersonal opponents as one faces the rudeness and hostility that a black male must confront in the United States, where he is the object of both fear and fascination.
+ - Writing poetry is the hard manual labor of the imagination.
+ - I’m not against White writers writing about Blacks as long as they are as objective as say James McPherson writing about an Irish American janitor in his brilliant short story “Gold Coast.”
+ - Do you think that Gwendolyn Brooks would give an award to someone who hated Black women, the lie that was circulated throughout New York and reached all the way down to Martinique where I was a guest Professor? The lie was circulated by people who don’t read my books.
+ - Whites have been the most subsidized group in the history of the United States and maybe the history of the world, while Blacks were enslaved and were the assets of Whites.
+ - I used to be a discipline problem, which caused me embarrassment until I realized that being a discipline problem in a racist society is sometimes an honor.
+ - Ethnic life in the United States has become a sort of contest like baseball in which the blacks are always the Chicago Cubs.
+ - The treatment of African and African American culture in our education was no different from their treatment in Tarzan movies.
+ - There would be no Rock and Roll without Ike Turner, James Brown, Chuck Berry, Fats Domino, Allen Toussaint, etc. Fake ghetto books and fake ghetto music. Elvis Presley, whom they idol, is merely a karaoke makeover of James Brown and Chuck Berry.
+ - Unfortunately, in the world today, we have dogmatic people entering into politics. I don’t think the two mix.
+ - I’m sure that you could go back and make a graph showing that all the killings of black males increased in times of economic difficulty. As a matter of fact, a black man was lynched last year.
+ - That kind of thing happens to black people every day in this country, and they don’t receive that kind of sentence he did, which was to go to prison on the weekends; I think he lectured there-an outside lecturer.
+ - I think there are fundamentalists all over the world. I think all religions have fundamentalists who have different interpretations of scriptures that are very vague.
+ - My novels and poems are meant to be read aloud. That’s why jazz musicians have been able to adapt my stuff.
+ - I finally had to go to the American Civil Liberties Union here in northern California to get my reply published to what I considered to be a hatchet job done by Stanley Crouch.
+ - I get most my information about what’s happening in the United States from reports and studies, which are often in conflict with what you read on the editorial pages, or handouts from right wing institutions like the American Enterprise Institute.
+ - Free enterprise is not a bad idea and has produced art.
+ - I try to do what has never been done before.
+ - Regardless of the criticisms I receive from the left, the right and the middle, I think it’s important to maintain a prolific writing jab, as long as my literary legs hold up.
+ - Writing has made me a better man. It has put me in contact with those fleeting moments which prove the existence.
+ - Americans are fickle. And what constitutes the enemy is always changing. Believe it or not, at one time Blacks were the favored model minority over Asian Americans.
+ - I wasn’t part of any sixties movement. I’m skeptical of movements. I’m part of the times that I’m in.
+ - The plays raise issues that are ignored in other forums.
+
+54 quotes

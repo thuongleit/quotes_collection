@@ -1,0 +1,39 @@
+ - There will be boots on the ground if there’s to be any hope of success in the strategy.
+ - A wild and crazy weekend involves sitting on the front porch, smoking a cigar, reading a book.
+ - What I know concerns me. What I don’t know concerns me even more. What people aren’t telling me worries me the most.
+ - I have tried to maintain civil relationships with everyone I meet – and, even if I violently disagree with them, try to be respectful.
+ - Some people have said, in so many words, that I’m kind of wooly-headed in believing that the Iranians would see not having nuclear weapons as more in their security interest than not.
+ - Well, I’ve ruffled a few feathers at all the institutions I’ve led. But I think that’s part of leadership.
+ - No president is well-served by groupthink or by everybody singing from the same sheet of music they think he’s on.
+ - Development is a lot cheaper than sending soldiers.
+ - I think that Iran with a nuclear weapon is extremely destabilizing. I think it could precipitate a nuclear arms race in the region.
+ - The reality is, the United States has global interests. Our defense budget is about the same as the defense budgets or military budgets of every other country in the world put together.
+ - In my opinion, any future defense secretary who advises the president to again send a big American land army into Asia or into the Middle East or Africa should ‘have his head examined,’ as General MacArthur so delicately put it.
+ - I’ve spent my entire adult life with the United States as a superpower and one that had no compunction about spending what it took to sustain that position. And it didn’t have to look over its shoulder because our economy was so strong.
+ - I had no difficulty as Secretary of Defense moving from the Bush administration to the Obama administration.
+ - You know, if I were an – if I were a Taliban, I’d say, ‘What did al-Qaida ever do for me except get me kicked out of Afghanistan?’
+ - No policy has proved more successful in making friends for the United States, during the cold war and since, than educating students from abroad at our colleges and universities.
+ - We should never lose sight of the ethos that has made the Marine Corps – where ‘every Marine is a rifleman’ – one of America’s cherished institutions and one of the world’s most feared and respected fighting forces.
+ - Most governments lie to each other. That’s the way business gets done.
+ - Well, what I’ve said is that the war in Iraq will always be clouded by how it began, which was a wrong premise, that there were in fact no weapons of nuclear – weapons of mass destruction.
+ - There is no international problem that can be addressed or solved without the engagement and leadership of the United States and everybody in the world knows that, its just fact of life. So sometimes I think we could conduct ourselves with a little more humility.
+ - Defense is not like other discretionary spending.
+ - I will always be an advocate in terms of wars of necessity. I am just much more cautious on wars of choice.
+ - Things have gotten so nasty in Washington.
+ - I consider myself a Republican.
+ - I don’t think any president that I worked with has ever said ’pretty please.
+ - Well, Israel, obviously, thinks of the Iranian nuclear program as an existential threat to Israel.
+ - One of the toughest battles in intelligence is combating conventional wisdom.
+ - I’m a big advocate of drones.
+ - The United States has been a global power since late in the 19th century.
+ - I have always voted for who I believed was the best person.
+ - One of the big changes in the Congress since I first came to Washington is that all of these folks go home every weekend. They used to play golf together; their families got to know each other, go to dinner at each other’s homes at weekends – and these would be people who were political adversaries.
+ - If there’s ever an example that military power alone cannot be successful in Afghanistan, I think it was the Soviet experience.
+ - I read in the press, and therefore it must be true, that no secretary of defense had ever been quoted as arguing for a bigger budget for State.
+ - It has become clear that America ’s civilian institutions of diplomacy and development have been chronically undermanned and underfunded for far too long – relative to what we spend on the military, and more important, relative to the responsibilities and challenges our nation has around the world.
+ - I wish I could set deadlines for the Congress, but that’s just not the way the Constitution is written.
+ - When I was the director of Central Intelligence in the early ’90s, I tried to get the Air Force to partner with us in building drones. And they didn’t want to, because they had no pilots.
+ - I mean, when you get down to very low numbers of nuclear weapons, and you contemplate going to zero, how do you deal with the reality of that technology being available to almost any country that seeks to pursue it? And what conditions do you put in place?
+ - I’ve seen, all too often in my career, people coming in to lead agencies and organizations and trying to impose change from the top down. Never works. You never have enough time.
+
+37 quotes

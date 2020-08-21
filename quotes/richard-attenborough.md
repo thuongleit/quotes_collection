@@ -1,0 +1,29 @@
+ - I don’t blame people for their mistakes, but I do ask that they pay for them.
+ - I believe in trade unionism, and I believe in democracy, in democratic trade unionism.
+ - Pier Angeli was in the movie called Sea of Sand that Guy Green directed where this idea came up.
+ - On my last day of shooting, I’d be happy to say ‘Cut, it’s a wrap’ and fall off the twig.
+ - I want to be remembered as a storyteller.
+ - I’m a passionate trade unionist.
+ - I just love biography, and I’m fascinated by people who have shifted our destinies or our points of view.
+ - I came from a family who believed in, in quotes, the Rights of Man, who believed that in order to justify the sort of luxurious life that the majority of us have, related to the whole world, that you had to do something.
+ - And that is how I employ my time in cinema, saying things about people who I think have touched us in terms of our value judgement and by example.
+ - If you are directing, you have the opportunity to put your signature on the bottom of the frame. You have the opportunity to say, “This is what I believe. That is my credo. That is what I wish to state.”
+ - I do not have a brain that I long for in dealing with matters of which I am ignorant, that don’t come within my ken and a rationale, a reason, and argument and so on, and I can’t do that and I’m not in that bracket at all.
+ - I passionately believe in heroes, but I think the world has changed its criteria in determining who it describes as a hero.
+ - What I am sad about is that there is now, in America, no equivalent to the art circuit.
+ - At my age the only problem is with remembering names. When I call everyone darling, it has damn all to do with passionately adoring them, but I know I’m safe calling them that. Although, of course, I adore them too.
+ - I prefer fact to fiction.
+ - In other words, if you – the cost of promoting movies, the advertising and promotion of a movie, the budget is almost as large as the cost of the movie.
+ - And there are certain things, and they are evident, obviously, without being boring about it, but I mean obviously, the two evident and easy ones being Gandhi and Cry Freedom, there are things which I do care about very much and which I would like to stand up and be counted.
+ - I am passionately opposed to capital punishment, and I have been all my life.
+ - I was on my own union council for twenty-odd years.
+ - I don’t read a great deal of fiction, to my shame, other than the classics.
+ - I think Tom Paine is one of the greatest men that’s ever lived.
+ - Well, you cannot think of cinema now, and you cannot think of cinema in the UK and not place Chaplin in the most extraordinary elevated context, if there can be such a thing, in that he was a genius, he was unique.
+ - I do care about style. I do care, but I only care about style that serves the subject.
+ - If you’ve ever seen the film In Which We Serve, but it was about a destroyer in the Mediterranean.
+ - There’s nothing more important in making movies than the screenplay.
+ - I can’t write, I can’t paint, I don’t compose.
+ - Art is not an elitist gift for a few select people. Art is for everyone.
+
+27 quotes

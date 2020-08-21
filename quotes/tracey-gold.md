@@ -1,0 +1,35 @@
+ - Life comes full circle.
+ - I’ll always have a baby face.
+ - I will never have a drink and get behind the wheel of a car. It’s not illegal to drink and drive, but there becomes a certain point where it does become a crime.
+ - I have faith in the justice system, and what will happen will happen. I’m just trying to do the right thing.
+ - Anorexia, you starve yourself. Bulimia, you binge and purge. You eat huge amounts of food until you’re sick and then you throw up. And anorexia, you just deny yourself. It’s about control.
+ - Anorexia is such a self-consuming, selfish disease. It’s all about you. Becoming a mother, all of a sudden it wasn’t about me anymore.
+ - I had a very public battle with anorexia.
+ - I’m not acting, but I am acting.
+ - I’m not a religious person. I’m Catholic, so I consider myself more of a spiritual person. I believe in God.
+ - I’m the most cynical person, and I know what that sounds like when you say, I don’t drink and drive, and I don’t. But I know people look at that with skepticism, and I understand.
+ - I am the person who is a mother against drunk driver.
+ - I didn’t think I was fat. I just thought I didn’t need to gain any weight. But I would drop weight and then I would be comfortable with that number. Then I would lose more weight and that would become my new number.
+ - You can never prepare yourself enough to see your mug shot and DUI.
+ - Our family has gone through a very difficult time. My husband and I have taken the brunt of it. I’ve never known what it truly felt like to be so sad and desperate inside.
+ - I don’t believe things happen in vain. I believe they happen for a reason.
+ - My body started to shut down. I got really, really ill. When you’re starving yourself, you can’t concentrate. I was like a walking zombie, like the walking dead. I was just consumed with what I would eat, what I wouldn’t eat.
+ - After the crash happened, I was so humiliated and embarrassed. I thought of Mothers Against Drunk Drivers, that they must hate me.
+ - Sometimes I forget about taking care of myself.
+ - When I was 19 years old, I came down with anorexia. I had it for about a year before it became public. And it had a lot to do with my self-esteem.
+ - All I need to do to stay healthy is look at my three boys.
+ - I unwittingly became sort of this anorexia spokeswoman.
+ - I had years of therapy to recover from this. A lot of it had to with being a people pleaser, being the ultimate good girl. I wanted everyone to like me. I didn’t really have a voice. I was afraid of growing up.
+ - I’ve got a pretty good appetite right now.
+ - Alternative therapists don’t kill many people, but they do make a great teaching tool for the basics of evidence-based medicine, because their efforts to distort science are so extreme.
+ - I love acting. But I love being a mother. To be a full mother and a full person, you have to do what you love, and that’s acting. But I like the best of both worlds.
+ - You can stay in therapy your whole life, but you’ve got to live life and not talk about life.
+ - I knew that by getting behind the wheel of the car and having had something to drink, the responsibility laid on my shoulders.
+ - You can’t enjoy life if you’re not nourishing your body.
+ - I just don’t like to drive. I’m not a bad driver, I just don’t like to drive.
+ - You don’t have the judgment after you’ve had the drink. If something truly catastrophic had happened that evening, I don’t know how I could have lived with myself. I feel like I’ve gotten a second chance.
+ - Any actor will tell you, anybody in the public eye, that the tabloids are the worst kind of ramification of being a celebrity.
+ - I’ve experienced the tabloids when I had anorexia.
+ - I’ve been so in my moment about my life.
+
+33 quotes

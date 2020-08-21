@@ -1,0 +1,152 @@
+ - Time spent in prayer is never wasted.
+ - Above all, live in the present moment and God will give you all the grace you need.
+ - I would have no desire other than to accomplish thy will. Teach me to pray; pray thyself in me.
+ - To just read the Bible, attend church, and avoid “big” sins-is this passionate, wholehearted love for God?
+ - All wars are civil wars, because all men are brothers.
+ - Accustom yourself gradually to carry Prayer into all your daily occupation – speak, act, work in peace, as if you were in prayer, as indeed you ought to be.
+ - The more you say, the less people remember.
+ - The most essential point is lowliness.
+ - Of all the duties enjoined by Christianity none is more essential and yet more neglected than prayer.
+ - No human power can force the intrenchments of the human mind: compulsion never persuades; it only makes hypocrites.
+ - Never let us be discouraged with ourselves. It is not when we are conscious of our faults that we are the most wicked; on the contrary, we are less so. We see by a brighter light; and let us remember for our consolation, that we never perceive our sins till we begin to cure them.
+ - Can we be unsafe where God has placed us, and where He watches over us as a parent a child that he loves?
+ - Faith is letting down our nets into the transparent deeps at the Divine command, not knowing what we shall draw.
+ - Let gratitude for the past inspire us with trust for the future.
+ - Despondency is not a state of humility; on the contrary, it is the vexation and despair of a cowardly pride – nothing is worse; whether we stumble or whether we fall, we must only think of rising again and going on in our course.
+ - Resign every forbidden joy; restrain every wish that is not referred to God’s will; banish all eager desires, all anxiety; desire only the will of God; seek him alone and supremely, and you will find peace.
+ - How rare it is to find a soul quiet enough to hear God speak.
+ - The kingdom of God which is within us consists in our willing whatever God wills, always, in every thing, and without reservation; and thus His kingdom comes; for His will is then done as it is in heaven, since we will nothing but what is dictated by His sovereign pleasure.
+ - It is often our own imperfection which makes us reprove the imperfection of others; a sharp-sighted self-love of others.
+ - We can often do more for other men by trying to correct our own faults than by trying to correct theirs.
+ - To be faithful in prayer it is indispensable that we arrange all the activities of the day with a regularity that nothing can disturb.
+ - O Lord! take my heart, for I cannot give it; and when Thou hast it, O! keep it, for I cannot keep it for Thee; and save me in spite of myself, for Jesus Christ’s sake.
+ - Should we feel at times disheartened and discouraged, a simple movement of heart toward God will renew our powers. Whatever he may demand of us, he will give us at the moment the strength and courage that we need.
+ - It is better to die than to tell a lie.
+ - Simplicity is that grace which frees the soul from all unnecessary reflections upon itself.
+ - Most people I ask little from. I try to give them much, and expect nothing in return and I do very well in the bargain.
+ - Discouragement is simply the despair of wounded self-love.
+ - A general rule for the good use of time is to accustom oneself to live in a continual dependence on the Spirit of God.
+ - Peace does not dwell in outward things but within the soul; we may preserve it in the midst of the bitterest pain, if our will remains firm and submissive. Peace in this life springs from acquiescence to, not an exemption from, suffering.
+ - You can often help others more by correcting your own faults than theirs. Remember, and you should, because of your own experience, that allowing God to correct your faults is not easy. Be patient with people, wait for God to work with them as He wills.
+ - I love my country better than my family; but I love humanity better than my country.
+ - There is no more dangerous illusion than the fancies by which people try to avoid illusion.
+ - God is so good that He only awaits our desire to overwhelm us with the gift of himself.
+ - All earthly delights are sweeter in expectation than in enjoyment; but all spiritual pleasures more in fruition than in expectation.
+ - God never ceases to speak to us, but the noise of the world without and the tumult of our passions within bewilder us and prevent us from listening to him.
+ - If God bores you, tell Him that He bores you, that you prefer the vilest amusements to His presence, that you only feel at your ease when you are far from Him.
+ - To will everything that God wills, and to will it always, in all circumstances and without reservations: that is the kingdom of God which is entirely within.
+ - Our piety must be weak and imperfect if it do not conquer our fear of death.
+ - Sordid and infamous sensuality, the most dreadful evil that issued from the box of Pandora, corrupts every heart, and eradicates every virtue. Fly! wherefore dost thou linger? Fly, cast not one look behind thee; nor let even thy thought return to the accursed evil for a moment.
+ - If we had strength and faith enough to trust ourselves entirely to God; and follow Him simply wherever He should lead us, we should have no need of any great effort of mind to reach perfection.
+ - God is our true Friend, who always gives us the counsel and comfort we need. Our danger lies in resisting Him; so it is essential that we acquire the habit of hearkening to His voice, or keeping silence within, and listening so as to lose nothing of what He says to us.
+ - How different the peace of God from that of the world! It calms the passions, preserves the purity of the conscience, is inseparable from righteousness, unites us to God and strengthens us against temptations. The peace of the soul consists in an absolute resignation to the will of God.
+ - The greatest of all crosses is self. If we die in part every day, we shall have but little to do on the last. These little daily deaths will destroy the power of the final dying.
+ - As to our friend, I pray God to bestow upon him a simplicity that shall give him peace. Happy are they indeed who can bear their sufferings in the enjoyment of this simple peace and perfect acquiesence in the will of God.
+ - Genuine good taste consists in saying much in few words, in choosing among our thoughts, in having order and arrangement in what we say, and in speaking with composure.
+ - Worry is the cross which we make for ourselves by over anxiety.
+ - So long as we are full of self we are shocked at the faults of others. Let us think often of our own sin, and we shall be lenient to the sins of others.
+ - The greatest defect of common education is, that we are in the habit of putting pleasure all on one side, and weariness on the other; all weariness in study, all pleasure in idleness.
+ - Courage is a virtue only so far as it is directed by prudence.
+ - No more restless uncertainties, no more anxious desires, no more impatience at the place we are in; for it is God who has placed us there, and who holds us in his arms. Can we be unsafe where he has placed us?
+ - Do not make best friends with a melancholy sad soul. They always are heavily loaded, and you must bear half.
+ - I am not in the least surprised that your impression of death becomes more lively, in proportion as age and infirmity bring it nearer. God makes use of this rough trial to undeceive us in respect to our courage, to make us feel our weakness, and to keep us in all humility in His hands.
+ - Let us pray God that He would root out of our hearts every thing of our own planting, and set out there, with His own hands, the tree of life, bearing all manner of fruits.
+ - Real friends are our greatest joy and our greatest sorrow. It were almost to be wished that all true and faithful friends should expire on the same day.
+ - O God, the creature knows not to what end Thou hast made Him; teach him, and write in the depths of his soul that the clay must suffer itself to be shaped at the will of the potter.
+ - A good historian is timeless; although he is a patriot, he will never flatter his country in any respect.
+ - Let us endeavor to commence every enterprise with a pure view to the glory of God, continue it without distraction, and finish it without impatience.
+ - When kings interfere in matters of religion, they enslave instead of protecting it.
+ - Little opportunities should be improved.
+ - If we were faultless, we should not be so much annoyed by the defects of those with whom we associate. If we were to acknowledge honestly that we have not virtue enough to bear patiently with our neighbor’s weaknesses, we should show our own imperfection, and this alarms our vanity.
+ - True love goes ever straight forward, not in its own strength, but esteeming itself as nothing. Then indeed we are truly happy. The cross is no longer a cross when there is no self to suffer under it.
+ - God never makes us sensible of our weakness except to give us of His strength.
+ - Make this simple rule the guide of your life: to have no will but God’s.
+ - Pure love is in the will alone; it is no sentimental love, for the imagination has no part in it; it loves, if we may so express it, without feeling, as faith believes without seeing.
+ - True piety hath in it nothing weak, nothing sad, nothing constrained. It enlarges the heart; it is simple, free, and attractive.
+ - God bears with imperfect beings even when they resist His goodness. We ought to imitate this merciful patience and endurance. It is only imperfection that complains of what is imperfect. The more perfect we are, the more gentle and quiet we become toward the defects of other people.
+ - We must avoid fastidiousness; neatness, when it is moderate, is a virtue; but when it is carried to an extreme, it narrows the mind.
+ - Frequently a big advantage can be gained by knowing how to give in at the right moment.
+ - If the crowns of all the kingdoms of the empire were laid down at my feet in exchange for my books and my love of reading I would spurn them all.
+ - In the light of eternity we shall see that what we desired would have been fatal to us, and that what we would have avoided was essential to our well-being.
+ - If we love Him infinitely more than we do ourselves, we make an unconditional sacr Here it is that the Spirit teaches us all truth; for all truth is eminently contained in this sacrifice of love, where the soul strips itself of every thing to present it to God.
+ - Nothing is more despicable than a professional talker who uses his words as a quack uses his remedies.
+ - How dangerous it is for our salvation, how unworthy of God and of ourselves, how pernicious even for the peace of our hearts, to want always to stay where we are! Our whole life was only given us to advance us by great strides toward our heavenly country.
+ - Oh! how seldom the soul is silent, in order that God may speak.
+ - Listen less to your own thoughts and more to God’s thoughts.
+ - Violent excitement exhausts the mind and leaves it withered and sterile.
+ - The youth who, like a woman, loves to adorn his person, has renounced all claim to wisdom and to glory; glory is due to those only who dare to associate with pain, and have trampled pleasure under their feet.
+ - As a general rule, those truths which we highly relish, and which shed a degree of practical light upon the things which we are required to give up for God, are leadings of Divine grace, which we should follow without hesitation.
+ - How can you expect God to speak in that gentle and inward voice which melts the soul, when you are making so much noise with your rapid reflections? Be silent and God will speak again.
+ - Crosses are of no use to us but inasmuch as we yield ourselves up to them and forget ourselves.
+ - God’s treasury where He keeps His children’s gifts will be like many a mother’s store of relics of her children, full of things of no value to others, but precious in His eyes for the love’s sake that was in them.
+ - Carefully purify your conscience from daily faults; suffer no sin to dwell in your heart; small as it may seem, it obscures the light of grace, weighs down the soul, and hinders that constant communion with Jesus Christ which it should be your pleasure to cultivate.
+ - Fear is like the strong medicine used to fight serious diseases; it purges, but it also alters your temperament and wears out the body organs. A person who is driven by fear will always be the weaker for it.
+ - If we were faultless we should not be so much annoyed by the defects of those with whom we associate.
+ - Prayer is so necessary, and the source of so many blessings, that he who has discovered the treasure cannot be prevented from having recourse to it, whenever he has an opportunity.
+ - Those who are wholly God’s are always happy.
+ - There is but one way in which God should be loved, and that is to take no step except with Him and for Him, and to follow with a generous self-abandonment every thing which He requires.
+ - We must truly serve those whom we appear to command; we must bear with their imperfections, correct them with gentleness and patience, and lead them in the way to heaven.
+ - Thou lovest like an infinite God when Thou lovest; Thou movest heaven and earth to save Thy loved ones. Thou becomest man, a babe, the vilest of men, covered with reproaches, dying with infamy and under the pangs of the cross; all this is not too much for an infinite love.
+ - The realization of God’s presence is the one sovereign remedy against temptation.
+ - When tempted, the shortest and surest way is to act like a little child at the breast; when we show it a frightful monster, it shrinks back and buries its face in its mother’s bosom, that it may no longer behold it.
+ - Peace does not dwell in outward things, but within the soul.
+ - Let us often think of our own infirmities, and we shall become indulgent toward those of others.
+ - The history of the world suggests that without love of God there is little likelihood of a love for man that does not become corrupt.
+ - The great point is to renounce your own wisdom by simplicity of walk, and to be ready to give up the favor, esteem, and approbation of every one, whenever the path in which God leads you passes that way.
+ - How does our will become sanctified? By conforming itself unreservedly to that of God.
+ - Trouble and perplexity drive me to prayer, and prayer drives away perplexity and trouble.
+ - The presence of God calms the soul, and gives it quiet and repose.
+ - Nothing marks so much the solid advancement of a soul, as the view of one’s wretchedness without anxiety and without discouragement.
+ - God has not chosen to save us without crosses; as He has not seen fit to create men at once in the full vigor of manhood, but has suffered them to grow up by degrees amid all the perils and weaknesses of youth.
+ - I believe that we are conforming to the divine order and the will of Providence when we are doing even indifferent things that belong to our condition.
+ - Nothing is more false and more indiscreet than always to want to choose what mortifies us in everything. By this rule a person would soon ruin his health, his business, his reputation, his relations with his relatives and friends, in fact every good work which Providence gives him.
+ - Were in prayer, as indeed you ought to be.
+ - The passion of acquiring riches in order to support a vain expense corrupts the purest souls.
+ - The greater our dread of crosses, the more necessary they are for us.
+ - Alas! how many souls there are full of self, and yet desirous of doing good and serving God, but in such a way as to suit themselves; who desire to impose rules upon God as to His manner of drawing them to Himself. They want to serve and possess Him, but they are not willing to be possessed by Him.
+ - We are never less alone than when we are in the society of a single, faithful friend; never less deserted than when we are carried in tne arms of the All-Powerful.
+ - There were some who said that a man at the point of death was more free than all others, because death breaks every bond, and over the dead the united world has no power.
+ - Children are excellent observers, and will often perceive your slightest defects. In general, those who govern children, forgive nothing in them, but everything in themselves.
+ - The smallest things become great when God requires them of us; they are small only in themselves; they are always great when they are done for God.
+ - I no longer desire anything but to be Thine.
+ - Before putting yourself in peril, it is necessary to foresee and fear it; but when one is there, nothing remains but to despise it.
+ - To pray is to desire; but it is to desire what God would have us desire.
+ - The blood of a nation ought never to be shed except for its own preservation in the utmost extremity.
+ - Had we not faults of our own, we should take less pleasure in complaining of others.
+ - We may as well tolerate all religions, since God Himself tolerates all.
+ - Speak, move, act in peace...
+ - Be content with doing calmly the little which depends upon yourself, and let all else be to you as if it were not.
+ - Pity enlarges the heart.
+ - Even if no command to pray had existed, our very weakness would have suggested it.
+ - The art of cookery is the art of poisoning mankind, by rendering the appetite still importunate, when the wants of nature are supplied.
+ - We may be sure that it is the love of God only that can make us come out of self. If His powerful hand did not sustain us, we should not know how to take the first step in that direction.
+ - As long as anything in this world means anything to you, your freedom is only a word. You are like a bird that is held by a leash; you can only fly so far.
+ - Nothing will make us so charitable and tender to the faults of others, as, by self-examination, thoroughly to know our own.
+ - We are not to choose the manner in which our blessings shall be bestowed.
+ - When you come to be sensibly touched, the scales will fall from your eyes; and by the penetrating eyes of love you will discern that which your other eyes will never see.
+ - Good taste rejects excessive nicety.
+ - The past but lives in written words: a thousand ages were blank if books had not evoked their ghosts, and kept the pale unbodied shades to warn us from fleshless lips.
+ - I would have every minister of the gospel address his audience with the zeal of a friend, with the generous energy of a father, and with the exuberant affection of a mother.
+ - This is the love that does all things; that brings to pass even the evils we suffer; so shaping them that they are but instruments of preparing the good which, as yet, has not arrived.
+ - It is when God appears to have abandoned us that we must abandon ourselves most wholly to God.
+ - The more perfect we are, the more gentle and quiet we become toward the defects of other people.
+ - There is a set of religious, or rather moral, writings which teach that virtue is the certain road to happiness, and vice to misery in this world. A very wholesome and comfortable doctrine, and to which we have but one objection, namely, that it is not true.
+ - God would behold in you a simplicity which will contain so much the more of His wisdom as it contains less of your own.
+ - There is never any peace for those who resist God.
+ - God, who is liberal in all his other gifts, shows us, by the wise economy of His providence, how circumspect we ought to be in the management of our time, for He never gives us two moments together.
+ - All wars are civil ones; for it is still man spilling his own blood, tearing out his own bowels.
+ - That love of self, which the world advocates, is a thousand times more dangerous than any poison.
+ - Time is given us that we may take care for eternity; and eternity will not be too long to regret the loss of our time if we have misspent it.
+ - You really don’t even own the present moment, for even this belongs to God.
+ - Speak, move, act in peace, as if you were in prayer. In truth, this is prayer.
+ - He who prays without confidence cannot hope that his prayers will be granted.
+ - The gifts of God are not to be rejected on account of the channel that brings them.
+ - Mankind, by the perverse depravity of their nature, esteem that which they have most desired as of no value the moment it is possessed, and torment themselves with fruitless wishes for that which is beyond their reach.
+ - Temptations are a file which rub off much of the rust of our self-confidence.
+ - O Lord, I do most cheerfully commit all unto Thee.
+ - There are two principal points of attention necessary for the preservation of this constant spirit of prayer which unites us with God; we must continually seek to cherish it, and we must avoid everything that tends to make us lose it.
+ - Nothing is so costly as the pursuit of a cure for imaginary ills.
+ - There is no real elevation of mind in a contempt of little things; it is, on the contrary, from too narrow views that we consider those things of little importance which have in fact such extensive consequences.
+ - How desirable is this simplicity! Who will give it to me? I will quit all else; it is the pearl of great price.
+
+150 quotes

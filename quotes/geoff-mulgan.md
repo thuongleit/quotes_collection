@@ -1,0 +1,58 @@
+ - All innovation is about letting go, saying goodbye to things to create space for the new.
+ - As the Internet of things advances, the very notion of a clear dividing line between reality and virtual reality becomes blurred, sometimes in creative ways.
+ - All of nationalism can be understood as a kind of collective narcissism.
+ - Teenagers learn best by doing things, they learn best in teams and they learn best by doing things for real – all the opposite of what mainstream schooling actually does.
+ - L’Oreal’s slogan ‘because you’re worth it’ has come to epitomise banal narcissism of early 21st century capitalism; easy indulgence and effortless self-love all available at a flick of the credit card.
+ - Social innovation thrives on collaboration; on doing things with others, rather than just to them or for them: hence the great interest in new ways of using the web to ‘crowdsource’ ideas, or the many experiments involving users in designing services.
+ - The longer you commute the less happy you’re likely to be.
+ - There is a yearning for people to return to elementary moral virtues, such as integrity and commitment. We distrust people who have no centering of values. We greatly respect businessmen, for example, if they display those virtues, even if we don’t necessarily agree with the people.
+ - With a fractured sense of self, we come to depend on what people feed back to us – often mediated through social networks – not what we are. We have complex identities but may become less able to act as a subject – confident in what we really are.
+ - The smug complacency of technology adverts disguises a pretty mixed picture, with too many people not connected, too many passive users of technologies designed for interactive, and far too much talk about empowerment but far too little action to make it happen.
+ - The most dynamic cities have always been immersed in the critical innovations of their time.
+ - The biggest barrier to dealing with climate change is us: our own attachment to habits that are hard to shift, and our great ability to park or ignore uncomfortable choices.
+ - Before the Second World War, L’Oreal in France was an active supporter of the French fascists. The cosmetic group’s founder Eugene Schueller was an active member of the ‘Cagoule’ group, committed to the violent overthrow of the Third Republic, and hosted meetings at Oreal headquarters.
+ - The wrongful arrest of tens of thousands of British Muslims after the September 11 attacks can be explained by the very poor intelligence the police had, and, just possibly, excused by the fact that a terrorist action in Britain linked to British Muslims would have been hugely damaging.
+ - Even many of the teenagers who feel confident on navigating the web simply don’t have the skills needed to ‘write and create’ digital tools, not simply consume them.
+ - Computing should be taught as a rigorous – but fun – discipline covering topics like programming, database structures, and algorithms. That doesn’t have to be boring.
+ - Deeper fulfilment is rather different from the happiness of seeing a good film or watching your team win at football, and it doesn’t come at the push of a button.
+ - One effect of an individualistic culture that’s poor at instilling mutual respect is that people jump more quickly to anger or violence.
+ - In every capitalist economy there are anti-capitalist movements, activists, and even political parties; in a way, that there are no longer anti-democratic movements, activists, and parties.
+ - Huge sums are invested globally in medical research and development – and with good reason.
+ - A tablet replacing an exercise book is not innovation, it’s just a different way to make notes.
+ - Spreading an idea is hard work.
+ - Health is already a dominant sector in most societies and the one most guaranteed to grow.
+ - A lot of people in government don’t really read books at all.
+ - Governments that invest billions in new hardware still find it hard to accept that they might benefit just as much from systematic innovation in such things as child development or cutting crime.
+ - Everyone knows of great projects that were too dependent on a charismatic individual, or simply too expensive to be replicated.
+ - The idea of entrepreneurship applies as much in politics, religion, society and the arts as it does in business.
+ - The once-science-fiction notion of hyper-connectivity – where we are all constantly connected to social networks and other bubbling streams of digital data – has rapidly become a widespread reality.
+ - Societies advance through innovation every bit as much as economies do.
+ - Democratic nation states remain far more capable of managing the circuit of coercion, taxation and legitimation than any transnational bodies.
+ - Cities simply don’t have the powers they need to radically innovate in cutting obesity or the number of disaffected teenagers.
+ - I can think of nothing worse than a think-tank where everybody agreed.
+ - There are hardly any apprenticeships in care; hardly any schools preparing teenagers for jobs in care; and few signs that politicians know what to do to raise the status and rewards for what will soon be one of our most important industries.
+ - Understanding capitalism is in some ways simple. At its best, capitalism rewards creators, makers and providers: the people and firms that create valuable things for others, like imaginative technologies and good food, cars and drugs.
+ - The most important innovators often don’t need any technologies – just imagination and acute sensitivity to people’s needs.
+ - Courses can, and should, incorporate the excitement and fun of programming games, apps or even real digital devices.
+ - Bangalore has become a centre for healthcare.
+ - Young people who were relaxed about posting every detail of their life on Facebook become a lot less relaxed when they realise just how transparent their life has become to future employers.
+ - Lots of creativity is and should be solitary.
+ - In Britain, polls show large majorities in favour of mansion taxes and higher taxes on the finance sector.
+ - As with products on supermarket shelves, the public has a right to know where their financial products and services come from.
+ - The central position of finance capital is going to come to an end, and it’s going to steadily move to the sides, the margins of our society, transformed from being a master into a servant, a servant to the productive economy and of human needs.
+ - Big business increasingly likes to portray itself as socially concerned, adopting the style of civic action through ‘campaigns’ of varying degrees of cynicism.
+ - One of the lessons of history is that even the deepest crises can be moments of opportunity. They bring ideas from the margins into the mainstream.
+ - Systems governed by only one set of rules are more vulnerable than those with variety.
+ - Britain is rich in radicalism, and anyone who says that our society has drifted into fatalism and apathy should get out more.
+ - A modest dose of self-love is entirely healthy – who would want to live in a world where everyone hated themselves? But taken too far, it soon becomes poisonous.
+ - Economies are complex beasts that need people to do an extraordinary range of tasks.
+ - All real capitalisms are impure hybrids, mongrels mixed with other strains.
+ - Advisers who think that they are very clever while all around them are a bit thick, and that all the problems of the world would be solved if the thick listened to the clever, are liable to be disappointed.
+ - Learning isn’t something you should only do solo.
+ - Democracy isn’t solely about polite conversations in parliaments. It needs to be continually refreshed with raw passions, anger and ideals.
+ - Adelaide is becoming a hub for higher education.
+ - I didn’t much like being in Parliament physically. I found it a bit depressing. It’s very dark and heavy. I like being out and about.
+ - There is incredible potential for digital technology in and beyond the classroom, but it is vital to rethink how learning is organised if we are to reap the rewards.
+ - Many of the greatest composers and musicians do their best work in extreme confinement but we are seeing it in other fields – uses of technology to link people together in networks to solve problems and almost certainly we’ll get better ideas than we would from them just doing it on their own.
+
+56 quotes

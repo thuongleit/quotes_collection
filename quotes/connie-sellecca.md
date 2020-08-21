@@ -1,0 +1,22 @@
+ - There was no language barrier when it came to kids, and when it came to play.
+ - With the art therapy, as soon as they saw the paper and crayons coming, we couldn’t get it out fast enough. And we told them to draw about the tsunami.
+ - If you believe in what you’re doing, you’ll be successful.
+ - We had a one bedroom, one bathroom, one closet apartment with four girls.
+ - You have to support your children to have a healthy relationship.
+ - One of the cries from the people was, don’t forget us. They have a long road ahead of them. Operation Blessing has found those little fishing towns. They will not be getting what other towns are getting from the government.
+ - We feel really blessed to have been asked to come here, and to have the opportunity for our family to be able to look into the eyes of these people, and in some way help.
+ - When I began my search for the perfect skin care to fight the aging process, I noticed that my sensitive skin was reacting horribly to any product I used.
+ - Being here, it is just impossible to imagine what that was like, when the tsunami hit.
+ - Our 1 million members across the country will be watching closely to see if the video game industry hides behind a First Amendment veil in order to exploit children for the sake of corporate profit.
+ - I was looking for someone to formulate a skin care line I could use.
+ - I went through a long period of time in that marriage when I didn’t believe anything was my fault. I had to face what my part was, and only because of that difficult work was I able to trust a man again.
+ - It is really hard for me to get out of my comfort zone.
+ - Your allegiance is with your spouse; you cannot break that by showing allegiance to your ex-spouse.
+ - Working in the entertainment industry exposes me to every current cosmetic fad.
+ - We wanted to touch them with our action.
+ - This was all the inspiration it took: We put 100 percent of ourselves in the lines. We personally take care of everything, from fulfillment to answering the mail.
+ - The pictures we saw before we got down here didn’t even touch the reality of what it is like being here. We can be right on the beach with all the devastation and still not be able to imagine what it was like when the wall of water actually came up.
+ - I could only try to comfort the women that I came face-to-face with. I was really moved by how much they wanted to talk, how much they needed to be comforted, and how happy they were that we were there.
+ - We got to this point by constantly perfecting our products.
+
+20 quotes

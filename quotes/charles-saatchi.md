@@ -1,0 +1,29 @@
+ - Be the Worst You Can Be: Life’s Too Long for Patience and Virtue.
+ - My aim in life isn’t so much the pursuit of happiness as the happiness of pursuit.
+ - The fact that in the last 10 years only five of the 40 Turner Prize nominees have been painters tells you more about curators than about the state of painting today.
+ - If I stop being on good behaviour for a moment, my dark little secret is that I don’t actually believe many people in the art world have much feeling for art and simply cannot tell a good artist from a weak one, until the artist has enjoyed the validation of others – a received pronunciation.
+ - Few people in contemporary art demonstrate much curiosity. The majority spend their days blathering on, rather than trying to work out why one artist is more interesting than another, or why one picture works and another doesn’t.
+ - Being an art buyer these days is comprehensively and indisputably vulgar. It is the sport of the Eurotrashy, Hedge-fundy, Hamptonites; of trendy oligarchs and oiligarchs; and of art dealers with masturbatory levels of self-regard.
+ - Nobody can give you advice after you’ve been collecting for a while. If you don’t enjoy making your own decisions, you’re never going to be much of a collector anyway.
+ - I liked working in advertising, but don’t believe my taste in art, such as it is, was entirely formed by TV commercials. And I don’t feel especially conflicted enjoying a Mantegna one day, a Carl Andre the next day and a brash student work the next.
+ - Art collectors are pretty insignificant in the scheme of things. What matters and survives is the art.
+ - The art critics on some of Britain’s newspapers could as easily have been assigned gardening or travel, and been cheerfully employed for life.
+ - Many people cycle or swim to keep trim. But if swimming is so good for the figure, how do you explain whales?
+ - There are no rules about investment. Sharks can be good. Artist’s dung can be good. Oil on canvas can be good.
+ - Artists need a lot of collectors, all kinds of collectors, buying their art.
+ - I have never cared enough about money to worry about spending it, and have been fortunate to make enough to be spoiled rotten.
+ - Its obvious nonsense, but it makes nice people feel good about themselves to do their bit for the planet. Its vanity of a grotesque kind to believe that mankind, and our carbon footprint, has more impact on the future of Earth than Nature, which bends our planet to its will, as it sees fit.
+ - When you see something special, something inspired, you realise the debt we owe great curators and their unforgettable shows – literally unforgettable because you remember every picture, every wall and every juxtaposition.
+ - I don’t buy art in order to leave a mark or to be remembered; clutching at immortality is of zero interest to anyone sane.
+ - I primarily buy art to show it off.
+ - By and large, talent is in such short supply that mediocrity can be taken for brilliance rather more than genius can go undiscovered.
+ - If you can’t take a good kicking, you shouldn’t parade how much luckier you are than other people.
+ - Who’s to say what will one day appear to have been trendsetting? Sometimes artists who receive breathless acclaim initially, seem to conk out. Other artists who don’t register so keenly at the time, prove to be trailblazers.
+ - I regularly find myself waking up to art I passed by or simply ignored.
+ - If you study a great work of art, you’ll probably find the artist was a kind of genius. And geniuses are different to you and me.
+ - I may not be much good at most things, but if I didnt have the pleasure of planning and installing shows, and doing it better than anyone else, I would have stopped buying art many years ago.
+ - Being a good artist is the toughest job you could pick, and you have to be a little nuts to take it on.
+ - Nothing is as uplifting as standing before a great painting whether it was painted in 1505 or last Tuesday.
+ - When a critic knows what she or he is looking at and writes revealingly about it, it’s sublime.
+
+27 quotes

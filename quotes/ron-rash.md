@@ -1,0 +1,28 @@
+ - A small profit it better than a big loss.
+ - One thing’s sure and nothing surer. The rich get richer and the poor get- children.
+ - But nothing is solid and permanent. Our lives are raised on the shakiest foundations. You don’t need to read history books to know that. You only have to know the history of your own life.
+ - It’s a hard place this world can be. No wonder a baby cries coming in to it. Tears from the start.
+ - A place where something so terrible had happened shouldn’t continue to exist in the world.
+ - I think that’s what I love about writing, is the ability to try to, in a sense, take a vacation from yourself and try to enter the sensibility of another time, another character, another place.
+ - I think writing a poem is like being a greyhound. Writing a novel is like being a mule. You go up one long row, then down another, and try not to look up too often to see how far you still have to go.
+ - Peter Geye has rendered the Minnesota north shore in all its stark, dangerous beauty, and it is the perfect backdrop for this deeply moving story of conflict and forgiveness. Safe from the Sea is a remarkable debut.
+ - Don’t love anything that can be taken away.
+ - I live in Cullowhee, North Carolina. That’s where I teach, at Western Carolina University. That region is where my family has lived for a long time and that region is my landscape.
+ - What I’ve become convinced makes a writer are the days you hate it, the days you’d rather stick those pencils in your eyes. Sometimes I almost punish myself – if I’m not going be able to write, I’m not going be able to do anything else. I just sit there and wait.
+ - We had some good times at school. I didn’t know how good those times were until I left, but I guess that’s the way of it.
+ - Sometimes I know what my characters are moving away from or toward; more often I just wait and see. For instance, though I knew Sinkler in ‘The Trusty’ was going for water, I did not know that he would meet a fetching young farm wife until I got him into her front yard.
+ - I learnt how to hunt rattlesnakes with an eagle for Serena.
+ - As I get older I find myself thinking it all begins with Shakespeare.
+ - Like Flannery O’Connor, McCorkle’s genius is to give us both philosophical speculation and a riveting narrative filled with unforgettable characters. Great writing, poignancy, humor, wisdom-all are in abundance here. Jill McCorkle is one of the South’s greatest writers; she is also one of America’s.
+ - Others can make us vulnerable and the sooner such vulnerabilities are dealt with the better.
+ - You got one choice at the beginning but if you didn’t choose right, things got narrow real quick.
+ - I love learning about different dialects and I own all sorts of regional and time-period slang dictionaries. I often browse through relevant ones while writing a story. I also read a lot of diaries and oral histories.
+ - I think I had a particular moment when I was 15 years old. I read ‘Crime and Punishment,’ and that book just, I think, more than any other book made me want to be a writer, ’cause it was the first time that I hadn’t just entered a book, but a book had entered me.
+ - Short fiction is the medium I love the most, because it requires that I bring everything I’ve learned about poetry – the concision, the ability to say something as vividly as possible – but also the ability to create a narrative that, though lacking a novel’s length, satisfies the reader.
+ - One of my goals is to allow readers to see my characters and the world they inhabit as vividly as possible.
+ - I usually do at least a dozen drafts and progressively make more-conscious decisions. Because I’ve always believed stories are closer to poems than novels, I spend a lot of time on the story’s larger rhythms, such as sentence and paragraph length, placement of flashbacks and dialogue.
+ - I wouldn’t mind being a track and field coach.
+ - Furthermore, even if ideas were gettable – say, stacked in a secluded cave like the Dead Sea scrolls – I wouldn’t go there. An ‘idea,’ especially one adhered to from start to finish, can be disastrous for a compelling piece of fiction.
+ - Faulkner came from my region and taught me how you could write about a place.
+
+26 quotes

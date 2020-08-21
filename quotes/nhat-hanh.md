@@ -1,0 +1,454 @@
+ - Because you are alive, everything is possible.
+ - Smile, breathe, go slowly.
+ - Life is available only in the present moment.
+ - Keeping your body healthy is an expression of gratitude to the whole cosmos – the trees, the clouds, everything.
+ - Mindfulness is the miracle by which we master and restore ourselves.
+ - Because of your smile, you make life more beautiful.
+ - The way you speak to others can offer them joy, happiness, self-confidence, hope, trust, and enlightenment. Mindful speaking is a deep practice.
+ - Go back and take care of yourself. Your body needs you, your feelings need you, your perceptions need you. Your suffering needs you to acknowledge it. Go home and be there for all these things.
+ - Mindfulness must be engaged. Once there is seeing, there must be acting. Otherwise, what’s the use of seeing?
+ - Today is the most important day of our lives.
+ - Happiness is available. Please help yourself to it.
+ - It is not impermanence that makes us suffer. What makes us suffer is wanting things to be permanent when they are not.
+ - Real love means loving kindness and compassion, the kind of love that does not have any conditions.
+ - If we believe that tomorrow will be better, we can bear a hardship today.
+ - People have a hard time letting go of their suffering. Out of a fear of the unknown, they prefer suffering that is familiar.
+ - In mindfulness one is not only restful and happy, but alert and awake. Meditation is not evasion; it is a serene encounter with reality.
+ - Live the actual moment. Only this moment is life.
+ - Breathe and you dwell in the here and now, breath and you see impermanence is life.
+ - Breathing in, I calm body and mind. Breathing out, I smile. Dwelling in the present moment I know this is the only moment.
+ - To meditate with mindful breathing is to bring body and mind back to the present moment so that you do not miss your appointment with life.
+ - I have arrived. I am home. My destination is in each step.
+ - Without understanding, your love is not true love. You must look deeply in order to see and understand the needs, aspirations, and suffering of the one you love.
+ - People usually consider walking on water or in thin air a miracle. But I think the real miracle is not to walk either on water or in thin air, but to walk on earth. Every day we are engaged in a miracle which we don’t even recognize: a blue sky, white clouds, green leaves, the black, curious eyes of a child – our own two eyes. All is a miracle.
+ - Some people live as though they are already dead. There are people moving around us who are consumed by their past, terrified of their future, and stuck in their anger and jealousy. They are not alive; they are just walking corpses.
+ - The kingdom of God is available to you in the here and the now. But the question is whether you are available to the kingdom.
+ - Hatred and fear blind us. We no longer see each other. We see only the faces of monsters, and that gives us the courage to destroy each other.
+ - A smile can change the situation of the world.
+ - When it comes to health and well-being, regular exercise is about as close to a magic potion as you can get.
+ - There is the mud, and there is the lotus that grows out of the mud. We need the mud in order to make the lotus.
+ - Only the present moment contains life.
+ - Awareness is like the sun. When it shines on things, they are transformed.
+ - You do not suffer because things are impermanent. You suffer because things are impermanent and you think they are permanent.
+ - Nothing is more precious than being in the present moment. Fully alive, fully aware.
+ - Every step taken in mindfulness brings us one step closer to healing ourselves and the planet.
+ - Go slowly, breathe and smile.
+ - When another person makes you suffer, it is because he suffers deeply within himself, and his suffering is spilling over. He does not need punishment; he needs help. That’s the message he is sending.
+ - Walk as if you are kissing the Earth with your feet.
+ - The present moment is the substance with which the future is made. Therefore, the best way to take care of the future is to take care of the present moment. What else can you do?
+ - Breath is the bridge which connects life to consciousness, which unites your body to your thoughts. Whenever your mind becomes scattered, use your breath as the means to take hold of your mind again.
+ - If we can not smile, we cannot help other people to smile.
+ - If you look deeply into the palm of your hand, you will see your parents and all generations of your ancestors. All of them are alive in this moment. Each is present in your body. You are the continuation of each of these people.
+ - Letting go gives us freedom, and freedom is the only condition for happiness. If, in our heart, we still cling to anything – anger, anxiety, or possessions – we cannot be free.
+ - Compassion is a verb.
+ - Deep listening is the kind of listening that can help relieve the suffering of another person. You can call it compassionate listening. You listen with only one purpose: to help him or her to empty his heart.
+ - It’s like growing lotus flowers. You cannot grow lotus flowers on marble. You have to grow them on the mud. Without mud you cannot have lotus flowers. Without suffering, you have no way to learn how to be understanding and compassionate.
+ - Mindfulness helps you go home to the present. And every time you go there and recognize a condition of happiness that you have, happiness comes.
+ - When you look deeply into your anger, you will see that the person you call your enemy is also suffering. As soon as you see that, the capacity of accepting and having compassion for them is there.
+ - I have lost my smile, but don’t worry. The dandelion has it.
+ - To be beautiful means to be yourself. You don’t need to be accepted by others. You need to accept yourself.
+ - Waking up this morning, I smile. Twenty-four brand new hours are before me. I vow to live fully in each moment and to look at all beings with eyes of compassion.
+ - When you learn how to suffer, you suffer much less.
+ - Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.
+ - In Buddhism, mindfulness is the key. Mindfulness is the energy that sheds light on all things and all activities, producing the power of concentration, bringing forth deep insight and awakening. Mindfulness is the base of Buddhist practice.
+ - If love is in our hearts, every thought, word, and deed can bring about a miracle. Because understanding is the very foundation of love, words and actions that emerge from our love are always helpful.
+ - Compassionate listening is to help the other side suffer less. If we realize that other people are the same people as we are, we are no longer angry at them.
+ - Letting go gives us freedom and freedom is the only condition for happiness.
+ - Drink your tea slowly and reverently, as if it is the axis on which the world earth revolves – slowly, evenly, without rushing toward the future.
+ - Breathing in, I know I am breathing in. Breathing out, I know I am breathing out.
+ - If you touch one thing with deep awareness, you touch everything.
+ - In true dialogue, both sides are willing to change.
+ - Often we tell ourselves, “Don’t just sit there, do something!” But when we practice awareness, we discover that the opposite may be more helpful: “Don’t just do something, sit there!”
+ - With mindfulness, you can establish yourself in the present in order to touch the wonders of life that are available in that moment.
+ - Anger is like a flame blazing up and consuming our self-control, making us think, say, and do things that we will probably regret later.
+ - If you are motivated by loving kindness and compassion, there are many ways to bring happiness to others right now, starting with kind speech.
+ - Your true home is in the here and the now.
+ - To take care of the environment, we must first take care of the environmentalist.
+ - You carry Mother Earth within you. She is not outside of you. Mother Earth is not just your environment. In that insight of inter-being, it is possible to have real communication with the Earth, which is the highest form of prayer.
+ - Live your daily life in a way that you never lose yourself.
+ - What we most need to do is to hear within us the sound of the Earth crying.
+ - The buddha called suffering a holy truth, because our suffering has the capacity of showing us the path to liberation. Embrace your suffering and let it reveal to you the way to peace.
+ - No blame, no reasoning, no argument, just understanding. If you understand, and you show that you understand, you can love, and the situation will change.
+ - Every breath we take, every step we make, can be filled with peace, joy and serenity.
+ - I promise myself that I will enjoy every minute of the day that is given me to live.
+ - Words can travel thousands of miles. May my words create mutual understanding and love. May they be as beautiful as gems, as lovely as flowers.
+ - The present moment is the only moment available to us and it is the door to all other moments.
+ - Life is a miracle, and being aware of simply this can already make us very happy.
+ - The present moment contains past and future. The secret of transformation, is in the way we handle this very moment.
+ - A bodhisattva doesn’t have to be perfect. Anyone who is aware of what is happening and who tries to wake up other people is a bodhisattva. We are all bodhisattvas, doing our best.
+ - If you can feel that Mother Earth is in you, and you are Mother Earth, then you are not any longer afraid to die because the earth is not dying. Like a wave appears and disappears and appears again.
+ - We really have to understand the person we want to love. If our love is only a will to possess, it is not love. If we only think of ourselves, if we know only our own needs and ignore the needs of the other person, we cannot love.
+ - Buddhism is in your heart. Even if you don’t have any temple or any monks, you can still be a Buddhist in your heart and life.
+ - When we look deeply into the heart of a flower, we see clouds, sunshine, minerals, time, the earth, and everything else in the cosmos in it. Without clouds there could be no rain, and without rain there would be no flower.
+ - Every word, every look, every action, and every smile can bring happiness to others.
+ - When we give ourselves the chance to let go of all our tension, the body’s natural capacity to heal itself can begin to work.
+ - If you abandon the present moment, you cannot live the moments of your daily life deeply.
+ - We have to learn to die in every moment in order to be fully alive.
+ - While washing dishes one should be washing the dishes, which means that while washing the dishes one should be completely aware of the fact that one is washing dishes.
+ - My actions are my only true belongings.
+ - Everything inside and around us wants to reflect itself in us. We don’t have to go anywhere to obtain the truth. We only need to be still and things will reveal themselves in the still water of our heart.
+ - When you love someone, the best thing you can offer is your presence. How can you love if you are not there?
+ - Every morning, when we wake up, we have twenty-four brand-new hours to live. What a precious gift! We have the capacity to live in a way that these twenty-four hours will bring peace, joy, and happiness to ourselves and others.
+ - Be angry, it’s okay. To be angry, that is very human. And to learn how to smile at your anger and make peace with your anger is very nice.
+ - There is no birth, there is no death; there is no coming, there is no going; there is no same, there is no different; there is no permanent self, there is no annihilation. We only think there is.
+ - To be spiritual means to be solid, calm, and peaceful and to be able to look deeply inside and around us.
+ - By eating meat we share the responsibility of climate change, the destruction of our forests, and the poisoning of our air and water. The simple act of becoming a vegetarian will make a difference in the health of our planet.
+ - We inter-breath with the rain forests, we drink from the oceans. They are part of our own body.
+ - If you get angry easily, it may be because the seed of anger in you has been watered frequently over many years, and unfortunately you have allowed it or even encouraged it to be watered.
+ - The true miracle is not walking on water or walking in air, but simply walking on this earth.
+ - The root-word “buddha” means to wake up, to know, to understand; and he or she who wakes up and understands is call a Buddha. It is as simple as that. The capacity to wake up, to understand, and to love is called Buddha nature.
+ - Silence is essential. We need silence just as much as we need air, just as much as plants need light. If our minds are crowded with words and thoughts, there is no space for us.
+ - Breathing in, there is only the present moment. Breathing out, it is a wonderful moment.
+ - Anxiety, the illness of our time, comes primarily from our inability to dwell in the present moment.
+ - Peace in every step. The shining red sun is my heart. Each flower smiles with me. How green, how fresh all that grows. How cool the wind blows. Peace is every step. It turns the endless path to joy.
+ - In Zen Buddhism, the greater your doubt, the greater will be your enlightenment. That is why doubt can be a good thing. If you are too sure, if you always have conviction, then you may be caught in your wrong perception for a long time.
+ - Enlightenment for a wave is the moment the wave realizes it is water. At that moment, all fear of death disappears.
+ - Maybe we have enough technology to save the planet but it is not enough because the people are not ready.
+ - Buddhism teaches us not to try to run away from suffering. You have to confront suffering. You have to look deeply into the nature of suffering in order to recognize its cause, the making of the suffering.
+ - You are me, and I am you. Isn’t it obvious that we “inter-are”? You cultivate the flower in yourself, so that I will be beautiful. I transform the garbage in myself, so that you will not have to suffer.
+ - We are here to awaken from our illusion of separateness.
+ - Guarding knowledge is not a good way to understand. Understanding means to throw away your knowledge.
+ - I am determined to practice deep listening. I am determined to practice loving speech.
+ - I am you and you are me; it is obvious we inter-are.
+ - If you are truly present and know how to take care of the present moment as best you can, you are doing your best for the future already.
+ - In Buddhist culture, offering food to the monk symbolizes the action of goodness, and if you have no opportunity to support the practice of spirituality, then you are somehow left in the realm of darkness.
+ - Impermanence is very important, crucial for life. That is why instead of complaining about impermanence you have to say “Long live impermanence!”
+ - Fearlessness is not only possible, it is the ultimate joy. When you touch nonfear, you are free.
+ - Meditation is not passive sitting in silence. It is sitting in awareness, free from distraction, and realizing the clear understanding that arises from concentration.
+ - Find joy and peace in this very moment.
+ - When we live in the spirit of gratitude, there will be much happiness in our life. The one who is grateful is the one who has much happiness while the one who is ungrateful will not be able to have happiness.
+ - Each time you take a mindful step you are back in the arms of Mother Earth and are reminded of your true sweet home in the here and now.
+ - Without being peace, we cannot do anything for peace. If we cannot smile, we cannot help other people to smile. If we are not peaceful, then we cannot contribute to the peace movement.
+ - Anxiety is the illness of our age. We worry about ourselves, our family, our friends, our work, and our state of the world. If we allow worry to fill our hearts, sooner or later we will get sick.
+ - To live in the present moment is a miracle. The miracle is not to walk on water. The miracle is to walk on the green Earth in the present moment, to appreciate the peace and beauty that are available now.
+ - We need to be aware of the suffering, but retain our clarity, calmness and strength so we can help transform the situation.
+ - Live in such a way that you embody true peace, that you can be peace in every moment of your daily life. It is possible for everyone to generate the energy of peace in every step.
+ - Real peace is not in power, money, or weapons, but in deep inner peace.
+ - If we do not know how to take care of ourselves and to love ourselves, we cannot take care of the people we love. Loving oneself is the foundation for loving another person.
+ - In every country in the world, killing human beings is condemned. The Buddhist precept of non-killing extends even further, to include all living beings.
+ - Every feeling is a field of energy. A pleasant feeling is an energy which can nourish. Irritation is a feeling which can destroy. Under the light of awareness, the energy of irritation can be transformed into and energy which nourishes.
+ - If you love someone but rarely make yourself available to him or her, that is not true love.
+ - If every day you practice walking and sitting meditation and generate the energy of mindfulness and concentration and peace, you are a cell in the body of the new Buddha. This is not a dream but is possible today and tomorrow.
+ - We ourselves need love; it’s not only society, the world outside, that needs love. But we can’t expect that love to come from outside of us. We should ask the question whether we are capable of loving ourselves as well as others.
+ - That is why those who are not capable of being there in the present moment, they don’t really live their life – they live like dead people.
+ - Only your compassion and your loving kindness are invincible, and without limit.
+ - I hold my face in my two hands. No, I am not crying. I hold my face in my two hands to keep the loneliness warm – two hands protecting, two hands nourishing, two hands preventing my soul from leaving me in anger.
+ - The most precious gift we can offer others is our presence.
+ - The heart of the matter is always our oneness with divine spirit, our union with all life.
+ - Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor.
+ - Today, you can decide to walk in freedom. You can choose to walk differently. You can walk as a free person, enjoying every step.
+ - With mindfulness – the practice of peace – we can begin by working to transform the wars in ourselves. Conscious breathing helps us do this.
+ - They criticize the silent ones. They criticize the talkative ones. They criticize the moderate ones. There is no one in the world who escapes criticism.
+ - Spiritual practice is not just sitting and meditation. Practice is looking, thinking, touching, drinking, eating and talking. Every act, every breath, and every step can be practice and can help us to become more ourselves.
+ - Though we all have the fear and the seeds of anger within us, we must learn not to water those seeds and instead nourish our positive qualities – those of compassion, understanding, and loving kindness.
+ - The moment you understand the importance of loving yourself, you will stop hurting others.
+ - The amount of happiness that you have depends on the amount of freedom you have in your heart.
+ - My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground on which I stand.
+ - There is no enlightenment outside of daily life.
+ - If we practice mindfulness, we always have a place to be when we are afraid.
+ - Many people are alive but don’t touch the miracle of being alive.
+ - I am committed to cultivating loving speech and deep listening in order to bring joy and happiness to others and relieve others of their suffering.
+ - Every path, every street in the world is your walking meditation path.
+ - To take good care of yourself and to take good care of living beings and of the environment is the best way to love God.
+ - The source of a true smile is an awakened mind. Smiling helps you approach the day with gentleness and understanding.
+ - You have to do it by yourself. You can not do it alone.
+ - We try many ways to be awake, but our society still keeps us forgetful. Meditation is to help us remember.
+ - Sometimes when I am alone in my room in the dark, I practice smiling to myself. I do this to be kind to myself, to take good care of myself, to love myself. I know that if I cannot take care of myself, I cannot take care of anyone else.
+ - Breathe in and take one step, and focus all your attention on the sole of your foot. If you have not arrived fully, one hundred percent in the here and the now, don’t take the next step.
+ - People kill and are killed because they cling too tightly to their own beliefs and ideologies. When we believe that ours is the only faith that contains the truth, violence and suffering will surely be the result.
+ - A bodhisattva is someone who has compassion within himself or herself and who is able to make another person smile or help someone suffer less. Every one of us is capable of this.
+ - Be Yourself. Life is precious as it is. All the elements for your happiness are already here. There is no need to run, strive, search, or struggle. Just Be.
+ - Working for peace in the future is to work for peace in the present moment.
+ - The source of love is deep in us and we can help others realize a lot of happiness. One word, one action, one thought can reduce another person’s suffering and bring that person joy.
+ - Meditation can help us embrace our worries, our fear, our anger; and that is very healing. We let our own natural capacity of healing do the work.
+ - There are two ways to wash the dishes. One way is to wash them to get them clean. The other way is to wash them in order to wash the dishes.
+ - Being rich is an obstacle to loving. When you are rich, you want to continue to be rich, and so you end up devoting all your time, all your energy, in your daily life to stay rich.
+ - One Buddha is not enough; we need to have many Buddhas.
+ - Every thought you produce, anything you say, any action you do, it bears your signature.
+ - Our appointment with life is in the present moment. If we do not have peace and joy right now, when will we have peace and joy?
+ - If we know how to create the energy of love, understanding, compassion, and beauty, then we can contribute a lot to the world.
+ - Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing.
+ - Peace is present right here and now, in ourselves and in everything.
+ - You cannot transmit wisdom and insight to another person. The seed is already there. A good teacher touches the seed, allowing it to wake up, to sprout, and to grow.
+ - I vow to live fully in each moment.
+ - Until there is peace between religions, there can be no peace in the world.
+ - The 7 factors of enlightenment: mindfullness, investigation of mental objects, energy, joy, tranquility, concentration and equanimity.
+ - You have an appointment with life, an appointment that is in the here and now.
+ - At any moment, you have a choice, that either leads you closer to your spirit or further away from it.
+ - Our walking is not a means to an end. We walk for the sake of walking.
+ - The wave does not need to die to become water. She is already water.
+ - If you do not give right attention to the one you love, it is a kind of killing. When you are in the car together, if you are lost in your thoughts, assuming you already know everything about her, she will slowly die.
+ - Happiness is not an individual matter. When you are able to bring relief, or bring back the smile to one person, not only that person profits, but you also profit.
+ - When you have a toothache, you think that not having a toothache will make you very happy. But when you don’t have a toothache, often you are still not happy. If you practice awareness, you suddenly become very rich, very very happy.
+ - Around us, life bursts with miracles, a glass of water, a ray of sunshine, a leaf, a caterpillar, a flower, laughter, raindrops.
+ - To reconcile conflicting parties, we must have the ability to understand the suffering of both sides.
+ - Enlightenment, peace, and joy will not be granted by someone else. The well is within us, And if we dig deeply in the present moment, The water will spring forth.
+ - It is said that God has created man in his own image. But it may be that humankind has created God in the image of humankind.
+ - People normally cut reality into compartments, and so are unable to see the interdependence of all phenomena. To see one in all and all in one is to break through the great barrier which narrows one’s perception of reality.
+ - Sometimes it is better not to talk about art by using the word “art”. If we just act with awareness and integrity, our art will flower, and we don’t have to talk about it at all.
+ - Anger is like a storm rising up from the bottom of your consciousness. When you feel it coming, turn your focus to your breath.
+ - People deal too much with the negative, with what is wrong. Why not try and see positive things, to just touch those things and make them bloom?
+ - Mother Earth is very talented. She has produced Buddhas, bodhisattvas, great beings.
+ - If we are not fully ourselves, truly in the present moment, we miss everything.
+ - We need enlightenment, not just individually but collectively, to save the planet. We need to awaken ourselves. We need to practice mindfulness if we want to have a future, if we want to save ourselves and the planet.
+ - Take my hand. We will walk. We will only walk. We will enjoy our walk without thinking of arriving anywhere.
+ - The more compassionate you are, the more generous you can be. The more generous you are, the move loving friendliness you cultivate to help the world.
+ - You are a miracle, and everything you touch could be a miracle.
+ - Your presence is a miracle.
+ - Our capacity to make peace with another person and with the world depends very much on our capacity to make peace with ourselves.
+ - Meditation is not to escape from society, but to come back to ourselves and see what is going on. Once there is seeing, there must be acting. With mindfulness, we know what to do and what not to do to help.
+ - In true love, you attain freedom.
+ - You are not an observer, you are a participant.
+ - People suffer because they are caught in their views. As soon as we release those views, we are free and we don’t suffer anymore.
+ - True love always brings joy to ourself and the one we love. If our love does not bring joy to both of us, it is not true love.
+ - If we are not peaceful, if we are not feeling well in our skin, we cannot demonstrate real peace, and we cannot raise our children well either.
+ - You can practice deep listening in order to relieve the suffering in us, and in the other person. That kind of listening is described as compassionate listening. You listen only for the purpose of relieving suffering in the other person.
+ - Even if you only stop and focus on your breathing for a few breaths, or for a minute or two, its very valuable.
+ - In one sheet of paper, we see everything else, the cloud, the forest, the logger. I am, therefore you are. You are, therefore I am. That is the meaning of the word “interbeing.” We interare.
+ - By listening with calm and understanding, we can ease the suffering of another person.
+ - Breath is aligned with both body and mind and it alone can bring them together.
+ - We humans have lost the wisdom of genuinely resting and relaxing. We worry too much. We don’t allow our bodies to heal, and we don’t allow our minds and hearts to heal.
+ - We try to live every moment like that, dwelling peacefully in the present moment, and respond to events with compassion.
+ - To meditate is to be aware of what is going on – in our bodies, our feelings our minds, and in the world. When we settle into the present moment, we can see the beauties and wonders before our eyes.
+ - As long as you find something beautiful, good, and true to believe in and abide by, you have the equivalent of God in your life.
+ - Preventing war is much better than protesting against the war. Protesting the war is too late.
+ - The practice of peace and reconciliation is one of the most vital and artistic of human actions.
+ - When we have peace, then we have a chance to save the planet. But if we are not united in peace, if we do not practice mindful consumption, we cannot save our planet.
+ - Our own life has to be our message.
+ - The first thing I learned was that even if you have a lot of money and power and fame, you can still suffer very deeply.
+ - When we hug, our hearts connect and we know that we are not separate beings. Hugging with mindfulness and concentration can bring reconciliation, healing, understanding, and much happiness.
+ - The miracle is to walk on the earth.
+ - When you look at the sun during your walking meditation, the mindfulness of the body helps you to see that the sun is in you; without the sun there is no life at all and suddenly you get in touch with the sun in a different way.
+ - People sacrifice the present for the future. But life is available only in the present. That is why we should walk in such a way that every step can bring us to the here and the now.
+ - To think in terms of either pessimism or optimism oversimplifies the truth. The problem is to see reality as it is.
+ - The mind can go in a thousand directions, but on this beautiful path, I walk in peace. With each step, the wind blows. With each step, a flower blooms.
+ - In our consciousness, there are many negative seeds and also many positive seeds. The practice is to avoid watering the negative seeds, and to identify and water the positive seeds every day.
+ - The only answer to fear is more understanding. And there is no understanding if there is no effort to look more deeply to see what is there in our heart and in the heart of the other person.
+ - We know how to sacrifice ten years for a diploma, and we are willing to work hard to get a job, a car, a house, and so on. But we have difficulty remembering that we are alive in the present moment, the only moment there is for us to be alive.
+ - Be mindful 24 hours a day, not just during the one hour you may allot for formal meditation or reading scripture and reciting prayers. Each act must be carried out in mindfulness.
+ - If in our daily life we can smile, if we can be peaceful and happy, not only we, but everyone will profit from it. This is the most basic kind of peace work.
+ - In order to be loved, we have to love, which means we have to understand.
+ - If you realize that the other person is a human being too, and you have exactly the same kind of spiritual path, and then the two can become good practitioners. This appears to be practical for both.
+ - If you think that peace and happiness are somewhere else and you run after them, you will never arrive.
+ - Nonviolent action, born of the awareness of suffering and nurtured by love, is the most effective way to confront adversity.
+ - Mindful time spent with the person we love is the fullest expression of true love and real generosity.
+ - When you hold a child in your arms, or hug your mother, or your husband, or your friend, if you breathe in and out three times, your happiness will be multiplied at least tenfold.
+ - Root out the violence in your life, and learn to live compassionately and mindfully. Seek peace. When you have peace within, real peace with others is possible.
+ - The bad things, don’t do them. The good things, try to do them. Try to purify, subdue your own mind. That is the teaching of all buddhas.
+ - The fact is that when you make the other suffer, he will try to find relief by making you suffer more. The result is an escalation of suffering on both sides.
+ - Whenever anger comes up, take out a mirror and look at yourself. When you are angry, you are not very beautiful.
+ - The joy of life is born of concentration. When you are having a cup of tea, the value of that experience depends on your concentration. You have to drink the tea with 100 percent of your concentration.
+ - If we are peaceful, if we are happy, we can smile, and everyone in our family, our entire society, will benefit from our peace.
+ - You would not cry if you knew that by looking deeply into the rain you would still see the cloud.
+ - Due to attachment, anger, and foolishness, I have committed numberless mistakes in speech, deed and thought. I bow my head and repent. I vow from today to begin anew, to live day and night in mindfulness, and not to repeat my previous mistakes.
+ - Most of us experience a life full of wonderful moments and difficult moments. But for many of us, even when we are most joyful, there is fear behind our joy.
+ - When we are mindful, deeply in touch with the present moment, our understanding of what is going on deepens, and we begin to be filled with acceptance, joy, peace and love.
+ - The essence of nonviolence is love. Out of love and the willingness to act selflessly, strategies, tactics, and techniques for a nonviolent struggle arise naturally. Nonviolence is not a dogma; it is a process.
+ - You can use your life in a very useful and intelligent way. You can very well transform that negative energy into a positive energy that empowers you and makes life meaningful.
+ - We are always running, and it has become a habit. We struggle all the time, even during our sleep. We are at war with ourselves, and we can easily start a war with others.
+ - Fear is born from ignorance. We think that the other person is trying to take away something from us. But if we look deeply, we see that the desire of the other person is exactly our own desire – to have peace, to be able to have a chance to live.
+ - When you begin to see that your enemy is suffering, that is the beginning of insight.
+ - Freedom is the basic condition for you to touch life, to touch the blue sky, the trees, the birds, the tea, and the other person.
+ - We may not have done anything but when we are relaxed, when we are peaceful, when we are able to smile and not to be violent in the way we look at the system, at that moment there is a change already in the world.
+ - Just breathing and smiling can make us very happy, because when we breathe consciously we recover ourselves completely and encounter life in the present moment.
+ - Do not live with a vocation that is harmful to humans and nature. Do not invest in companies that deprive others of their chance to live. Select a vocation that helps realise your ideal of compassion.
+ - I still arrive, in order to laugh and to cry, to fear and to hope. The rhythm of my heart is the birth and death of all that is alive.
+ - You must be completely awake in the present to enjoy the tea.
+ - When you have a stomach ache you don’t tell your stomach to go away.
+ - When you produce peace and happiness in yourself, you begin to realize peace for the whole world. With the smile that you produce in yourself, with the conscious breathing you establish within yourself, you begin to work for peace in the world.
+ - The seed of suffering in you may be strong, but don’t wait until you have no more suffering before allowing yourself to be happy.
+ - Awareness is a mirror reflecting the four elements. Beauty is a heart that generates love and a mind that is open.
+ - Happiness is the cessation of suffering.
+ - Love is the capacity to take care, to protect, to nourish.
+ - Follow your breathing, dwell mindfully on your steps, and soon you will find your balance.
+ - The secret of Buddhism is to remove all ideas, all concepts, in order for the truth to have a chance to penetrate, to reveal itself.
+ - May our heart’s garden of awakening bloom with hundreds of flowers.
+ - Reconciliation is to understand both sides; to go to one side and describe the suffering being endured by the other side, and then go to the other side and describe the suffering being endured by the first side.
+ - Harm no person, animal, plant or mineral.
+ - If you find yourself in some difficulty, step aside, and allow Buddha to take your place. The Buddha is in you.
+ - The most important thing is that we need to be understood. We need someone to be able to listen to us and to understand us. Then we will suffer less.
+ - It is possible to live happily in the here and now. So many conditions of happiness are available-more than enough for you to be happy right now. You don’t have to run into the future in order to get more.
+ - Most of your suffering comes from the lack of understanding of yourself and others.
+ - When you enter deeply into this moment, you see the nature of reality, and this insight liberates you from suffering and confusion. Peace is already there to some extent: the problem is whether we know how to touch it.
+ - If things were not impermanent, life would not be possible.
+ - It is my conviction that there is no way to peace – peace is the way.
+ - We will be more successful in all our endeavors if we can let go of the habit of running all the time, and take little pauses to relax and re-center ourselves. And we’ll also have a lot more joy in living.
+ - When we change our daily lives – the way we think, speak and act – we change the world.
+ - The Buddha always reminds us that our afflictions, including our fear and our desiring, are born from our ignorance. That is why in order to dissipate fear, we have to remove wrong perception.
+ - Tolerance and tranquility are two characteristics of true love.
+ - How do you want to create peace, if there is no peace inside yourselves?
+ - The greatest of all miracles is to be alive.
+ - To meditate means to go home to yourself. Then you know how to take care of the things that are happening inside you, and you know how to take care of the things that happen around you.
+ - I think Buddhism should open the door of psychology and healing to penetrate more easily into the Western world.
+ - As a human being, you have the right to get angry; but as a practitioner, you do not have the right to stop practicing.
+ - The purpose of a vacation is to have the time to rest. But many of us, even when we go on vacation, don’t know how to rest. We may even come back more tired than before we left.
+ - I realize that many elements of the Buddhist teaching can be found in Christianity, Judaism, Islam. I think if Buddhism can help, it is the concrete methods of practice.
+ - Each moment you are alive is a gem. It needs you to breathe gently for the miracles to be displayed.
+ - Words and thoughts concerning compassionate action that are not put into practice are like beautiful flowers that are colorful but have no fragrance.
+ - Earth will be safe when we feel in us enough safety.
+ - We will not just say, “I love him very much,” but instead, “I will do something so that he will suffer less.” The mind of compassion is truly present when it is effective in removing another person’s suffering.
+ - As we cultivate peace and happiness in ourselves, we also nourish peace and happiness in those we love.
+ - Meditation is offering your genuine presence to yourself in every moment.
+ - When you understand the roots of anger in yourself and in the other, your mind will enjoy true peace, joy and lightness.
+ - When we enter the present moment deeply, our regrets and sorrows disappear, and we discover life with all its wonders.
+ - The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
+ - Looking deeply into the wrong perceptions, ideas, and notions that are at the base of our suffering is the most important practice in Buddhist meditation.
+ - Happiness is not an individual matter.
+ - We need to move beyond the idea of ‘environment’ and fall back in love with Mother Earth.
+ - Just listen Be peace.
+ - Be peace, don’t just talk about it.
+ - Freedom is the real foundation of happiness.
+ - Anyone who is practicing understanding and compassion can exemplify true power. Anyone can be a Buddha.
+ - If the people who hurt us have anger or desperation within them then they suffer. When you see that someone suffers, you might be motivated by a desire to help him not to suffer anymore.
+ - To be loved means to be recognized as existing.
+ - An emotion is only an emotion. It’s just a small part of your whole being. You are much more than your emotion. An emotion comes, stays for a while, and goes away, just like a storm. If you’re aware of that, you won’t be afraid of your emotions.
+ - You are like fireworks. You go out into your children, your friends, your society, and the whole world.
+ - Water flows from high in the mountains Water runs deep in the Earth Miraculously, water comes to us, And sustains all life.
+ - Science and mindfulness complement each other in helping people to eat well and maintain their health and well-being.
+ - When we recognise the virtues, the talent, the beauty of Mother Earth, something is born in us, some kind of connection; love is born.
+ - In order to heal others, we first need to heal ourselves. And to heal ourselves, we need to know how to deal with ourselves.
+ - But if we have the energy of compassion and loving kindness in us, the people around us will be influenced by our way of being and living.
+ - Walk so that your footprints bear only the marks of peaceful joy and complete freedom. To do this you have to learn to let go. Let go of your sorrows, let go of your worries. That is the secret of walking meditation.
+ - Each time you look at a tangerine, you can see deeply into it. You can see everything in the universe in one tangerine. When you peel it and smell it, it’s wonderful. You can take your time eating a tangerine and be very happy.
+ - Do not say that I’ll depart tomorrow because even today I still arrive.
+ - For things to reveal themselves to us, we need to be ready to abandon our views about them.
+ - We are looking for happiness and running after it in such a way that creates anger, fear and discrimination. So when you attend a retreat, you have a chance to look at the deep roots of this pollution of the collective energy that is unwholesome.
+ - When your mind is liberated, your heart floods with compassion.
+ - Without collective awakening the catastrophe will come. I think people in the mass media, journalists, film makers and others, you can contribute to the collective awakening if you are awake and then your life will embody that awakening.
+ - If you suffer and make your loved ones suffer, there is nothing that can justify your desire.
+ - Mindfulness practices enhance the connection between our body, our mind and everything else that is around us. Mindful living is the key to understanding our struggles with weight and to empowering us to control our weight.
+ - If we take something to be the truth, we may cling to it so much that when the truth comes and knocks on our door, we won’t want to let it in.
+ - To abandon the present in order to look for things in the future is to throw away the substance and hold onto the shadow.
+ - Those who are without compassion cannot see what is seen with the eyes of compassion.
+ - Each moment is a chance for us to make peace with the world, to make peace possible for the world, to make happiness possible for the world.
+ - One hour of compassionate deep listening can bring about transformation and healing.
+ - We have to continue to learn. We have to be open. And we have to be ready to release our knowledge in order to come to a higher understanding of reality.
+ - The situation the Earth is in today has been created by unmindful production and unmindful consumption. We consume to forget our worries and our anxieties. Tranquilising ourselves with over-consumption is not the way.
+ - The desire to be a free person is very worthwhile. To be free means you are no longer the victim of fear, anger, craving, or suspicion.
+ - An oak tree is an oak tree. That is all it has to do. If an oak tree is less than an oak tree, then we are all in trouble.
+ - There is no real separation between self or no-self. Anything you do for yourself you do for the society at the same time. And anything you do for society you do for yourself also.
+ - It is not a matter of faith, it is a matter of practice.
+ - Let us fill our hearts with our own compassion – towards ourselves and towards all living beings.
+ - By taking a look at your anger it can be transformed into the kind of energy that you need – understanding and compassion.
+ - The reason we might lose love is because we are always looking outside of us, thinking that the object or action of love is out there. That is why we allow the love, the harmony, the mature understanding, to slip away from ourselves.
+ - Simple practices like conscious breathing and smiling are very important. They can change our civilization.
+ - Human beings are innately loving beings. When we fail to love, it is because an element of ignorance has intruded into our experience, submerging our natural impulse to love.
+ - Our smile affirms our awareness and determination to live in peace and joy.
+ - No one is more worthy of your kindness and compassion than you are.
+ - The only way to ease our fear and be truly happy is to acknowledge our fear and look deeply at its source. Instead of trying to escape from our fear, we can invite it up to our awareness and look at it clearly and deeply.
+ - Peace in ourselves, peace in the world.
+ - Eating mindfully is a most important practice of meditation. We can eat in a way that we restore the cookie of our childhood. The present moment is filled with joy and happiness. If you are attentive, you will see it.
+ - Let us not be afraid of decreasing. It is like the moon, we see the moon increasing and decreasing, but it is always the moon.
+ - We have to look deeply at things in order to see. When a swimmer enjoys the clear water of the river, he or she should also be able to be the river.
+ - We have more possibilities available in each moment than we realize.
+ - The quality of our life depends on the quality of the seeds that lie deep in our consciousness.
+ - When the energy of compassion and love touches us, healing establishes itself.
+ - Meditation is not to get out of society, to escape from society, but to prepare for a reentery into society.
+ - Forgiveness will not be possible until compassion is born in your heart.
+ - Mindfulness is like that – it is the miracle which can call back in a flash our dispersed mind and restore it to wholeness so that we can live each minute of life.
+ - When we eat mindfully, we consume exactly what we need to keep our bodies, our minds, and the Earth healthy. When we practice like this, we reduce suffering for ourselves and for others.
+ - Enlightenment is always there. Small enlightenment will bring great enlightenment. If you breathe in and are aware that you are alive – that you can touch the miracle of being alive – then that is a kind of enlightenment.
+ - When you say something really unkind, when you do something in retaliation your anger increases. You make the other person suffer, and he will try hard to say or to do something back to get relief from his suffering. That is how conflict escalates.
+ - We can help many people suffer less and realize a lot of happiness without being rich or influential. If love and compassion are in out hearts, every thought, word, and deed can bring about a miracle.
+ - There’s no way I can be tossed around like a bottle slapped here and there on the waves.
+ - Birth is okay and death is okay, if we know that they are only concepts in our mind. Reality transcends both birth and death.
+ - May we awaken from the dream that we are different.
+ - Choose to be in touch with what is wonderful, refreshing, and healing within yourself and around you.
+ - Wisdom is a living stream, not an icon to be preserved in a museum. Only when a practitioner finds the spring of wisdom in his or her own life can it flow to a future generation.
+ - It’s wonderful to be alive and to walk on earth.
+ - Look into a flower and you see the whole cosmos.
+ - Each thought, each action in the sunlight of awareness becomes sacred.
+ - It is possible to live twenty-four hours a day in a state of love. Every movement, every glance, every thought, and every word can be infused with love.
+ - At the moment of waking up, before getting out of bed, get in touch with your breath.
+ - If you really know how to live, what better way to start the day than with a smile?
+ - Wherever we are we have the capacity to enjoy the sunshine, the presence of each other and the wonder of our breathing.
+ - When you drop bombs on the enemy, you drop those same bombs on yourself, your own country.
+ - Contemplate to see that awakened people, while not being enslaved by the work of serving living beings, never abandon their work of serving living beings.
+ - May all beings learn how to nourish themselves with joy each day.
+ - You practice mindfulness, on the one hand, to be calm and peaceful. On the other hand, as you practice mindfulness and live a life of peace, you inspire hope for a future of peace.
+ - Being vegetarian here also means that we do not consume dairy and egg products, because they are products of the meat industry. If we stop consuming, they will stop producing. Only collective awakening can create enough determination for action.
+ - When our beliefs are based on our own direct experience of reality and not on notions offered by others, no one can remove these beliefs from us.
+ - Be part of the miraculous moment.
+ - In each of us is a seed of understanding. The seed is God.
+ - We all need a place that is safe and wholesome enough for us to return for refuge. In Buddhism, that refuge is mindfulness.
+ - Breathing in, I am aware of my heart. Breathing out, I smile to my heart and know that my heart still functions normally. I feel grateful for my heart.
+ - There are some people who eat an orange but don’t really eat it. They eat their sorrow, fear, anger, past, and future.
+ - You who are journalists, writers, citizens, you have the right and duty to say to those you have elected that they must practice mindfulness, calm and deep listening, and loving speech. This is universal thing, taught by all religions.
+ - Total relaxation is the secret to enjoying sitting meditation. I sit with my spine upright, but not rigid; and I relax all the muscles in my body.
+ - The raft is used to cross the river. It isn’t to be carried around on your shoulders. The finger which points at the moon isn’t the moon itself.
+ - Seeds can produce seeds Seeds can produce formations. Formations can produce seeds. Formations can produce formations.
+ - In all the practice centers in the tradition of Plum Village whenever the phone rings or the clock chimes in the dining hall, people stop everything they are doing and breathe consciously, releasing all thinking and any tension.
+ - Listening to and understanding our inner sufferings will resolve most of the problems we encounter.
+ - When reality is perceived in its nature of ultimate perfection, the practitioner has reached a level of wisdom called non-discrimination mind – a wondrous communion in which there is no longer any distinction made between subject and object.
+ - If you have the chance to be exposed to a loving, understanding environment where the seed of compassion, loving kindness, can be watered every day, then you become a more loving person.
+ - Loving ourselves means loving our community. When we are capable of loving ourselves, nourishing ourselves properly, not intoxicating ourselves, we are already protecting and nourishing society.
+ - The most important thing that we can do for the healing of our world is to hear inside ourselves, the sounds of the earth crying.
+ - I clean this teapot with the kind of attention I would have were I giving the baby Buddha or Jesus a bath.
+ - To develop understanding, you have to practice looking at all living things with the eyes of compassion.
+ - Wisdom and joy arise when you learn to exist now rather than in the nonexistent past or future.
+ - I am determined not to kill, not to let others kill, and not to support any act of killing in the world, in my thinking, and in my way of life.
+ - In Buddhism, we talk of meditation as an act of awakening, to be awake to the fact that the earth is in danger and living species are in danger.
+ - Mother Earth is very talented.
+ - Meditation is, first of all, a tool for surveying our territory so we can know what is going on. With the energy of mindfulness, we can calm things down, understand them, and bring harmony back to the conflicting elements inside us.
+ - Our own lives are the instruments with which we experiment with truth.
+ - There are many, many Christians who practice Buddhism, and they become better and better Christians all the time.
+ - Attachment to views is the greatest impediment to the spiritual path.
+ - Knowing that anger makes me ugly, I smile instead. I return to myself and meditate on love.
+ - Our life is a manifestation, and we can very well make that manifestation beautiful and meaningful and have a good influence.
+ - I don’t have to hate any person because I can always start anew, I can always reconcile.
+ - Meditation means to look deeply, to touch deeply, so we can realize we are already home.
+ - Reality is reality. It transcends every concept. There is no concept which can adequately describe it, not even the concept of interdependence.
+ - When you feel anger arising, remember to return to your breathing and follow it. The other person may see that you are practicing, and she may even apologize.
+ - The necessary condition for the existence of peace and joy is the awareness that peace and joy are available.
+ - Loneliness cannot be alleviated just by the coming together of two bodies, unless there is also good communication, understanding, and loving kindness.
+ - What is most important is to find peace and to share it with others. To have peace, you can begin by walking peacefully. Everything depends on your steps.
+ - Many Communist government officials have a rigid, dictatorial power, but they live in constant suspicion and fear of anything that might undermine the power they have.
+ - If you’re a politician, you might want to learn the Buddhist way of negotiation. Restoring communication and bringing back reconciliation is clear and concrete in Buddhism.
+ - Your journey to a healthier weight is not a journey that you start and then give up. It is a journey that you are living every day for the rest of your life.
+ - Meditation is to get insight, to get understanding and compassion, and when you have them, you are compelled to act.
+ - Shallow understanding accompanies poor compassion; great understanding goes with great compassion.
+ - We may think of peace as the absence of war, that if the great powers would reduce their weapons arsenals, we could have peace. But if we look deeply into the weapons, we will see our own minds – our own prejudices, fears, and ignorance.
+ - If we are free from attachment, we can easily recognize ourselves in other people, in different forms of manifestation, and then we don’t have to suffer.
+ - You have to learn how to help a wounded child while still practicing mindful breathing. You should not allow yourself to get lost in action. Action should be meditation at the same time.
+ - If we chew every morsel of our food, in that way we become grateful, and when you are grateful, you are happy.
+ - Meditation is not to avoid society; it is to look deep to have the kind of insight you need to take action. To think that it is just to sit down and enjoy the calm and peace, is wrong.
+ - To make peace, our hearts must be at peace with the world.
+ - Compassion is a mind that removes the suffering that is present in the other.
+ - The electron is first of all your concept of the electron.
+ - In the mountains of wisdom no climbing is in vain.
+ - The roots of war are in the way we live our daily lives – the way we develop our industries, build up our society, and consume goods.
+ - In the moment when we are able to smile, to look at ourselves with compassion, our world begins to change.
+ - Artists have to show us what is not going well within the person and within the society, not try to cover it up.
+ - Buddhism has to do with your daily life, with your suffering and with the suffering of the people around you.
+ - There are always some people who are ready to embrace a doctrine, a notion, a dogma, and they miss the real teaching.
+ - If we are not able to smile, then the world will not have peace.
+ - No single tradition monopolizes the truth. We must glean the best values of all traditions and work together to remove the tensions between traditions in order to give peace a chance.
+ - Anger and hatred are the materials from which hell is made.
+ - Nirvana is the complete silencing of concepts.
+ - Once you develop the practice of smiling, you may not need a reminder. You will smile as soon as you hear a bird singing or see the sunlight streaming through the window.
+ - Because if the manifestations that happen in the present moment are beautiful and good, their continuation in the future will be also good and beautiful.
+ - Don’t think you have to be solemn to meditate. To meditate, well, you have to smile a lot.
+ - The war is in our souls.
+ - Go back to the breathing and try to be in that moment deeply. Because there is a possibility to handle every kind of event and the essential is to keep the peace in yourself.
+ - Doubt in my tradition is something that is very helpful. Because of doubt, you can thirst more and you will get a higher kind of proof.
+ - Many of us have been running all our lives. Practice stopping.
+ - With understanding, those we love will certainly flower.
+ - Contemplating the bowl, it is possible to see the interdependent elements which give rise to the bowl.
+ - The way must be in you; the destination also must be in you and not somewhere else in space or time. If that kind of self-transformation is being realized in you, you will arrive.
+ - Do not be idolatrous about or bound to any doctrine, theory, or ideology, even Buddhist ones. All systems of thought are guiding means; they are not absolute truth.
+ - May we awaken from forgetfulness and realize our true home.
+ - At first glance, that might seem a little silly: why put so much stress on a simple thing? But that’s precisely the point.
+ - Without full awareness of breathing, there can be no development of meditative stability and understanding.
+ - To educate people for peace, we can use words or we can speak with our lives.
+ - Usually, people have a tendency to be caught in the worries concerning the future or in the regret concerning the past. There is some kind of energy that is pushing them to run, and they are not able to establish themselves in the present moment.
+ - Happiness reveals itself when we are at peace with ourselves.
+ - The fact that I am standing there and washing bowls is a wondrous reality. I’m being completely myself, following my breath, conscious of my presence, and conscious of my thoughts and actions.
+ - The Buddha said that if we know how to look deeply into our suffering and recognize what feeds it, we are already on the path of emancipation.
+ - Anyone can practice some nonviolence, even soldiers. Some army generals, for example, conduct their operations in ways that avoid killing innocent people; this is a kind of nonviolence.
+ - One included all, and all were contained in one.
+ - We need enlightenment, not just individually but collectively, to save the planet.
+ - In English we say ‘we are’ but it’s proper to say ‘we are becoming’ because things are becoming.
+ - When we are present, life is also present.
+ - Even if we cannot be completely non-voilent, by being vegetarian we are going in the direction of non-voilence.
+
+452 quotes

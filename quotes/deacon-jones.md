@@ -1,0 +1,30 @@
+ - Anytime you go upside a man’s head – or a woman – then they have a tendency to blink they eyes. Or close they eyes.
+ - The only rules not meant to be broken are those of love and virtue.
+ - Be patient with the negative people of the world. Take a moment to think how they are helping you clarify your own thinking and firming your own resolve. Then, headslap them out of your way.
+ - How are you going to do great things if you are not committed to your work.
+ - I believe that if you die trying to be your best, the world is still a better place.
+ - I reserve the right to change my mind. But once I decide on something, I’m going to need a good reason to switch.
+ - If you feel like you want to die, it’s time to sit down and make a list of all the things you haven’t done yet.
+ - All men are created equal. After that, it’s up to you.
+ - It took me a long time to figure out that real big-time success comes from taking lots of small, ordinary steps in the right direction. And you can’t ever take the next step until you take the first.
+ - When I see guys huddling up after the game, to pray, that’s what scares me about the game. I’m a Baptist, but I’m also a quarterback killer, and I ain’t praying with you. But I will give you 30 seconds to ask your Lord and master to keep me from killing you.
+ - You are one of a kind, one in a billion, an incredible unique individual. The problem is, so is everybody else.
+ - You hear all this stuff about inner peace. Hey, there’s nothing wrong with it, but I say, hit that line hard. Crack that book – Do your very best all the time and inner peace will take care of itself. The Deacon guarantees it.
+ - How can you possibly be sympathetic to every fool on the planet? Just the other day, I heard a man whining about his hopeless love of cross-dressing. Call me unenlightened, but I started to laugh.
+ - I developed a term that is used in the game right now called sacking a quarterback. Sacking a quarterback is just like you devastate a city or you cream a multitude of people. I mean it’s just like you put all the offensive players in one bag and I just take a baseball bat and beat on the bag.
+ - And so now you think society is to blame for the mess you made of yourself?
+ - I never was very big on praying for victory. For God to give a big win to the Denver Broncos, wouldn’t He have to take it away from somebody else, say, the Green Bay Packers?
+ - There are all kinds of smiles. On the football field I mostly used the one where the hawk spots the dove.
+ - You take all the offensive linemen and put them in a burlap bag, and then you take a baseball bat and beat on the bag. You’re sacking them. You’re bagging them. And that’s what you’re doing with a quarterback.
+ - Know the difference between famous and great.
+ - The only thing Native Americans ever did better than the rest of us is spirituality. Of course, that’s everything, isn’t it?
+ - Somebody told me when Abe Lincoln was a young man, studying by firelight, he said, “I will work hard. I will prepare myself. And my time will come.” And you know, that’s exactly what I said about myself and football – What do you think? Were Abe and I both just lucky ducks?
+ - A nation that spends billions to fix international problems will not have much left over for the victims of tornadoes in Oklahoma.
+ - First, you’ve got to get the job. “Yeah, I can do it,” I would say. When I was a kid, I could do anything. Lucky nobody ever asked me if I could fly a jet plane.
+ - When I was a teenager, I was so dumb my mamma knocked me off the porch with a broom. You wish you had so good a mamma.
+ - I was the originator of smack. Some guys rattle with smack; with other guys it rolls right off their shoulders like nothing.
+ - The problem a guy who lies all the time faces is he never can tell when anybody else is telling the truth.
+ - You’ll find your life greatly simplified if you only worry about stuff you can fix.
+ - Memory is what you did. Life is what you’re doing.
+
+28 quotes

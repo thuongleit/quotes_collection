@@ -1,0 +1,28 @@
+ - There is so much darkness in Ember, Lina. It’s not just outside, it’s inside us, too. Everyone has some darkness inside. It’s like a hungry creature. It wants and wants and wants with a terrible power. And the more you give it, the bigger and hungrier it gets.
+ - She realized all at once that Doon, thin, dark eyed Doon, with his troublesome temper and his terrible brown jacket, and his good heart – – was the person she knew better than anyone now. He was her best friend. – City of Ember –.
+ - The main thing to do is pay attention. Pay close attention to everything, notice what no one else notices. Then you’ll know what no one else knows, and that’s always useful.
+ - He says I’m beautiful as a red tomato.
+ - What you need to learn, children, is the difference between right and wrong in every area of life. And once you learn the difference, you must always choose the right.
+ - A person who thought he knew everything simply didn’t understand how much there was to know.
+ - The trouble with anger is, it gets hold of you. And then you aren’t the master of yourself anymore. Anger is. And when anger is the boss, you get unintended consequences.
+ - The idea seemed to be that if you prayed extremely hard – especially if a lot of people prayed at once – maybe God would change things. The trouble was, what if your enemy was praying, too? Which prayer would God listen to?
+ - Lina loved her little sister so much that it was like an ache under her ribs.
+ - Why, if its going to be allright, do we see it getting worse every day?
+ - You know, son, I don’t think there’s such a thing as an easy life. There’s always going to be hard work and there will always be misfortunes we can’t control, lurking out at the edges – storms, sickness, wolves. But there is such a thing as a good life and I think that we have one here.
+ - Doon was touched. Kenny looked like a tiny little wisp, but there was something strong inside him. – People of Sparks –.
+ - Wouldn’t it be strange, she thought, to have a blue sky? But she liked the way it looked. It would be beautiful – a blue sky.
+ - What could be more interesting than thinking of mysterious happenings, finding the answers to intriguing questions, and making up new worlds?
+ - People find a way through just about anything.
+ - A darkness different from Ember’s, but just as frightening...
+ - People didn’t make life, so they can’t destroy it. Even if we were to wipe out every bit of life in the world, we can’t touch the place life comes from. Whatever made the plants and animals and people spring up in the first place will always be there, and life will spring up again.
+ - It wasn’t because they had extraordinary powers, really, but because of how well they used the ordinary powers everyone had: the power of courage, the power of kindness, the powers of curiosity and knowledge.
+ - Poppy was now almost well. She still slept more than usual, but when she wasn’t sleeping she tromped around the doctor’s house pulling spoons off the table and spilling cups of water and crumpling pages of books. That is, she was almost her old self.
+ - It would be something that another person had written down without understanding its significance; just a sentence or two that would be like a flash of light.
+ - Now Doon seemed to care for his new friends more than he did for her. Every time she thought about him she felt a thud of pain, like a bruised place inside her.
+ - Remember the city, the city remember Where treasure is hidden under the ground The city, the city, always remember That’s where the treasure will be found.
+ - It’s for my God, the god of dogs, and snakes and dust mites and albino bears and Siamese twins, the god of stars and starships and other dimensions, the god who loves everyone and makes everything marvelous.
+ - I try to remind myself that we are never promised anything, and that what control we can exert is not over the events that befall us but how we address ourselves to them.
+ - Unintended consequences, he thought miserably. He was angry at his anger, the way it surged up and took over.
+ - Mrs. Murdo, walkind even more briskly to keep her spirits up, was crossing Harken Square when something fell to the pavement just in front of her with a terrific thump. How extraordinary, she thought, bending to pick it up. It was sort of a bundle. She began to untie it.
+
+26 quotes

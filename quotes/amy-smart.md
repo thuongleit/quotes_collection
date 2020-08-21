@@ -1,0 +1,25 @@
+ - I’m not scared to look like a complete fool in front of people. It’s just not one of my insecurities.
+ - Growing up, I was sort of a tomboy. I was the one skating with the boys.
+ - The best gift we can have is living in the present moment and really enjoying it for what it is; and, not being in our heads and getting sidetracked.
+ - But I have to say, probably when I’m about 30 I’ll be pretty, not settled, but happy with what I’ve accomplished so far. I’m happy where I am now.
+ - Well, what is acting but the study of human behavior? And that’s so fascinating to me.
+ - I do feel like I’m a tomboy at heart, so I have an easy time working with guys.
+ - For me, I’m OK doing embarrassing things, when it’s with somebody else. I’m not the only person to look at.
+ - I want to take roles that challenge me and I want to like the script and obviously feel connected with the director because the director to me is so important.
+ - There’s so many more better TV shows than films coming out, in my opinion.
+ - I’m just kind of taking whatever life gives me and hoping that I make the right decision.
+ - Well, I’m also like 23 and playing 16. So maybe when I’m 30 I’ll be playing characters in their early 20s. I don’t know.
+ - I like any story that starts one place and really takes a huge journey to a whole new place; that people in their life want to take that journey. They want to be able to find things in their life that aren’t working and work through them to a new place of change.
+ - I would love to make some kind of film about the witches and the Inquisitions. That would be really fun because I don’t think their stories have been told enough.
+ - I sometimes skip meals when I travel.
+ - Vegetarianism is a way of living consciously on the planet.
+ - I do Pilates and yoga and try to eat healthy.
+ - I love cooking during Christmas, all smells like the hot apple cider, the hot spiced wine.
+ - I think that as you get older, you learn to live in yourself more securely.
+ - I notoriously get the hiccups. When I get the hiccups, I get it numerous times in one day.
+ - I think that life is about growth. You continue to grow and progress, hopefully.
+ - I have to say that as an actor, I really look for the role. I’m not really looking to see if it’s for television or film, because there are highly talented people in both mediums.
+ - I think it’s a gift to become a star, to become a celebrity.
+ - I was a ballerina for 10 years growing up, but I stopped.
+
+23 quotes

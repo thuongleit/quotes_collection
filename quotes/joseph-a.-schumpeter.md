@@ -1,0 +1,58 @@
+ - At the heart of capitalism is creative destruction.
+ - The typical citizen drops down to a lower level of mental performance as soon as he enters the political field. He argues and analyzes in a way which he would readily recognize as infantile within the sphere of his real interests. He becomes primitive again.
+ - Profit is the payment you get when you take advantage of change.
+ - We always plan too much and always think too little.
+ - Innovation is the market introduction of a technical or organisational novelty, not just its invention.
+ - Politicians are like bad horsemen who are so preoccupied with staying in the saddle that they can’t bother about where they’re going.
+ - Nothing is so treacherous as the obvious.
+ - Success depends on intuition, on seeing what afterwards proves true but cannot be established at the moment.
+ - Economic progress, in capitalist society, means turmoil.
+ - Entrepreneurial profit is the expression of the value of what the entrepreneur contributes to production.
+ - Gentlemen, a depression is for capitalism like a good, cold douche.
+ - I set out to become the greatest lover in Vienna, the greatest horseman in Austria, and the greatest economist in the world. Alas, for the illusions of youth: as a horseman, I was never really first-rate.
+ - The spirit of a people, its cultural level, its social structure, the deeds its policy may prepare – all this and more is written in its fiscal history, stripped of all phrases. He who knows how to listen to its message here discerns the thunder of world history more clearly than anywhere else.
+ - Bureaucracy is not an obstacle to democracy but an inevitable complement to it.
+ - Pessimistic visions about almost anything always strike the public as more erudite than optimistic ones.
+ - Situations emerge in the process of creative destruction in which many firms may have to perish that nevertheless would be able to live on vigorously and usefully if they could weather a particular storm.
+ - Capitalism Survive? – I have tried to show that a socialist form of society will inevitably emerge from an equally inevitable decomposition of capitalist society.
+ - Capitalism inevitably and by virtue of the very logic of its civilization creates, educates and subsidizes a vested interest in social unrest.
+ - The modern mind dislikes gold because it blurts out unpleasant truths.
+ - Creative Destruction is the essential fact about capitalism.
+ - Can capitalism survive? No. I do not think it can.
+ - We always plan too much and always think too little. We resent a call to thinking and hate unfamiliar argument that does not tally with what we already believe or would like to believe.
+ - The evolution of the capitalist style of life could be easily – and perhaps most tellingly – described in terms of the genesis of the modern Lounge Suit.
+ - The intellectual and social climate needed to allow entrepreneurship to thrive will not exist in advanced capitalism.
+ - Capitalism stands its trial before judges who have the sentence of death in their pockets. They are going to pass it, whatever the defense they may hear; the only success victorious defense can possibly produce is a change in the indictment.
+ - In economic life competition is never completely lacking, but hardly ever is it perfect.
+ - The first thing a man will do for his ideals is lie.
+ - Innovations are changes which cannot be decomposed into infinitessimal steps.
+ - The ballot is stronger than bullets.
+ - The stock exchange is a poor substitute for the Holy Grail.
+ - To realize the relative validity of one’s convictions and yet stand for them unflinchingly is what distinguishes a civilized man from a barbarian.
+ - I know that it is not enough to be remembered for books and theories. One does not make a difference unless it is a difference in people’s lives.
+ - Democracy is a political method, that is to say, a certain type of institutional arrangement for arriving at political – legislative and administrative – decisions and hence incapable of being an end in itself.
+ - The capitalist achievement does not typically consist in providing more silk stocking for queens but in bringing them within the reach of factory girls in return for a steadily decreasing amount of effort.
+ - Marxism is essentially a product of the bourgeois mind.
+ - It is, after all, only common sense to realize that, but for the fact that economic life is a process of incessant internal change, the business cycle, as we know it, would not exist.
+ - This civilization is rapidly passing away, however. Let us rejoice or else lament the fact as much as everyone of us likes; but do not let us shut our eyes to it.
+ - Nothing is so retentive as a nation’s memory.
+ - There exists no more democratic institution than the market.
+ - Lack of outlets, excess capacity, complete deadlock, in the end regular recurrence of national bankruptcies and other disasters-perhaps world wars from sheer capitalist despair-may confidently be anticipated. History is as simple a that.
+ - The metal of economic theory is in Marx’s pages immersed in such a wealth of steaming phrases as to acquire a temperature not naturally its own.
+ - It is however always important to remember that the ability to see things in their correct perspective may be, and often is, divorced from the ability to reason correctly and vice versa. That is why a man may be a very good theorist and yet talk absolute nonsense...
+ - The essential point to grasp is that in dealing with capitalism we are dealing with an evolutionary process.
+ - It is not true that democracy will always safeguard freedom of conscience better than autocracy. Witness the most famous of all trials. Pilate was, from the standpoint of the Jews, certainly the representative of autocracy. Yet he tried to protect freedom. And he yielded to a democracy.
+ - Recognition of the inevitability of comprehensive bureaucratization does not solve the problems that arise out of it.
+ - Want and effective demand are not the same thing. If they were, the poorest nations would be the ones to display the most vigorous demand.
+ - To the believer Marxism presents, first, a system of ultimate ends that embody the meaning of life and are absolute standards by which to judge events and actions...
+ - It is quite possible that future generations will look upon arguments about the inferiority of the socialist plan as we look upon Adam Smith’s argument about joint stock companies which, also, were simply false.
+ - Why should we stunt our ambitions and impoverish our lives in order to be insulted and looked down upon in our old age?
+ - Our poverty will be brought home to us to its full extent only after the war.
+ - The very foundation of private property and free contracting wears away in a nation in which its most vital, most concrete, most meaningful types of private property and free contracting disappear from the moral horizon of the people.
+ - For one thing, to predict the advent of big business was considering the conditions of Marx’s day an achievement in itself.
+ - The trouble with Russia is not that she is socialist but that she is Russia.
+ - Geniuses and prophets do not usually excel in professional learning, and their originality, if any, is often due precisely to the fact that they do not.
+ - For the duration of its collective life, or the time during which its identity may be assumed, each class resembles a hotel or an omnibus, always full, but always of different people.
+ - The capitalist process shapes things and souls for socialism.
+
+56 quotes

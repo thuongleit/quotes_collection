@@ -1,0 +1,105 @@
+ - Nothing of real worth can ever be bought. Love, friendship, honour, valour, respect. All these things have to be earned.
+ - Each man has a breaking point, no matter how strong his spirit. Somewhere, deep inside him, there is a flaw that only the fickle cruelty of fate can find.
+ - I make little distinction betwee those who commit evil and those who stand by and do nothing.
+ - The purpose of debates is to explore issues, not end them.
+ - We make choices everyday, some of them good, some of them bad. And – if we are strong enough – we live with the consequences.
+ - May all your dreams but one come true, for what is life without a dream?
+ - Do not speak badly of yourself, for the warrior that is inside you hears your words and is lessened by them.
+ - Steal a loaf of bread and they hang you, steal a land and they’ll make you king.
+ - Plan for the worst, expect the best.
+ - Trust your instincts, and make judgements on what your heart tells you. The heart will not betray you.
+ - By nature of definition only the coward is capable of the highest heroism.
+ - Never violate a woman, nor harm a child. Do not lie, cheat or steal. These things are for lesser men. Protect the weak against the evil strong. And never allow thoughts of gain to lead you into the persuit of evil.
+ - A problem shared is a problem doubled.
+ - Every little bit of good I may do, let me do it now for I may not come this way again.
+ - A man’s strength is ultimately born of his knowledge of his own weakness...
+ - All beauty is sad. For it fades.
+ - There’s no shame in fear. But understand this – the coward is ruled by fear, while the hero rides it like a wild stallion.
+ - There is evil in all of us, and it is the mark of a man how he defies the evil within.
+ - Not one of the creatures of blood can escape death. We all face it, and succumb to it. It follows us like a dark shadow. Yet if we live in terror of it, then we do not live at all. Yes we are born alone, and yes we will die alone. But in between, Tae, we live. We know joy.
+ - If you look at any ancient civilization, they’ve all used fantasy stories to train the young.
+ - Miracles are merely events that happen just when they are needed.
+ - It is a merchant’s nature to quibble over coins. It is how we become rich and buy satin shirts. The problems of who governs this area is one for another day.
+ - A warrior feeds his body well; he trains it; works on it. Where he lacks knowledge, he studies. But above all he must believe. He must believe in his strength of will, of purpose, of heart and soul.
+ - No matter how impossible this war, I shall fight to win. Whatever I have to do, I will do.
+ - You may think life is sweet now, but when death is a heartbeat away then life becomes unbearably desirable. And when you survive, everything you do will be enhanced and filled with greater joy: the sunlight, the breeze, a good wine, a woman’s lips, a child’s laughter.
+ - Why now? Why not? Live or die, a man and a woman need love. There is a need in the race. We need to share. To belong. Perhaps you will die before the year is out. But remember this: to have may be taken from you, to have had never. Far better to have tasted love before dying, than to die alone.
+ - Some people have a gift for stupidity, an almost mystic ability to withstand any form of logic.
+ - Blood always aids blood, my friend.
+ - In my experience all women deserve someone better.
+ - A cynic by experience, a romantic by inclination and now a hero by necessity.
+ - I don’t give a damn, laddie. Until the actual moment, when they cut me down, I shall still be looking to win. And the gods of war are fickle at best.
+ - Too many people go through life without pausing to enjoy what they have.
+ - Hold on to your dreams, Kiall. They are more important than you realise.
+ - I may be stupid, as you say, to believe in honour and friendship and loyalty without price. But these are virtues to be cherished, for without them we are no more than beasts roaming the land.
+ - Some people are born ugly. It’s not their fault, and I for one have never held it against a man that he is ugly. but others and I count myself among them are born with handsome features. That’s a gift that should not be lightly taken away.
+ - A man should be free to do what he wants to do, as long as it doesn’t hurt others.
+ - I caught a pebble in the moonlight.
+ - A man with wife and daughters has no place losing his temper.
+ - Most wars are fought for greed, but we are luckier here we fight for our lives and the lives of the people we love.
+ - She was his north star, the fixed point round which his world turned. For as long as his heart beat, or hers, he believed they would always share a destiny.
+ - A man must know his limitations.
+ - Be at peace, my friend. One thing I have learnt about Death is that his bark is worse than his bite.
+ - Hate is the father of all evil.
+ - Nothing in life is sure, my son. Except the promise of death.
+ - Old age is not as honorable as death, but most people seek it.
+ - Fear is an aid to the warrior. It is a small fire burning. It heats the muscles, making us stronger. Panic comes when the fire is out of control, consuming all courage and pride.
+ - Foolish: It’s all foolish. Life is a farce a stupid, sickening farce played out by fools.
+ - I am a stranger. You do not need to lie to me or pretend. Only with friends do you need masks...
+ - Life is a struggle, from the agonies of birth to the railing against death. Devour or be devoured. The law of the wild.
+ - Do not complain of life’s unfairness. It is never fair – at best it is impartial.
+ - Our modern world, though infinitely more complex than that of ancient Greece, is also far more superficial. Where the Greeks offered simple psychological training, we live in an age of style and spin in which perceptions of good and evil slither and shift with the political view of the moment.
+ - Life is not so simple. There are many futures. The life of a single person is like a great tree: every branch, every twig, every leaf is a possible future.
+ - Evil lives in a pit. If you want to fight it, you must climb down into the slime to do so. White cloaks show the dirt more thank black, and silver tarnishes.
+ - There are times, Sember, when I could believe your mother had a secret lover. Looking at you makes me wonder if it was one of my goats.
+ - While men compete in war, there will be warriors. While there are warriors, there will be princes among warriors. Among the princes will be kings, and among the kings an emperor.
+ - If there is one sound the follows the march of humanity, it is the scream.
+ - In any broth, the scum always rises to the top.
+ - Evil will never be countered while good men do nothing.
+ - A man should not risk his life for beauty alone, Kiall, for that fades. You might as well risk it for a rose. Think on it.
+ - If you want to fight evil, you have to climb down in the slime to do so.
+ - Everyone makes mistakes. Everyone fails at something.
+ - All legends have a base in fact.
+ - It is easier with strangers, for they touch your life but for an instant. You will not disappoint them, for you owe them nothing; neither do they expect anything. Friends you can hurt, for they expect everything.
+ - The nature of a coward is to avoid death. If such a man courts peril there can be only two reasons. Either he is not a coward at all or there is no danger.
+ - Love is a mystery. We embrace it where we can. Mostly we do not choose whom we love. It just happens. A voice speaks to us, in ways the ears cannot hear. We recognize a beauty the eye does not see. We experience a change in our hearts that no voice can describe.
+ - I am not going to talk about patriotism, duty, liberty, and the defense of freedom because that’s all dung to a soldier.
+ - You do not convince me. You rationalize your actions and because the result is favorable you become right.
+ - Come back and stand with us, lad. We will all go down together that’s what makes us who we are.
+ - All men have talents. Some build, some paint, some write, some fight. For me it is different.
+ - Death haunts everyone and never fails.
+ - Men don’t change. They just learn to disguise the lack of change.
+ - The truth. Men will blind themselves with hot irons, rather than face it.
+ - One hundred only, Lord Earl. But judge us not by our number. Rather, watch the numbers of dead we leave behind.
+ - No one can take away the freedom of a man’s soul.
+ - Life is sad enough, Magir. Laughter is a thing to be treasured.
+ - Love is both wondrous and yet full of peril. Love is a gateway through which hatred – disguised and unrecognized – can pass.
+ - I would have offered you a forest of truth, but you wish to speak of a single leaf.
+ - You know how it is. Boy meets girl, girl wants boy dead. An everyday story, really.
+ - I don’t know yet whether I fully believe in fate, but certain things do happen in a man’s life that he cannot explain.
+ - I was a man before I was a king, and no true man walks away when a friend needs him.
+ - What is life if a man cannot count on his friends when he has gone mad?
+ - It is not hard to change when your biggest problem is whether the weeds prosper in a vegetable patch.
+ - To be truthful i am not entirely sure what people mean when they talk of happiness. There are moments of joy and laughter, the comfort of friendship, but enduring happiness? If it exists i have not found it.
+ - Every man has his own reason for every deed. Usually it is selfish.
+ - How many hopes and dreams are trapped within these bones? How many wonders lie never to be discovered? This is what war is. Desolation, despair and loss. There are no victors.
+ - This world has few redeeming features, and one is the capacity for people to love one another with great, enduring passion.
+ - This is the real magic of fantasy fiction: it can feed souls and change lives.
+ - I think that for the coward every day carries a kind of death.
+ - Societies need heroes. So we travel to places where the revisionists cannot dismantle the great.
+ - Bow to nothing, son. I make mistakes as well as any man. If you think me wrong, be so good as to damn well say so.
+ - Your men are brave men, And you have won. I can live with that, Earl of Bronze a poor man would I be if I could not.
+ - Liberty is only valued when it is threatened, therefore it is the threat that highlights the value. We should be grateful to the Nadir, since they heighten the value of our liberty.
+ - Your face may be gone, but you know who you are.
+ - War. What was it about the prospect of some bloody enterprises that reduced men to the level of animals?
+ - A man cannot spend his life worrying about the unexpected.
+ - I think maybe it is better to believe than not to believe. But I couldn’t tell you why.
+ - When your life has been spent in one war after another for forty-five years, you have to be pretty handy to survive.
+ - An enemy is like a man’s most prized flower. It brings him joy to see it buried in the ground.
+ - The night has a capacity for terror that the day can never match.
+ - Life is nothing unless death has been faced down.
+ - None of us can choose the manner of our passing.
+ - Heroes are people who face down their fears. It is that simple.
+ - Our souls are but leaves in a storm, and only the gods know where we will come to rest.
+
+103 quotes

@@ -1,0 +1,87 @@
+ - I lose myself in music because I can’t be bothered explaining what I feel to anyone else around me.
+ - It’s a perfect day for letting go.
+ - A lot of journalists give me a hard time about how I look, but I’ve never met a journalist I’d rather look like.
+ - It’s better to forget than remember me and cry.
+ - In some cases, I quite like irritating people who need to be irritated.
+ - It’s really easy to slide into a depression fueled by the pointlessness of existence.
+ - I’ve never regretted not having children. My mindset in that regard has been constant. I objected to being born, and I refuse to impose life on someone else.
+ - The further I get from the things that I care about, the less I care about how much further away I get.
+ - I have never liked Morrissey, and I still don’t. I think it’s hilarious, actually, what things I’ve heard about him, what he’s really like, and his public persona is so different. He’s such an actor.
+ - My earliest memories are sitting on the beach at Blackpool, and I know that if I went back, it would be horrible. I know what Blackpool’s like – it’s nothing like I imagined it was as a child.
+ - Sometimes I’ll get to the end of a song, open my eyes and there’s all these faces peering at me. It’s quite horrifying.
+ - No, come to think of it, I don’t think the Cure will end, but I can make up an ending if you want me to.
+ - I think, at heart, unless you discover faith in something else, something other, it’s very hard to shake the thing that you’re adrift alone.
+ - I think that if you become a parent, you stop being a child, and your position in relation to your parents changes.
+ - I wore makeup when I was at school, and I wore makeup when glam started. I started wearing it again when punk started. I’ve always been drawn to wearing it. It’s partly ritualistic, partly theatrical and partly just because I think I look better with it on.
+ - I’ve got a Facebook page, but I’ve never put anything on it. I’ve got a presence on all the social networks, in fact, but I’ve never once sent a message. I’m there because, otherwise, someone’s going to pretend to be me.
+ - The very first concert I ever went to on my own was actually Rory Gallagher. In a one-month period in 1973 or ’74, I saw him, Thin Lizzy and the Rolling Stones. I wasn’t really a big Rory Gallagher fan, but I thought his guitar playing was fabulous. But Thin Lizzy, they were fabulous.
+ - I don’t think of death in a romantic way anymore.
+ - You don’t really know a song until you play it live.
+ - If you feel alienated from people around you, it’s because no one tries to understand you.
+ - Refusing to grow up is like refusing to accept your limitations. That’s why I don’t think we’ll ever grow up.
+ - It’s only people that aren’t goths that think the Cure are a goth band.
+ - I’m in the strange position of the world drifting away from me, but you know what? I’m actually quite content with that. It doesn’t bother me in the slightest. I don’t feel like, ‘Oh God, I’m being left behind.’
+ - I’d rather spend my time looking at the sky than listening to Whitney Houston.
+ - When you’re on stage, the real world just drops away for that time. It’s pretty intense.
+ - I do a job I really, really love and I kind of have fun with. People think you can’t be grown up unless you’re moaning about your job.
+ - I look thuggish when I shave my head and wear big boots. I walk into a newsagent and people think I’m going to jump the counter.
+ - I never liked Queen. I can honestly say I hated Queen and everything that they did.
+ - I would be more familiar with Janet Jackson than I was with the Teardrop Explodes or Joy Division, because I didn’t want to listen to my competitors for fear of nicking ideas off them.
+ - There’s no hope of me becoming completely relaxed on stage. If I did, I’d sit down and doze off.
+ - I never answer if someone knocks on my door and only the band and my manager have my phone number. In any case my phone doesn’t ring so I never notice it. I occasionally just walk past and pick it up to see if anyone’s there.
+ - Cardinal rule for all hitters with two strikes on them: Never trust the umpire.
+ - Everything I do has the tinge of the finite, of my own demise. At some point you either accept death or you just keep pushing it back as you get older and older. I’ve accepted it.
+ - It’s really nice meeting people after a concert. Still, it’s very weird to be at the center of a group of 30 people all listening to what you’re saying. When that group turns into 300 people, it goes on from weird. Some people revel in it, and I don’t.
+ - When you’re in a young band for the first time, geographically you’re in the same place and you tend to go out and socialize. You play more shows, you spend more time together. You’re a unit. As you grow older, inevitably you develop a life outside the band. I think it would be tragic if you didn’t.
+ - I really enjoy what I do, and who I’m with and where I am. Having said that, I’m not really a person of habit, because what I do in my job is travel around the world and play concerts to people, and occasionally do very weird things.
+ - You know, the Internets made us more aware of what people think about us.
+ - I don’t want The Cure to fizzle out doing 45-minute shows of greatest hits. That would be awful for our legacy.
+ - I just don’t feel comfortable anymore with the kind of attention that I’m getting. It’s purely the numbers of people that want a bit of the Cure or want a bit of me.
+ - I write with a pen and paper. Never on a laptop.
+ - I had no desire to be famous; I just wanted to make the greatest music ever made. I didn’t want anyone to know who I was.
+ - I could write songs as bad as Wham’s if I really felt the urge to, but what’s the point?
+ - I became an adult in an extreme way. I was recently sorting some old photographs and I found another.
+ - Living, it’s awful for me.
+ - I’m not going to worry about the Cure slipping down into the second division; it doesn’t bother me because I never expected to be in the first division anyway.
+ - B is for Breasts Of which ladies have two; Once prized for the function, Now for the view.
+ - See the ridiculous in everything.
+ - I’d like to record somewhere really different. Rent a really big house and get a mobile in and set up in the dining room. Maybe New England; it’d be nice in September or October.
+ - I hardly ever listen to any of our old stuff now. Once the songs have been recorded and put on to vinyl they become someone else’s entertainment, not mine.
+ - I don’t dislike my peers because they’re still around and remind me of what I’m doing. I never liked them anyway. I never liked U2, the things they’ve done over the years.
+ - I think the rock’n’roll myth of living on the edge is a pile of crap.
+ - If I put a value on my music, and no one’s prepared to pay that, then more fool me, but the idea that the value is created by the consumer is an idiot plan; it can’t work.
+ - If you acquiesce to one interview, there’s always another waiting in the wings. Also if you’re interviewed repeatedly, you just start repeating yourself. I don’t like to do that.
+ - Every animal would rather die themselves than lose their offspring. But it’s just genes, isn’t it? All of our existence is spent worrying about the next generation, but we don’t actually seem to get anywhere.
+ - I started out in the ‘Cure’ reflecting things that I thought were important, and it’s reached a point where it takes over and becomes the thing that is important.
+ - I honestly don’t class myself as a songwriter. I’ve got ‘musician’ written on my passport. That’s even funnier.
+ - Nobody notices me. Nobody thinks I’m me. But then I look less like me than most of the people coming to our concerts.
+ - Both me and my wife’s extended family all live within a 50-mile radius. Like me, a lot of them did time in London then started drifting back to the countryside and the sea. Perhaps it’s a homing instinct.
+ - Perhaps not as badly applied and not as obvious, but for thousands of years, people have worn makeup on stage.
+ - I’ve always spent more time with a smile on my face than not, but the thing is, I don’t write about it.
+ - I don’t find the technology threatening. A lot of people my age, my generation, find it difficult to immerse themselves. But I would never preclude the idea of using any technology if I thought it suited the end result.
+ - The idea of reinvention has always seemed bizarre to me.
+ - Apart from the fact that I’ve got a strange job, I do lead a fairly normal life. I do my own shopping. I don’t feel constrained by who I am because of what I do; I often feel disappointed by my lack of ability. I get frustrated at myself, but I think everyone does.
+ - My whole life I’ve played music for my own personal enjoyment and the idea of it becoming a machine or a business is just horrible.
+ - Reading is something I’ve really missed, not being able to enter people’s worlds.
+ - I’m not a morose person; it’s just that my best songs reflect on the sadder aspects of life.
+ - In all relationships, there are always aching holes and that’s where the impossible wishes come into it.
+ - I married somebody who likes the way I look. If I changed my hair every year, and I reinvented myself in time-honoured pop fashion, I think understandably the person I’m married to would grow slightly sick of me.
+ - If I book a hotel it’s actually very funny. It’s very nice to be a genuine Mr Smith.
+ - I am very self-conscious a lot of the time.
+ - Anyone can rehearse and play constantly any song in the world.
+ - Performing doesn’t come that naturally to me, even though I’ve done it for years.
+ - There may be said to be three sorts of lawyers, able, unable, and lamentable.
+ - It has always seemed slightly uncomfortable, the idea of politicised musicians. Very few of them are clever enough to do it; if they’re good at the political side, the music side suffers, and vice versa.
+ - Whenever I’m home, I haven’t got any makeup on. But even in the studio, before I do vocals, I put makeup on.
+ - Each time I play a song it seems more real.
+ - I entirely approve the measures proposed by you in relation to the Marines who are lately captives in Tripoli. Therefore execute them.
+ - I wouldn’t want to think people doted on us, hung on every word, or wanted to look like us.
+ - Irony is the recourse of the weak-minded wimp, I think. I hate bands that deliver their songs with knowing smiles on their faces, so that if those songs fall flat they can say ‘Ah well, we never really meant it anyway.’ It’s so dishonest.
+ - If any of our songs ever did make it on the top ten, I’d disband the group immediately.
+ - But everyone I know reaches a point where they throw out their arms and go beserk for a while; otherwise you never know what your limits are. I was just trying to find mine.
+ - When we started I wasn’t the singer. I was the drunk rhythm guitarist who wrote all these weird songs.
+ - For a period in the ’90s, I felt that the Cure was massively undervalued. But there has been a paradigm shift. There’s a bunch of newer bands coming up who’ve grown up listening to the Cure and don’t understand that you’re not supposed to like us.
+ - I don’t care where the Cure is placed in the pantheon of rock. I don’t care if we’re perceived as relevant. We’re never worried how we fit in. I don’t even want to fit in.
+ - True repentance has a double aspect. It looks upon things past with a weeping eye, and upon the future with a watchful eye.
+
+85 quotes

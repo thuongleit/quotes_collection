@@ -1,0 +1,21 @@
+ - Genitals are a great distraction to scholarship.
+ - Here we have a saying: a good friend is someone who visits you when you are in prison. But a really good friend is someone who comes to hear your lectures.
+ - Marriage is the most advanced form of warfare in the modern world.
+ - But you are involved in the world, and your actions have consequences for other people, and if you don’t recognize that, then that’s the supreme kind of cruelty. Everyone shares someone else’s fate to some extent.
+ - Culture is a way of coping with the world by defining it in detail.
+ - Reading someone else’s newspaper is like sleeping with someone else’s wife. Nothing seems to be precisely in the right place, and when you find what you are looking for, it is not clear then how to respond to it.
+ - Life is a crisis – so what!
+ - I like the English. They have the most rigid code if immorality in the world.
+ - With sociology one can do anything and call it work.
+ - The English are polite by telling lies. The Americans are polite by telling the truth.
+ - My experience of ships is that on them one makes an interesting discovery about the world. One finds one can do without it completely.
+ - Most beds aren’t as intimate as people think they are.
+ - The better class of Briton likes to send his children away to school until they’re old and intelligent enough to come home again. Then they’re too old and intelligent to want to.
+ - To put it another way: a conference is an elite meeting on equal terms; a congress is a group of elites meeting on opposite terms; a convention is a mob meeting on equal terms; a course is an elite instructing a mob; and a colloquium is a group capable of considering all these phenomena.
+ - I’ve often thought that my scruples about stealing books were the only thing that stood in the way of my being a really great scholar.
+ - On many American campuses the only qualification for admission was the ability actually to find the campus and then discover a parking space.
+ - Only the old are innocent. That is what the Victorians understood, and the Christians. Original sin is a property of the young. The old grow beyond corruption very quickly.
+ - English history is all about men liking their fathers, and American history is all about men hating their fathers and trying to burn down everything they ever did.
+ - You Liberals think that goats are just sheep from broken homes.
+
+19 quotes

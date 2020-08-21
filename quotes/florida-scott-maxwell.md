@@ -1,0 +1,26 @@
+ - You need only claim the events of your life to make yourself yours. When you truly possess all you have been and done, which may take some time, you are fierce with reality. When at last age has assembled you together, will it not be easy to let it all go, lived, balanced, over?
+ - Order, cleanliness, seemliness make a structure that is half support, half ritual, and – if it does not create it – maintains decency.
+ - Life does not acommodate you, it shatters you. It is meant to, and it couldn’t do it better. Every seed destroys its container or else there would be no fruition.
+ - I grow more intense as I age.
+ - Is there any stab as deep as wondering where and how much you failed those you loved.
+ - Age puzzles me. I thought it was a quiet time. My seventies were interesting and fairly serene, but my eighties are passionate. I grow more intense as I age.
+ - Another secret we carry is that though drab outside – wreckage to the eye, mirrors a mortification – inside we flame with a wild life that is almost incommunicable.
+ - I wonder if living alone makes one more alive. No precious energy goes in disagreement or compromise. No need to augment others, there is just yourself, just truth – a morsel – and you.
+ - One hardly dares to say that love is the core of the relationship, though love is sought for and created in relationship; love is rather the marvel when it is there, but it is not always there, and to know another and to be known by another – that is everything.
+ - We who are old know that age is more than a disability. It is an intense and varied experience, almost beyond our capacity at times, but something to be carried high.
+ - Making those we love happy sounds innocent as a dove, but it can be as destructive as a lion.
+ - Claim the events of your life! When you posses all you have been and done, you are fierce with reality.
+ - Is life a pregnancy? That would make death a birth.
+ - I feel most real when alone, even most alive when alone. Better to say that the liveliness of companionship and the liveliness of solitude differ, and the latter is never as exhausting as the former.
+ - It sometimes looks as though woman would not be woman unless man insisted upon it, since she tends so markedly to be just a human being when away from men, and only on their approach does she begin to play her required role.
+ - Difference of opinion has never been sufficiently appreciated. It is the unexpected, the unknowable, the divine irrationality of life that saves us.
+ - Anger must be the energy that has not yet found its fight channel.
+ - No matter how old a mother is, she watches her middle-aged children for signs of improvement.
+ - Admiration is one of the chief delights of living.
+ - We must find out for ourselves, otherwise it wouldn’t be discovery.
+ - I want to tell people approaching and perhaps fearing old age that it is a time of discovery. If they say “Of what?” I can only answer “We must find out for ourselves, otherwise it wouldn’t be discovery.”
+ - Difficulties are what makes it honorable and interesting to be alive.
+ - To know another, and to be known by another – that is everything.
+ - My kitchen linoleum is so black and shiny that I waltz while I wait for the kettle to boil. This pleasure is for the old who live alone.
+
+24 quotes

@@ -1,0 +1,216 @@
+ - Eat food. Not too much. Mostly plants.
+ - Cheap food is an illusion. There is no such thing as cheap food. The real cost of the food is paid somewhere. And if it isn’t paid at the cash register, it’s charged to the environment or to the public purse in the form of subsidies. And it’s charged to your health.
+ - You are what what you eat eats.
+ - Eating is a political act.
+ - The banquet is in the first bite.
+ - One of the reasons we eat fast food is that we don’t have to cook fast food. We are out-sourcing cooking to corporations, they tend to cook with far too much salt, fat, and sugar.
+ - Eat all the junk food you want as long as you cook it yourself.
+ - But that’s the challenge – to change the system more than it changes you.
+ - Better to pay the grocer than the doctor.
+ - Food is also about pleasure, about community, about family and spirituality, about our relationship to the natural world, and about expressing our identity. As long as humans have been taking meals together, eating has been as much about culture as it has been about biology.
+ - If you’re not hungry enough to eat an apple, you’re not hungry.
+ - Don’t eat anything your great-grandmother wouldn’t recognize as food.
+ - Okinawa, one of the longest-lived and healthiest populations in the world, practice a principle they call hara hachi bu: Eat until you are 80 percent full.
+ - It’s really important for your health, because you will never use as much salt and fat and sugar as a corporation will use cooking for you.
+ - The wonderful thing about food is you get three votes a day. Every one of them has the potential to change the world.
+ - When chickens get to live like chickens, they’ll taste like chickens, too.
+ - Time is the missing ingredient in our recipes-and in our lives.
+ - For is there any practice less selfish, any labor less alienated, any time less wasted, than preparing something delicious and nourishing for people you love?
+ - Corn is a greedy crop, as farmers will tell you.
+ - Food is not just fuel. Food is about family, food is about community, food is about identity. And we nourish all those things when we eat well.
+ - I think perfect objectivity is an unrealistic goal; fairness, however, is not.
+ - People say they don’t have time to cook, yet in the last few years we have found an extra two hours a day for the internet.
+ - A vegan in a Hummer has a lighter carbon footprint than a beef eater in a Prius.
+ - Don’t ingest foods made in places where everyone is required to wear a surgical cap.
+ - The whole problem of industrial agriculture is putting all of your eggs in one basket. We need to diversify our food chains as well as our fields so that when some of them fail, we can still eat.
+ - Eat mostly plants, especially leaves.
+ - Unlike any other form of thought, daydreaming is its own reward.
+ - When chopping onions, just chop onions.
+ - We all have different priorities. There’s no one single set of ethical rules.
+ - Shake the hand that feeds you.
+ - Spend as much time enjoying the meal as it took to prepare it.
+ - I don’t like writing as an expert. I like writing as an amateur. I like writing as an idiot. It’s much more fun to start in ignorance.
+ - Human health should now be thought of as a collective property of the human-associate d microbiota, as one group of researchers recently concluded in a landmark review article on microbial ecology – that is, as a function of the community, not the individual.
+ - The human animal is adapted to, and apparently can thrive on, an extraordinary range of different diets, but the Western diet, however you define it, does not seem to be one of them.
+ - Animals die even if you eat vegetables. That is the nature of farming. There is a certain sacrifice involved.
+ - The single greatest lesson the garden teaches is that our relationship to the planet need not be zero-sum, and that as long as the sun still shines and people still can plan and plant, think and do, we can, if we bother to try, find ways to provide for ourselves without diminishing the world.
+ - The whole of nature is a conjugation of the verb to eat, in the active and passive.
+ - Instead of eating exclusively from the sun, humanity now began to sip petroleum.
+ - The short, unhappy life of a corn-fed feedlot steer represents the ultimate triumph of industrial thinking over the logic of evolution.
+ - Nature abhors a garden.
+ - Cooking meat over a fire is one of the most stirring of those ritual acts, usually performed outdoors, on special occasions, in public, and by men.
+ - The shared meal elevates eating from a mechanical process of fueling the body to a ritual of family and community, from the mere animal biology to an act of culture.
+ - If it came from a plant, eat it; if it was made in a plant, don’t.
+ - Eat more like the French. Or the Japanese. Or the Italians. Or the Greeks.
+ - We are not only what we eat, but how we eat, too.
+ - Stop eating before you’re full.
+ - Rule No.37 The whiter the bread, the sooner you’ll be dead.
+ - Avoid food products containing ingredients that a third-grader cannot pronounce.
+ - It’s not food if it arrived through the window of your car.
+ - To eat with a fuller consciousness of all that is at stake might sound like a burden, but in practice few things in life afford quite as much satisfaction.
+ - Don’t eat anything incapable of rotting.
+ - Culture, when it comes to food, is of course a fancy word for your mom.
+ - Don’t get your fuel from the same place your car does.
+ - Cooking for yourself is the only sure way to take back control of your diet from the food scientists and food processors, and to guarantee you’re eating real food rather than edible foodlike substances, with their unhealthy oils, high-fructose corn syrup, and surfeit of salt.
+ - Eat with consciousness. When you eat with consciousness, and you know what you’re eating, and you eat it in full appreciation of what it is, it’s enormously satisfying.
+ - Avoid foods you see advertised on television.
+ - Rule No. 12: shop the peripheries of the supermarket and stay out of the middle.
+ - Design in nature is but a concatenation of accidents, culled by natural selection until the result is so beautiful or effective as to seem a miracle of purpose.
+ - Food consists not just in piles of chemicals; it also comprises a set of social and ecological relationships, reaching back to the land and outward to other people.
+ - This, for many people, is what’s most offensive about hunting – to some, disgusting: that it encourages, or allows, us not only to kill but to take a certain pleasure in killing.
+ - America ships tons of sugar cookies to Denmark and Denmark ships tons of sugar cookies to America. Wouldn’t it be more efficient just to swap recipes?
+ - The corporatization of something as basic and intimate as eating is, for many of us today, a good place to draw the line.
+ - If you can’t pronounce it, you shouldn’t be eating it.
+ - Nutrition science is where surgery was in about 1650, you know, really interesting and promising, but would you want to have them operate on you yet? I don’t think so.
+ - Be the kind of person who takes supplements – then skip the supplements.
+ - So that’s us: processed corn, walking.
+ - People forget that eating represents their most profound engagement with the natural world. Through agriculture is how we change the world, more than anything else we do.
+ - The correlation between poverty and obesity can be traced to agricultural policies and subsidies.
+ - Perhaps more than any other, the food industry is very sensitive to consumer demand.
+ - We have food deserts in our cities. We know that the distance you live from a supplier of fresh produce is one of the best predictors of your health. And in the inner city, people don’t have grocery stores. They have to get on a bus and take a long ride to get to a source of fresh produce.
+ - The history of modern nutritionism has been a history of macronutrients at war: protein against carbs; carbs against proteins, and then fats; fats against carbs.
+ - If people eat healthy food, they will save enough to compensate for the food price being healthier and spending less on healthcare.
+ - At home I serve the kind of food I know the story behind.
+ - Eating’s not a bad way to get to know a place.
+ - Why don’t we pay more attention to who our farmers are? We would never be as careless choosing an auto mechanic or babysitter as we are about who grows our food.
+ - For we would no longer need any reminding that however we choose to feed ourselves, we eat by the grace of nature, not industry, and what we’re eating is never anything more or less than the body of the world.
+ - People in Slow Food understand that food is an environmental issue.
+ - Tree planting is always a utopian enterprise, it seems to me, a wager on a future the planter doesn’t necessarily expect to witness.
+ - Plus, I love comic writing. Nothing satisfies me more than finding a funny way to phrase something.
+ - Farms produce a lot more than food; they also produce a kind of landscape and a kind of community.
+ - I think that the American diet is a very large part of the reason we’re spending 2.3 trillion dollar per year on health care in this country. 75% of that money goes to treat chronic diseases, preventable chronic diseases, most of those are linked to diet.
+ - Every major food company now has an organic division. There’s more capital going into organic agriculture than ever before.
+ - Man is by definition the first and primary weed. Weeds are not the other. Weeds are us.
+ - We do not subsidize organic food. We subsidize these four crops – five altogether, but one is cotton – and these are the building blocks of fast food. One of the ways you democratize healthy food is you support healthy food.
+ - A lawn is nature under totalitarian rule.
+ - If you care about the animals, actually, organic might not be the best answer because now we have organic feedlots, organic factory farms. If you care about the environment – pesticides, especially – organic is the answer.
+ - I made the unexpected but happy discovery that the answer to several of the questions that most occupied me was in fact one and the same: Cook.
+ - There is nothing wrong with special occasion foods, as long as every day is not a special occasion.
+ - I get letters from classes all the time. Say it’s assigned in someone’s 8th grade class, and the teacher asks everyone to write a letter to me about their impressions and what they learned. So, it’s incredibly gratifying to hear.
+ - The larger meaning here is that mainstream journalists simply cannot talk about things that the two parties agree on; this is the black hole of American politics.
+ - Eat foods made from ingredients that you can picture in their raw state or growing in nature.
+ - That anyone should need to write a book advising people to “eat food” could be taken as a measure of our alienation and confusion. Or we can choose to see it in a more positive light and count ourselves fortunate indeed that there is once again real food for us to eat.
+ - Curiously, the one bodily fluid of other people that doesn’t disgust us is the one produced by the human alone: tears. Consider the sole type of used tissue you’d be willing to share.
+ - I really do think that cooking is very important. It’s really important for the farmers because it means you’re going to be buying real food and not processed food, so that means the farmers will capture more of your food dollar.
+ - Not everyone can afford to eat well in America, which is a literal shame, but most of us can: Americans spend less than 10 percent of their income on food, less than the citizens of any other nation.
+ - In corn, I think I’ve found the key to the American food chain. If you look at a fast-food meal, a McDonald’s meal, virtually all the carbon in it – and what we eat is mostly carbon – comes from corn.
+ - Meat is a tremendous environmental challenge. It contributes enormous amounts of greenhouse gas, especially beef eating.
+ - Not that I’m against meat eating. But I think we’re eating too much.
+ - Cooking might be the most important factor in fixing our public health crisis. It’s the single most important thing you can do for your health.
+ - If you’re concerned about your health, you should probably avoid products that make health claims. Why? Because a health claim on a food product is a strong indication it’s not really food, and food is what you want to eat.
+ - There are many people who don’t do well on a vegetarian or vegan diet, that for them, meat is a very nutritious food. So, I’m not prepared to give up meat. I don’t think we need to give up meat, but we certainly need to change the way we raise meat and diminish the amount of it in our diet.
+ - Essentially, we have a system where wealthy farmers feed the poor crap and poor farmers feed the wealthy high-quality food.
+ - It’s more important that you eat vegetables, even if they are conventional – I’m talking about for your health – then it is until you wait until you can afford organic, or you can find organic.
+ - Most of the time pests and disease are just nature’s way of telling the farmer he’s doing something wrong.
+ - The best farming systems are ones where animals and plants are put into a synergistic relationship.
+ - Yes, I very much like to have a personal stake in what I’m writing about.
+ - The two things are synergistic, the health care crisis and the food crisis. Right now, to a large extent, the food industry’s biggest product is patients for the health care industry and we have to break that.
+ - We are at once the problem and the only possible solution to the problem.
+ - There’s something magical that happens when people eat from the same pot. The family meal is really the nursery of democracy. It’s where we learn to share; it’s where we learn to argue without offending. It’s just too critical to let go, as we’ve been so blithely doing.
+ - I’ve always been interested in plants because I’m a gardener, so I have a basic understanding of botany and things like that, but it’s all self-taught.
+ - People don’t eat nutrients, they eat foods, and foods can behave very differently than the nutrients they contain.
+ - In a way, the most morally troubling thing about killing chickens is that after a while it is no longer morally troubling.
+ - People who snack sometimes sometimes eat kind of thoughtlessly and end up eating a lot more. But in principle, it’s a really good idea if you can exert the kind of discipline needed.
+ - When you go to the grocery store, you find that the cheapest calories are the ones that are going to make you the fattest – the added sugars and fats in processed foods.
+ - One of the most irresponsible things we can do is eat in ignorance, without any awareness of what our eating is doing to the world or to other species.
+ - What an extraordinary achievement for a civilization: to have developed the one diet that reliably makes its people sick!
+ - In general, science journalism concerns itself with what has been published in a handful of peer-reviewed journals – Nature, Cell, The New England Journal of Medicine – which set the agenda.
+ - Without its daydreams, the self is apt to shrink down to the size and shape of the estimation of others.
+ - For great many species today, fitness means the ability to get along in a world in which humankind has become the most powerful evolutionary force.
+ - This is part of human nature, the desire to change consciousness.
+ - Fairness forces you – even when you’re writing a piece highly critical of, say, genetically modified food, as I have done – to make sure you represent the other side as extensively and as accurately as you possibly can.
+ - I realize that at a certain point if we’re going to change our food system, it’s going to be the next generation that’s going to be critical. This generation is very interested in food issues, very concerned about things like animal welfare and the impact of the food system on the environment.
+ - I agree insofar as we eat too much meat. We’re eating about 200 pounds per person per year. That’s about 9 ounces a day. That’s probably more than is good for us and it’s certainly more than is good for the environment.
+ - If you’re cooking food, you don’t have to count calories.
+ - In the end I’m still a writer. I’m still a journalist, and my first responsibility is to my readers. That’s where I have to draw the line.
+ - The Times has much less power than you think. I believe we attribute power to the media generally that it simply doesn’t have. It’s very convenient to blame the media, the same way we blame television for everything that’s going wrong in society.
+ - In a way, the more techniques you apply, the less important the ingredients are. It shouldn’t be that way, but you can get away with it. But if you’re highlighting this astounding artichoke, it’s got to be an astounding artichoke.
+ - I really try to write as an ordinary person would, not as someone who’s too sophisticated about food, or too knowledgeable about things.
+ - For it is only by forgetting that we ever really drop the thread of time and approach the experience of living in the present moment, so elusive in ordinary hours.
+ - We are what we eat, it is often said, but of course that’s only part of the story. We are what what we eat eats too.
+ - There’s been progress toward seeing that nature and culture are not opposing terms, and that wilderness is not the only kind of landscape for environmentalists to concern themselves with.
+ - I have no scientific training at all. I was an English major in school. Everything I learned about science I’ve learned as a journalist would, finding out what I needed to know.
+ - It has become much harder, in the past century, to tell where the garden leaves off and pure nature begins.
+ - I work very hard on finding good characters who can explain things to me, and I use them to help tell the story. I organize my pieces not just around people but around animals and plants, energy flows, the path that carbon takes through the food system.
+ - The longer I’ve looked at these questions, of the American diet and the public health crisis that we face because of that diet, the more I’ve come to the conclusion that the collapse of cooking is a big part of the problem.
+ - Eat food. Not too much. Mostly plants. That, more or less, is the short answer to the supposedly incredibly complicated and confusing question of what we humans should eat in order to be maximally healthy.
+ - A growing and increasingly influential movement of philosophers, ethicists, law professors and activists are convinced that the great moral struggle of our time will be for the rights of animals.
+ - My work has also motivated me to put a lot of time into seeking out good food and to spend more money on it.
+ - I think there’s a real tension between capitalism and morality. That’s not to say these systems aren’t powerful and useful, but to assume that capitalism can somehow assure moral behavior or character, that’s just a pipe dream.
+ - A French poet famously referred to the aroma of certain cheeses as the ‘pieds de Dieu’ – the feet of god. Just to be clear: foot odor of a particularly exalted quality, but still – foot odor.
+ - The soybean itself is a notably inauspicious staple food; it contains a whole assortment of “antinutrients” – compounds that actually block the body’s absorption of vitamins and minerals, interfere with the hormonal system, and prevent the body from breaking down the proteins of the soy itself.
+ - Of the seven deadly sins, surely it is pride that most commonly afflicts the gardener.
+ - All money for agricultural extension, land grant universities has been toward developing industrial food. Lots of money has been invested toward maximizing yield. If you took even a small amount of that money and put it toward organic research, I don’t have any doubts you could match those yields.
+ - Dreams of innocence are just that; they usually depend on a denial of reality that can be its own form of hubris.
+ - The big journals and Nobel laureates are the equivalent of Congressional leaders in science journalism.
+ - I try to write in the first person – the first person not of a journalist but of a carnivore, an eater, a gardener, someone trying to figure out what to feed his family.
+ - At either end of any food chain you find a biological system-a patch of soil, a human body-and the health of one is connected-literally-to the health of the other.
+ - In addition to contributing to erosion, pollution, food poisoning, and the dead zone, corn requires huge amounts of fossil fuel – it takes a half gallon of fossil fuel to produce a bushel of corn.
+ - Anyway, in my writing I’ve always been interested in finding places to stand, and I’ve found it very useful to have a direct experience of what I’m writing about.
+ - The interesting thing I learned was that if you’re really concerned about your health, the best decisions for your health turn out to be the best decisions for the farmers and the best decisions for the environment-and that there is no contradiction there.
+ - Experiences that banish irony are much better for living than for writing.
+ - Everything we eat begins with a plant turning solar energy into carbohydrates. Everything. Whether we’re eating meat or eating vegetables, it all begins there. So I’m always interested in taking things back to the beginning.
+ - The only one I have any trust in is storytelling – there’s a couple I have a lot of trust in.
+ - There’s always a tension in my world between the pragmatic and the practical and the theoretical. I have a very theoretical turn of mind, but I also like to test things in place.
+ - The environment is not just around you, it’s passing through you.
+ - I mean, we’re really making a quantum change in our relationship to the plant world with genetic modification.
+ - We could have a greener economy, even a greener consumer economy by changing the rules – whether it’s by taxing carbon or trading carbon, I’m not sure what – but in the end there’s just a fundamental problem with the sheer amount we’re consuming.
+ - Seeds have the power to preserve species, to enhance cultural as well as genetic diversity, to counter economic monopoly and to check the advance of conformity on all its many fronts.
+ - Half of all broccoli grown commercially in America today is a single variety- Marathon- notable for it’s high yield. The overwhelming majority of the chickens raised for meat in America are the same hybrid, the Cornish cross; more than 99 percent of turkeys are the Broad-Breasted Whites.
+ - We’re supposed to show people how the world is, to give them the tools they need to make good decisions as citizens or consumers. Depending on what your values are – the environment, your health, animal welfare – the answers are going to be different for every person.
+ - My writing is remarkably non-confessional; you actually learn very little about me.
+ - It’s been a mystery to me and a disappointment why conversation about health care reform hasn’t turned more attention to the subject of food.
+ - Without the potatoe, the balance of European power might never have tilted north.
+ - There’s an assumption that if someone writes in the first person it’s self-indulgent and self-regarding. I just look at it as a tool to understand the world and my experience in it. It’s not a tool to understand myself.
+ - A garden should make you feel you’ve entered privileged space – a place not just set apart but reverberant – and it seems to me that, to achieve this, the gardener must put some kind of twist on the existing landscape, turn its prose into something nearer poetry.
+ - We spend a remarkably small, shamefully small, percentage of our income on food. We manage to spend money on lots of other things. All up and down the social ladder you find people with plenty of money for cell phones, home entertainment systems, all other forms of entertainment.
+ - For at the same time many people seem eager to extend the circle of our moral consideration to animals, in our factory farms and laboratories we are inflicting more suffering on more animals than at any time in history.
+ - You have to draw lines between being a journalist and an activist.
+ - The other thing that soy contributes to, of course, is hydrogenated oil. This is the main oil. This is the fast-food oil.
+ - Twenty thousand birds moved away from me as one, like a ground-hugging white cloud, clucking softly.
+ - Even people who like the kind of food on offer, are coming to recognize that eating from this food chain is not conducive to good health.
+ - Students are very engaged by the issues, and it’s not surprising because food choices are one of the few powers a child has.
+ - I’m kind of a homebody, and the rhythm of my thinking and work is starting at home, going out and coming back, bringing back news, bringing back information, applying it.
+ - We need to create incentives for our ranchers and farmers to manage their lands to maximize carbon sequestration.
+ - A growing body of research suggests that many of the health problems associated with eating beef are really problems with corn-fed beef.
+ - You want to say the thing that will drive everybody in the direction you want to go. But as a writer you have a pact with your readers that you’ll be really straight with them at all times.
+ - There are things we know and things we don’t know about food. But there are certain basic things we do know, and that’s what I’ve tried to build these rules on.
+ - Most important thing about your diet is who cooks it, a human or a corporation.
+ - I’m not talking about having to consult Julia Child before you can take a pot off the rack. I think that’s something we can all do more and do better.
+ - Corn is an efficient way to get energy calories off the land and soybeans are an efficient way of getting protein off the land, so we’ve designed a food system that produces a lot of cheap corn and soybeans resulting in a lot of cheap fast food.
+ - The energy I was sensing in audiences was political energy, as much as anything else.
+ - I have had the good fortune to see how my articles have directly benefited some farmers and helped build markets for their products in a way that preserves land from development. That makes me a hopeless optimist.
+ - The Congressional leaders set the agenda for journalism; it’s not the other way around.
+ - Corporations cook very differently from how people do.
+ - I think using waste oils as fuel makes sense. We do waste a huge amount of vegetable oil in the United States and using that as a fuel source strikes me as fine.
+ - What the Soviet Union was to the ideology of Marxism, the Low-Fat Campaign is to the ideology of nutritionism – its supreme test and, as now is coming clear, its most abject failure.
+ - Journalism is one set of tools – one toolkit I have. One vocabulary, one lens.
+ - I still think we have a long way to go on rebuilding a culture of cooking. Everyday simple cooking.
+ - There’s no sacrifice in eating well, there is no sacrifice in pleasure. To the contrary, the best-grown food is actually the tastiest.
+ - If you’re going to change the food system, there is a lot that you, the consumer, can do on your own; but in the end, it will be very important to make changes at the national level.
+ - Do all your eating at a table.
+ - Any kind of food you eat is going to have an impact on the world. If you switch to tofu and get off meat, the soy bean is doing enormous damage in the Amazon and all throughout South America.
+ - The problem is that we let special-occasion food become everyday food. That goes for soda and french fries.
+ - The real food is not being advertised.
+ - I’m very hopeful that we’ll see some change in our food system. I don’t know how far we’ll go, or how quickly we’ll get there, but there is no question that a significant percentage of the American public is dissatisfied with the food system.
+ - Were the walls of our meat industry to become transparent, literally or even figuratively, we would not long continue to raise, kill, and eat animals the way we do.
+ - My hope is that if people have the knowledge, and if they actually see where their food comes from and have access to the information, they will make better ethical choices.
+ - It’s very important to get out, to do reporting. It’s also really interesting. I come at it as a journalist, and I think that’s helped me, and I come at it as someone who sees nature wherever he looks, and that helps.
+ - High-quality food is better for your health.
+ - The gardener cultivates wildness, but he does so carefully and respectfully, in full recognition of its mystery.
+ - Much more has to be done to democratize the food movement. One of the reasons that healthy food is more expensive than unhealthy food is that the government supports unhealthy food and does very little to support healthy food, whether you mean organic or grass-fed or whatever.
+ - Lawns are a form of television.
+ - Now that I know how supermarket meat is made, I regard eating it as a somewhat risky proposition. I know how those animals live and what’s on their hides when they go to slaughter, so I don’t buy industrial meat.
+ - For though we may be the Earth’s gardeners, we are also its weeds. And we won’t get anywhere until we come to terms with this crucial ambiguity about our role – that we are at once the problem and the only possible solution to the problem.
+ - Don’t eat breakfast cereals that change the color of your milk.
+ - One USDA scientist went so far as to claim that there has never been a documented case of food-borne illness from eating fermented vegetables.
+ - The issue of snacking is complicated. In principle, “grazing” is probably a good idea. It would even out the insulin spikes and things like that from eating large meals. The problem is it makes it harder for people to control the amount they’re eating.
+ - The garden suggests there might be a place where we can meet nature halfway.
+ - We used to eat economically. One of the things that happened is that we lost the cultural skills that used to allow people to eat well cheaply. For example making three or four meals from a chicken, rather than buying chicken breasts.
+ - People have traditionally turned to ritual to help them frame and acknowledge and ultimately even find joy in just such a paradox of being human – in the fact that so much of what we desire for our happiness and need for our survival comes at a heavy cost.
+ - For a product to carry a health claim on its package, it must first have a package, so right off the bat it’s more likely to be processed rather than a whole food.
+ - You cannot eat apples planted from seeds. They must be grafted, cloned.
+ - The things journalists should pay attention to are the issues the political leadership agrees on, rather than to their supposed antagonisms.
+ - If you’re a politician it’s very useful to say that we can have economic growth and at the same time green the economy, but writers just have to face up to the fact that there are some fundamental tensions between the economic order and the biological order.
+
+214 quotes

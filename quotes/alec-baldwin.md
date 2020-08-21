@@ -1,0 +1,58 @@
+ - You ask me if I have a God complex? Let me tell you something – I am God.
+ - Only one thing counts in this life – get them to sign on the line that is dotted.
+ - How can we turn our back on an endeavor which increases our children’s cultural intelligence, heightens individual sensitivity and deepens our collective sense of humanity? I suggest to you that we cannot.
+ - Never go with a hippie to a second location.
+ - I just love Rome. It really does cast a spell on you.
+ - Books make great gifts because you don’t have to plug them in.
+ - If you do get married, get a prenup. It’s not about money at all. It’s about having a document that states how you’ll dissolve your marriage while you still have a shred of respect for each other.
+ - Denzel Washington’s career is an enormous luxury. Compare him to Wesley Snipes.
+ - When you’re with someone, you want everything to be great. And that’s the pressure that you put on, and what you just can’t do.
+ - I don’t think acting is addictive. If I stopped acting tomorrow, I really wouldn’t care. If you told me that I would have to sell real estate in New York City to look after my family, that would be fine with me.
+ - I would like to devote myself to the cause of parental alienation.
+ - Do I regret getting married? It’s hard for me to say anything because ultimately we’re talking about the mother of my child.
+ - Every time we sit down to eat, we make a choice: Please choose vegetarianism. Do it for animals. Do it for the environment and do it for your health.
+ - When I am sitting home, and I am happy and I have my TV show and I don’t need to work and I’m married now and I like to be in line by my pool with my yoga instructor wife and eating fruit and taking in the sun, then life is good.
+ - Most women in leading roles are very boyish looking. The one girl working right now who I think is a real beauty in a classic sense – the only real 12-cylinder engine – is Catherine Zeta-Jones.
+ - I never walked out the door and said, “Mirror, mirror on the wall, who’s the fairest Baldwin brother of them all?”
+ - I consider myself a pretty good conversationalist, but you wind up being downgraded to idiot status when you don’t speak the language!
+ - Success begets success. I’ve been offered a lot of movies now that ‘30 Rock’ has been successful.
+ - If we were in another country, we would stone Henry Hyde to death and we would go to their homes and kill their wives and their children. We would kill their families, for what they’re doing to this country.
+ - Getting older is hard.
+ - Let’s face facts, this is visual medium, there’s a very high premium put on people who are good-looking. But the minute you rely on that you get yourself in trouble. You certainly don’t make a career out of that anymore as an actor.
+ - When I’m not working, I dress like a surfer. I look like I’m going to come into your house and clean your pool.
+ - All those animals live a pretty dreary life, then they get chopped up and put on a griddle.
+ - I suppose if the offending paparazzi was wearing a hoodie and I shot him, it would all blow over.
+ - I don’t want to be throwing the football on the front yard when I’m 75. I mean, I’m not opposed to men doing that. But I don’t think it’s gonna work for me.
+ - I had a marriage that I came to in the same way everybody else comes to a marriage. We all take chances when we get married.
+ - In the film business, when you’re young, you just want to work. But when you’re older, it has more to do with who’s involved with the project – who you’re going to get in the boat with.
+ - A lot of people want to not wear a tie when they go to a restaurant. They feel they don’t have to wear a tie. I think it’s kind of a statement they’re making. I don’t know what that statement is. I haven’t quite figured that out yet.
+ - I collect travel alarm clocks. I was in a flea market in France once, in 1994, and I opened up this beautiful Jaeger-LeCoultre folding eight-day winding clock folded into a beautiful case, and I went, ‘Wow, man.’ And I’ve been collecting travel alarm clocks since 1994.
+ - One generation might like you, then 15 years later the next is responding to somebody else.
+ - Marriage changes things because there’s a lot more at stake. You can’t get too toxic because you have to live together. No one can reach for the nuclear button too quickly.
+ - Down with Dukes of Hazzard!
+ - You have actors who begin at a certain young age and there’s very little change in their technique and the depth of their performances; they’re the same 30 years later.
+ - I am still playing ‘Words With Friends,’ but on Virgin Atlantic.
+ - I wanted to work with Cate Blanchett. She is one of the five greatest movie actresses of her generation.
+ - If I add a negative element to the piece, you are not a villain necessarily but you bring a stronger, more negative aspect to the film, and if you don’t do that, the film goes off balance where you can’t worry about likability, you have to come in and play the part the best way that you can.
+ - I probably have to move out of New York. I just can’t live in New York anymore.
+ - If Obama was white, he’d be up by 17 points.
+ - I think I do want to go into politics. I really, really do. And I don’t know if I will.
+ - My life, in some ways, has been a half-measure. I didn’t commit myself all the way to my marriage and family, because I would have given up more. And I didn’t go all the way with just being completely selfish. I always wonder where my career would be if I was more selfish.
+ - To be in this business and have tremendous integrity and only make distinguished choices is very tough.
+ - One of the truest things to commit to is your own nature.
+ - Great acting can be almost a psychotic mix of self-consciousness and unself-consciousness. And thats the terrible conflict. You have to be free to jump off into that volcano and you have to be pathologically self-conscious.
+ - You’ve got to see someone at their worst and ask yourself if you can handle it.
+ - You can tell Gov. Bush to rest assured that I’m not going to leave the country because we have to get him out of office and we have to get his brother out of office in 2004. We’re not resting until we get that done.
+ - In the theater, you act more of the time. In the movies, you get to act maybe 20 or 30 minutes of the day. I love acting in movies. It’s just different.
+ - Rolling torture wagons for nature’s most dignified creature.
+ - I think the older I’ve gotten the more, like most people, my appreciation shifts towards things that are very difficult, where you see people who have put in tremendous hours and hours of commitment.
+ - Ultraconservatism is, to me, so illogical. Everywhere you go, conservatives want to cut, cut, cut, cut – cut money for powerless people. So, that’s the biggest problem I have with them.
+ - Behind each number is a person, a victim, whose individual story is ghastly.
+ - I don’t think I really have a talent for movie acting. I’m not bad at it, but I don’t think I really have a talent for it.
+ - When I told my parents, ‘I’m going to be an actor,’ they screamed and wept and freaked out.
+ - I think I’m just like a lot of people who had nothing.
+ - We both grew into the people we wanted each other to be.
+ - I am so much of a mind now to be in the audience, to watch and to experience, and to feel, rather than having to get up and perform, I want my life to be less about performing.
+ - Everybody I’ve ever worked with – 99.9 percent of the time, I’ve had a successful or very agreeable experience with.
+
+56 quotes

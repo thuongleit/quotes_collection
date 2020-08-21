@@ -1,0 +1,24 @@
+ - Ain’t no right way to do the wrong thing.
+ - You cannot get ahead while you are getting even.
+ - Demagoguery beats data in making public policy.
+ - We’re going to have a tax cut. Today’s American family is overtaxed at all levels.
+ - Politics will sooner or later make fools of everybody.
+ - George Washington might have become our king, but chose not to. His governing idea was that government is our servant because we are inherently free. It is an idea too many in government today forget.
+ - Conservatives have a deeper intellect and tend to have occupations of the brain in fields like engineering, science, and economics. Liberals, on the other hand, tend to flock to occupations of the heart.
+ - Hillary Clinton bothers me a lot. I realized the other day that her thoughts sound a lot like Karl Marx. She hangs around a lot of Marxists. All her friends are Marxists.
+ - The American Dream is not to own your own home, but to get your kids out of it.
+ - Spike Lee is obviously more stupid than anyone can be by accident.
+ - I would hate to have gone through life as a beautiful woman because they all too often get discounted.
+ - At least if we don’t close down the Environmental Protection Agency, we at least put a snaffle bit on them and ride the pony down.
+ - The average family pays more in taxes than it spends on food, clothing, and shelter combined.
+ - The people themselves, not their government, should be trusted with spending their own money and making their own decisions.
+ - The Democratic Party has pretty much abandoned all the things that they cherish.
+ - Virtually all bad ideas come from universities, bad ideas that only survive when insulated from reality.
+ - Make no mistake about it. These are not ‘kookie’ birds. Right now the greatest player, the big tent on the political scene in America, is called the Tea Party movement.
+ - I don’t believe America will justifiably make an unprovoked attack on another nation. It would not be consistent with what we have been as a nation or what we should be as a nation.
+ - Because the American people champion liberty, more people in the world live free today than at any time in history. Yet, there is more to be done and it is America who will lead the way.
+ - The reason families need two incomes today is not to support themselves but to support the government.
+ - The arrangement was simply FreedomWorks paid Glenn Beck money and Glenn Beck said nice things about FreedomWorks on the air. I saw that a million dollars went to Beck this past year, that was the annual expenditure. I put it down now as basically as paid advertising for FreedomWorks by Beck.
+ - Programs that pay farmers not to farm often devastate rural areas. The reductions hurt everyone from fertilizer companies to tractor salesmen.
+
+22 quotes

@@ -1,0 +1,88 @@
+ - Capitalism makes people unequally rich. Communism makes people equally poor.
+ - Pessimists are usually right and optimists are usually wrong but all the great changes have been accomplished by optimists.
+ - Your boss doesn’t care what you know, because the Google machine knows everything. Your boss cares about what you can do with what you know. That’s the only thing your boss will pay for.
+ - Big breakthroughs happen when what is suddenly possible meets what is desperately needed.
+ - If you don’t visit the bad neighborhoods, the bad neighborhoods are going to visit you.
+ - Remember, in China when you are one in a million, there are 1,300 other people just like you.
+ - Geopolitics is all about leverage. We cannot make ourselves safer abroad unless we change our behavior at home.
+ - Do you know what my favorite renewable fuel is? An ecosystem for innovation.
+ - Change your leaders, not your light bulbs.
+ - A vision without resources is an hallucination.
+ - Supply chains cannot tolerate even 24 hours of disruption. So if you lose your place in the supply chain because of wild behavior you could lose a lot. It would be like pouring cement down one of your oil wells.
+ - Desktop freelancers and innovative startups all over the world.
+ - The ideal country in a flat world is the one with no natural resources, because countries with no natural resources tend to dig inside themselves. They try to tap the energy, entrepreneurship, creativity, and intelligence of their own people-men and women-rather than drill an oil well.
+ - We have to be the best global citizens we can be.
+ - McDonald’s cannot flourish without McDonnell Douglas, the designer of the F-15.
+ - The hidden hand of the market will never work without a hidden fist. McDonald’s cannot flourish without McDonnell Douglas, the designer of the F-15. And the hidden fist that keeps the world safe for Silicon Valley’s technologies to flourish is called the US Army, Air Force, Navy and Marine Corps.
+ - The Dell Theory of Conflict Prevention argues that no two countries that are both part of the same global supply chain will ever fight a war as long as they are each part of that supply chain.
+ - What we have in the Bush team is a faith-based administration. It launched a faith-based war in Iraq, on the basis of faith-based intelligence, with a faith-based plan for Iraqi reconstruction, supported by faith-based tax cuts to generate faith-based revenues.
+ - Basically all the world’s computer parts come from the same supply chain that runs from Korea, down through coastal China, over to Taiwan, and down to Malaysia.
+ - I was in Bangalore, India, the Silicon Valley of India, when I realized that the world was flat.
+ - The first rule of holes is when you’re in one, stop digging. When you’re in three, bring a lot of shovels.
+ - No two countries that both had McDonald’s had fought a war against each other since each got its McDonald’s.
+ - No matter what your profession – doctor, lawyer, architect, accountant – if you are an American, you better be good at the touchy-feely service stuff, because anything that can be digitized can be outsourced to either the smartest or the cheapest producer.
+ - Guantanamo Bay is the anti-Statue of Liberty.
+ - In China today, Bill Gates is Britney Spears. In America today, Britney Spears is Britney Spears-and that is our problem.
+ - Criticizing Israel is not anti-Semitic, and saying so is vile. But singling out Israel for opprobrium and international sanction out of all proportion to any other party in the Middle East is anti-Semitic, and not saying so is dishonest.
+ - The hidden hand of the market will never work without a hidden fist.
+ - Never before in the history of the planet have so many people, on their own, had the ability to find so much information about so many things and about so many other people.
+ - When I was growing up, my parents told me, ‘Finish your dinner. People in China and India are starving.’ I tell my daughters, ‘Finish your homework. People in India and China are starving for your job.’
+ - The only engine big enough to impact Mother Nature is Father Greed.
+ - There is no substitute for face-to-face reporting and research.
+ - I would say that in 2000, we understand as much about how today’s system of globalization is going to work as we understood about how the Cold War system was going to work in 1946.
+ - American young people have got to understand from an early age that the world pays off on results, not on effort. Not everyone should win a prize no matter where he or she finishes.
+ - The country that owns green, that dominates that industry, is going to have the most energy security, national security, economic security, competitive companies, healthy population and, most of all, global respect.
+ - I’m from Minnesota. I’m optimistic. I mean, that’s just who I am.
+ - C’mon kids! Wake up and smell the CO2! Take over your administration building, occupy your university president’s office, or storm in on the next meeting of your college’s board of trustees until they agree to make your school carbon neutral.
+ - Tap into people’s dignity and they will do anything for you. Ignore it, and they won’t lift a finger.
+ - You’ll know the green revolution has been won when the word ‘green’ disappears.
+ - When widely followed public figures feel free to say anything, without any fact-checking, it becomes impossible for a democracy to think intelligently about big issues.
+ - Every golf course should have its carbon rating on the scorecard, alongside its Course Rating, Slope, par and yardage.
+ - I firmly believe that the next great breakthrough in bioscience could come from a 15-year-old who downloads the human genome in Egypt.
+ - Communism was a great system for making people equally poor – in fact, there was no better system in the world for that than communism. Capitalism made people unequally rich.
+ - You take one bomber and deploy him in Baghdad, and another is manufactured in Riyadh the next day. It’s exactly like when you take the toy off the shelf at Wal-Mart and another is made in Shen Zhen the next day.
+ - Almost all the students who make it to Caltech, one of the best scientific universities in the world, come from public schools. So it can be done.
+ - Sometimes, when my wife and I were going out to dinner, I would take my laptop with me and work in the car, so as to take advantage of the half hour going and coming.
+ - Rock stars get room keys, I get business cards. Wherever I go I meet innovators of wind power equipment, solar energy operators.
+ - It created a global platform that allowed more people to plug and play, collaborate and compete, share knowledge and share work, than anything we have ever seen in the history of the world.
+ - What every employer is looking for is not someone who can do the job, but someone who can reinvent the job.
+ - It is hard to partner with someone when you become so radioactive no one wants to stand next to you.
+ - Rock stars get room keys, I get business cards.
+ - The poverty fighters resent the climate-change folks; climate folks hold summits without reference to biodiversity; the food advocates resist the biodiversity protectors. They all need to go on safari together.
+ - The historical debate is over. The answer is free-market capitalism.
+ - We’re going in the wrong direction and I think the only way to counter that is to bring the story home in really concrete ways to people – in ways that kids can understand and non-scientists can understand.
+ - There’s a difference between being able to make long distance phone calls cheaper on the Internet and walking around Riyadh with a PDA where you can have all of Google in your pocket. It’s a difference in degree that’s so enormous it becomes a difference in kind.
+ - Once people get a taste for whatever you want to call it – economic independence, a better lifestyle, and a better life for their children – they grab on to that and don’t want to give it up.
+ - No, most of our political elite has not realized that the world is flat.
+ - We need to become energy independent or at least aspire to that.
+ - We have to fight the terrorists as if there were no rules and preserve our open society as if there were no terrorists.
+ - I attended public school with the same group of kids from K through 12.
+ - Everything I’ve ever gotten in life is largely due to the fact that I was born in this country, America, at this time with these opportunities for its citizens. It is the primary obligation of our generation to turn over a similar America to our kids.
+ - Just because we can’t sell shares in nature doesn’t mean it has no value.
+ - What is al Qaeda? It’s an open source religious political movement that works off the global supply chain.
+ - That’s right-the striking thing about greenhouse gases is the diversity of sources that emit them. A herd of cattle belching can be worse than highway full of hummers.
+ - Saudi hijackers first came into contact with al-Qaeda and went through Terrorism 101 when they signed up for the jihad in Afghanistan.
+ - Every sport needs its temple, its cathedral.
+ - Hope and optimism aren’t just attitudes, they are life strategies.
+ - What about the rest of life? Respect for the sanctity of life, if you believe that it begins at conception, cannot end at birth.
+ - We are led by lawyers who do not understand either technology or balance sheets.
+ - I’m a capitalist. I believe in capitalism. But capitalism only works if you have safety nets to deal with people who are naturally left behind and brutalized by it.
+ - Benjamin Netanyahu understands that the standing ovation he got in Congress this year was not for his politics. That ovation was bought and paid for by the Israel lobby.
+ - We’ve gone from thinking the fuels that powered our growth were inexpensive, inexhaustible and benign to understanding they are exhaustible, expensive and toxic. Once you frame the problem that way, people will look at solutions differently.
+ - A golf course should aspire to generate as much energy as it consumes – golf should be leading the way toward energy net zero.
+ - America needs rebooting.
+ - When you study history and look at every civilization that has grown up and died off, they all leave one remnant: a major sports colosseum at the heart of their capital. Our fate can be different; but only if we start doing things differently.
+ - There is something more severe than the problem with Thomas Friedman, which can be generalized to represent someone causing action while being completely unaccountable for his words.
+ - Two things are going on at the same time with the flattening of the world: The relentless quest for efficiency is squeezing some of the fat out of life.
+ - If you don’t have an ethic of conservation, you basically have a license to drive a Hummer through the Amazon.
+ - Our kids are going to be so angry with us one day. We’ve charged their future on our Visa cards.
+ - I am hoping, though, that many of them have kids, who, when they have a moment to take a break from their iPods, Internet, or Google, will explain to their parents running the country just how the world is being flattened.
+ - Several technological and political forces have converged, and that has produced a global, Web-enabled playing field that allows for multiple forms of collaboration without regard to geography or distance – or soon, even language.
+ - Yes, the world is now flat for publishing as well.
+ - We’ve given Iraq six months and I don’t think things are really working out, so we should probably bring our troops home.
+ - I love America. I think it’s the best country in the world. But I also think we’re not tending to our sauce.
+ - In the future, how we educate our children may prove to be more important than how much we educate them.
+ - When you lose your job, the unemployment rate isn’t four percent, it’s 100 percent.
+ - You win the presidency by connecting with the American people’s gut insecurities and aspirations. You win with a concept.
+
+86 quotes

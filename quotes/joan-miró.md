@@ -1,0 +1,39 @@
+ - You can look at a picture for a week and never think of it again. You can also look at the picture for a second and think of it all your life.
+ - To gain freedom is to gain simplicity.
+ - The painting rises from the brushstrokes as a poem rises from the words. The meaning comes later.
+ - The spectacle of the sky overwhelms me. I’m overwhelmed when I see, in an immense sky, the crescent of the moon or the sun.
+ - I work like a gardener.
+ - A simple line painted with the brush can lead to freedom and happiness.
+ - More important than a work of art itself is what it will sow. Art can die, a painting can disappear. What counts is the seed.
+ - My way is to seize an image the moment it has formed in my mind, to trap it as a bird and to pin it at once to canvas. Afterward I start to tame it, to master it. I bring it under control and I develop it.
+ - The more ignoble I find life, the more strongly I react by contradiction, in humour and in an outburst of liberty and expansion.
+ - Poetry and painting are done in the same way you make love; it’s an exchange of blood, a total embrace – without caution, without any thought of protecting yourself.
+ - The works must be conceived with fire in the soul but executed with clinical coolness.
+ - I believe that to do anything in this world one needs a love for risk and adventure, and above all, to be able to do without what middle-class families call “future.”
+ - The spectacle of the sky overwhelms me. Im overwhelmed when I see, in an immense sky, the crescent of the moon, or the sun. There, in my pictures, tiny forms in huge empty spaces. Empty spaces, empty horizons, empty plains – everything which is bare has always greatly impressed me.
+ - I think of my studio as a vegetable garden, where things follow their natural course. They grow, they ripen. You have to graft. You have to water.
+ - If you have any notion of where you are going, you will never get anywhere.
+ - Painting or poetry is made as one makes love – a total embrace, prudence thrown to the winds, nothing held back.
+ - For me, a painting must give off sparks. It must dazzle like the beauty of a woman or a poem.
+ - I try to apply colors like words that shape poems, like notes that shape music.
+ - I throw down the gauntlet to chance. For example, I prepare the ground for a picture by cleaning my brush over the canvas. Spilling a little turpentine can also be helpful.
+ - I start from something considered dead and arrive at a world. And when I put a title on it, it becomes even more alive.
+ - What I will no longer accept is the mediocre life of a modest little gentleman.
+ - The more I work, the more I want to work.
+ - The picture should be fecund. It must bring a world to birth.
+ - As regards my means of expression, I try my hardest to achieve the maximum of clarity, power, and plastic aggressiveness; a physical sensation to begin with, followed up by an impact on the psyche.
+ - For me, a picture should be like sparks. It must dazzle like the beauty of a woman or a poem. It must have radiance; it must be like those stones which Pyrenean shepherds use to light their pipes.
+ - For me an object is something living. This cigarette or this box of matches contains a secret life much more intense than that of certain human beings.
+ - I make no distinction between poetry and painting.
+ - When I stand before a canvas, I never know what I’ll do, and I am the first one surprised at what comes out.
+ - Art class was like a religious ceremony to me. I would wash my hands carefully before touching paper or pencils. The instruments of work were sacred objects to me.
+ - The simplest things give me ideas.
+ - Throughout the time in which I am working on a canvas I can feel how I am beginning to love it, with that love which is born of slow comprehension.
+ - I feel the need of attaining the maximum of intensity with the minimum of means. It is this which has led me to give my painting a character of even greater bareness.
+ - A modeled form is less striking than one which is not. Modeling prevents shock and limits movement to the visual depth. Without modeling or chiaroscuro depth is limitless: movement can stretch to infinity.
+ - That which interests me above all else is the calligraphy of a tree or the tiles of a roof, and I mean leaf by leaf, branch by branch, blade by blade of grass.
+ - My tendency towards bareness and simplification has been practiced in three fields: modeling, colors, and the figuration of the personages.
+ - Little by little, I’ve reached the stage of using only a small number of forms and colors. It’s not the first time that painting has been done with a very narrow range of colors. The frescoes of the tenth century are painted like this. For me, they are magnificent things.
+ - My characters have undergone the same process of simplification as the colors. Now that they have been simplified, they appear more human and alive than if they had been represented in all their details.
+
+37 quotes

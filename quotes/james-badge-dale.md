@@ -1,0 +1,29 @@
+ - I think pressure when you work is good. It forces you to take risks and to do other things.
+ - I want to show up to work and take risks. I don’t ever want to play it safe.
+ - I like pressure. Pressure is good.
+ - Speaking of childhood fantasy, we were doing a Western, but we were also just hanging out. You work, and you ride and ride and ride, and then, for the next two hours, you look for a place to kick out, in this amazing canyon with so much heritage and so much history.
+ - I always like playing the bad guys. They have more fun! I want a director to come up to me and say, “You can’t get too weird!” That’s a good thing. I loved hearing that. Let me play. I like to play around.
+ - The biggest regret I have about ‘Rubicon’ is that we didn’t end it. Sometimes you do these shows and you don’t have the opportunity to get closure. Stories are supposed to have a beginning, middle and an end.
+ - The older I get, the more vegetables I eat. I can’t stress that more. Eating healthy really affects my work. You not only need to be physically prepared, but mentally and spiritually.
+ - I was really lucky that, through my 20s, I got to work with some amazing people, and I tried to sit back and watch and learn.
+ - As an audience member, I live vicariously through the characters I watch or read about. There’s something very relatable about comic-book characters. They’re never perfect. They’re flawed people put in extraordinary circumstances.
+ - I went through about 40 different hats until we found one that fit. It had to fit me and fit the character, more importantly, and whatever that thing was that we were trying to create with him.
+ - It was dangerous stuff. We were running on top of moving trains. We got to do amazing things. I like doing stuff like that. I enjoy it. But believe me, there were things that were so dangerous that I wasn’t touching them.
+ - I’ve never been someone to count lines, look at it that way.
+ - You spend all this time, as a child, coming up with these fantasy stories, and here I am, sleeping in a treehouse, in the middle of Canyon de Chelly, shooting a Western. That’s a bit of a once-in-a-lifetime experience.
+ - In a weird way, I live vicariously through the characters I play as an actor.
+ - I got beat up by the comic-book kids when I was younger! They were cooler than me. Talk about levels of geekdom, I was a couple rungs below the kids who read comic books. Yeah. Not so cool, man.
+ - I’ve been trying to figure out what moment The Lone Ranger came into our lives. We’ve always just known about The Lone Ranger. It’s common knowledge. I don’t ever remember watching the television show.
+ - You want to work with good people. When you’re working with good people, it frees you up. There’s nothing worse, as an actor, to show up and then feel like you have to protect yourself somehow because you don’t feel like you’re in good hands.
+ - I don’t know why I just remembered this, and I haven’t told anybody this, but we were shooting in Canyon de Chelly and we were so far up the canyon. Once we were up there, we were up there. There was no going back to your trailers.
+ - My experience as a young actor on network television was that I couldn’t make it work. I was drowning as an actor.
+ - Kids will tease you for just about anything.
+ - I’ve always thought that I’m kind of a cross between a young Bill Clinton and Lyle Lovett. And I just want to say I’m proud of that. Those are two good looking guys.
+ - When you’re outside in those elements, there’s something out there that takes it out of you, so you work real hard. It was physically demanding, but in a very good way. It’s not a bad thing. It’s a good thing, when things are physically demanding ’cause everyone is rising to the occasion.
+ - I’ve done a number of films that no one has ever seen, and that’s probably a good thing.
+ - I can’t go to the hardware store, cut a sheet in half and staple it to the window anymore. It doesn’t fly.
+ - I always like playing the bad guys. They have more fun!
+ - I’m a pretty private person, so I’d like to say I’m a good ear and that I keep my mouth shut.
+ - I grew up in a crazy, gypsy-like household of actors, dancers and loony Broadway people. It was their way of life, and I didn’t know anything else.
+
+27 quotes

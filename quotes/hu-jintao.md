@@ -1,0 +1,31 @@
+ - Diversity in the world is a basic characteristic of human society, and also the key condition for a lively and dynamic world as we see today.
+ - The Chinese culture belongs not only to the Chinese but also to the whole world.
+ - China is a developing country with a huge population, and also a developing country in a crucial stage of reform. In this context, China still faces many challenges in economic and social development. And a lot still needs to be done in China, in terms of human rights.
+ - We will never allow anybody to separate Taiwan from China.
+ - Global climate change has a profound impact on the survival and development of mankind. It is a major challenge facing all countries.
+ - All foreign companies registered in China are Chinese enterprises. Their innovation, production and business operations in China enjoy the same treatment as Chinese enterprises.
+ - The world economy today is recovering slowly, and there are still some destabilising factors and uncertainties. The underlying impact of the international financial crisis is far from over.
+ - China attaches great importance to the utilization of renewable resources, making it one of the important moves to promote economic and social development.
+ - China has adopted and is implementing its national climate change program. This includes mandatory national targets for reducing energy intensity and discharge of major pollutants and increasing forest coverage and the share of renewable energy for the period of 2005 through 2010.
+ - The political restructuring we pursue in China is aimed at advancing the self-improvement and development of the socialist political system. We will continue to expand people’s democracy and build a socialist country under the rule of law in keeping with China’s national conditions.
+ - The overall strength of Chinese culture and its international influence is not commensurate with China’s international status. The international culture of the West is strong while we are weak.
+ - We will make every effort with utmost sincerity to achieve a peaceful reunification of the country.
+ - Tibet is a beautiful and richly endowed region of our great motherland.
+ - Our task is tough, and our time is limited. Party organizations and governments at all levels must give priority to emission reduction and bring the idea deep into people’s hearts.
+ - Like other countries in the world, China must uphold its own sovereignty, territorial integrity and development interests. At the same time, we are willing to properly handle differences and disagreements in state-to-state relations.
+ - Only reform and opening up can develop China. We must not be afraid of any risks, and not be confused by any distractions.
+ - Developed countries should support developing countries in tackling climate change. This not only is their responsibility, but also serves their long-term interests.
+ - We must clearly see that international hostile forces are intensifying the strategic plot of Westernizing and dividing China, and ideological and cultural fields are the focal areas of their long-term infiltration.
+ - Democracy is the common pursuit of mankind, and all countries must earnestly protect the democratic rights of the people.
+ - At the same time, we are keenly aware that China is still the largest developing country in the world and we need to make long and hard efforts if we are to build a moderately prosperous society in all respects and basically achieve modernization.
+ - China recognizes and also respects the universality of human rights. We will continue our efforts to promote democracy and the rule of law.
+ - We on our part will stick to our independent foreign policy of peace, acting forever as a strong defender of world peace and a persistent proponent of common development.
+ - China will stay firmly committed to the basic state policy of opening-up. We will actively and effectively use foreign investment, improve its structure, diversify its form and open up more channels and sectors so as to facilitate investment.
+ - China pays a great deal of attention to the Korean nuclear issue. We stand for achieving denuclearization of the peninsula in a peaceful way through dialogue and consultation to maintain peace and stability of the peninsula and Northeast Asia.
+ - China has been committed to the independent foreign policy of peace and has developed friendship and cooperation with all countries on the basis of the Five Principles of Peaceful Coexistence.
+ - China and the United States have major influence in international affairs and shoulder important responsibilities in upholding world peace and promoting common development.
+ - In order to address world economic imbalances, countries around the world should make joint efforts to adjust their economic structure.
+ - China has made important contribution to the world economy in terms of total economic output and trade, and the RMB has played a role in the world economic development. But making the RMB an international currency will be a fairly long process.
+ - In the past 20 years and more since China embarked on the road of reform and opening up, we have moved steadfastly to promote political restructuring and vigorously build democratic politics under socialism.
+
+29 quotes

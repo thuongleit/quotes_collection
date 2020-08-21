@@ -1,0 +1,22 @@
+ - Massive Change is not about the world of design; it’s about the design of the world.
+ - When everything is connected to everything else, for better or for worse, everything matters.
+ - For most of us, design is invisible. Until it fails.
+ - Design the life that you want to live.
+ - When the outcome drives the process we will only ever go where we’ve already been. If process drives the outcome we may not know where we’re going, but we will know we want to be there.
+ - Now that we can do anything what will we do?
+ - I’m interested in the moment when two objects collide and generate a third. The third object is where the interesting work is.
+ - What is the focus of the new image infrastructure? Attention. It’s all designed for capturing, tracking, quantifying, manipulating, holding, buying, selling and controlling attention.
+ - Today is the child of yesterday and the parent of tomorrow. The work you produce today will create your future.
+ - You have to be willing to grow. Growth is different from something that happens to you. You produce it. You live it. The prerequisites for growth: the openness to experience events and the willingness to be changed by them.
+ - The fundamental idea of design is to make the world a better place.
+ - Don’t be cool. Cool is conservative fear dressed in black.
+ - Don’t clean your desk. You might find something in the morning that you can’t see tonight.
+ - Make your own tools. Hybridize your tools in order to build unique things. Even simple tools that are your own can yield entirely new avenues of exploration. Remember, tools amplify our capacities, so even a small tool can make a big difference.
+ - Most of the time, we live our lives within these invisible systems, blissfully unaware of the artificial life, the intensely designed infrastructures that support them.
+ - Imitate. Don’t be shy about it. Try to get as close as you can. You’ll never get all the way, and the separation might be truly remarkable.
+ - The deeper you go the more likely you will discover something of value.
+ - To invent something you have to be removed from the world. In order to have liberty to imagine something better, you need to step outside for a while.
+ - No longer associated simply with objects and appearances, design is increasingly understood in a much wider sense as the human capacity to plan and produce desired outcomes.
+ - The wrong answer is the right answer in search of a different question.
+
+20 quotes

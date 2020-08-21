@@ -1,0 +1,176 @@
+ - Where words leave off, music begins.
+ - Sleep is good, death is better; but of course, the best thing would to have never been born at all.
+ - Money is the god of our time, and Rothschild is his prophet.
+ - We should forgive our enemies, but not before they are hanged.
+ - A brainiac notices everything, an ignoramus comments about everything.
+ - Freedom is a new religion, the religion of our time.
+ - God will forgive me. It’s his job.
+ - Since the Exodus, freedom has always spoken with a Hebrew accent.
+ - Silence is the essential condition of happiness.
+ - Human misery is too great for men to do without faith.
+ - In the marvelous month of May when all the buds were bursting, then in my heart did love arise. In the marvelous month of May when all the birds were singing, then did I reveal to her my yearning and longing.
+ - Communism possesses a language which every people can understand – its elements are hunger, envy, and death.
+ - A fool may talk, but a wise man speaks.
+ - I do not murmur, even if my heart break.
+ - You cannot feed the hungry on statistics.
+ - Never let a fool kiss you, or a kiss fool you. Oh, what lies there are in kisses!
+ - Sleep is lovely, death is better still, not to have been born is of course the miracle.
+ - Ordinarily he was insane, but he had lucid moments when he was merely stupid.
+ - You talk of our having an idea; we do not have an idea. The idea has us, and martyrs us, and scourges us, and drives us into the arena to fight and die for it, whether we want to or not.
+ - The deepest truth blooms only from the deepest love.
+ - The Bible is the great family chronicle of the Jews.
+ - There are more fools in the world than there are people.
+ - My heart resembles the ocean; has storm, and ebb and flow; and many a beautiful pearl lies hid in its depths below.
+ - The swan, like the soul of the poet, By the dull world is ill understood.
+ - Wherever they burn books they will also, in the end, burn human beings.
+ - Newness hath an evanescent beauty.
+ - What Christian love cannot do is effected by a common hatred.
+ - Out of my great sorrows, I make little songs.
+ - The air grows cool and darkles, The Rhine flows calmly on; The mountain summit sparkles In the light of the setting sun.
+ - Everywhere that a great soul gives utterance to its thoughts, there also is a Golgotha.
+ - Laughter is wholesome. God is not so dull as some people make out. Did not He make the kitten to chase its tail.
+ - The sea appears all golden. Beneath the sun-lit sky.
+ - God will pardon: That’s His business.
+ - Nature, like a true poet, abhors abrupt transitions.
+ - Life is all too wondrous sweet, and the world is so beautifully bewildered; it is the dream of an intoxicated divinity...
+ - At first I was almost about to despair, I thought I never could bear it – but I did I bear it. The question remains: how?
+ - We know only that our entire existence is forced into new paths and disrupted, that new circumstances, new joys and new sorrows await us, and that the unknown has its uncanny attractions, alluring and at the same time anguishing.
+ - True eloquence consists in saying all that is necessary, and nothing but what is necessary.
+ - I have smelt all the aromas there are in the fragrant kitchen they call Earth; and what we can enjoy in this life, I surely have enjoyed just like a lord!
+ - It is extremely difficult for a Jew to be converted, for how can he bring himself to believe in the divinity of – another Jew?
+ - While we are indifferent to our good qualities, we keep on deceiving ourselves in regard to our faults, until we come to look on them as virtues.
+ - He who fights with priests may make up his mind to have his poor good name torn and befouled by the most infamous lies and the most cutting slanders.
+ - Ask me not what I have, but what I am.
+ - If one has no heart, one cannot write for the masses.
+ - No author is a man of genius to his publisher.
+ - Thinking of Germany in the night robs me of my sleep.
+ - Talking and eloquence are not the same: to speak and to speak well are two things. A fool may talk, but a wise man speaks.
+ - A blaspheming Frenchman is a spectacle more pleasing to the Lord than a praying Englishman.
+ - Sweet May hath come to love us, Flowers, trees, their blossoms don; And through the blue heavens above us The very clouds move on.
+ - Good Luck is a giddy maid, Fickle and restless as a fawn; She smooths your hair; and then the jade Kisses you quickly, and is gone.
+ - In blissful dream, in silent night, There came to me, with magic might, With magic might, my own sweet love, Into my little room above.
+ - Our sweetest hopes rise blooming. And then again are gone, They bloom and fade alternate, And so it goes rolling on. I know it, and it troubles My life, my love, my rest, My heart is wise and witty, And it bleeds within my breast.
+ - I do not know the meaning of my sadness; there is an old fairy tale that I cannot get out of my mind.
+ - With the rose the butterfly’s deep in love, A thousand times hovering round; But round himself, all tender like gold, The sun’s sweet ray is hovering found.
+ - In dark ages people are best guided by religion, as in a pitch-black night a blind man is the best guide; he knows the roads and paths better than a man who can see. When daylight comes, however, it is foolish to use blind, old men as guides.
+ - I fell asleep reading a dull book and dreamed I kept on reading, so I awoke from sheer boredom.
+ - The fountain of love is the rose and the lily, the sun and the dove.
+ - I bequeath all my property to my wife on the condition that she remarry immediately. Then there will be at least one man to regret my death.
+ - She resembles the Venus de Milo: she is very old, has no teeth, and has white spots on her yellow skin.
+ - That was only the beginning – where one burns books, one will finally also burn people.
+ - Lo, sleep is good, better is death – in sooth The best of all were never to be born.
+ - Woman is at once apple and serpent.
+ - The real madness probably is not another thing that the wisdom itself that, tired of discovering the shames of the world, has taken the intelligent resolution to become mad.
+ - The lotus flower is troubled At the sun’s resplendent light; With sunken head and sadly She dreamily waits for the night.
+ - Pretty women without religion are like flowers without perfume.
+ - The more i get to know people, the more i like dogs.
+ - Thought precedes action as lighting does thunder.
+ - Genius: 1. to believe your own thought. To believe that what is true for you is ultimately true. 2. a sledgehammer. 3. the fruit of labour and thought. 4. soul. 5. the ability to put into effect what is in your mind. 6. something one can become.
+ - With his nightcaps and the tatters of his dressing-gown he patches up the gaps in the structure of the universe.
+ - A pine tree standeth lonely In the North on an upland bare; It standeth whitely shrouded With snow, and sleepeth there. It dreameth of a Palm tree Which far in the East alone, In the mournful silence standeth On its ridge of burning stone.
+ - And once again we plighted our troth, And titter’d, caress’d, kiss’d so dearly.
+ - Das war ein vorspeil nur; That was only a prelude; dort wo man Buecher verbrennt, Where one burns books, vebrennt man auch am Ende One will also burn people Menchen. Eventually.
+ - The arrow belongs not to the archer when it has once left the bow; the word no longer belongs to the speaker when it has once passed his lips, especially when it has been multiplied by the press.
+ - He only profits from praise who values criticism.
+ - A lonely fir-tree is standing On a northern barren height; It sleeps, and the ice and snow-drift Cast round it a garment of white.
+ - Experience is a good school. But the fees are high.
+ - Oh, they loved dearly: their souls kissed, they kissed with their eyes, they were both but one single kiss.
+ - And over the pond are sailing Two swans all white as snow; Sweet voices mysteriously wailing Pierce through me as onward they go. They sail along, and a ringing Sweet melody rises on high; And when the swans begin singing, They presently must die.
+ - Twelve Dancings are dancing, and taking no rest, And closely their hands together are press’d; And soon as a dance has come to a close, Another begins, and each merrily goes.
+ - Glow-worms on the ground are moving, As if in the torch-dance circling.
+ - Perfumes are the feelings of flowers.
+ - The cloudlets are lazily sailing O’er the blue Atlantic sea; And mid the twilight there hovers A shadowy figure o’er me...
+ - Nothing is more futile than theorizing about music. No doubt there are laws, mathematically strict laws, but these laws are not music; they are only its conditions? The essence of music is revelation.
+ - There is one thing on earth more terrible than English music, and that is English painting.
+ - In the image of the lion made He kittens small and curious.
+ - Atheism is the last word of theism.
+ - The people have no ear, either for rhythm or music, and their unnatural passion for pianoforte playing and singing is thus all the more repulsive. There is nothing on earth more terrible than English music, except English painting.
+ - The nightingale appear’d the first, And as her melody she sang, The apple into blossom burst, To life the grass and violets sprang.
+ - I have never seen an ass who talked like a human being, but I have met many human beings who talked like asses.
+ - Oh, what lies there are in kisses.
+ - I live, which is the main point.
+ - Every age has its problem, by solving which humanity is helped forward.
+ - The artist is the child in the popular fable, every one of whose tears was a pearl.
+ - Oh fair, oh sweet and holy as dew at morning tide, I gaze on thee, and yearnings, sad in my bosom hide.
+ - God has given us speech in order that we may say pleasant things to our friends, and tell bitter truths to our enemies.
+ - The fundamental evil of the world arose from the fact that the good Lord has not created money enough.
+ - The eyes of spring, so azure, Are peeping from the ground; They are the darling violets, That I in nosegays bound.
+ - Graves they say are warm’d by glory; Foolish words and empty story.
+ - In these times we fight for ideas and newspapers are our fortress.
+ - Reason exercises merely the function of preserving order, is, so to say, the police in the region of art. In life it is mostly a cold arithmetician summing up our follies.
+ - The beauteous eyes of the spring’s fair night With comfort are downward gazing.
+ - The sun’s sweet ray is hovering discovered.
+ - Every period of time is a sphinx that throws itself into the abyss as soon as its riddle has been solved.
+ - As the moon’s fair image quaketh In the raging waves of ocean, Whilst she, in the vault of heaven, Moves with silent peaceful motion.
+ - The swan in the pool is singing, And up and down doth he steer, And, singing gently ever, Dips under the water clear.
+ - Be entirely tolerant or not at all; follow the good path or the evil one. To stand at the crossroads requires more strength than you possess.
+ - Thought is invisible nature.
+ - Reform Judaism is like mock turtle soup-turtle soup without the turtle.
+ - Those who begin by burning books will end by burning people.
+ - It is an ancient story Yet is it ever new.
+ - There is no Sixth Commandment in art. The poet is entitled to lay his hands on whatever material he finds necessary for his work.
+ - Silence can be defined as conversation with an Englishman.
+ - This was but a prelude; where books are burnt human-beings will be burnt in the end.
+ - I take pride in never being rude to anyone on this earth, which contains a great number of unbearable villains who set upon you to recount their sufferings and even recite their poems.
+ - Man, – the aristocrat amongst the animals.
+ - The Blossoms and leaves in plenty From the apple tree fall each day; The merry breezes approach them, And with them merrily play.
+ - Where books are burnt, men finish up being burnt too.
+ - You should only attempt to borrow from those who have but few of this world’s goods, as their chests are not of iron, and they are, besides, anxious to appear wealthier than they really are.
+ - From every Englishman emanates a kind of gas, the deadly choke-damp of boredom.
+ - Matrimony; the high sea for which no compass has yet been invented.
+ - Poverty sits by the cradle of all our great men and rocks all of them to manhood.
+ - Don’t send a poet to London.
+ - The foolish race of mankind are swarming below in the night; they shriek and rage and quarrel – and all of them are right.
+ - Oh what lies there are in kisses! And their guile so well prepared! Sweet the snaring is; but this is Sweeter still, to be ensnared.
+ - Great genius takes shape by contact with another great genius, but, less by assimilation than by fiction.
+ - The gazelles so gentle and clever Skip lightly in frolicsome mood.
+ - Music is a strange thing. I would almost say it is a miracle.
+ - It must require an inordinate share of vanity and presumption, too, after enjoying so much that is good and beautiful on earth, to ask the Lord for immortality in addition to it all.
+ - Sweet May lies fresh before us, To life the young flowers leap, And through the Heaven’s blue o’er us The rosy cloudlets sweep.
+ - Photography is a witness against the mistaken opinion that art is an imitation of nature.
+ - And the dancing has begun now, And the Dancings whirl round gaily In the waltz’s giddy mazes, And the ground beneath them trembles.
+ - I consider it a degradation and a stain on my honor to submit to baptism in order to qualify myself for state employment in Prussia.
+ - If thou lookest on the lime-leaf, Thou a heart’s form will discover; Therefore are the lindens ever Chosen seats of each fond lover.
+ - God will forgive me the foolish remarks I have made about Him just as I will forgive my opponents the foolish things they have written about me, even though they are spiritually as inferior to me as I to thee, O God!
+ - The night comes stealing o’er me, And clouds are on the sea; While the wavelets rustle before me With a mystical melody.
+ - If the Romans had been obliged to learn Latin, they would never have found time to conquer the world.
+ - Whether a revolution succeeds or fails people of great hearts will always be sacrificed to it.
+ - Each violet peeps from its dwelling to gaze at the bright stars above.
+ - I will not say that women have no character; rather, they have a new one every day.
+ - In politics, as in life, we must above all things wish only for the attainable.
+ - Christ rode on an ass, but now asses ride on Christ.
+ - If you wish to strive for peace of soul and pleasure, then believe.
+ - The men of the past had convictions, while we moderns have only opinions.
+ - He is noble who both feels and acts nobly.
+ - Our souls must become expanded by the contemplation of Nature’s grandeur, before we can fully comprehend the greatness of man.
+ - Music played at weddings always reminds me of the music played for soldiers before they go into battle.
+ - Every woman is the gift of a world to me.
+ - He who fears to venture as far as his heart urges and his reason permits, is a coward; he who ventures further than he intended to go, is a slave.
+ - In action, the English have the advantage enjoyed by free men always entitled to free discussion: of having a ready judgment on every question. We Germans, on the other hand, are always thinking. We think so much that we never form a judgment.
+ - Round my cradle shimmered the last moonbeams of the eighteenth century and the first morning rays of the nineteenth.
+ - No compass has ever been invented for the high seas of matrimony.
+ - There is only one writer in whom I find something that reminds me of the directness of style which is found in the Bible. It is Shakespeare.
+ - It is only kindred griefs that draw forth our tears, and each weeps really for himself.
+ - The spring’s already at the gate With looks my care beguiling; The country round appeareth straight A flower-garden smiling.
+ - Phychical pain is more easily borne than physical; and if I had my choice between a bad conscience and a bad tooth, I should choose the former.
+ - The negro king desired to be portrayed as white. But do not laugh at the poor African; for every man is but another negro king, and would like to appear in a color different from that with which Fate has bedaubed him.
+ - All special charters of freedom must be abrogated where the universal law of freedom is to flourish.
+ - All our contemporary philosophers perhaps without knowing it are looking through eyeglasses that Baruch Spinoza polished. Spinoza was a philosopher who earned his livelihood by grinding lenses.
+ - It is a common phenomenon that just the prettiest girls find it so difficult to get a man.
+ - Christianity is an idea, and as such is indestructible and immortal, like every idea.
+ - In earlier religions the spirit of the time was expressed through the individual and confirmed by miracles. In modern religions the spirit is expressed through the many and confirmed by reason.
+ - Literary history is the great morgue where all seek the dead ones whom they love, or to whom they are related.
+ - Terrible as is war, it yet displays the spiritual grandeur of man daring to defy his mightiest hereditary enemy – death.
+ - Lyrical poetry is much the same an every age, as the songs of the nightingales in every spring-time.
+ - Like a great poet, Nature knows how to produce the greatest effects with the most limited means.
+ - The men of action are, after all, only the unconscious instruments of the men of thought.
+ - Whatever tears one may shed, in the end one always blows one’s nose.
+ - The violets prattle and titter, And gaze on the stars high above.
+ - Every age thinks its battle the most important of all.
+ - I do not know if she was virtuous, but she was ugly, and with a woman that is half the battle.
+ - He that marries is like the dogs who was married to the Adriatic. He knows not what there is in that which he marries; mayhap treasures and pearls, mayhap monsters and tempests, await him.
+ - First, I thought, almost despairing, This must crush my spirit now; Yet I bore it, and am bearing- Only do not ask me how.
+ - When the heroes go off the stage, the clowns come on.
+ - In vain would I seek to discover Why sad and mournful am I, My thoughts without ceasing brood over A tale of the time gone by.
+
+174 quotes

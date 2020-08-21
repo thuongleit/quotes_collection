@@ -1,0 +1,54 @@
+ - You must learn not only to judge but to act for yourself.
+ - To save the mind from preying inwardly upon itself, it must be encouraged to some outward pursuit. There is no other way to elude apathy, or escape discontent; none other to guard the temper from that quarrel with itself, which ultimately ends in quarreling with all mankind.
+ - Travelling is the ruin of all happiness. There’s no looking at a building here after seeing Italy.
+ - I cannot sleep – great joy is as restless as sorrow.
+ - To a heart formed for friendship and affection the charms of solitude are very short-lived.
+ - Insensibility, of all kinds, and on all occasions, most moves my imperial displeasure.
+ - But authors before they write should read.
+ - Money is the source of the greatest vice, and that nation which is most rich, is most wicked.
+ - The mind is but too naturally prone to pleasure, but too easily yielded to dissipation.
+ - There si nothing upon the face of the earth so insipid as a medium. Give me love or hate! A friend that will go to jail for me, or an enemy that will run me through the body!
+ - A little alarm now and then keeps life from stagnation.
+ - But how cool, how quiet is true courage!
+ - Generosity without delicacy, like wit without judgement, generally gives as much pain as pleasure.
+ - I am tired to death! tired of every thing! I would give the universe for a disposition less difficult to please. Yet, after all, what is there to give pleasure? When one has seen one thing, one has seen every thing.
+ - Childhood is never troubled with foresight.
+ - Nothing is so delicate as the reputation of a woman; it is at once the most beautiful and most brittle of all human things.
+ - The Spring is generally fertile in new acquaintances.
+ - O, we all acknowledge our faults, now; ’tis the mode of the day: but the acknowledgment passes for current payment; and therefore we never amend them.
+ - How little has situation to do with happiness. The happy individual uses their intelligence to realise things could be worse and therefore is grateful and happy. The unhappy individual does the opposite!
+ - Tired, ashamed, and mortified, I begged to sit down till we returned home, which I did soon after. Lord Orville did me the honour to hand me to the coach, talking all the way of the honour I had done him ! O these fashionable people!
+ - Concealment is the foe of tranquility.
+ - Can any thing, my good Sir, be more painful to a friendly mind than a necessity of communicating disagreeable intelligence? Indeed, it is sometimes difficult to determine, whether the relater or the receiver of evil tidings is most to be pitied.
+ - Unused to the situations in which I find myself, and embarassed by the slightest difficulties, I seldom discover, till too late, how I ought to act.
+ - I am ashamed of confessing that I have nothing to confess.
+ - I am too inexperienced and ignorant to conduct myself with propriety in this town, where every thing is new to me, and many things are unaccountable and perplexing.
+ - In England, I was quite struck to see how forward the girls are made – a child of 10 years old, will chat and keep you company, while her parents are busy or out etc. – with the ease of a woman of 26. But then, how does this education go on? – Not at all: it absolutely stops short.
+ - Imagination took the reins, and reason, slow-paced, though sure-footed, was unequal to a race with so eccentric and flighty a companion.
+ - There’s no nation under the sun can beat the English for ill-politeness: for my part, I hate the very sight of them; and so I shall only just visit a person of quality or two of my particular acquaintance, and then I shall go back again to France.
+ - People who live together naturally catch the looks and air of one another and without having one feature alike, they contract a something in the whole countenance which strikes one as a resemblance.
+ - Tis best to build no castles in the air.
+ - To whom, then, must I dedicate my wonderful, surprising and interesting adventures? to whom dare I reveal my private opinion of my nearest relations? the secret thoughts of my dearest friends? my own hopes, fears, reflections and dislikes? Nobody!
+ - To Nobody, then, will I write my Journal! since to Nobody can I be wholly unreserved, to Nobody can I reveal every thought, every wish of my heart, with the most unlimited confidence, the most unremitting sincerity, to the end of my life!
+ - No man is in love when he marries. He may have loved before; I have even heard he has sometimes loved after: but at the time never. There is something in the formalities of the matrimonial preparations that drive away all the little cupidons.
+ - To have some account of my thoughts, manners, acquaintance and actions, when the hour arrives in which time is more nimble than memory, is the reason which induces me to keep a journal: a journal in which I must confess my every thought, must open my whole heart!
+ - Never shall I recollect the occasion he gave me of displeasure, without feeling it renewed.
+ - To despise riches, may, indeed, be philosophic, but to dispense them worthily, must surely be more beneficial to mankind.
+ - Well of all things in the world, I don’t suppose anything can be so dreadful as a public wedding – my stars! – I should never be able to support it!
+ - To save the mind from preying inwardly upon itself, it must be encouraged to some outward pursuit.
+ - But if the young are never tired of erring in conduct, neither are the older in erring of judgment.
+ - We continually say things to support an opinion, which we have given, that in reality we don’t above half mean.
+ - I’d rather be done any thing to than laughed at, for, to my mind, it’s one or other the disagreeablest thing in the world.
+ - We relate all our afflictions more frequently than we do our pleasures.
+ - Wealth per se I never too much valued, and my acquaintance with its possessors has by no means increased my veneration for it.
+ - I wish the opera was every night. It is, of all entertainments, the sweetest and most delightful. Some of the songs seemed to melt my very soul.
+ - Far from having taken any positive step, I have not yet even fommed any resolution.
+ - I looked about for some of my acquaintance, but in vain, for I saw not one person that I knew, which is very odd, for all the world seemed there.
+ - How little has situation to do with happiness.
+ - I cannot be much pleased without an appearance of truth; at least of possibility I wish the history to be natural though the sentiments are refined; and the characters to be probable, though their behaviour is excelling.
+ - Misery is a guest that we are glad to part with, however certain of her speedy return.
+ - For my part, I confess I seldom listen to the players: one has so much to do, in looking about and finding out one’s acquaintance, that, really, one has no time to mind the stage. One merely comes to meet one’s friends, and show that one’s alive.
+ - O! how short a time does it take to put an end to a woman’s liberty!
+ - There is something in age that ever, even in its own despite, must be venerable, must create respect and to have it ill treated, is to me worse, more cruel and wicked than anything on earth.
+
+52 quotes

@@ -1,0 +1,30 @@
+ - Soldiers, when committed to a task, can’t compromise. It’s unrelenting devotion to the standards of duty and courage, absolute loyalty to others, not letting the task go until it’s been done.
+ - It’s a necessary quality of a diplomat or a politician that he will compromise. Uncompromising politicians or diplomats get you into the most terrible trouble.
+ - The great men of power who seek to change the nations they belong to usually are pretty terrible people.
+ - The revival of Islam dates from the early years of the 20th century. It was brought about by their humiliation, by their sense of how low they’d fallen compared with the West.
+ - The Second World War is the largest single event in human history, fought across six of the world’s seven continents and all it oceans. It killed 50 million human beings, left hundreds of millions of others wounded in mind or body and materially devastated much of the heartland of civilization.
+ - There are certain wicked people in the world that you can’t deal with except by force.
+ - I don’t look to find an educated person in the ranks of university graduates, necessarily. Some of the most educated people I know have never been near a university.
+ - The Islam of the 18th, 19th and first half of the 20th century was a poor thing. Nobody bothered about it. Islam was that funny sort of pure system of beliefs that depressed people in the Middle East held as their religion.
+ - The written history of the world is largely a history of warfare, because the states within which we live came into existence largely through conquest, civil strife, or struggles for independence.
+ - I can’t visualize the situation in which we nuke ourselves into extinction.
+ - The leader of men in warfare can show himself to his followers only through a mask, a mask that he must make for himself, but a mask made in such form as will mark him to men of his time and place as the leader they want and need.
+ - I think that black Africa is extremely terrifying. Black Africa can become a maelstrom of warring tribes without the outside world needing to feel the need to do anything about it.
+ - Good men who exercise power are really the most fascinating of all people.
+ - A civilised man is someone who has discovered something more satisfying than combat.
+ - If Wellington epitomizes the English gentleman, Eisenhower epitomizes the natural American gentleman.
+ - The great Chinese classics have always said that it’s better not to fight; that the clever man achieves his ends without violence; that a battle delayed is better than a battle fought.
+ - Visually Agincourt is a pre-Raphaelite, perhaps better a Medici Gallery print battle – a composition of strong verticals and horizontals and a conflict of rich dark reds and Lincoln greens against fishscale greys and arctic blues.
+ - The historian ought to be an educated person, writing for other educated people about something which they don’t know about, but wish to know about in a way that they can understand.
+ - Well, if they are trying to kill you, on the whole they’re the people you have to kill, aren’t they?
+ - I think Americans like the practical; they like the human. And I like both those things myself, and I try and put them into my books.
+ - Men killing other men really is an extraordinary phenomenon. Why does it happen? And how long has it gone on? And have the motives changed?
+ - Some people are more terrorist than others.
+ - I think to be shot in a mountain valley somewhere or other is altogether less glorious than crashing an airliner into a skyscraper.
+ - Nobody should teach anywhere for 25 years, but I did.
+ - Even a pacifist should admire the military virtues.
+ - Slavery in the modern world implies the absolute deprivation of the individual’s liberty, while possession of weapons and mastery of their use are means to the individual’s liberation. We do not perceive how a man may be armed and at the same time bereft of his freedom.
+ - I don’t think that what’s going on in Bosnia is political activity. It’s partly political, but it’s partly atavistic as well.
+ - It’s commonly said that people who’ve been ill in childhood and who’ve had an upset education never really regret that they do. It means that you don’t look at the world in the way that other people do, and if you were inclined to be a writer, that’s a help.
+
+28 quotes

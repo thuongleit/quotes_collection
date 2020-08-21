@@ -1,0 +1,42 @@
+ - I hated every minute of training, but I said, “Don’t quit. Suffer now and live the rest of your life as a champion.” ~~Muhammad Ali
+ - To eat is a necessity, but to eat intelligently is an art. ~~François de La Rochefoucauld
+ - Run hard, be strong, think big! ~~Percy Cerutty
+ - The hardest thing about exercise is to start doing it. Once you are doing exercise regularly, the hardest thing is to stop it. ~~Erin Gray
+ - The groundwork of all happiness is health. ~~Leigh Hunt
+ - I’m doing this for me. ~~Jessica Mathews
+ - Life is like riding a bicycle. To keep your balance, you must keep moving. ~~Albert Einstein
+ - Physical fitness is not only one of the most important keys to a healthy body, it is the basis of dynamic and creative intellectual activity. ~~John F. Kennedy
+ - Bodybuilding is much like any other sport. To be successful, you must dedicate yourself 100% to your training, diet and mental approach. ~~Arnold Schwarzenegger
+ - Good things come to those who hustle. ~~Chuck Noll
+ - I think that everything is possible as long as you put your mind to it and you put the work and time into it. I think your mind really controls everything. ~~Michael Phelps
+ - I’ve been fit and I’ve been fat, and fit is better. ~~Susan Powter
+ - The human body is the best picture of the human soul. ~~Ludwig Wittgenstein
+ - The five S’s of sports training are: stamina, speed, strength, skill, and spirit; but the greatest of these is spirit. ~~Ken Doherty
+ - It is exercise alone that supports the spirits, and keeps the mind in vigor. ~~Marcus Tullius Cicero
+ - Some things you have to do every day. Eating about seven apples on Saturday night instead of one a day just isn’t going to get the job done. ~~Jim Rohn
+ - Our food should be our medicine and our medicine should be our food. ~~Hippocrates
+ - Nothing tastes as good as thin feels. ~~Stephen R. Covey
+ - The reason fat men are good natured is they can neither fight nor run. ~~Theodore Roosevelt
+ - I always loved running. It was something you could do by yourself, and under your own power. You could go in any direction, fast or slow as you wanted, fighting the wind if you felt like it, seeking out new sights just on the strength of your feet and the courage of your lungs. ~~Jesse Owens
+ - The body does not want you to do this. As you run, it tells you to stop but the mind must be strong. You always go too far for your body. You must handle the pain with strategy. It is not age; it is not diet. It is the will to succeed. ~~Jacqueline Gareau
+ - A vigorous five-mile walk will do more good for an unhappy but otherwise healthy adult than all the medicine and psychology in the world. ~~Paul Dudley White
+ - A bear, however hard he tries, grows tubby without exercise. ~~A. A. Milne
+ - I feel that the greatest reward for doing is the opportunity to do more. ~~Jonas Salk
+ - Accidentally consumed five biscuits when I wasn’t paying attention. Those biscuits are wily fellows – they leap in like sugary ninjas. ~~Charles Dickens
+ - I’m not out there sweating for three hours every day just to find out what it feels like to sweat. ~~Michael Jordan
+ - Rest is the sweet sauce of labor. ~~Plutarch
+ - I really don’t think I need buns of steel. I’d be happy with buns of cinnamon. ~~Ellen DeGeneres
+ - There’s a lot of people in this world who spend so much time watching their health that they haven’t the time to enjoy it. ~~Josh Billings
+ - I think you might dispense with half your doctors if you would only consult Dr. Sun more. ~~Henry Ward Beecher
+ - He who has health, has hope; and he who has hope, has everything. ~~Thomas Carlyle
+ - The doctor of the future will no longer treat the human frame with drugs, but rather will cure and prevent disease with nutrition. ~~Thomas A. Edison
+ - Your body is the church where Nature asks to be reverenced. ~~Marquis de Sade
+ - Exercise is a dirty word. Every time I hear it I wash my mouth out with chocolate. ~~Charles M. Schulz
+ - If we could give every individual the right amount of nourishment and exercise, not too little and not too much, we would have found the safest way to health. ~~Hippocrates
+ - We are under exercised as a nation. We look instead of play. We ride instead of walk. Our existence deprives us of the minimum of physical activity essential for healthy living. ~~John F. Kennedy
+ - Old people have fewer diseases than the young, but their diseases never leave them. ~~Hippocrates
+ - Be careful about reading health books. You may die of a misprint. ~~Mark Twain
+ - Swimming is normal for me. I’m relaxed. I’m comfortable, and I know my surroundings. It’s my home. ~~Michael Phelps
+ - Ultimately, the only power to which man should aspire is that which he exercises over himself. ~~Elie Wiesel
+
+40 quotes

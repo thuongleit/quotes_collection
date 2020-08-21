@@ -1,0 +1,22 @@
+ - I write of the wish that comes true – for some reason, a terrifying thought.
+ - A guitar has moonlight in it.
+ - I loved her like a rabbit loves a rattlesnake.
+ - A home is not a museum. It doesn’t have to be furnished with Picasso paintings, or Sheraton suites, or Oriental rugs, or Chinese pottery. But it does have to be furnished with things that mean something to you.
+ - Yes, I have actually mined coal, and distilled liquor, as well as seen a girl in a pink dress, and seen her take it off. I am 54 years old, weigh 220 pounds, and look like the chief dispatcher of a long-distance driving concern. I am a registered Democrat. I drink.
+ - Time is the only critic.
+ - I had killed a man, for money and a woman. I didn’t have the money and I didn’t have the woman.
+ - That’s all it takes, one drop of fear to curdle love into hate.
+ - Stealing a man’s wife, that’s nothing, but stealing his car, that’s larceny.
+ - Love, when you get fear in it, it’s not love any more. It’s hate.
+ - The hand that holds the money cracks the whip.
+ - New York is not even a city, it’s a congerie of rotten villages.
+ - You usually can tell when a writer is going down hill by the size of his liquor bill.
+ - Writing a novel is like working on foreign policy. There are problems to be solved. It’s not all inspirational.
+ - A gun is like breath to a drowning man – it has to be drawn in haste.
+ - I make no conscious effort to be tough, or hard-boiled, or grim, or any of the things I am usually called.
+ - She was a little given to rehearsing things in her mind, and having imaginary triumphs over people who had upset her in one way and another.
+ - They threw me off the haytruck about noon.
+ - If you can’t write like New York, you have no business living in New York and making New York the locale of your stories.
+ - You have to wait for your mind to catch up with whatever it is it’s working on; then you can write a novel.
+
+20 quotes

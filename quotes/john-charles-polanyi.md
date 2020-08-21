@@ -1,0 +1,33 @@
+ - If we treasure our own experience and regard it as real, we must also treasure other people’s experience.
+ - At the heart of science lies discovery which involves a change in worldview. Discovery in science is possible only in societies which accord their citizens the freedom to pursue the truth where it may lead and which therefore have respect for different paths to that truth.
+ - Human dignity is better served by embracing knowledge.
+ - For science must breathe the oxygen of freedom.
+ - A new sense of shared international responsibility is unmistakable in the voices of the United Nations and its agencies, and in the civil society of thousands of supra-national NGOs.
+ - Idealism is the highest form of reason.
+ - Science is an enterprise that can only flourish if it puts the truth ahead of nationality, ethnicity, class and color.
+ - Even in the world of molecules the civilising influence of modest restraints is a cause for rejoicing.
+ - Authority in science exists to be questioned, since heresy is the spring from which new ideas flow.
+ - The respect for human rights, essential if we are to use technology wisely, is not something alien that must be grafted onto science. On the contrary, it is integral to science, as also to scholarship in general.
+ - Science never gives up searching for truth, since it never claims to have achieved it.
+ - Scientia is knowledge. It is only in the popular mind that it is equated with facts.
+ - Science gives us a powerful vocabulary, and it is impossible to produce a vocabulary with which one can only say nice things.
+ - Instead, in the absence of respect for human rights, science and its offspring technology have been used in this century as brutal instruments for oppression.
+ - Our assessment of socio-economic worth is largely a sham. We scientists should not lend ourselves to it – though we routinely do. We should, instead, insist on applying the criterion of quality.
+ - Nothing is more irredeemably irrelevant than bad science.
+ - Science is a collection of stories, linking characters worthy of notice.
+ - Today, Academies of Science use their influence around the world in support of human rights.
+ - Young people ask me if this country is serious about science. They aren’t thinking about the passport that they will hold, but the country that they must rely on for support and encouragement.
+ - Science exists, moreover, only as a journey toward troth. Stifle dissent and you end that journey.
+ - Reality is no less precious if it presents itself to someone else. All are discoverers, and if we disenfranchise any, all suffer.
+ - In education the appetite does indeed grow with eating. I have never known anyone to abandon study because they knew too much.
+ - Though neglectful of their responsibility to protect science, scientists are increasingly aware of their responsibility to society.
+ - Scientists and scholars should constitute themselves as an international NGO of exceptional authority.
+ - The eye searches for shapes. It searches for a beginning, a middle, and an end.
+ - In nation after nation, democracy has taken the place of autocracy.
+ - Some dreamers demand that scientists only discover things that can be used for good.
+ - It takes a trained and discerning researcher to keep the goal in sight, and to detect evidence of the creeping progress toward it.
+ - The applause is a celebration not only of the actors but also of the audience. It constitutes a shared moment of delight.
+ - Though we explore in a culturally-conditioned way, the reality we sketch is universal.
+ - Individual scientists like myself – and many more conspicuous – pointed to the dangers of radioactive fallout over Canada if we were to launch nuclear weapons to intercept incoming bombers.
+
+31 quotes

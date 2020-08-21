@@ -1,0 +1,42 @@
+ - For me, a breakup changed my entire life. I was a mess. I really got rocked, and I ended up turning it into a positive thing. ~~Greg Behrendt
+ - Sometimes you have to erase the messages, delete the numbers, and move on. You don’t have to forget who that person was to you, but you do have to accept that they aren’t that person anymore. ~~Drake
+ - The remedy for life’s broken pieces is not classes, workshops or books. Don’t try to heal the broken pieces. Just forgive. ~~Iyanla Vanzant
+ - Walk away from it until you’re stronger, All your problems will be there when you get back, but you’ll be better able to cope. ~~Lady Bird Johnson
+ - Boys will break your heart. Real men will pick up the pieces. ~~Drake
+ - Pleasure of love lasts but a moment, Pain of love lasts a lifetime. ~~Bette Davis
+ - If two people love each other there can be no happy end to it. ~~Ernest Hemingway
+ - I think a breakup can be the beginning of a friendship. That’s not me trying to make everything OK – it’s me saying, “No, we love each other. Let’s not pretend we don’t.” ~~Drew Barrymore
+ - I think you’re a wonder. You’re beautiful. You’re mature. You are, I admit, vastly more experienced than I am. That’s what threw me. I was thrown. Forgive me. ~~Philip Roth
+ - No man is rich enough to buy back his past. ~~Oscar Wilde
+ - Nothing erases unpleasant thoughts more effectively than conscious concentration on pleasant ones. ~~Hans Selye
+ - None of us suffers as much as we should, or loves as much as we say. Love is the first lie; wisdom the last. ~~Djuna Barnes
+ - I can still love an ex as a person, regardless if the breakup was bad. I would never wish anything negative on them. It takes more energy to hate them than to wish them well. ~~Ashley Greene
+ - The best way to mend a broken heart is time and girlfriends. ~~Gwyneth Paltrow
+ - Chords that were broken will vibrate once more. ~~Fanny Crosby
+ - Only the willing to suffer can conquer suffering. ~~David Bosch
+ - A wife lasts only for the length of the marriage, but an ex-wife is there for the rest of your life. ~~Woody Allen
+ - It’s sad when people break up. ~~Pete Townshend
+ - How can I be reasonable? To me our love was everything and you were my whole life. It is not very pleasant to realize that to you it was only an episode. ~~W. Somerset Maugham
+ - He who never puts his trust in any man will never be deceived. ~~Leonardo da Vinci
+ - I’m not sure what the future holds but I do know that I’m going to be positive and not wake up feeling desperate. As my dad said ‘Nic, it is what it is, it’s not what it should have been, not what it could have been, it is what it is.’ ~~Nicole Kidman
+ - Of emotions, of love, of breakup, of love and hate and death and dying, mama, apple pie, and the whole thing. It covers a lot of territory, country music does. ~~Johnny Cash
+ - For fast-acting relief try slowing down. ~~Lily Tomlin
+ - I’ve come to believe that all my past failure and frustration were actually laying the foundation for the understandings that have created the new level of living I now enjoy. ~~Tony Robbins
+ - A girl can wait for the right man to come along but in the meantime that still doesn’t mean she can’t have a wonderful time with all the wrong ones. ~~Cher
+ - Groups break up because they never got across what they wanted to do personally, and they have creative differences, and egos start to clash. ~~Kendrick Lamar
+ - You eventually erase her contact info from your phone but not the pictures you took of her in bed while she was naked and asleep, never those. ~~Junot Díaz
+ - There is one thing I would break up over, and that is if she caught me with another woman. I won’t stand for that. ~~Steve Martin
+ - If you have zest and enthusiasm you attract zest and enthusiasm. Life does give back in kind. ~~Norman Vincent Peale
+ - I want to tell you that I love you I want to tell you that I love you I want to tell you that I love I love I love I love but you do not. ~~Joyce Carol Oates
+ - Passion is always a mystery and unaccountable, and unfortunately there is no doubt that life does not spare its purest children; often it is just the most deserving people who cannot help loving those that destroy them. ~~Hermann Hesse
+ - Stuart needs “space” and “time,” as if this were physics and not a human relationship. ~~Kathryn Stockett
+ - I’m just saying, tonight, if you’re going through a breakup and you’re drinking, don’t call. Just don’t do it. Don’t call. Because here’s the thing: booze has information in it! ~~Greg Behrendt
+ - After a breakup, it takes a couple weeks for the fog to settle, but it’s always a period of self-priority and growth. Life presents you with so many decisions. A lot of times, they’re right in front of your face and they’re really difficult, but we must make them. ~~Brittany Murphy
+ - The heart will break, but broken live on. ~~Lord Byron
+ - Patience is key for getting over a breakup. That, and trailing off your interaction after the breakup. ~~Drake
+ - Those that go searching for love only make manifest their own lovelessness, and the loveless never find love, only the loving find love, and they never have to seek for it. ~~D. H. Lawrence
+ - Any real change implies the breakup of the world as one has always known it, the loss of all that gave one an identity, the end of safety. ~~James Baldwin
+ - Families break up when they get hints you don’t intend and miss hints that you do. ~~Robert Frost
+ - I live around dudes all the time so I’ve heard millions of stories about how they go through a breakup and then the girl turns absolutely crazy. I always thought growing up like: “No, I won’t be like that – when I go through a breakup I’ll be cool.” ~~Hayley Williams
+
+40 quotes

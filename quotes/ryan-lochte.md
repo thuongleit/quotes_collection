@@ -1,0 +1,76 @@
+ - Pain is temporarily, but pride last forever.
+ - Stay motivated, set goals, have fun.
+ - I hate to lose. I like winning.
+ - Have fun, because that’s what life is all about.
+ - You know, you pick and choose your battles.
+ - I’m not jealous of anybody, because I’m going to live my life the way I want to live it. I’m not going to be like, ‘Oh my God they have this, I want that.’
+ - I like girls who really don’t care what other people are thinking – girls who are a little goofy. I think that’s sexy.
+ - Something will pop up in my head. It could be like the weirdest thing. Like all’a sudden like I have like a jumping banana in my head.
+ - Not to have a big head about it, but people love me.
+ - In life, like, I’m always living life to the fullest to always have fun.
+ - If you’re a man at night, you’ve got to be a man in the morning.
+ - My senior year of high school, when I was getting recruited for college, my dad goes to me, ‘You can become an Olympic champion.’ And that’s the first time that I’d heard someone else say that to me. I was like, ‘Uh, are you talking to me?’
+ - I honestly really don’t get aggravated at all. I just go with the flow. Whatever happens, happens.
+ - Pain, tolerance, endurance-when it comes down to that point, there’s always something left. You just have to find it.
+ - I was a little troublemaker. Always trying to get in trouble, always mischief, like throwing rocks at cars when I was younger, all that kind of stuff.
+ - It’s so hard to express yourself, because swimmers are pretty much paying attention to a black line for hours out of a day.
+ - Abe Lincoln is my favorite president of all time – and he pulls off that top hat pretty well.
+ - I’m going to keep living my life the way I’ve been living my life, and nothing is going to change that even if the Olympics are coming up.
+ - You know, honestly, if a girl can make me laugh, I’m pretty much sold.
+ - With swimming, I burn a lot of calories. I’m able to eat pretty much anything and it won’t affect me. But I don’t.
+ - These are my shoes that I designed from top to the very sole to the very top to the bottom. Laces.
+ - My suit blew up into a parachute. All this water rushed in, there’s air, water in there. I was freaking out.
+ - My last Olympics, I had a girlfriend – big mistake. Now I’m single, so London should be really good. I’m excited.
+ - I might wear my pink Speedo. I think I should.
+ - When I was a kid, I looked up to an Olympian superstar. I won’t mention his name but when I asked for his autograph he said, ‘no.’
+ - I have a lot of endurance and I have a good background right now in my training and it’s time to get ready.
+ - When I was growing up, I was eating fast food every day. I’d drink soda non-stop, candy, just everything. It was horrible. My go-to was McDonald’s, for sure.
+ - Just all that hard work, all those hours in the pool, I feel like it’s about to pay off. I guess we’ll just have to wait and see this summer.
+ - There’s so much more to me than swimming. I like to go and have fun, like to go dancing, hang out with my friends.
+ - The fact that people actually want my autograph is crazy.
+ - I believe everyone has a soul mate that they can spend the rest of their life together.
+ - I took my weight training to a new level.
+ - That’s the quickest way to my heart: Laughter.
+ - I’m big into fashion, so after swimming, when I hang up the Speedo, I definitely want to get into fashion and start designing my own clothing line.
+ - No matter what, like, I couldn’t – I could break a world record, get an Olympic gold medal, and my mom would be, like, you could have done better. But you looked pretty. That’s what she says all the time.
+ - Things are moving pretty quick, and of course, the whole focus is training and getting ready and being able to prepare to be on the world’s stage and hopefully do the United States proud.
+ - After my swims this weekend I think coach realized, you know what, you have to have a good one getting out of this meet. So I put the suit on and had a decent swim.
+ - I can’t eat beans – all beans. I think because I’m half Cuban. So growing up, we were always eating black beans and rice, and I think I just said, ‘Enough with it,’ and I can’t even stand to taste it anymore.
+ - Of course I have bad hair days; I’m human.
+ - I don’t know if I’m a good kickball player; I know I’m a good athlete.
+ - I want to design my own clothing line. I’m very into fashion. It’s something I really want to focus on when swimming is over.
+ - You can tell a great athlete by, like, not how many times he wins, unlike when he loses. Because that’s what is gonna make a swimmer.
+ - If I break my ankle right now, this Olympics wasn’t meant to be.
+ - I want to be different, and fashion gives me that outlet to do that.
+ - I grew up with a big family. I want that. I want to have my own family.
+ - It’s not like I’m looking for a blonde or a brunette, light-skinned or dark-skinned. I feel like I give any girl a fighting chance.
+ - The whole Kardashian family, they have a bunch of energy.
+ - The big picture is the Trials and Olympics. I just have to keep focused for that, keep moving forward.
+ - I want people to see the passion I have for swimming and become more involved in the sport.
+ - I’m just going to go out there and try to win the race. When you go out there trying to go for a record, you’re usually not going to get it.
+ - I honestly think if I would’ve tied my suit and there wouldn’t have been any water rushing through it, I think I could’ve gone at least a second faster.
+ - Going out to look for a date, I don’t have to do that. They come to me.
+ - I think after the 2008 Olympics I wasn’t really satisfied with the outcome, so I knew I had to change some things.
+ - I grew up listening to oldies, like Motown. That’s from my mom.
+ - The key to the Lochte haircut is being fresh and looking up-to-date.
+ - I’m going to focus on speed, doing little things like my turns and my starts – just speed.
+ - I started eating healthier. I actually gave up fast food. I gave up candy and potato chips and everything else. I started watching what I ate.
+ - The swimming community is really small, but why can’t it be as big as the NBA or the NFL?
+ - I don’t have a set style, but I try not to dress like everyone else.
+ - I’ve hung out with Jay-Z a couple of times, and he was awesome.
+ - I was a better basketball player growing up in high school than I was a swimmer. Basketball to this day is my favorite sport.
+ - I try not to read the negative comments, and when I do, I let it roll off my back. I remind myself that there will always be haters as long as you are in the public eye.
+ - I look at him as some other person I need to beat.
+ - I love working out. I mean, I’ve been doing it for about 20 years every day of my entire life. So I enjoy working out.
+ - I enjoy racing so much. Ever since I was 8 or 9, I trained every stroke, because it was the only way I could race a lot.
+ - One thing I won’t do: I won’t give up on love.
+ - Too travel is sometimes better to arrive!
+ - For me, being Ryan Lochte is fun.
+ - I really want to get into designing my own business suit. I’ve designed a couple suits for myself that I’ve worn in the past, and I have a good idea of what I want and need to use.
+ - I am at the Olympics, I forgot to tie my suit, how is this gonna happen?
+ - Alec Baldwin is so funny.
+ - I need someone who is able to hold her own – if a girl is really independent, that’s a turn-on for me.
+ - For those who are understood no need to explain.
+ - I love swimming because racing.
+
+74 quotes

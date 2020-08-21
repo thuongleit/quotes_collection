@@ -1,0 +1,175 @@
+ - Biology gives you a brain. Life turns it into a mind.
+ - Can you see me? All of me? Probably not. No one ever really has.
+ - Depression is like a bruise that never goes away. A bruise in your mind. You just got to be careful not to touch it where it hurts. It’s always there, though.
+ - Basically what we have here is a dreamer. Somebody out of touch with reality. When she jumped, she probably thought she’d fly.
+ - Don’t waste your time on life.
+ - In the end we had the pieces of the puzzle, but no matter how we put them together, gaps remained, oddly shaped emptinesses mapped by what surrounded them, like countries we couldn’t name.
+ - Maybe the best proof that the language is patriarchal is that it oversimplifies feeling.
+ - I live my own life and nurse my own wounds. It’s not the best way to live. But it’s the way I am.
+ - All wisdom ends in paradox.
+ - Everyone struggles against despair, but it always wins in the end. It has to. It’s the thing that lets us say goodbye.
+ - She’d become an English major for the purest and dullest of reasons: because she loved to read.
+ - I think it is important to remind people of the extent of our free will.
+ - I’ve never had the right words to describe my life, and now that I’ve entered my story, I need them more than ever.
+ - It took courage to let things fall apart so beautifully.
+ - There comes a moment, when you get lost in the woods, when the woods begin to feel like home.
+ - Every novelist should possess a hermaphroditic imagination.
+ - We’re all made up of many parts, other halves. Not just me.
+ - The Statue of Liberty’s gender changed nothing. It was the same here as anywhere: men and their wars.
+ - At night the cries of cats making love or fighting, their caterwauling in the dark, told us that the world was pure emotion, flung back and forth among its creatures, the agony of the one-eyed Siamese no different from that of the Lisbon girls, and even the trees plunged in feeling.
+ - Winter is the season of alcoholism and despair.
+ - If you talk to geneticists they are constantly finding that your genes are being switched on and off because of the environment. Genes alone do not determine an exact path in your life.
+ - A girl’s not a watermelon you plug a hole in to see if it’s sweet.
+ - A changeableness, too, as if beneath my visible face there was another, having second thoughts.
+ - She may have looked normal on the outside, but once you’d seen her handwriting you knew she was deliciously complicated inside.
+ - But in the end it wasn’t up to me. The bigs things never are. Birth, I mean, and death. And love. And what love bequeaths to us before we’re born.
+ - He remained heartbroken, which meant one of two things: either his love was pure and true and earthshakingly significant; or he was addicted to feeling forlorn, he liked being heartbroken.
+ - The perishable nature of love is what gives love its profound importance in our lives. If it were endless, if it were on tap, love wouldn’t hit us the way it does.
+ - You never get over it, but you get to where it doesn’t bother you so much.
+ - The trees like lungs filling with air My sister, the mean one, pulling my hair.
+ - They’re just memories now. Time to write them off.
+ - On the morning the last Lisbon daughter took her turn at suicide- it was Mary this time, and sleeping pills, like Therese- the two paramedics arrived at the house knowing exactly where the knife drawer was, and the gas oven, and the beam in the basement from which it was possible to tie a rope.
+ - I have a good memory for early life. My visual memory is good about childhood and adolescence, and less good in the last 10 years. I could probably tell you less what happened in the last 10 years. I remember what houses looked like, sometimes they just pop into my head.
+ - I was born twice: first, as a baby girl, on a remarkably smogless Detroit day in January of 1960; and then again, as a teenage boy, in an emergency room near Petoskey, Michigan, in August of 1974.
+ - The lover’s discourse was of an extreme solitude. The solitude was extreme because it wasn’t physical. It was extreme because you felt it while in the company of the person you loved. It was extreme because it was in your head, the most solitary of places.
+ - She understood that her heart operated on its own instructions, that she had no control over it or, indeed, anything else.
+ - That was when Leonard realized something crucial about depression. The smarter you were, the worse it was. The sharper your brain, the more it cut you up.
+ - Paris was a museum displaying exactly itself.
+ - The seeds of death get lost in the mess that God made us.
+ - Household objects lost meaning. A bedside clock became a hunk of molded plastic, telling something called time, in a world marking it’s passage for some reason.
+ - It was possible to feel superior to other people and feel like a misfit at the same time.
+ - She held herself very straight, like Audrey Hepburn, whom all women idolize and men never think about.
+ - But what humans forget, cells remember. The body, that elephant.
+ - Emotions, in my experience, aren’t covered by single words. I don’t believe in “sadness”, “joy”, or “regret”. Maybe the best proof that the language is patriarchal is that is oversimplifies feeling. I’d like to have at my disposal complicated hybrid emotions.
+ - We couldn’t imagine the emptiness of a creature who put a razor to her wrists and opened her veins, the emptiness and the calm.
+ - It was one of those humid days when the atmosphere gets confused. Sitting on the porch, you could feel it: the air wishing it was water.
+ - We knew, finally, that the girls were really women in disguise, that they understood love and even death, and that our job was merely to create the noise that seemed to fascinate them.
+ - I’m constantly having doubts and moments of depression and then excitement and then back into the slough of despond.
+ - Capitalism has resulted in material well-being but spiritual bankruptcy.
+ - That was the deal basically: catatonia without; frenzy within.
+ - You used to be able to tell a person’s nationality by the face. Immigration ended that. Next you discerned nationality via the footwear. Globalization ended that.
+ - Heartbreak is funny to everyone but the heartbroken.
+ - The girls took into their own hands decisions better left to God. They became too powerful to live among us, too self-concerned, too visionary, too blind.
+ - My change from girl to boy was far less dramatic than the distance anybody travels from infancy to adulthood.
+ - Now all the mute objects of my life seem to tell my story, to stretch back in time, if I look closely enough.
+ - When I wrote The Virgin Suicides, I gave myself very strict rules about the narrative voice: the boys would only be able to report what they had seen or found or what had been told to them.
+ - She could become a spinster, like Emily Dickinson, writing poems full of dashes and brilliance, and never gaining weight.
+ - A seven-year-old girl can take only so many walks with her grandfather.
+ - In the end, it wasn’t death that surprised her but the stubbornness of life.
+ - The worst thing about religion was religious people.
+ - The more she thought about it, the more Madeleine understood that extreme solitude didn’t just describe the way she was feeling about Leonard. It explained how she’d always felt when she was in love. It explained what love was like and, just maybe, what was wrong with it.
+ - The only way we know it’s true is that we both dreamed it. That’s what reality is. It’s a dream everyone has together.
+ - It was like autumn, looking at her. it was like driving up north to see the colors.
+ - You begin always knowing nothing. You remain forever an amateur, a first timer.
+ - I studied English literature in the honors program, which means that you had to take courses in various centuries. You had to start with Old English, Middle English, and work your way toward the modern. I figured if I did that it would force me to read some of the things I might not read on my own.
+ - They were bound for college, husbands, child-rearing, unhappiness only dimly perceived- bound, in other words, for life.
+ - Her eyes watered and she was a foot taller than any of her sisters, mostly because of the length of her neck which would one day hang from the end of a rope.
+ - The time has to be right and the heart willing.
+ - People don’t save other people. People save themselves.
+ - Whereas I, even now, persist in believing that these black marks on white paper bear the greatest significance, that if I keep writing I might be able to catch the rainbow of consciousness in a jar.
+ - And in some of the houses, people were getting old and sick and were dying, leaving others to grieve. It was happening all the time, unnoticed, and it was the thing that really mattered. What really mattered in life, what gave it weight, was death.
+ - I’d like to show how ‘intimations of mortality brought on by aging family members’ connects with ’the hatred of mirrors that begins in middle age.
+ - Every letter was a love letter.
+ - That’s the way I will write characters, put a fair amount of myself in them, and then everyone else who was like that person, I will pick and choose.
+ - Jerome was sliding and climbing on top of me and it felt like it had the night before, like a crushing weight. So do boys and men announce their intentions. They cover you like a sarcophagus lid. And call it love.
+ - Pregnancy humbles husbands. After an initial rush of male pride they quickly recognise the minor role that nature had assigned them in the drama of reproduction.
+ - She was a large, disordered woman, like a child’s drawing that didn’t stay within the lines.
+ - The mind self-edits. The mind airbrushes. It’s a different thing to be inside a body than outside. From outside, you can look, inspect, compare. From inside there is no comparison.
+ - That’s how people live, by telling stories. What’s the first thing a kid says when he learns how to talk? “Tell me a story.” That’s how we understand who we are, where we come from. Stories are everything.
+ - Just like ice, lives crack, too. Personalities. Identities.
+ - To be inclusive you must accommodate different levels of sophistication.
+ - Added to their loveliness was a new mysterious suffering, perfectly silent, visible in the blue puffiness beneath their eyes or the way they would sometimes stop in mid-stride, look down, and shake their heads as though disagreeing with life.
+ - College wasn’t like the real world. In the real world people dropped names based on their renown. In college, people dropped names based on their obscurity.
+ - The zipper opened all the way down our spines.
+ - The world, a tired performer, offers us another half-assed season.
+ - You went out with a girl at first because the sheer sight of her made you weak in the knees. You fell in love and were desperate not to let her get away. And yet the more you thought about her, the less you knew who she was. The hope was that love transcended all differences. That was the hope.
+ - Scars crossed her welded wrists.
+ - I remember liking to write stories pretty early on. In fourth or fifth grade, they would give us the beginning of a story, and we were supposed to finish it. I remember liking that. But I didn’t think about deciding to become a writer until high school at about the age of 16.
+ - The Pulitzer Prize is an idea; it’s a vote of confidence. Like literature, it exists purely in the mind.
+ - Normality wasn’t normal. It couldn’t be. If normality were normal, everybody could leave it alone. They could sit back and let normality manifest itself.
+ - Jacques Derrida is a very important thinker and philosopher who has made serious contributions to both philosophy and literary criticism. Roland Barthes is the one I feel most affinity for, and Michel Foucault, well, his writing influenced my novel, ‘Middlesex.’
+ - I think the suicides in my first book came from the idea of growing up in Detroit. If you grow up in a city like that you feel everything is perishing, evanescent and going away very quickly.
+ - All of a sudden America wasn’t about hamburgers and hot rods anymore. It was about the Mayflower and Plymouth Rock. It was about something that had happened for two minutes four hundred years ago, instead of everything that had happened since. Instead of everything that was happening now!
+ - I went into the desert to forget about you. But the sand was the color of your hair. The desert sku was the color of your eyes. There was nowhere I could go that wouldn’t be you.
+ - Their desire was silent yet magnificent, like a thousand daisies attuning their faces toward the path of the sun.
+ - I don’t know what you’re feeling. I won’t even pretend.
+ - I have a lot of novels that I haven’t finished. I usually get 150 pages in and I realize it’s not going anywhere. I don’t publish everything I write. I must have six unfinished novels at least.
+ - No matter how long your’ve been at it, you always start from scratch.
+ - Children learn to speak Male or Female the way they learn to speak English or French.
+ - I’d like to have a word for ‘the sadness inspired by failing restaurants’ as well as for ’the excitement of getting a room with a minibar.
+ - What if you had faith and performed good works, what if you died and went to heaven, and what if all the people you met there were people you didn’t like?
+ - We’re all well-acquainted with depression, we all know what the low moods are, but the mania was not something I knew much about. I didn’t know that it would make someone dress extravagantly or start to pun, and to stay up and drink.
+ - Regret, already sogging me down, burst its dam. It seeped into my legs, it pooled in my heart.
+ - She had given birth to me and nursed me and brought me up. She had known me before I knew myself and now she had no say in the matter. Life started out one thing and then suddenly turned a corner and became something else.
+ - Some Pulitzer winners – novelists – have confided to me that getting the prize screwed them up. It messed with their heads. That hasn’t been my experience.
+ - This can’t be true but I remember it.
+ - She wanted a book to take her places she couldn’t get to herself.
+ - I was aware that you weren’t supposed to write about suburbia, that it was undignified in some way, the subject matter not momentous enough. And so, for a long time, that kept me from writing about it. But once I began, I realized it was just as interesting as anywhere else.
+ - All sixteen mentioned her jutting ribs, the insubstantiality of her thighs, and one, who went up to the roof with Lux during a warm winter rain, told us how the basins of her collarbones collected water.
+ - I saw the movie, he said. I know what it’s about. Listen to this. When girls get to be about twelve or so – he leaned toward us – their tits bleed.
+ - Detroit’s a great music town. If your interaction with it was mainly musical, I’m sure you have a good opinion of the place.
+ - I was unemployable when I got out of college.
+ - Usually my ideas are small.
+ - He had the feeling that there was something physically behind his eyes, blocking the light.
+ - In Madeleine’s face was a stupidity Mitchell had never seen before. It was the stupidity of all normal people. It was the stupidity of the fortunate and the beautiful, of everybody who got what they wanted in life and so remained unremarkable.
+ - The essential matrimonial facts: that to be happy you have to find variety in repetition; that to go forward you have to come back to where you begin.
+ - Where else would she feel more comfortable than in this subterranean realm where people wrote down what they couldn’t say, where they gave voice to their most shameful longings and knowledge?
+ - It was as if, before she’d met him, her blood had circulated grayly around her body, and now ir was all oxygenated and red. She was petrified of becoming the half-alive person she’d been before.
+ - We knew that Cecilia had killed herself because she was a misfit, because the beyond called to her, and we knew that her sisters, once abandoned, felt her calling from that place, too.
+ - I think there’s a real connection between acting and writing novels because the way I write characters has a little bit to do with the method acting that I was taught in high school and college.
+ - What lingered after them was not life, which always overcomes natural death, but the most trivial list of mundane facts: a clock ticking on a wall, a room dim at noon, and the outrageousness of a human being thinking only of herself.
+ - What I do when I create a character is put in details from all the people I know who might be like that person, and then put in a huge amount of myself.
+ - I had a briefcase at one point, but it was a kind of 1980s New Wave briefcase. It was made of some kind of cardboard and it had metal hinges. It was kind of faux industrial looking, and I used to carry my books in it rather than a backpack. I didn’t want to have normal student accoutrements.
+ - Some cities have fallen into ruin and some are built upon ruins but others contain their own ruins while still growing.
+ - You can tell when something’s not moving forward anymore. When the doubts you have about it don’t go away.
+ - There are some books that reached through the noise of life to grab you by the collar and speak only of the truest things.
+ - I think, especially when you’re in college, each book that you’re reading tends to tell you who you are.
+ - You don’t understand me. I’m a teenager. I’ve got problems!
+ - To start with, look at all the books.
+ - In the end, the tortures tearing the Lisbon girls pointed to a simple reasoned refusal to accept the world as it was handed down to them, so full of flaws.
+ - The ideas for my books come about in two ways. There can be an intellectual idea that seems to be the reason for writing the book. The other motive is unconscious. There is something deeply psychological and emotional that draws me to the material in the first place.
+ - I know that attaching memories to books may be going out of the world, but while it lasts, it’s a strong record of your life.
+ - But that was in the days when they expected perils to come from without, and nothing made less sense by that time than a survival room buried in a house itself becoming one big coffin.
+ - He knew a lot about his grandparents – and perhaps he feels he’s been endowed with abilities to go into people’s heads who are long dead – but, to a certain extent, he’s making it up.
+ - I’m hopefully making the reader feel a lot about the characters and then about their own life.
+ - Novelists are always resisting autobiographical readings of their work, because they know how false those can be.
+ - Dieting fooled you into thinking you could control your life.
+ - It was morning by the clock but deepest nighttime in his body.
+ - Being a writer is a solitary life. So the little part of me that’s an actor still enjoys the theatrical part of reading and doing the voices and telling the story.
+ - I always work in a room where there’s no Internet to keep from being distracted so easily.
+ - I’m the final clause in a periodic sentence, and that sentence begins a long time ago, in another language, and you to read it from the beginning to get to the end, which is my arrival.
+ - On their best days, writers all over the world are winning Pulitzers, all alone in their studios, with no one watching.
+ - Chunks of his life fell away, so that while we were moving ahead in time, he was moving back.
+ - The following doodle: a girl with pigtails is bent under the weight of a gigantic boulder. Her cheeks puff out, and her rounded lips expel steam. One widening steam cloud contains the word Pressure, darkly retraced.
+ - I’m not really an autobiographical writer, though I use lots of stuff from my life to make my stories seem real. But when I actually write about myself, I get very confused.
+ - There is a small window of opportunity for freckled girls to tan.
+ - We listened to them, but it was clear they’d received too much therapy to know the truth.
+ - There’s a kind of acting that goes on in my head when I’m writing a character where I put myself in their place.
+ - They made us participate in their own madness, because we couldn’t help but retrace their steps, rethink their thoughts, and see that none of them led to us.
+ - One of the reasons that art is important to me is sometimes it actually feels more coherent than life. It orders the chaos.
+ - But, like anyone in love, Madeleine believed that her own relationship was different from every other relationship, immune from typical problems.
+ - It was something every child knew how to do, maintain a direct and full connection with the world. Somehow you forgot about it as you grew up, and had to learn it again.
+ - I want an ending that’s satisfying. I’m more of a classical writer than a modernist one in that I want the ending to be coherent and feel like an ending. I don’t like when it just seems to putter out. I mean, life is chaotic enough.
+ - I spend most of every day writing. I like to write every day if I can. I don’t start extremely early.
+ - If Mitchell was ever going to become a good Christian, he would have to stop disliking people so intensely.
+ - It was amazing how it worked: the tiniest bit of truth made credible the greatest lies.
+ - There was nowhere I could go that wouldn’t be you.
+ - Whenever we got a glimpse, their faces looked indecently revealed, as though we were used to seeing women in veils.
+ - She thought a writer should work harder writing a book than she did reading it.
+ - Basically you come up with the fictional idea and you start writing that story, but then in order to write it and to make it seem real, you sometimes put your own memories in. Even if it’s a character that’s very different from you.
+ - When you stood between somebody you loved and death, it was hard to be awake and it was hard to sleep.
+ - Yes, you need a passport to prove to the world that you exist. The people at passport control, they cannot look at you and see you are a person. No! They have to look at a little photograph of you. Then they believe you exist.
+ - When I’m creating a character, it’s a little bit like what my theater teachers used to tell me about Stanislavsky, like if you’re using sense memory to do a scene – if you have to cry in a scene, you try to remember something in your life that made you cry and you use that in order to get the tears.
+ - If love were endless, if it were on tap, it wouldn’t hit us the way it does. And we certainly wouldn’t write about it.
+ - If you grew up in a house where you weren’t loved, you didn’t know there was an alternative.
+ - Every letter was a love letter. Of course, as love letters went, this one could have been better. It was not very promising, for instance, that Madeleine claimed not to want to see him for the next half-century.
+ - In the midst of my skeptical, cynical, often pessimistic nature exists a slender capacity to believe, if only temporarily, in a guiding, unseen power, and whenever this happens, I go with it. That’s what inspiration is. You don’t get it from the gods. You make it.
+ - Planning is for the world’s great cities, for Paris, London, and Rome, for cities dedicated, at some level, to culture. Detroit, on the other hand, was an American city and therefore dedicated to money, and so design had given way to expediency.
+ - She wanted out of the decorating scheme.
+ - We realized that the version of the world they rendered for us was not the world they really believed in...
+ - I wanted to be an actor. My parents were not too keen on that.
+ - I approach writing female characters the same why I approach writing male characters. I never think I’m writing about women, I think I’m writing about one woman, one person. And I try to imagine what she is like, and endow her with a lot of my own thoughts and history.
+ - But I care about the reader, and I’m trying to keep the reader’s attention for as long as I can.
+ - Mitchell had answered that, as far as he understood them, mystical experiences were significant only to the extent that they changed a person’s conception of reality, and if that changed conception led to a change in behavior and action, a loss of ego.
+
+173 quotes

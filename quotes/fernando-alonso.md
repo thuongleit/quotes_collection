@@ -1,0 +1,21 @@
+ - I like to race, not to do laps alone.
+ - For me, it was not destiny to make it to where I am now – I thought for a long- time I would become a go-kart mechanic, or a job like this, not an F1 driver.
+ - I have always been very calm on the outside.
+ - I thought I would be a go-kart mechanic – not an F1 driver.
+ - Ferrari gives you a special feeling.
+ - I don’t have any relationship with God and I’ve never wanted it. I don’t believe in fate or in any superior entity; if a plane crashes and people die, it’s not because Heaven said so.
+ - Totally uneventful. It was a very successful first flight. To be honest, it was a little bit boring.
+ - In Spain there were no TV rights for Formula One.
+ - My parents are responsible for the two things I like doing most – driving and magic tricks. They bought me my first go-kart and a magician’s kit.
+ - I have always been very calm on the outside. I’m not too stressed now just because I’m in formula one. For me, tomorrow will be another day whether I finish first or last. I have to do the maximum and I cannot ask any more from myself.
+ - I will be going to Belgium to win – and we will see how the weekend develops from there.
+ - This is a fantastic fight for the championship. I’m really confident and believe we can do it.
+ - When I race in Australia or Korea or Japan I know it will be a big change for me because Ferrari fans are worldwide.
+ - Creating a top team and being in a position to win the Tour de France will give me a nice feeling. But I know it is not easy to create a top team from zero. You need good riders, good staff, a lot of preparation and, most important, a lot of sponsors.
+ - I look at myself as someone who has been very lucky – my job is also what I enjoy most in the world, and I can make my life doing it.
+ - I am very proud of what we have built in Spain, because it is not a traditional Formula 1 country. I think we have found passionate fans, and built up a strong culture for the sport – and things are improving every day, with more and more people getting interested.
+ - I like America, and I think probably the American people like me.
+ - If you’re in the best team in the world, you or your teammate have to win.
+ - It was a bit of a surprise for us that we had problems in Hungary. But in reality, I think the car could have been pretty competitive with a trouble-free race.
+
+19 quotes

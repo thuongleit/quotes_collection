@@ -1,0 +1,28 @@
+ - In Chaos Magic, beliefs are not seen as ends in themselves, but as tools for creating desired effects.
+ - If someone claims to have free will, ask them, free from precisely what?
+ - Junk food, junk religion, and junk products just leads to excessive numbers of junk people living junk lifestyles.
+ - Magic doesn’t suit everyone. Only those prepared to take full responsibility for themselves should apply.
+ - He who is doing his true will is assisted by the momentum of the universe.
+ - The only clear view is from atop the mountain of your dead selves.
+ - Some have sought to avoid suffering by avoiding desire. Thus they have only small desires and small sufferings, poor fools.
+ - As a great master once observed: “There are two methods of becoming god, the upright or the averse.” Let the mind become as a flame or a pool of still water .
+ - Chaos, the life force of the universe, is not human-hearted. Therefore the wizard cannot be human-hearted when he seeks to tap the force of the universe. He performs monstrous and arbitrary acts to loosen the hold of human limitations upon himself.
+ - Laughter is the only tenable attitude in a universe which is a joke played on itself.
+ - That which is denied gains power, and seeks strange and unexpected forms of manifestation.
+ - Space, time, mass, and energy originate from Chaos, have their being in Chaos, and through th agency of the aether are moved by Chaos into the multiple forms of existence.
+ - We doubt that any facts actually exist. We only have observations and interpretations. Most of the interpretations remain questionable.
+ - So many people seem to spend their lives trying to appear normal, predictable and consistent to themselves and those that surround them. They just end up bored with themselves, bereft of any depth of inner resources, suffocated by the inhibitions that defend their own monolithic identities.
+ - Indeed, linear extrapolations make no large-scale sense in a universe that has spatial and temporal curvature.
+ - Flat Earth theory serves well enough for a trip from the cave to the water hole and back, and a third dimension going up into the sky and down underground serves to accommodate gods and devils A lot of people still think like that, believe it or not.
+ - In certain tantric rituals the candidate is first beaten by his guru, hashish forced down him, and he is taken at midnight to a dark cemetery for sacred sexual intercourse. Thus he achieves union with his god.
+ - Every new form of liberation is destined to eventually become another form of enslavement for most of its adherents.
+ - It has taken us two million years to elevate politics from the level of a monkey squabble, to a level comprehensible to a six year old child.
+ - If only one fifth of your spells work you have real power. If only one fifth of your divinations work you have a serious disability.
+ - Only through absolute loyalty to each other can the few control the many.
+ - All Philosophy is Biography.
+ - Matter can be conveniently divided for descriptive purposes into space, time, mass, and energy. However we can only describe any one of these phenomena in terms of the other three. Any definitions we care to make about matter are thus tautological .
+ - In a stagnant environment the body-mind creates its own adversity – disease and fantasy.
+ - Can we find “The Universe in a grain of sand”? Well perhaps, but a stone seems easier to visualize.
+ - Science has brought us power and ideas but not the wisdom or responsibility to handle them.
+
+26 quotes

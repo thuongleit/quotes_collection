@@ -1,0 +1,96 @@
+ - You can’t stop the waves, but you can learn to surf.
+ - Mindfulness means being awake. It means knowing what you are doing.
+ - Mindfulness means paying attention in a particular way: on purpose, in the present moment, and non-judgmentally.
+ - The little things? The little moments? They aren’t little.
+ - We take care of the future best by taking care of the present now.
+ - Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time.
+ - Mindfulness is a way of paying attention, on purpose and non-judgmentally, to what goes on in the present moment in your body, mind and the world around you.
+ - It is indeed a radical act of love just to sit down and be quiet for a time by yourself.
+ - Mindfulness is about love and loving life. When you cultivate this love, it gives you clarity and compassion for life, and your actions happen in accordance with that.
+ - Mindfulness practice means that we commit fully in each moment to be present; inviting ourselves to interface with this moment in full awareness, with the intention to embody as best we can an orientation of calmness, mindfulness, and equanimity right here and right now.
+ - All the suffering, stress, and addiction comes from not realizing you already are what you are looking for.
+ - Mindfulness meditation is the embrace of any and all mind states in awareness, without preferring one to another.
+ - Practice moment to moment non-judgemental awareness.
+ - Voluntary simplicity means going fewer places in one day rather than more, seeing less so I can see more, doing less so I can do more, acquiring less so I can have more.
+ - Mindfulness means moment-to-moment, non-judgmental awareness. It is cultivated by refining our capacity to pay attention, intentionally, in the present moment, and then sustaining that attention over time as best we can. In the process, we become more in touch with our life as it is unfolding.
+ - In letting go of wanting something special to occur, maybe we can realize that something special is already occurring.
+ - Mindfulness is about being fully awake in our lives. It is about perceiving the exquisite vividness of each moment. We also gain immediate access to our own powerful inner resources for insight, transformation, and healing.
+ - When you pay attention to boredom it gets unbelievably interesting.
+ - Note that this journey is uniquely yours, no one else’s. So the path has to be your own. You cannot imitate somebody else’s journey and still be true to yourself. Are you prepared to honor your uniqueness in this way?
+ - Practice sharing the fullness of your being, your best self, your enthusiasm, your vitality, your spirit, your trust, your openness, above all, your presence. Share it with yourself, with your family, with the world.
+ - Mindful parenting is the hardest job on the planet, but it’s also one that has the potential for the deepest kinds of satisfactions over the life span, and the greatest feelings of interconnectedness and community and belonging.
+ - Healing is a coming to terms with things as they are, rather than struggling to force them to be as they once were, or as we would like them to be, to feel secure or to have what we sometimes think of as our own way.
+ - You might be tempted to avoid the messiness of daily living for the tranquility of stillness and peacefulness. This of course would be an attachment to stillness, and like any strong attachment, it leads to delusion. It arrests development and short-circuits the cultivation of wisdom.
+ - Mindfulness is not about getting anywhere else.
+ - Meditation is simply about being yourself and know about who that is.
+ - The only time you ever have in which to learn anything or see anything or feel anything, or express any feeling or emotion, or respond to an event, or grow, or heal, is this moment, because this is the only moment any of us ever gets. You’re only here now; you’re only alive in this moment.
+ - Concentration is a cornerstone of mindfulness practice. Your mindfulness will only be as robust as the capacity of your mind to be calm and stable. Without calmness, the mirror of mindfulness will have an agitated and choppy surface and will not be able to reflect things with any accuracy.
+ - The best way to capture moments is to pay attention. This is how we cultivate mindfulness. Mindfulness means being awake. It means knowing what you are doing.
+ - Zen has an expression, “nothing special.” When you understand “nothing special,” you realize that everything is special. Everything’s special and nothing’s special. Everything’s spiritual and nothing’s spiritual. It’s how you see, it’s what eyes you’re looking through, that matters.
+ - Intelligence is the door to freedom and alert attention is the mother of intelligence.
+ - Arriving someplace more desirable at some future time is an illusion. This is it.
+ - You are only here now; you’re only alive in this moment.
+ - Nourishing the soul is the process of drinking at the life stream, coming back to one’s true self, embracing the whole of one’s experience – good, bad, or ugly; painful or exalted; dull or boring.
+ - The mind that has not been developed or trained is very scattered. That’s the normal state of affairs, but it leaves us out of touch with a great deal in life, including our bodies.
+ - So, in meditation practice, the best way to get somewhere is to let go of trying to get anywhere at all.
+ - Perhaps the most “spiritual” thing any of us can do is simply to look through our own eyes, see with eyes of wholeness, and act with integrity and kindness.
+ - Make a list of what is really important to you. Embody it.
+ - If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear.
+ - Writing can be an incredible mindfulness practice.
+ - But you cannot have harmony without a commitment to ethical behavior. It’s the fence that keeps out the goats that will eat all the young shoots in your garden.
+ - The awareness is not part of the darkness or the pain; it holds the pain, and knows it, so it has to be more fundamental, and closer to what is healthy and strong and golden within you.
+ - In any given moment we are either practicing mindfulness, or defacto, we are practicing mindlessness.
+ - Mindfulness is so powerful that the fact that it comes out of Buddhism is irrelevant.
+ - The real meditation practice is how we live our lives from moment to moment to moment.
+ - Meditation is not about feeling a certain way. It’s about feeling the way you feel.
+ - Just watch this moment, without trying to change it at all. What is happening? What do you feel? What do you see? What do you hear?
+ - He who dies before he dies does not die when he dies.
+ - You could think of mindfulness as wise and affectionate attention.
+ - We must be willing to encounter darkness and despair when they come up and face them, over and over again if need be, without running away or numbing ourselves in the thousands of ways we conjure up to avoid the unavoidable.
+ - There is just this moment. We are not trying to improve or to get anywhere else.
+ - Perhaps we just need little reminders from time to time that we are already dignified, deserving, worthy.
+ - Most people don’t realize that the mind constantly chatters. And yet, that chatter winds up being the force that drives us much of the day in terms of what we do, what we react to, and how we feel.
+ - The real meditative practice is to open up to the full range of what happens in life. And parenting is a fantastic arena for doing that kind of spiritual training. It’s as much a potential door into enlightenment as anything else.
+ - You are whole and also part of larger and larger circles of wholeness you many not even know about. You are never alone. And you already belong. You belong to humanity. You belong to life. You belong to this moment, this breath.
+ - Just stopping, is a radical act of sanity and love.
+ - Maybe the fear is that we are less than we think we are, when the actuality of it is that we are much much more.
+ - The only time that any of us have to grow or change or feel or learn anything is in the present moment. But we’re continually missing our present moments, almost willfully, by not paying attention.
+ - Generosity is another quality which, like patience, letting go, non-judging, and trust, provides a solid foundation for mindfulness practice.
+ - In Asian languages, the word for mind and the word for heart are the same word.
+ - The funny thing about stopping is that as soon as you do it, here you are.
+ - Dying without actually fully living, without waking up to our lives while we have the chance, is an ongoing and significant risk.
+ - See if you can give yourself gifts that may be true blessings, such as self-acceptance, or some time each day with no purpose. Practice feeling deserving enough to accept these gifts without obligation – to simply receive from yourself, and from the universe.
+ - Allow your attention to gently alight on your belly, as if you were coming upon a shy animal sunning itself on a tree stump in a clearing in the forest. Feel your belly rise or expand gently on the inbreath, and fall or recede on the outbreath.
+ - Meditation is really a non-doing. It is the only human endeavor I know of being where you already are.
+ - Stillness, insight, and wisdom arise only when we can settle into being complete in this moment, without having to seek or hold on to or reject anything.
+ - Meditation is the only intentional, systematic human activity which at bottom is about not trying to improve yourself or get anywhere else, but simply to realize where you already are.
+ - To drop into being means to recognize your interconnectedness with all life, and with being itself. Your very nature is being part of larger and larger spheres of wholeness.
+ - A lot of harm has come in all eras from people attached to one view of ‘spiritual’ truth.
+ - From the point of view of the meditative traditions the entire society is suffering from attention deficit hyperactivity disorder.
+ - When awareness embraces the senses, it enlivens them.
+ - See for yourself whether letting go when a part of you really wants to hold on doesn’t bring a deeper satisfaction than clinging.
+ - Sometimes shutting off the sound on the television can allow you to actually watch the game and take it in in an entirely different and more direct way – a first-order, first-person experience – rather than filtered through the mind of another.
+ - Can you question who you are? And are you comfortable with not knowing?
+ - See If You Can Give Yourself Gifts That May Be True Blessings, Such As Self-Acceptance.
+ - Breathing is central to every aspect of meditation training. It’s a wonderful place to focus in training the mind to be calm and concentrated.
+ - From the perspective of meditation, every state is a special state, every moment a special moment.
+ - When you have children, you realize how easy it is to not see them fully, and perhaps miss all those early years. If you are not careful, you can be too absorbed in work, and they will be only too happy to tell you about it later. Being a parent is one of greatest mindfulness practices of all.
+ - For men and women alike, this journey is a the trajectory between birth and death, a human life lived. No one escapes the adventure. We only work with it differently.
+ - There are certain ways in which I cultivate awareness, both through mindful yoga and taking care of my body and taking time to actually drop as deeply as possible into stillness, into whatever is unfolding in the present moment.
+ - Living in a chronic state of unawareness can cause us to miss much of what is most beautiful and meaningful in our lives.
+ - Awareness Is Not The Same As ThoughtMore Like A Vessel Which Can Hold And Contain Our Thinking.
+ - Discipline provides a constancy which is independent of what kind of day you had yesterday and what kind of day you anticipate today.
+ - I was very much a tough New York street kid. I went to a school where you had to learn how to get along with everybody or fight with everybody, and I did my fair share of both.
+ - When experience is viewed in a certain way, it presents nothing but doorways into the soul.
+ - Paying attention and awareness are universal capacities of human beings.
+ - We call the effort to cultivate our ability to be in the present moment ‘practice’ or ‘meditation practice.’
+ - Peace is something that we can bring about if we can actually learn to wake up a bit more as individuals and a lot more as a species; if we can learn to be fully what we actually already are; to reside in the inherent potential of what is possible for us, being human.
+ - Most people think that to meditate, I should feel a particular special something, and if I don’t, then I must be doing something wrong.
+ - Even before smart phones and the Internet, we had many ways to distract our selves. Now that’s compounded by a factor of trillions.
+ - Too much of the education system orients students toward becoming better thinkers, but there is almost no focus on our capacity to pay attention and cultivate awareness.
+ - How we see and hold the full range of our experiences in our minds and in our hearts makes an enormous difference in the quality of this journey we are on and what it means to us. It can influence where we go, what happens, what we learn, and how we feel along the way.
+ - Meditation means learning how to get out of this current, sit by its bank and listen to it, learn from it, and then use its energies to guide us.
+ - There are a lot of different ways to talk about mindfulness, but what it really means is awareness.
+ - You make problem, you have problem.
+
+94 quotes

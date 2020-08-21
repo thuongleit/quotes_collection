@@ -1,0 +1,49 @@
+ - Reality depresses me. I need to find fantasy worlds and escape in them.
+ - People said, ‘You must be mad, or on drugs,’ which I found a bit disappointing. What about imagination? It reflects our time that people sooner assume you’re on drugs or mad, rather than free.
+ - I’m a mischievous drunk.
+ - It’s impossible to be unhappy while wearing a poncho!
+ - When I’m 70 I might be a man in a park just wandering around, speaking in tongues with kids throwing bread at me.
+ - When I was a little kid I always wanted to be ginger. My best friend was ginger and he was pretty cool.
+ - When you’re quite young, your imagination’s quite free.
+ - I could get an audience into my world and if you can do that, they’ll go with you not all the way, but a lot of the way.
+ - There was a big age difference between me and my brothers – about 10 years – so I was an only child for a long time. I used to hang out a lot on my own. I played a lot of weird games with a lot of imaginary people. I guess it’s kind of roleplaying...
+ - Science teachers and the mentally ill, that’s all Jazz is for.
+ - No means yes in grasshopper language.
+ - Imagine that, a poncho sombrero combo, I’ll be off my tits on happiness.
+ - This is not a dress. This is a sacred robe of the ancient psychedelic monks.
+ - I don’t really like jokes in a way. I mean gags are fine but I like weird moments where what you have isn’t really a joke, just tiny moments.
+ - I visited a friend in Leicester recently. It was 4am and we all ran around in a circle, six of us. It’s the most fun I’ve had since i was seven. And I thought: it’s not about drink, or drugs, or fancy clubs. It’s about running around in your socks, changing direction in a front room in Leicester.
+ - Never try and go on a solo mission on your own.
+ - The tie’s a multi purpose accessory, y’know, belt, school boy, Rambo.
+ - You know the black bits in bananas? Are they tarantulas eggs?
+ - I don’t hate Coldplay to be cool I genuinely hate Coldplay.
+ - There’s not enough psychedelic stuff on TV. I want the world to be a bit weirder than it is. I hate reality, so I hate reality TV. But I love Columbo.
+ - I’d like to punch out a really old lady. There’d be no repercussions.
+ - When I was 14, I saw someone getting their face and wrists slashed with a knife in a pub in Catford. Nobody lifted a finger. That’s when I realised that violence wasn’t funny. At all.
+ - I never did that badly with women when I wasn’t on telly, but it’s a bit out of control now. Women try it on with me more than I’m comfortable with. It’s strange, because I think I look like a troll wearing a woman’s wig backwards.
+ - Some people have a fear of being on stage. I have a fear of coming off it.
+ - If you’re going to be a good standup, or a successful standup, or a standup who can work for money, you have to eliminate the possibility of dying quickly.
+ - I don’t pick stuff up I knock stuff down!
+ - I’ve had a really weird day, some joker threw bamboo in the penguin enclosure. They all vaulted out. It was a nightmare, it took me all morning to get them back in.
+ - That’s the authentic punk dance. It’s like a child dizzy on lemonade.
+ - When I was a really young child, I felt like I could see fairies. I was convinced there were fairies in my grandmother’s garden.
+ - There’s something amazing about tea. It’s good before a meal, after a meal, when drunk, when taking drugs, while playing football and after being called a poof in the street.
+ - I did work in a bakery for one day. But the boss went off and when he came back I was lying on the floor eating cakes.
+ - Trousers can never be too tight. You have to go through a couple of days of pain, then everything stretches out.
+ - All my friends got dogs and cats for Christmas, and I got a starfish called Roy. I used to take him down to the park on a lead.
+ - My nan used to look after me in the summer holidays and she had a cat with one eye. It used to walk into walls and tables. I used to think it was hilarious. It was a slapstick cat.
+ - I’ve got it all in here ultra violets, flying saucers, strawberry bootlace come on get involved...
+ - I always wanted to travel around and see lots of America, I’d never been to Boston, I’d never been to San Francisco even, so I’m quite excited to just go the places.
+ - Yeah? Rock ‘n’ Roll is fast, you know. If all goes according to plan I could be in rehab next thursday. Tuesday week I’ll be living on an island with a small Indian boy.
+ - When you’re a kid and someone’s an artist, you think of Leonardo da Vinci. You don’t think that’s a job; you just think of a man with a beard painting the ceiling of the Sistine Chapel.
+ - I don’t think I’d have done comedy if I was born eighty years ago I’d have been a lord. Shooting people that were on my land With a wig, yeah. And some crisps.
+ - Englishmen do like to get in a dress, any excuse.
+ - When you’re famous you can’t go to Topshop. Even when I disguise myself in a moustache, baseball cap, sunglasses – the full Madonna kit – it doesn’t work: my stupid face is too big.
+ - When you start, it’s not to do with the material so much. It’s more to do with how you can control a crowd and make friends with an audience and sell your brand of humor.
+ - When I was three or four, I was really good at drawing and painting, and everyone used to say, “You’re going to go to art college.” I didn’t really know what that meant.
+ - It’s very difficult once you’ve been on telly because people know what you do. They give you a little bit of grace but then they’re harsher if you’re not funny, so you have to be funny.
+ - In comedy, you see yourself as a newcomer and then you realize you’ve been doing it for 18, 20 years, which is ridiculous.
+ - When I was a little kid I wanted to be Face. I thought, cos I had blond hair and he did too, that when I grew up I’d look like him.
+ - I’d have to do unannounced gigs because your fans will laugh at everything because they know what you do already. What you really want is a neutral audience that isn’t too harsh – a good comedy crowd – but that don’t know necessarily what you’re doing.
+
+47 quotes

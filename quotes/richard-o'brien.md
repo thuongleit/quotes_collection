@@ -1,0 +1,32 @@
+ - Don’t just dream it. Be it!
+ - Running is not, as it so often seems, only about what you did in your last race or about how many miles you ran last week. It is, in a much more important way, about community, about appreciating all the miles run by other runners, too.
+ - He shook-a me up, he took me by surprise. He had a pickup truck, and the devil’s eyes. He stared at me and I felt a change. Time meant nothing, never would again.
+ - I’m surrounded by it. I have so many lovely people around me who are supportive, gentle, kind and considerate. I’m so grateful for every day that I’m on the planet and that continues to be so.
+ - He who quotes himself has a fool for a source.
+ - I am 58 and it’s difficult for people to gauge my age.
+ - The first movie I appeared in was Carry On Cowboy, though not as an actor. I was just riding horses.
+ - However, there’s three reasons for doing things in this particular world. One is love, one is prestige and the other’s money. If you get all three together, that’s fine.
+ - Yes, but I think the big thing for everyone is to wear what they want and what suits them.
+ - Life’s too short to be working with divas.
+ - We were a Western civilisation, an English speaking civilisation, both NZ and Australia, and we had all these influences coming from both Great Britain and America to us; sending us their culture in the shape and form of movies and television.
+ - That means more to me, truthfully, than commercial success. To be a loved human being is much more important to me then any of those other things.
+ - There’s something about shadows because you make your own mind up about what’s lurking in them.
+ - Even though we know freedom as an idea we’re not really as free as we think we are.
+ - I paid my dues at drama school and worked backstage in every Theatre in London.
+ - I absolutely adore working in the realms of fantasy.
+ - It is difficult to go on the next night after you receive a sandbagging.
+ - I’m one of those people who never really joined the grown-ups.
+ - I never wanted to be aligned to a mature group because they go off and become politicians and stuff.
+ - Well, no. I was getting into trouble messing around with it for roles. So one night I went home, cut it down with a pair of scissors and then got in the bath and shaved it all off. I’ve never looked back.
+ - I’ve never been driven by fame or money or anything like that. It’s never been part of my psyche.
+ - There is always an audience for different individuals, but critics sometimes stop the audience finding the show and the show finding the audience.
+ - I’m not driven by money and I’m not driven by career.
+ - I have done every job in the Theatre apart from wardrobe. I was out of work more times than I was in it.
+ - I would have loved to have been in The Stand. I would also loved to have been in The Mask.
+ - I’ve never wanted to play bank managers and real people particularly.
+ - Writers never get a very good deal in Hollywood.
+ - To play a role where you get to reveal intellectual change is wonderful.
+ - I do like to be creative and I’m very lucky that I’ve been given different areas in which I’m able to do that – whether it be film or television or theatre or whatever. I’m also still into music and recording.
+ - Not that I have any interest in saying goodbye to Rocky. I absolutely adore being involved and a part of something that is really a phenomenon.
+
+30 quotes

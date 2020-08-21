@@ -1,0 +1,31 @@
+ - To me, there was no better drummer than Jeff Porcaro. His musicianship and kindness to me will never be forgotten. Our loss is heaven’s gain.
+ - When things are too easy I lose interest in them so I find ways to complicate them to get myself interested.
+ - Too caught up in me to see, I’m holding a fortune that heaven has given to me. I’ll try and show you each and every way I can, now and forever, I will be your man.
+ - It don’t mean nothing til you sign it on the dotted line.
+ - I’m now so keenly aware that I have everything to prove and nothing to lose.
+ - But I’m just having fun playing and giving Botox injections to the older songs.
+ - The lonely heart you see tonight will not give up without a fight.
+ - I saw your smile and my mind could not erase the beauty of your face.
+ - I’ve always loved groups like U2 and Coldplay.
+ - I fell off stage and bruised some ribs. The worst part was that the audience didn’t realize I was gone.
+ - One time Robert Plant was set to check into the same room after I checked out, so I removed every light bulb and ordered up a bunch of stinky cheese and put it under the mattress.
+ - Take a good look around and you’ll find people trying to mess with your mind.
+ - I have complete freedom, and there’s no way to get pigeonholed or bored. What could be better than that?
+ - I think I do better when things are a little tougher.
+ - I think really what I’m saying is that I thrive on adversity.
+ - I love when people get songs wrong. I love when people take something from a song that’s totally not what I intended!
+ - I’ve never, ever in my life enjoyed playing live the way I am now.
+ - I’m happy, I would say that I’m one of the happiest people I know but I’ve certainly had periods of profound sadness, depression and heartache and those are the kind of things that are interesting to me to write about.
+ - People take songs so literally.
+ - I don’t think it is pressure but I am aware sometimes, especially on this new album, that people were going to really pay attention.
+ - The only thing that’s a little tricky about it is sometimes people assume that if it’s a new song, it’s a reflection of what you’re feeling or going through now.
+ - In the past, there has always been so much pressure about carrying a show and promoting a record.
+ - Doing my own album provided me the opportunity to say whatever I wanted.
+ - I’ve never written a song that I thought was a hit.
+ - I can’t wait to front my band with these new songs and play for fans, but I’ve decided to keep my day job too.
+ - I didn’t want my last chapter to be the guy who sits at the piano and sings love songs.
+ - But once you have some success in one style, the business wants to lock you in that vein forever.
+ - My joke, which isn’t really a joke, is that there will be one of two tours: the tour for the album that does well, or the tour for the album that stiffs.
+ - So it was just a case of getting a bunch of songs that I had been writing for years but hadn’t recorded together, and the result was My Own Best Enemy.
+
+29 quotes

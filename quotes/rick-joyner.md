@@ -1,0 +1,41 @@
+ - Jesus is the ultimate solution to every human problem and the ultimate hope for all mankind.
+ - It is not worrying, but rather trusting and abiding in the peace of God that will crush anything that Satan tries to do to us. If the Lord created the world out of chaos, He can easily deal with any problem that we have.
+ - Gifts are given, but fruit must be grown.
+ - From the first Day of Pentecost, the Holy Spirit has proven that He will only come to the degree that we have unity.
+ - The Lord does not forgive excuses, He forgives sin.
+ - True Christianity is a life of sacrifice. It requires that in everything we live for the Lord and others, not ourselves.
+ - The Holy Spirit is not “the Doer,” but rather the “Helper.” He will not do it without us, but if we engage He will help us with what we need to make it happen.
+ - True revival can only be ignited by God, but God will always move through men.
+ - Reading our Bible is actually fundamental, but there is more if we are going to walk in His truth. Even if we read the Bible, if we do not read it by the Holy Spirit, the Spirit of Truth, we will not understand it correctly.
+ - For those who are walking in their purpose, even the great tribulation will be a minor event. There will be far more attention on what Christ is doing than on what the antichrist is doing.
+ - We can build influence by self promotion, but God will only promote those who do not promote themselves. That which is built on self-promotion will have to be maintained by human striving. Those who allow God to build the house have taken a yoke that is easy and a burden that is light.
+ - Take heed when you think you stand, lest you fall. In this life you can fall from any level.
+ - Most of the heroes of Scripture rose to their greatest victories after their worst mistakes. God is in the redemption business, and He testifies of this through the lives of everyone He calls.
+ - The Great Commission to go into all the world is not only geographical, but must include every field, profession, discipline, sport, etc.
+ - The Lord has never restricted Himself to move by any predetermined formula.
+ - Most people are far more prone to let the bad experiences shape their views than the good ones.
+ - Satan’s first strategy is to keep religion intellectual.
+ - A successful Christian life will not be based on how much work we have done, but rather, on how close to the Lord we have become and how obedient we have been.
+ - It is by the Lord’s stripes that we are healed, and it is through our own stripes that we, too, are given the authority for healing. In the place where the enemy wounds us, once we are healed, we are given the power to heal others.
+ - It is a basic tenet throughout the Scriptures that God rewards diligence, faithfulness, endurance, and steadfastness.
+ - We must realize that the ministries and gifts of the Spirit are for everyday life, not just meetings.
+ - We are in the times of the beginning of a new epoch for Christianity. True apostolic Christianity is being restored to the earth.
+ - In time, the church will actually be organized more as a military force with an army, navy, air force, etc.
+ - We serve a God that does His greatest works when it becomes impossible for us.
+ - We are in the days of miracles and wonders that will eventually eclipse those of any other time.
+ - What is about to come upon the earth is not just a revival, or another awakening, it is a veritable revolution. The vision was given in order to begin to awaken those who are destined to radically change the course, and even the very definition of Christianity.
+ - God does not judge the condition or quality of His church by how good the meetings are on Sunday morning, but by how good the people are on Monday morning. The main calling of our life is more than just knowing the truth – it is having that truth become our life.
+ - The best way to dwell in the presence of the Lord is to be a thankful person.
+ - In the times of darkness, the Glory will stand out even more.
+ - The fact is, almost every move of God is, in some ways, profoundly different from the previous ways that He has moved.
+ - Labor is cheap, friends are expensive, but sons are priceless.
+ - There will never be anything more exciting or wonderful than being close to God.
+ - We do not want to have mercy for the things God has under judgment. We do not want to fall in the ditch on the otherside of unsanctified mercy.
+ - Do not look at your weakness or your small size; look at the Lord and His greatness that He will demonstrate through you. You now have the authority to tear down the strongholds of the enemy and to make New Zealand a fortress of righteousness.
+ - Knowing His will is more valuable than all the treasures we could ever have, and we must always esteem knowing His will as the true treasure, and therefore make it the primary thing that we seek.
+ - True faith begins with true repentance for whatever we have been doing that is wrong.
+ - God employs different strategies for different places or purposes.
+ - The whole economy would be much healthier if it would transition to an asset-based economy rather than a credit-based one.
+ - Most Christians long to see miracles, but they don’t want to be put in a position where they will need one.
+
+39 quotes

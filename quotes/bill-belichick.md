@@ -1,0 +1,22 @@
+ - Talent sets the floor, character sets the ceiling.
+ - Mental Toughness is doing the right thing for the team when it’s not the best thing for you.
+ - To live in the past is to die in the present.
+ - There are no shortcuts to building a team each season. You build the foundation brick by brick.
+ - You get the job done or you don’t.
+ - For a team to accomplish their goal, everybody’s got to give up a little bit of their individuality.
+ - The less versatile you are, the better you have to be at what you do well.
+ - There is an old saying about the strength of the wolf is the pack, and I think there is a lot of truth to that. On a football team, it’s not the strength of the individual players, but it is the strength of the unit and how they all function together.
+ - Whatever success I’ve had it is because I’ve tried to understand the situation of the player. I think the coach’s duty is to avoid complicating matters.
+ - My personal coaching philosophy, my mentality, has always been to make things as difficult as possible for players in practice, however bad we can make them, I make them.
+ - I’m not really worried about the other 31 teams.
+ - You can play hard. You can play aggressive. You can give 120% but if one guy is out of position then someone is running through the line of scrimmage and he is going to gain a bunch of yards.
+ - I’m tired of pretending I’m not a rock star from Mars.
+ - The only thing I can cheer for in Philadelphia is the national anthem.
+ - When you get wet, it usually means something good.
+ - We’re not polishing fine china here.
+ - Well this week’s all about Seattle, so we’ve been doing our best to prepare for the Seahawks. I’m doing that, our team’s doing that and we’ll be ready to go Sunday. That’s our focus.
+ - I am who I am. In the end, I feel that what I’m accountable for is doing a good job as a football coach.
+ - This is the end of this subject for me for a long time.
+ - I think it’s relatively easy to play defense against a team that can only do one thing. Unfortunately, that’s not what we’re talking about here with Seattle.
+
+20 quotes

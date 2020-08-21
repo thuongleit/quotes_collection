@@ -1,0 +1,66 @@
+ - Falling in love is a completely transcendent experience. It’s like eating pizza-flavored ice cream.
+ - I used to think I was a little unstable, and then I met every girl I’ve ever dated.
+ - The one thing you’re most reluctant to tell. That’s where the comedy is.
+ - My writing process is very feedback-based. When I do stand-up, I listen to the audience. I try to understand what’s connecting, what’s not connecting, and then rewrite, rewrite and rewrite.
+ - Comedy is tragedy plus time, but the time is different for everybody.
+ - Dopamine is a chemical released in your brain and your body when you sleep that paralyzes your body so you don’t act out your dreams.
+ - Awkwardness and feeling alienated are always going to be a part of comedy.
+ - You can always tell who went to catholic school, because they’re atheists.
+ - So I went to a club the other day, which is timely because my self esteem had been hovering right around ‘normal’ and I had been meaning to knock it down to negative 1000.
+ - I don’t smoke a lot of pot anymore. No one wants to hang around a guy who ends every sentence with, “Do you guys hate me?”
+ - I love pizza so much, I would marry pizza, but it would just be an elaborate ploy to eat her whole family at the reception.
+ - When you’re in a relationship with someone who’s selfish, what keeps you in it is the fact that when they shine on you, it’s this souped-up shine. And you feel like you’re in the club. And you don’t even know what club it is. You just know you want to stay in it.
+ - I like ‘Donnie Darko;’ it’s a cool take on dreams and sleep.
+ - Someone stole my wallet last week. The guy called me up and he was mad at me. He was like ‘you gotta get your finances together. You got no cash, your credit cards are maxed out. You don’t even have minutes on your calling card. I had to use my card to call you.’
+ - Everyone tries to get you to dance at clubs. They come up to you and say “You gotta dance! you gotta dance!” And then I dance, and they’re like, “Not like that!”
+ - I almost can’t even put to words how happy I am that I got married.
+ - My family isn’t really Italian. We’re more like Olive Garden Italian.
+ - I feel that marriage can lead to the ultimate rejection and failure and divorce and things we all fear.
+ - I was made to believe that my life was going to be fixed and it wasn’t. I’m still the same loser who had flown to Los Angeles on my sister’s frequent flier miles just six days before.
+ - A girl offered me E at the club. ‘Have you ever done E?’ ‘I watch E.’
+ - Bears are simultaneously so graceful and so strong. Bears know who they are, but they often don’t know who you are, which is why they kill you.
+ - It had that kind of open-ended fear to it – like that feeling you get when you’re driving and you see a cop. And you’re not speeding. You don’t have drugs. But you’re just thinking, I hope he doesn’t notice I’m driving.
+ - Alienation, I suppose, can’t be hackneyed because it will always exist.
+ - They really cut to the chase in the urologist’s examination room, and I tried to laugh. If this office were a movie, it would have been rated R.
+ - The key to eating healthy is not eating any food that has a TV commercial.
+ - Does anyone know a word that rhymes with shark?
+ - When I was a kid I would write songs, little plays, and poetry in school. If you’re an adult and you’re a poet, it’s all about love and pain, but if you’re a kid it’s, “Does anyone know a word that rhymes with shark?”
+ - I read recently that women still make 30% less than men in the workplace. Which I think is fine, cause if we didn’t make 30% more, you guys would marry each other.
+ - I always try to attack the most honest issues I can in my comedy.
+ - I was an altar boy as a kid. And the answer is no.
+ - What I really need is a woman who loves me for my money but doesn’t understand math.
+ - I think spending a lot of time with my mom, who’s a talker and a storyteller, and my dad, who has kind of a soft-spoken, understated sense of humor, I think that’s how I became what I am, which is sort of an understated storyteller.
+ - Every comedian comes to a fork in the road where they have to decide if they’re going to make jokes about other people or make jokes about themselves. I chose myself.
+ - I went to a funeral recently, and they handed out Kleenex before the funeral. Which I thought was cocky.
+ - I got an E-Trade account. Turns out I can turn $1,000 into $420 in less than a week. Sure, I had to pay some fees...
+ - How many people do you know who have thrown up on the Scrambler or a carnival ride? A lot of people, is the answer.
+ - I drank the Kool-Aid of being a network star. Once it didn’t happen, I realized it wasn’t the best version of my comedy.
+ - I like films that are so funny, dramatic and lifelike simultaneously, that you are laughing and cringing simultaneously all throughout the film.
+ - I thought, Hey, maybe these people shouldn’t be making up holidays to drink more. Maybe if they drank less they might be able to title their newspaper articles more specifically. For example, I would title this last article “Drunk Driver Hits Drunk Walker Drunkety-Drunk I’m So Drunk.”
+ - Creepy people do the things that decent people want to do, but have decided are not a great idea.
+ - I just don’t give off a great first impression.
+ - I take the subway four times a day, or close to it. I just love the subway! My grandfather worked as an electrician when they were digging the subway.
+ - I find my fans are really funny people. Most comedians can’t say that about their fans.
+ - The people who are the worst at news, who kind of engage in what I call the World Wrestling of news, have kind of set the bar for where news is.
+ - I feel like everyone wants to make a movie that they feel passionate about watching.
+ - You need to know what doesn’t work to know what works. It’s especially true in improv and stand-up.
+ - Sometimes, when you want to be in a place so badly, you’ll do anything.
+ - The list of fun and easily fixed brain diseases is very short.
+ - Eugene Mirman is the Andy Warhol of comedy. People look to him for what’s next in comedy, and he emails these people back promptly. The Will to Whatevs put me in a great mood because I was laughing out loud. Alone. That’s hard to do.
+ - Comedy unites, it doesn’t divide!
+ - I couldn’t recommend more that people put themselves in a situation where they can see a lot of work that they admire, and for free.
+ - I think serious situations actually make for the best kind of belly laughs. But theyre also the hardest to convert into comedy at the outset.
+ - I’m a compulsive everything.
+ - I feel like people have more in common than the news reports.
+ - I’m a big fan of pastries the size of a baby that contain enough calories for a year. That seems like an effective use of time.
+ - Essentially, retweets are like laughs.
+ - I think the reason why I’m so alluring to networks is because on the surface I’m like a quintessential relatable, boring white guy. A great many sitcoms have been anchored by a boring white guy, so I feel like what they want to mine from me are my more generic qualities.
+ - My problem with being in New York City is that you really can’t make a living as a comedian. You can, but you have to also take writing jobs, which means less stage time.
+ - The ability to workshop in stand-up comedy is incomparable to any art form, in my opinion.
+ - People getting along doesn’t sell very well in the news. I find that to be deeply depressing. I don’t even talk about it on stage, because it would take too long to explain.
+ - I try to think up material that might apply to the subjects they are studying. How many mitochondria does it take to power a cell? One. Because mitochondria are the powerhouse of the cell. Not ready for prime time, that one.
+ - Backup dancers are completely respectable. They’re the studio musicians of dance.
+ - I didn’t realize how good I was with computers until I met my parents.
+ - Fortunately, I don’t talk about politics on stage.
+
+64 quotes

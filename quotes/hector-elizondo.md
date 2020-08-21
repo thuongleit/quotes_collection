@@ -1,0 +1,27 @@
+ - Food is a passion. Food is love.
+ - I’ve dodged bullets but there’s no scandal in my life.
+ - I’m attracted to pathos, because life is mostly pathos. I’ve had a lot of it in my life.
+ - You can trust a Neil Simon script. Every dot. Every dash; that pause means something. He takes all the jokes out, practically.
+ - I never learned to cook; I was a little spoiled as far as that’s concerned.
+ - After you free yourself from the incredible expectations of love through the media from the time you were so high, you realise that it’s the spaces between the notes that make music.
+ - I used to work, part time, in a deli, in those days when your parents made you work just so you should know what work was like. And you’d make 4, 5, 6, ten dollars.
+ - You know, a low budget, you have to work harder. You have to plan well; you don’t have much time to rehearse.
+ - You’re at the top of your game if you do comedy.
+ - Many times, a child’s struggle against hunger begins before he or she is born because the mother is undernourished. Making sure prenatal care and proper nutrition are available for expectant mothers in need is a critical part of ending childhood hunger.
+ - Sometimes I just walk through; I just show up, as in The Other Sister.
+ - I guess I work well with others I handle younger actors well.
+ - I don’t wonder about anything. I’m too old to wonder. I think the most important thing is to wake-up with a pulse. I look in the obituary columns. If I’m not in it, I get out of bed.
+ - Every day is Valentine’s Day! I’m a hopeless romantic.
+ - I love Russian, because it’s delicious to speak like that. If you have to speak French, you can also do that, because it’s not difficult. Accents are a cool thing to do. And I love doing them.
+ - I started in 1946 in radio. I was ten years old. I was discovered singing in a school play. Someone was in the audience and it’s six degrees of separation.
+ - Pretty Woman was the easiest job I’ve ever done. I just wore the right toupee.
+ - Which reminds me of a fortune cookie: you often find your destiny on the path you take to avoid it.
+ - I think you can tell the human condition better through comedy.
+ - The fact that that’s the difference between Mexicans and Cubans is pronounced. It’s so immediately recognizable, the way a Cuban speaks, the way a Cuban moves the hands.
+ - I started in radio, again accidentally. I wasn’t looking for this kind of work at all.
+ - During the darkest periods in recent history, of course, the most subversive things you could do is think, read if you can get the material and remind yourself that love exists.
+ - I work with Garry no matter what. What I wanted to keep going was the streak.
+ - It’s the strings vibrating at the same time but separately that makes a good marriage. It messy, it’s complicated and it’s quite wonderful.
+ - I’m a parent, especially when you’ve had the intense parenting the way I had. It’s all in the bank. It’s all in the great experience bank. Those are your secrets. That’s the stuff that makes your work rich, that’s what you dip into.
+
+25 quotes

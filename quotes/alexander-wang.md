@@ -1,0 +1,47 @@
+ - When you focus on the consumer, the consumer responds.
+ - When I decided to launch my first knitwear line, it was because I saw a void in the basics category. The editors were always looking for cool, fashion-forward tees and sweaters. So that’s where I started.
+ - I like to write and draw everything with sharpies. I even got one with my own name on it!
+ - It’s hard sometimes to take a step back and realize what’s happened because you’re always trying to move forward. You’re always looking at the next palette.
+ - Anyone can get dressed up and glamorous, but it is how people dress in their days off that are the most intriguing.
+ - Time passes faster and faster, but with every project I always want to find the next challenge and the next challenge is just as exciting as the previous one.
+ - No one is going to understand your brand better than you.
+ - The great thing is that young talent isn’t tied to a how-to model for starting a line; we get to find new ways to go about doing things. And don’t let people tell you you can’t. Go find a way to show that you can.
+ - Take people’s advice and guidance in the beginning, but always follow your instincts first.
+ - I always wanted to create a collection inspired by sports. I never played sports, maybe that’s why it intrigues me.
+ - I think everyone shares a fear of failure – that you’re only as good as your most recent collection. That’s definitely a fear, but it’s a fear that fuels me, that makes me want to work harder, that makes me take on more challenges.
+ - I wear sports clothes because I feel comfortable in them.
+ - I was in fashion school, my brother has a law background, and my sister-in-law had worked in production, but none of us had a proper fashion business education.
+ - I’m not like most designers, who have to set sail on an exotic getaway to get inspired. Most of the time, it’s on my walk to work, or sitting in the subway and seeing something random or out of context.
+ - I mean, I’ve always said I have an amazing team and network of friends and people that I work with that, you know, inspire me and enable me to do what I do.
+ - Ive always loved when girls carry their wallets as a clutch instead of a bag.
+ - I’ve always said I’m not the kind of designer who likes to lock himself away in a studio and let the rest of the company deal with it. I work very closely with everyone on the team.
+ - I feel so thankful that I’m able to be a part of something that I love to wake up and run to work every day.
+ - I think everyone shares a fear of failure-that you’re only as good as your most recent collection.
+ - The things that you can’t really foresee and that kind of surprise you, and a lot of times they are bad, but other times, they bring something different and new to the table.
+ - I don’t care how small or big they are, insects freak me out.
+ - There’s a tendency to think that young designers only do fantasy fashion, but I’m more interested in making clothes that women can afford.
+ - Where music leads, I follow.
+ - You know, when you go to high school or, you know, when kids are younger and there’s not an understanding of differences. But I built up a very strong, thick skin.
+ - I thought I would attend school and get an assistant position and work my way up but being in NY and seeing the pace of everything, is very inspiring.
+ - I think sometimes there are negative connotations for those who have a business mind as well as a creative side.
+ - Any style that Nike makes in all black, shoe, sweatshirt, onesie, doesn’t matter, I pretty much need to have.
+ - Everyone always asks me who my muse is, or who’s the girl I have in mind, which is such a hard question for me to answer because I feel like it’s a sensibility that varies for each individual.
+ - No one ever taught me, and I never had formal classes in pattern making, so I was like, Okay, I’ll just drape, and I’ll sew as I pin it.
+ - I seem to always start a collection by designing outerwear and jackets.
+ - In the beginning I pushed toward perfection, but it takes time to get to certain places.
+ - Probably the earliest memories for me would be going to restaurants with my family.
+ - Designing a product and understanding how it filters through into the market and into the rest of the company is very important to me.
+ - I never really did sports growing up. Maybe that’s why they intrigue me. The technology that goes into that clothing is steps ahead, so it’s always been something I look towards.
+ - My mom would put me in these preppy little suits and slick my hair to the side. I have these baby pictures of me where I’m this little preppy kid with a sweater tied around my neck.
+ - I always say that I’m really inspired by mistakes and things that kind of go wrong.
+ - If someone realises the piece they are wearing is inspired by me then it only broadens my audience.
+ - If you’re designing out of a purely creative place, not thinking of the girl, then the consumer’s not going to take notice.
+ - The industry’s changed so much that you can’t just design something, put on a great show, and say, ‘Okay, my job is done.’
+ - All my closest friends are the ones I made while in college or who knew me growing up. They keep me grounded, and I adore that about them.
+ - My friends always joke that I run on batteries.
+ - I tend to like the most basic pieces with the perfect fit and fabric, like a simple tank.
+ - I really learn from something that really inspires me and it becomes something that I remember.
+ - A lot of designers get caught up in the creativity, but you’ve got to think about the legs of your collection – essentially, how the line is going to move forward.
+ - A lot of my work is a matter of reacting to surprises in life.
+
+45 quotes

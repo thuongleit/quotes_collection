@@ -1,0 +1,34 @@
+ - Bravery is not the absence of fear, but the action in the face of fear.
+ - The only pressure I’m under is the pressure I’ve put on myself.
+ - When I left here I left everything here. It’s time to move on.
+ - I started as a fourth-line fighter, went to being a third-line centre, then a second-line winger and a first-line centre. I’ve played every role there is, and the only thing that matters is helping the team win.
+ - Well, my transition into being a captain was easy.
+ - As a captain, I think it’s important that the players really know who you are and what you stand for, what your beliefs are, and to be consistent in those if things are going good or things are going bad.
+ - I was assistant in Edmonton with Wayne as captain, and Kevin Lowe was the other assistant.
+ - But I just think as a captain, everybody’s different.
+ - Coaching really is an individual philosophy.
+ - I think to compare any time you win a Stanley Cup would be unfair to all the players from all the teams.
+ - I think the idea of the obstruction through the neutral zone and away from the puck was an excellent rule.
+ - If I had to compare any of the two, I’d compare the first one in Edmonton, the first one here in New York because it had been so long in New York since we had won. Obviously, being the first time to ever win the cup in Edmonton, they were fairly similar in that regard.
+ - Biologically, I’m 10. Chronologically, I’m 33. In hockey years, I’m 66.
+ - My jersey hanging from the ceiling is going to be a symbol of the hard work of the people I played with.
+ - I think now what you’re seeing is guys that are in the peaks of their careers anywhere from 27 to 35 years old, seems to be when they play their best hockey.
+ - There was a time there in the mid ’80s to the ’90s there that we played six finals, three Canada Cups, we were playing hockey almost 10 months a year for a long time there.
+ - We had built up a team in Edmonton that really knew who each other was from a personal standpoint and from a professional standpoint. Our nucleus had stayed together for a long time.
+ - 25 years later, you know, I haven’t really put too much emphasis on any kind of individual goal, other than trying to win any particular night, trying to find a way to do that.
+ - I think the thing you always got to keep in mind, you know, hockey is a game of one-on-one battles.
+ - I never was brought into the league thinking as far as, you know, statistics, things like that. We were really brought into the league in a team concept. Everything was focused around winning.
+ - When you play long enough, everybody goes through spells and streaks and slumps of some nature. I think it’s just one of the those things where you have to play yourself out of it.
+ - It’s a tough game, and you never want to take that aspect out of the game.
+ - I haven’t celebrated coming in No. 2 too many times.
+ - I’ve never really spent a lot of time thinking about my individual accomplishments actually.
+ - You always really have to remain consistent in your beliefs and philosophy.
+ - Really the team often will take on the personality of its coach.
+ - When Wayne was traded, I became captain. For me it really wasn’t anything – I didn’t do anything or I didn’t feel I had to do anything different than what I had been doing all along.
+ - I would never say one was more important or more gratifying than the next because there’s a tremendous amount of work, as you know, that goes into winning a cup.
+ - I played with a lot of great players before. They’re all the same. They take a lot of responsibility for their own play, put a lot of pressure on themselves to perform and to play well.
+ - Obviously every one of them was special to that particular team, all the people that were involved with it.
+ - I just think overall a lot of it has to do with conditioning and players putting in the time and the effort in the off-season to keep themselves in condition for 12 months a year.
+ - Like I said, a 30-year-old hockey player, even when I came to New York when I was 30, I was on the downside of my career, pretty much the end of my career.
+
+32 quotes

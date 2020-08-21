@@ -1,0 +1,211 @@
+ - Creativity is allowing yourself to make mistakes. Art is knowing which ones to keep.
+ - Ideas are worthless. Execution is everything.
+ - If you want success, figure out the price, then pay it.
+ - Of course I don’t look busy, I did it right the first time.
+ - Engineers like to solve problems. If there are no problems handily available, they will create their own problems.
+ - Aim low, reach your goals, and avoid disappointment.
+ - As network administrator I can take down the network with one keystroke. It’s just like being a doctor but without getting gooky stuff on my paws.
+ - Remember there’s no such thing as a small act of kindness. Every act creates a ripple with no logical end.
+ - On the keyboard of life, always keep one finger on the escape key.
+ - The Dilbert Principle: People are idiots.
+ - Good ideas have no value because the world already has too many of them. The market rewards execution, not ideas.
+ - Hard work is rewarding. Taking credit for other people’s hard work is rewarding and faster.
+ - When did ignorance become a point of view?
+ - Give a man a fish, and you’ll feed him for a day. Teach a man to fish, and he’ll buy a funny hat. Talk to a hungry man about fish, and you’re a consultant.
+ - If there are no stupid questions, then what kind of questions do stupid people ask? Do they get smart just in time to ask questions?
+ - Sadness is just another word for not enough coffee.
+ - Remember, freedom is always taken, never given.
+ - When virtual reality gets cheaper than dating, society is doomed.
+ - There’s a gigantic gray area between good moral behavior and outright felonious activities. I call that the Weasel Zone and it’s where most of life happens.
+ - By definition, risk-takers often fail. So do morons. In practice it’s difficult to sort them out.
+ - Most success springs from an obstacle or failure.
+ - There are very few personal problems that cannot be solved through a suitable application of high explosives.
+ - Beware of those who try to sell you simple answers to complex questions.
+ - Beware the advice of successful people; they do not seek company.
+ - Needing someone is like needing a parachute. If they are not there the first time you need them, chances are you won’t be needing them again.
+ - Large corporations welcome innovation and individualism in the same way the dinosaurs welcomed large meteors.
+ - Moslem: people who believe suicide is a good way to get laid.
+ - Remind people that profit is the difference between revenue and expense. This makes you look smart.
+ - The creator of the universe works in mysterious ways. But he uses a base ten counting system and likes round numbers.
+ - Management is nature’s way of removing idiots from the productive flow.
+ - Everybody is somebody’s else’s weirdo.
+ - There’s no such thing as good ideas and bad ideas. There are only your own ideas and other people’s. If you want someone to like your idea, tell him he said it first last week and you just remembered it.
+ - Free will is an illusion. People always choose the perceived path of greatest pleasure.
+ - Tell me what you need, and I’ll tell you how to get along without it.
+ - There’s nothing more dangerous than a resourceful idiot.
+ - Informed decision-making comes from a long tradition of guessing and then blaming others for inadequate results.
+ - Caring about the quality of your work causes stress. Stress can kill you. Maintain good health by remembering that the stockholders are complete strangers who have never done anything for you.
+ - The most ineffective workers are systematically moved to the place where they can do the least damage: management.
+ - Nothing defines humans better than their willingness to do irrational things in the pursuit of phenomenally unlikely payoffs. This is the principle behind lotteries, dating, and religion.
+ - A person with a flexible schedule and average resources will be happier than a rich person who has everything except a flexible schedule. Step one in your search for happiness is to continually work toward having control of your schedule.
+ - In the future, it will become increasingly obvious that your competitors are just as clueless as you are.
+ - I respectfully decline the invitation to join your hallucination.
+ - Never base your budget requests on realistic assumptions, as this could lead to a decrease in your funding.
+ - We live on a placid island of ignorance in the midst of black seas of infinity, and it was not meant that we should voyage far. H. P. LOVECRAFT, “The Call of Cthulhu” When did ignorance become a point of view?
+ - I love you like a fat kid loves cake!
+ - Always remember that as long as other people are gullible, there’s no limit to what you can achieve.
+ - As a rule, I don’t like to laugh at the misfortune of others. The exception to that rule is if it’s really, really funny.
+ - Great minds don’t think alike. If they did, the Patent Office would only have about fifty inventions.
+ - I get mail; therefore I am.
+ - Nothing inspires forgiveness quite like revenge.
+ - I have infinite capacity to do more work as long as you don’t mind that my quality approaches zero.
+ - The human mind is a delusion generator, not a window to trurh.
+ - I’m slowly becoming a convert to the principle that you can’t motivate people to do things, you can only demotivate them. The primary job of the manager is not to empower but to remove obstacles.
+ - The best things in life are silly.
+ - I think you should live your life so that the maximum number of people will attend your funeral.
+ - To err is human. To cover it up is weasel.
+ - Most success springs from an obstacle or failure. I became a cartoonist largely because I failed in my goal of becoming a successful executive.
+ - No matter how smart you are, you spend much of your day being an idiot.
+ - The amount of energy spent laughing at a joke should be directly proportional to the hierarchical status of the joke teller.
+ - If a job’s worth doing, it’s too hard.
+ - I have a perverse attraction to risk. Not physical risk but emotional, financial risk – anything than can’t kill you immediately.
+ - For the record, I am not a nut. I am an optimist. That’s exactly like a nut except with a better attitude.
+ - Everyone, including skeptics, will generate delusions that match their views. That is how a normal and healthy brain works. Skeptics are not exempt from self-delusion.
+ - As you know, the best way to solve a problem is to identify the core belief that causes the problem; then mock that belief until the people who hold it insist that you heard them wrong.
+ - I never knew what an engineer did for a living when I was a kid. I still don’t.
+ - I was busier than a beaver in a coffee lake.
+ - In Japan, employees occasionally work themselves to death. It’s called Karoshi. I don’t want that to happen to anybody in my department. The trick is to take a break as soon as you see a bright light and hear dead relatives beckon.
+ - Failure is where success likes to hide in plain sight.
+ - Dance like it hurts. Love like you need money. Work when people are watching. – Dogbert’s Motto.
+ - You don’t have to be a ‘person of influence’ to be influential. In fact, the most influential people in my life are probably not even aware of the things they’ve taught me.
+ - Men live in a fantasy world. I know this because I am one, and I actually receive my mail there.
+ - I should have written that down. – Dilbert.
+ - Dilbert: I’m obsessed with inventing a perpetual motion machine. Most scientists think it’s impossible, but I have something they don’t. Dogbert: A lot of spare time? Dilbert: Exactly.
+ - Reality is always controlled by the people who are the most insane.
+ - Life is half delicious yogurt, half crap, and your job is to keep the plastic spoon in the yogurt.
+ - People are so conditioned to take sides that a balanced analysis looks to them like hatred.
+ - Why aren’t you signed up for the 401K? I’d never be able to run that far.
+ - I’m primarily just an investor.
+ - You already barely exist. Disappearing entirely won’t be that much of a change.
+ - Always Postpone Meetings with Time-wasting Morons.
+ - There’s nothing more humbling than seeing your best quotes in a list, and thinking they could have been written by a coma patient with a keyboard and spasms.
+ - The job isn’t done until you’ve blamed someone for the parts that went wrong.
+ - In less enlightened times, the best way to impress women was to own a hot car. But women wised up and realized it was better to buy their own hot cars so they wouldn’t have to ride around with jerks.
+ - Mockery is an important social tool for squelching stupidity. I’ve never seen anyone change his mind because of the power of a superior argument or the acquisition of new facts. But I’ve seen plenty of people change behavior to avoid being mocked.
+ - It is better for your career to do nothing, than to do something and attract criticism.
+ - Your inability to see other possibilities and your lack of vocabulary are your brain’s limits, not the universe’s.
+ - Be careful that what you write does not offend anybody or cause problems within the company. The safest approach is to remove all useful information.
+ - Blogging is like work, but without coworkers thwarting you at every turn.
+ - If you spend all your time arguing with people who are nuts, you’ll be exhausted and the nuts will still be nuts.
+ - There’s a fine line between marketing and grand theft.
+ - The source of all unhappiness is other people. As soon as you learn to think of other people as noisy furniture, the sooner you will be happy. – Wally’s Keynote Speech.
+ - We expect others to act rationally even though we are irrational.
+ - Intelligence is a measure of how well you function within your level of awareness.
+ - Everything you learn becomes a shortcut for understanding something else.
+ - Consultants have credibility because they are not dumb enough to work at your company.
+ - Decisions are made by people who have time, not people who have talent.
+ - Our perceptions of truth are built around what is practical, not what is true. Even the smartest human brain doesn’t have the capacity for discerning true facts. That’s why so many of us settle for scientific facts. It’s the best we can do.
+ - This happens to me: I have this great idea and then I make the mistake of telling someone else.
+ - I can’t memorize names and shake hands at the same time.
+ - The world isn’t fair, but as long as it’s tilting in my direction, I find that there’s a natural cap to my righteous indignation.
+ - The ability to work hard and make sacrifices comes naturally to those who know exactly what they want.
+ - I try to avoid giving advice.
+ - Frankly, I’m suspicious of anyone who has a strong opinion on a complicated issue.
+ - And bring me a hard copy of the Internet so I can do some serious surfing.
+ - The greenest home is the one you don’t build. If you really want to save the Earth, move in with another family and share a house that’s already built. Better yet, live in the forest and eat whatever the squirrels don’t want.
+ - The maintenance man is moving the thermostat in our office today. I started talking with him about the.
+ - In the future, airplanes will be flown by a dog and a pilot. And the dog’s job will be to make sure that if the pilot tries to touch any of the buttons, the dog bites him.
+ - If you think it’s easy to write jokes about fried calamari, you’ve probably never tried.
+ - I’m not happy on vacation. In those rare times when I have three hours with no work I have to do, I’m terribly uncomfortable.
+ - Reporters are faced with the daily choice of painstakingly researching stories or writing whatever people tell them. Both approaches pay the same.
+ - Stem cells are like toenail clippings with a better career plan.
+ - When times are bad, the gloves come off and employers are less nice. People become disposable.
+ - Let’s form proactive synergy restructuring teams.
+ - The best you can hope for in this life is that your delusions are benign and your compulsions have utility.
+ - You can never underestimate the stupidity of the general public.
+ - Stress is your body’s way of saying you haven’t worked enough unpaid overtime.
+ - Women are treated differently by society for exactly the same reason that children and the mentally handicapped are treated differently.
+ - No matter how many times I visit New York City, I am always struck by the same thing – a yellow taxicab.
+ - The human population is 90% gullible, violence-prone dipshits.
+ - I burned out my drawing hand by using it too much. The common word for it is writer’s cramp. The fancy words for it are focal dystonia. The symptom in my case was a pinky finger that went spastic when I tried to draw.
+ - In yesterday’s post, I asked how many of you guys would have sex with a robot if it was indistinguishable from a hot human woman. About 95% of the hetero guys said they would. The other 5% expressed a strong preference for lying.
+ - Every credible scientist on earth says your products harm the environment. I recommend paying weasels to write articles casting doubt on the data. Then eat the wrong kind of foods and hope you die before the earth does.
+ - It doesn’t take many people to have a bad sense of humor to get in trouble at a corporation.
+ - For five hundred dollars, I’ll name a subatomic particle after you. Some of my satisfied customers include Arthur C. Quark and George Meson.
+ - There is no idea so bad that it cannot be made to look brilliant with the proper application of fonts and color.
+ - He changed more times than a baby in a beer-drinking contest.
+ - There’s kind of a toll you have to pay with a cat; if you don’t pet her for 10 minutes she’ll bother you for six hours.
+ - If you don’t believe your salmon is wild, ask it to fetch your newspaper and see what happens.
+ - Lately, the only thing keeping me from being a serial killer is my distaste for manual labor.
+ - Obviously there’s not much options when you’re a cartoonist – you pretty much either work at home or rent an office I guess, and working at home just seems easier.
+ - Some physicists describe gravity in terms of ten dimensions all curled up. But those aren’t real words-just placeholders, used to refer to parts of abstract equations.
+ - The only risk of failure is promotion.
+ - As long as there are annoying people in the world, I won’t run out of material.
+ - We know the goats are imported because they don’t speak English.
+ - Boss: I just heard that light travels faster than sound. I’m wondering if I should shout when I speak, just so my lips appear to sync-up with my words.
+ - On the fourth day of telecommuting, I realized that clothes are totally unnecessary.
+ - Dogbert: Scientists have discovered the gene that makes some people love golf. Dilbert: How can they tell it’s the golf gene? Dogbert: It’s plaid and it lies.
+ - We’re a planet of nearly six billion ninnies living in a civilization that was designed by a few thousand amazingly smart deviants.
+ - We must develop knowledge optimization initiatives to leverage our key learnings.
+ - The people who think a guy walked on water versus the people who think a horse can fly.
+ - For most of my career I did one comic a day, every day, including weekends and holidays.
+ - The marketing department uses many advanced techniques to match products and buyers in a way that mximizes profits. For example, they give away keychains.
+ - Crackpot is an excellent job because the expectations are so low. No one ever tells crackpots that they should be doing more.
+ - I had several different bosses during the early years of ‘Dilbert.’ They were all pretty sure I was mocking someone else.
+ - If our mushrooms make you hallucinate, please inform us immediately so we can overcharge you.
+ - Technology: No Place for Wimps!
+ - There are always deadlines I have to meet. I don’t let myself get too close to the deadlines, so it’s not like I’m just sweating bullets or anything if the clock is ticking. I never let myself get in that situation.
+ - If you want to kill an idea without being identified as the assassin, suggest that the legal department take a look at it.
+ - I wish I were dumber so I could be more certain about my opinions. It looks fun.
+ - He was tenser than Jesse Jackson on Father’s Day.
+ - Ideas are cheap. A dime a dozen, as they say. It’s the implementation that’s important! The trick isn’t just to have a computer game idea, but to actually create it!
+ - My philosophy is that every phone conversation has a loser.
+ - He was deader than a shrunken head at a Hackey Sack festival.
+ - Just because no one has ever gotten better from Spasmodic Dysphonia before doesn’t mean I can’t be the first.
+ - Home is pretty utopian.
+ - Few things in life are less efficient than a group of people trying to write a sentence. The advantage of this method is that you end up with something for which you will not be personally blamed.
+ - In fact, most people are being squeezed in their little cubicle, and their creativity is forced out elsewhere, because the company can’t use it. The company is organized to get rid of variants.
+ - I try to manage my day by my circadian rhythms because the creativity is such an elusive thing, and I could easily just stomp over it doing my administrative stuff.
+ - You can change only what people know, not what they do.
+ - The Cheesecake Factory is a great business model, but if you take your wife there for your 25th wedding anniversary, you might not reach your 26th.
+ - I think ‘Dilbert’ will remain popular as long as employees are frustrated and they fear the consequences of complaining too loudly. ‘Dilbert’ is the designated voice of discontent for the workplace. I never planned it that way. It just happened.
+ - Some people fear that technology will become more engaging than live human interactions. That’s silly; technology is already way more interesting than other people.
+ - You might think the word “homemade” is just a word we use as a marketing ploy. But what you don’t realize is that the staff sleeps here at night. If your tablecloth is wrinkled, that’s why.
+ - I keep hearing the argument that some things are constitutional while other things are not. The idea is that we should be in favor of all the things that were decided over 200 years ago by a bunch of slave-owning cross-dressers who pooped in holes.
+ - The first time you see something that you have never seen before, you almost always know right away if you should eat it or run away from it.
+ - I used to be stupid but I’ve turned that situation around 360 degrees.
+ - In less enlightened times, the best way to impress women was to own a hot car.
+ - As a fan, I’m distraught, but as a cartoonist looking at new vacant spaces in 2400 newspapers, well, behind me, my cats are dancing a conga line.
+ - If you have any trouble sounding condescending, find a Unix user to show you how it’s done.
+ - Continuing to believe the same thing, even in the face of new evidence to the contrary, is the definition of insanity – except in politics where it’s called leadership.
+ - The best way to compile inaccurate information that no one wants is to make it up.
+ - You probably think Stephen Hawking is in that wheelchair because of a motor neuron disease. But if you got as much barely-legal student poontang as The Hawkster, you’d be in a wheelchair too.
+ - My old life – no amount of getting used to it would have made it right.
+ - I calculated the total time that humans have waited for web pages to load. It cancels out all the productivity gains of the information age. Sometimes I think the web is a big plot to keep people like me away from normal society.
+ - Man is a game playing animal and a computer is another way to play games.
+ - Science is a good thing. News reporters are good things too. But it’s never a good idea to put them in the same room.
+ - If your boss gets drunk and offers to photocopy her posterior, do not helpfully suggest pressing reduce 75%.
+ - If you’re going to create, create a lot. Creativity is not like playing the slot machines, where failure to win means you go home broke. With creativity, if you don’t win, you’re usually no worse off than if you hadn’t played.
+ - Your best work involves timing. If someone wrote the best hip hop song of all time in the Middle Ages, he had bad timing.
+ - A matador is a guy who didn’t have enough people skills to be promoted to serial killer.
+ - The longer you work here, diverse it gets.
+ - A rental car is basically an ashtray on wheels.
+ - It’s hard to argue with the government. Remember, they are they run the Bureau of Alcohol, Tobacco and Firearms, so they must know a thing or two about satisfying women.
+ - Dinosaur: I plan to use punctuated equilibrium to turn this zit into a third eye. Catbert: That’s not a natural advantage. You’d better stay away from the fitter dinosaurs.
+ - One way to compensate for a tiny brain is to pretend to be dead.
+ - When you hire that first person, then you’re a boss. You’ve got performance reviews. You’ve got complaints about not making enough money. You’ve got people who are just going to sell your story to the tabloids.
+ - I’m curious how you’ll know it works. I assume it’s mostly a cosmetic change.
+ - Every year, it takes more brains to navigate this complicated world. More people are falling below what I call the ‘incompetence line’ through no fault of their own.
+ - These days it seems like any idiot with a laptop computer can churn out a business book and make a few bucks. That’s certainly what I’m hoping. It would be a real letdown if the trend changed before this masterpiece goes to print.
+ - E-books are impervious to analogy.
+ - I hated my work. It never seemed to me to be what I should be doing.
+ - If you haven’t already told your kids ‘don’t fellate the president’ then you’re probably a bad parent.
+ - My investments have been hurt.
+ - I’m surrendering myself to the realities of the Internet.
+ - If I liked food and disliked exercise as much as a 400 pound guy, I’d be a 400 pound guy.
+ - One of the reasons why you like to do your own drawings is, your style changes over time. And there’s something about that that keeps it fresh to the viewer.
+ - I love magazines. It’s such McNugget kind of information.
+ - The best any human can do is to pick a delusion that helps him get through the day.
+ - The best part about being my age is in knowing how my life worked out.
+ - Am I getting smart with you? How would you know?
+ - Your shower is ready – I turned it on last night.
+ - I would sometimes sit in a crowded restaurant, and say, ‘You know, I’m the only person in this restaurant who can’t draw.’
+ - I can’t bring myself to believe in a God with a personality like my own. I base that on the paucity of lightning attacks on people who deserve it.
+ - I discovered what I call the Bill Gates effect. That is, the more successful you are, the uglier you get.
+ - God designs people’s emotions so you fall in love with people who, in return, wouldn’t even use your hollowed-out skull for a spittoon.
+ - Your business clothes are naturally attracted to staining liquids. This attraction is strongest just before an important meeting.
+ - Work is like the rest of life. The best parts are free.
+ - The computer cuts my production time in half. I love it.
+ - The main difference between marketing and fraud is that criminals have to pay for their own alcohol.
+
+209 quotes

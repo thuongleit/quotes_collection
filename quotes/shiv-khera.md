@@ -1,0 +1,30 @@
+ - Your positive action combined with positive thinking results in success.
+ - Winners see the gain; losers see the pain.
+ - Success is not an accident. It is the result of your attitude and your attitude is a choice. Hence sucess is a matter of choice and not chance.
+ - Negative people will always criticize.
+ - Leadership is about persuasion, presentation and people skills.
+ - If we are not a part of the solution, then we are the problem.
+ - Have a vision. It is the ability to see the invisible. If you can see the invisible, you can achieve the impossible.
+ - A person with a positive attitude is like a fruit of all seasons.
+ - Good parenting give headaches but bad parenting gives heartaches.
+ - We don’t have business problems we have people problems. When we take care of our people problems, most of our business problems are automatically resolved.
+ - The difference between a great man and a little man is their commitment to Integrity and Hard Work.
+ - Education turns an empty mind into an open mind. It turns information into behavioural transformation.
+ - Ninety percent of selling is conviction and 10 percent is persuasion.
+ - Wise people prefer to benefit from constructive criticism rather than be ruined by false praise.
+ - Avoid miscommunication. The price you pay for it is horrendous.
+ - There are good leaders who actively guide and bad leaders who actively misguide. Hence, leadership is about persuasion, presentation and people skills.
+ - TRUTH may hurt temporarily, but LIES leave marks permanently.
+ - People who wish to go into the future should have two skills to succeed – the ability to deal with people and the ability to sell.
+ - In long term investments, you don’t need day to day management.
+ - I think it’s the person’s conviction that really carries a person.
+ - My first objective is to invest, and if I have anything spare, then I spend.
+ - It is better to be honourable than be honoured.
+ - Money is a very important tool to make a big difference in people’s life. It is positive or negative depending on the values.
+ - Research has shown that it takes 31 days of conscious effort to make or break a habit. That means, if one practices something consistently for 31 days, on the 32nd day it does become a habit. Information has been internalised into behavioural change, which is called transformation.
+ - Lot of things depend on the up bringing of a child.
+ - If a child goes the wrong way, it is not the child who is to be blamed; it is the parents who are responsible.
+ - Where are the people who don’t have goals headed? Those 97 per cent end up working for the three percent.
+ - I started life washing cars in Canada before moving on to selling life insurance and vacuum cleaners. Later, I went through a programme by Dr. Norman Vincent Peale, which literally changed my life. It was the turning point.
+
+28 quotes

@@ -1,0 +1,93 @@
+ - Champions keep playing until they get it right.
+ - Pressure is a privilege – it only comes to those who earn it.
+ - Champions adjust and pressure is a privilege.
+ - Trust and respect is something you earn, not something that is given.
+ - I think self-awareness is probably the most important thing towards being a champion.
+ - Create your legacy, and pass the baton.
+ - Sports teaches you character, it teaches you to play by the rules, it teaches you to know what it feels like to win and lose-it teaches you about life.
+ - A champion is afraid of losing. Everyone else is afraid of winning.
+ - Don’t let anyone define you. You define yourself.
+ - No matter how tough, no matter what kind of outside pressure, no matter how many bad breaks along the way, I must keep my sights on the final goal, to win, win, win-and with more love and passion than the world has ever witnessed in any performance.
+ - Don’t be afraid to hit the ball.
+ - Be bold. If you’re going to make an error, make a doozy, and don’t be afraid to hit the ball.
+ - I have a lot to say, and if I’m not No. 1, I can’t say it.
+ - Reputation is what others think about you. What’s far more important is character, because that is what you think about yourself.
+ - The main thing is to care. Care very hard, even if it is only a game you are playing.
+ - Sports are a microcosm of society.
+ - Victory is fleeting. Losing is forever.
+ - I try to perfect my strong points and make my weaknesses adequate.
+ - Each point I play is in the now moment. The last point means nothing, the next point means nothing.
+ - Don’t worry about what people say.
+ - Champions take responsibility.
+ - No one changes the world who isn’t obsessed.
+ - Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.
+ - Bobby Riggs was one of my heroes. I admired him. That’s one of the reasons I beat him – because I respected him.
+ - You want people to feel like they belong to something. And not be elitist. You don’t want us to be elitist.
+ - My whole life has been about equal rights and opportunities. For me it really goes back to the health of mind, body and soul.
+ - Our love one’s are never gone, they have just popped into another room.
+ - Tennis taught me so many lessons in life. One of the things it taught me is that every ball that comes to me, I have to make a decision. I have to accept responsibility for the consequences every time I hit a ball.
+ - Don’t go into debt and don’t spend a lot. It’s not how much money you make, it’s how much you spend.
+ - I’ve never cared that much for cementing my place in history. Sports is so transitory, so ephemeral. It just seems like so much nonsense comparing me to Helen Wills Moody or Suzanne Lenglen or anybody else from some other time. One lesson you learn from sports is that life goes on without you.
+ - I feel that tennis is an art form that is capable of moving the players and the audience – at least a knowledgeable audience-in almost sensual ways. When I’m performing at my absolute best, I think that some of the euphoria I feel must be transmitted to the audience.
+ - I would just never out anybody. I think everyone has to find it in their own way and their own time.
+ - I wanted to use sports for social change.
+ - Natural talent only determines the limits of your athletic potential. It’s dedication and a willingness to discipline your life that makes you great.
+ - The most important words that have helped me in life, when things have gone right or when things have gone wrong are ‘accept responsibility.’
+ - Champions take responsibility. When the ball is coming over the net, you can be sure I want the ball.
+ - Men still get a lot more opportunity. It is still a big part of the old boy network. They have more companies they can get money from.
+ - I like entrepreneurial people; I like people who take risks.
+ - At 62 you want to keep moving; that’s important.
+ - It’s important to try to get people to think about women’s wellness.
+ - Ladies, here’s a hint. If you’re up against a girl with big boobs, bring her to the net and make her hit backhand volleys. That’s the hardest shot for the well-endowed.
+ - For me, losing a tennis match isn’t failure, it’s research.
+ - I have often been asked whether I am a women or an athlete. The question is absurd. Men are not asked that. I am an athlete. I am a women.
+ - The trouble with being number one in the world – in anything- is that it takes a certain mentality to attain that position, and that is something of a driving, perfectionist attitude, so that once you do achieve number one, you don’t relax and enjoy it.
+ - Marriage isn’t a 50-50 proposition very often. It’s more like 100-0 one moment and 0-100 the next.
+ - Ever since that day when I was 11 years old, and I wasn’t allowed in a photo because I wasn’t wearing a tennis skirt, I knew that I wanted to change the sport.
+ - It’s just really important that we start celebrating our differences. Let’s start tolerating first, but then we need to celebrate our differences.
+ - Women get the attention when we get into the men’s arena, and that’s sad.
+ - When they take surveys of women in business, of the Fortune 500, the successful women, 80% of them, say they were in sports as a young woman.
+ - I always liked co-ed events best so we have two men and two women on each team.
+ - When I was outed, it was like, That’s done.
+ - Men can have a huge turnover of sponsorship and still survive a lot better than the women. But the women’s ratings are better, at least at home in the United States than in the men’s tennis.
+ - Winning is very tangible, it’s very exciting, it’s very pleasing, but it’s momentary. If you can do things that last, that each generation can build upon, then that’s when you’re cooking.
+ - In 1973, a woman could not get a credit card without her husband or father or a male signing off on it.
+ - Women’s sports is still in its infancy. The beginning of women’s sports in the United States started in 1972, with the passage of Title 9 for girls to finally get athletic scholarships.
+ - In business, everything starts with integrity. Otherwise it falls apart, though it does take time to find out who has integrity.
+ - If your partner wants to be private, you have to respect that.
+ - A girl didn’t get an athletic scholarship until the fall of 1972 for the very first time.
+ - When you oppress people either by gender, by race, by sexual orientation, when you do that and the doors become ajar, they will fly open and they will come and they have.
+ - I will tell you King’s First Law of Recognition: You never get it when you want it, and then when it comes, you get too much.
+ - I love to promote our sport. I love grass-roots tennis. I love coaching. I love all parts of the sport. I love the business side.
+ - In 1973, women got 59 cents on the dollar; now we are getting 74 cents on the dollar. In the area of finance and business, we are at 68 cents on the dollar.
+ - It’s your birthday today, so what would you say, if we turned that frown upside down.
+ - I always listen, I ask children, I even ask adults in tennis, “What are your children playing?” And most of the time it’s not tennis. It’s pathetic.
+ - Ask Nureyev to stop dancing, ask Sinatra to stop singing, then you can ask me to stop playing.
+ - Winning comes down to who can execute under pressure.
+ - People say, “Do you know how much a million dollars is?” I don’t have a clue. How many Big Macs will it buy me?
+ - It’s really impossible for athletes to grow up. On the one hand, you’re still a child, still playing a game. But on the other hand, you’re a superhuman hero that everyone dreams of being. No wonder we have such a hard time understanding who we are.
+ - That is where the power, opportunity, and choice come from-when you have money. Money equals opportunity. There is no question.
+ - I like to see what future generations are thinking about.
+ - I always respect right off the bat because we are human, but then over time you learn who the person truly is, just like they learn about you. Hope it works out really well, and you hope that builds a stronger connection over time. You can’t be friends with everybody.
+ - Any therapist will tell you that when you’re ready, you will come out. To be outed means you weren’t ready.
+ - You have got to want to be the best before you can even begin to reach for that goal, and you have got to be prepared to sacrifice a lot to get there.
+ - Some people do have softer boundaries.
+ - I think younger players probably just think they are who they are-they don’t think about coming out. Unless you’re number one in the world, nobody cares, usually.
+ - I was always in the tennis business-from 1968. I was in tournaments and also on World Team Tennis teams as well.
+ - When we reach the point where the women athletes are getting their pick of dates just as easily as the men athletes, then we’ve really and truly arrived. Parity at last!
+ - I think it’s really important to have portion control. I don’t believe in losing weight quickly.
+ - You’ve got to win in sports – that’s talent – but you’ve also got to learn how to remind everybody how you did win, and how often. That comes with experience.
+ - I always wanted to help make tennis a team sport.
+ - Martina and I went through a very bad five years. Everything’s very good between us now, but it was a long haul.
+ - I used to be told if I talked about my sexuality in any way that we wouldn’t have a tennis tour.
+ - The main thing is not a matter of wanting to win; the main thing is being scared to lose.
+ - I like putting money back into what made my life, and tennis has been great to me.
+ - The old boy network is still very strong and very true. Just look at the stock exchange and how many men and women are there. It is still very much run by men.
+ - I would love to be a player today. I had the right personality for it.
+ - I didn’t really care if I had a coach that much, me personally, because I was brought up to think for myself.
+ - I knew after my first lesson what I wanted to do with my life.
+ - It’s about learning your craft. That’s a wonderful thing – especially with today’s consumerism and instant gratification. You can’tbuy that. It’s about making decisions, corrections, choices. I don’t think it’s so much about becoming a tennis player. It’s about becoming a person.
+ - Being Number One isn’t everything to me, but for those few hours on the court it’s way ahead of whatever’s in second place.
+ - In the seventies we had to make it acceptable for people to accept girls and women as athletes. We had to make it okay for them to be active. Those were much scarier times for females in sports.
+
+91 quotes

@@ -1,0 +1,127 @@
+ - The place God calls you to is the place where your deep gladness and the world’s deep hunger meet.
+ - Your vocation in life is where your greatest joy meets the world’s greatest need.
+ - Here is the world. Beautiful and terrible things will happen. Don’t be afraid.
+ - One life on this earth is all that we get, whether it is enough or not enough, and the obvious conclusion would seem to be that at the very least we are fools if we do not live it as fully and bravely and beautifully as we can.
+ - Listen to your life. See it for the fathomless mystery it is. In the boredom and pain of it, no less than in the excitement and gladness: touch, taste, smell your way to the holy and hidden heart of it, because in the last analysis all moments are key moments, and life itself is grace.
+ - Resurrection means that the worst thing is never the last thing.
+ - Vocation is the place where the world’s greatest need and a person’s greatest joy meet.
+ - You can kiss your family and friends good-bye and put miles between you, but at the same time you carry them with you in your heart, your mind, your stomach, because you do not just live in a world but a world lives in you.
+ - Faith is stepping out into the unknown with nothing to guide us but a hand just beyond our grasp.
+ - Pay attention to the things that bring a tear to your eye or a lump in your throat because they are signs that the holy is drawing near.
+ - Doubts are the ants in the pants of faith. They keep it awake and moving.
+ - The magic of words is that they have power to do more than convey meaning; not only do they have the power to make things clear, they make things happen.
+ - A miracle is when the whole is greater than the sum of its parts. A miracle is when one plus one equals a thousand.
+ - The sacred moments, the moments of miracle, are often the everyday moments.
+ - Where your deep gladness meets with the deep hunger of the world, there you will find a further calling.
+ - Listen to your life. All moments are key moments.
+ - The life I touch for good or ill will touch another life, and in turn another, until who knows where the trembling stops or in what far place my touch will be felt.
+ - The world says, The more you take, the more you have. Christ says, the more you give, the more you are.
+ - If the truth is worth telling, it is worth making a fool of yourself to tell it.
+ - You can’t be too careful what you tell a child because you never know what he’ll take hold of and spend the rest of his life remembering you by.
+ - For as long as you remember me, I am never entirely lost.
+ - People are disturbed not by things but by the view they take of them. They may forget what you said, but they will never forget how you made them feel.
+ - Listen. Your life is happening. You are happening. Think back on your journey. The music of your life...
+ - Even the saddest things can become, once we have made peace with them, a source of wisdom and strength.
+ - Justice is the grammar of things. Mercy is the poetry of things.
+ - My story is important not because it is mine, God knows, but because if I tell it anything like right, the chances are you will recognize that in many ways it is also yours.
+ - Beneath our clothes, our reputations, our pretensions, beneath our religion or lack of it, we are all vulnerable both to the storm without and the storm within.
+ - What’s lost is nothing to what’s found, and all the death that ever was, set next to life, would scarcely fill a cup.
+ - The grace of God means something like: Here is your life. You might never have been, but you are because the party wouldn’t have been complete without you.
+ - To be wise is to be eternally curious.
+ - Your life and my life flow into each other as wave flows into wave, and unless there is peace and joy and freedom for you, there can be no real peace or joy or freedom for me.
+ - Turn around and believe that the good news that we are loved is better than we ever dared hope, and that to believe in that good news, to live out of it and toward it, to be in love with that good news, is of all glad things in this world the gladdest thing of all. Amen, and come Lord Jesus.
+ - Whenever you find tears in your eyes, especially unexpected tears, it is well to pay the closest attention.
+ - The pride that keeps us from forgiving is the same pride which keeps us from accepting forgiveness.
+ - God doesn’t reveal his grand design. He reveals Himself.
+ - Go where your best prayers take you.
+ - We learn to praise God not by paying compliments but by paying attention.
+ - We have God’s joy in our blood.
+ - Wherever people love each other and are true to each other and take risks for each other, God is with them and for them and they are doing God’s will.
+ - The birth of Jesus made possible not just a new way of understanding life but a new way of living it.
+ - In other words to live Eternal Life in the full and final sense is to be with God as Christ is with him, and with each other as Christ is with us.
+ - Pay mind to your own life, your own health, and wholeness. A bleeding heart is of no help to anyone if it bleeds to death.
+ - Like Adam, we have all lost Paradise; and yet we carry Paradise around inside of us in the form of a longing for, almost a memory of, a blessedness that is no more, or the dream of a blessedness that may someday be again.
+ - Compassion is sometimes the fatal capacity for feeling what it is like to live inside somebody else’s skin. It is the knowledge that there can never really be any peace and joy for me until there is peace and joy finally for you too.
+ - Thus, when you wake up in the morning, called by God to be a self again, if you want to know who you are, watch your feet. Because where your feet take you, that is who you are.
+ - If our pain doesn’t destroy us, it just might transform us into truly human beings at last.
+ - Love yourself not in some egocentric, self-serving sense but love yourself the way you would love your friend in the sense of taking care of yourself, nourishing yourself, trying to understand, comfort, and strengthen yourself.
+ - The original, shimmering self gets buried so deep that most of us end up hardly living out of it at all. Instead we live out all the other selves, which we are constantly putting on and taking off like coats and hats against the world’s weather.
+ - I suspect that Jesus spoke many of his parables as a kind of sad and holy joke and that that may be part of why he seemed reluctant to explain them because if you have to explain a joke, you might as well save your breath.
+ - It’s less the words they say than those they leave unsaid that split old friends apart.
+ - Almost nothing that makes any real difference can be proved.
+ - If preachers decide to preach about hope, let them preach out of what they themselves hope for.
+ - Like Buddha under the Bo tree, Jesus, on his tree, has his eyes closed too. The difference is this. The pain and sadness of the world that Buddha’s eyes close out is the pain and sadness of the world that the eyes of Jesus close in.
+ - Lust is the craving for salt of a man who is dying of thirst.
+ - We find by losing. We hold fast by letting go. We become something new by ceasing to be something old.
+ - Envy is the consuming desire to have everybody else as unsuccessful as you are.
+ - There is no event so common place but that God is present within it, always hidden, always leaving you room to recognize Him or not to recognize Him.
+ - Remember Jesus of Nazareth, staggering on broken feet out of the tomb toward the Resurrection, bearing on his body the proud insignia of the defeat which is victory, the magnificent defeat of the human soul at the hands of God.
+ - Coincidences are God’s way of getting our attention.
+ - A Christian is one who points at Christ and says, ‘I can’t prove a thing, but there’s something about his eyes and his voice. There’s something about the way he carries his head, his hands, the way he carries his cross-the way he carries me.’
+ - Here and there even in our world, and now and then, even in ourselves, we catch glimpeses of a New Creation, which, fleeting as those glipmses are apt to be, give us hope both for this life and for whatever life may await us later on.
+ - It is not the objective proof of God’s existence that we want but the experience of God’s presence. That is the miracle we are really after, and that is also, I think, the miracle that we really get.
+ - Sin and grace, absence and presence, tragedy and comedy, they divide the world between them and where they meet head on, the Gospel happens.
+ - Unbelief is as much of a choice as belief is. What makes it in many ways more appealing is that whereas to believe in something requires some measure of understanding and effort, not to believe doesn’t require much of anything at all.
+ - The past is the place we view the present from as much as the other way around.
+ - We must be careful with our lives, for Christ’s sake, because it would seem that they are the only lives we are going to have in this puzzling and perilous world, and so they are very precious and what we do with them matters enormously.
+ - Faith is not being sure where you’re going, but going anyway.
+ - If it seems a childish thing to do, do it in remembrance that you are a child.
+ - Wether you call on him or don’t call on him, God will be present with you.
+ - Religion points to that area of human experience where in one way or another man comes upon mystery as a summons to pilgrimage.
+ - If you have never known the power of God’s love, then maybe it is because you have never asked to know it – I mean really asked, expecting an answer.
+ - All other days have either disappeared into darkness and oblivion or not yet emerged from it. Today is the only day there is.
+ - The best moments any of us have as human beings are those moments when for a little while it is possible to escape the squirrel-cage of being me into the landscape of being us.
+ - Faith is the assurance that the best and holiest dream is true after all.
+ - Words spoken in deep love or deep hate set things in motion in the human heart that can never be reversed.
+ - Five friends I had and two of them snakes.
+ - Laugh till you weep. Weep till there’s nothing left but to laugh at your weeping. In the end it’s all one.
+ - I not only have my secrets, I am my secrets. And you are yours. Our secrets are human secrets, and our trusting each other enough to share them with each other has much to do with the secret of what it means to be human.
+ - ON HER DEATHBED, Gertrude Stein is said to have asked, ‘What is the answer?’ Then, after a long silence, ‘What is the question?’ Don’t start looking in the Bible for the answers it gives. Start by listening for the questions it asks.
+ - You can survive on your own; you can grow strong on your own; you can prevail on your own; but you cannot become human on your own.
+ - Faith in God is less apt to proceed from miracles than miracles from faith in God.
+ - Remember me not for the ill I’ve done but for the good I’ve dreamed.
+ - Don’t look down on them for looking down on us. Look at them, instead, as friends we don’t know yet and who don’t yet know what they are missing in not knowing us.
+ - True faith, a simple life, a helping hand- the three things prized most in Heaven.
+ - For outlandish creatures like us, on our way to a heart, a brain, and courage, Bethlehem is not the end of our journey but only the beginning – not home but the place through which we must pass if ever we are to reach home at last.
+ - If you want to talk about grace, if you want to talk about revelation, talk about your life with some depth, which doesn’t mean lurid revelations as much as simply looking at your own deep experiences and describing them as they are.
+ - Theology, like fiction, is largely autobiographical.
+ - Without somehow destroying me in the process, how could God reveal himself in a way that would leave no room for doubt? If there were no room for doubt, there would be no room for me.
+ - Despair has been called the unforgivable sin-not presumably because God refuses to forgive it, but because it despairs of the possibility of being forgiven.
+ - Like a house in the rain, books were havens of permanence and protection from whatever it was that as a child I needed protection from.
+ - We are in constant danger of being not actors in the drama of our lives but reactors, to go where the world takes us, to drift with whatever current happens to be running the strongest.
+ - Through the power that memory gives us of thinking, feeling, imagining our way back through time we can at long last finally finish with the past in the sense of removing its power to hurt us and other people and to stunt our growth as human beings.
+ - Jesus didn’t come to merely speak words that were true, He is the Word that makes us true.
+ - To be bored to death is a form of suicide.
+ - The trouble with really seeing and really hearing is that then we really have to do something about what we have seen and heard.
+ - Toleration is often just indifference in disguise.
+ - Our father. We have killed him, and we will kill him again, and our world will kill him. And yet he is there. It is he who listens at the door. It is he who is coming. It is our father who is about to be born. Through Jesus Christ our Lord.
+ - At the evening of our day, we shall be judged by our loving.
+ - What deadens us most to God’s presence within us, I think, is the inner dialogue that we are continually engaged in with ourselves, the endless chatter of human thought.
+ - Grace is something you can never get but only be given.
+ - Not to love is, psychically, spiritually, to die. To live for yourself alone, hoarding your life for your own sake, is in almost every sense that matters to reduce your life to a life hardly worth the living, and thus to lose it.
+ - One of the blunders religious people are particularly fond of making is the attempt to be more spiritual than God.
+ - You do not need to understand healing to be healed or know anything about blessing to be blessed.
+ - You can never be sure whether you are discovering the truth or inventing it.
+ - To be bored is to turn a cold shoulder to engage all that God is and has for you in the moment.
+ - In his holy flirtation with the world, God occasionally drops a handkerchief. These handkerchiefs are called saints.
+ - Maybe at the heart of all our traveling is the dream of someday, somehow, getting Home.
+ - You enter the extraordinary by way of the ordinary.
+ - The world speaks of holy things in the only language it knows, which is worldly language.
+ - When someone we love suffers, we suffer with that person, and we would not have it otherwise, because the suffering and the love are one, just as it is with God’s love for us.
+ - Life is grace. Sleep is forgiveness. The night absolves. Darkness wipes the slate clean, not spotless to be sure, but clean enough for another day’s chalking.
+ - God in his unending greatness and glory and man in his unending littleness, prepared for the worst but rarely for the best, prepared for the possible but rarely for the impossible.
+ - And now brothers, I will ask you a terrible question, and God knows I ask it also of myself. Is the truth beyond all truths, beyond the stars, just this: that to live without him is the real death, that to die with him the only life?
+ - That’s five friends, one each for Jesu’s wounds, and Godric bears their mark still on what’s left of him as in their time they all bore his on them. What’s friendship, when all’s done, but the giving and taking of wounds?
+ - A God in the hand is worth two in the bush.
+ - Faith is homesickness. Faith is a lump in the throat. Faith is less a position on than a movement toward, less a sure thing than a hunch. Faith is waiting.
+ - He also said we should carve in the year and place where I was born, but I said no. As a man dies many times before he’s dead, so does he wend from birth to birth until, by grace, he comes alive at last.
+ - Think of these pages as graffiti maybe, and where I have scratched up in a public place my longings and loves, my grievances and indecencies, be reminded in private of your own. In that way, at least, we can hold a kind of converse.
+ - To remember the past is to see that we are here today by grace, that we have survived as a gift.
+ - If we are a people who pray, darkness is apt to be a lot of what our prayers are about. If we are people who do not pray, it is apt to be darkness in one form or another that has stopped our mouths.
+ - To be a saint is to be a little out of one’s mind, which is a very good thing to be a little out of from time to time. It is to live a life that is always giving itself away and yet is always full.
+ - Gail Godwin has written a book about the heaviest matters of loss, grief, and loneliness with a touch so light that I was as often deeply amused by it as I was deeply moved.
+ - The Jesus who is the one whom we search for even when we do not know that we are searching and hide from even when we do not know that we are hiding.
+ - A Christian isn’t necessarily any nicer than anybody else, just better informed.
+ - It is as impossible for man to demonstrate the existence of God as it would be for even Sherlock Holmes to demonstrate the existence of Arthur Conan Doyle.
+
+125 quotes

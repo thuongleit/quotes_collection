@@ -1,0 +1,113 @@
+ - You need to understand your limitations so you can overcome them.
+ - Better to have a single perfect diamond than a sack of flawed stones.
+ - The finest of pleasures are always the unexpected ones.
+ - Like stepping into a fairy tale under a curtain of stars.
+ - You may tell a tale that takes up residence in someone's soul, becomes their blood and self and purpose. That tale will move them and drive them and who knows that they might do because of it, because of your words. That is your role, your gift.
+ - You’re in the right place at the right time, and you care enough to do what needs to be done. Sometimes that’s enough.
+ - All empires fall eventually. It is the way of things.
+ - To be rather than to seem.
+ - I am tired of trying to hold things together that cannot be held. Trying to control what cannot be controlled. I am tired of denying myself what I want for fear of breaking things I cannot fix. They will break no matter what we do.
+ - Sometimes I write what I can’t paint, and I paint what I can’t write. I use a different part of the brain.
+ - We must put effort and energy into anything we wish to change.
+ - Wine is bottled poetry, he thinks.
+ - They say it’s darkest before the dawn, but it also tend to be quietest, and the quiet lets you hear yourself better.
+ - You told me love was fickle and fleeting.
+ - But dreams have ways of turning into nightmares.
+ - People don’t pay much attention to anything unless you give them reason to.
+ - Secrets have power, and that power diminishes when they are shared, so they are best kept and kept well. Sharing secrets, real secrets, important ones, with even one other person, will change them.
+ - I am tired of trying to hold things together that cannot be held.
+ - He forgets that he was someone’s dream once, himself.
+ - Life takes us to unexpected places sometimes. The future is never set in stone, remember that.
+ - Follow your dreams Bailey. Be they Harvard or somehing else entirely. No matter what that father of yours says, or how loudly he might say it. He forgets that he was someone’s dream once, himself.
+ - You don’t have to be a chef or even a particularly good cook to experience proper kitchen alchemy: the moment when ingredients combine to form something more delectable than the sum of their parts.
+ - Before you leave, the fortune teller reminds you that the future is never set in stone.
+ - The circus arrives without warning. No announcements precede it. It is simply there, when yesterday it was not.
+ - I have tried to let you go and I cannot. I cannot stop thinking of you. I cannot stop dreaming about you.
+ - Trespassers Will Be Exsanguinated.
+ - Tarot is just stories on cards.
+ - Only the ship is made of books, its sails thousands of overlapping pages, and the sea it floats upon is dark black ink.
+ - It is destroying me that I cannot ask you to dance.
+ - We are two different people, Ethan. Just because you could never decide which one of us you were in love with does not make us interchangeable.
+ - The most difficult thing to read is time. Maybe because it changes so many things.
+ - You prefer not to see the gears of the clock, as to better tell time.
+ - We lead strange lives, chasing our dreams around from place to place.
+ - The past stays on you the way powdered sugar stays on your fingers. Some people can get rid of it but it’s still there, the events and things that pushed you to where you are now.
+ - I have you here, all around me. I sit in the Ice Garden to get a hint of this, this way that you make me feel. I felt it even before I knew who you were, and every time I think it could not possibly get any stronger, it does.
+ - I think looking forward will be better than looking back.
+ - You may tell a tale that takes up residence in someone’s soul.
+ - Even the air feels different on Halloween, autumn-crisp and bright.
+ - I have been surrounded by love letters you two have built each other for years, encased in tents.
+ - Marco moves to close the distance between them, kissing away her tears before catching her lip with his own. As he kisses her, the bonfire glows brighter. The acrobats catch the light perfectly as they spin. The entire circus sparkles, dazzling every patron.
+ - The circus arrives without warning.
+ - Perhaps it is controlling the chaos within more than the chaos without.
+ - I cannot let a place that is so important to so many people fade away. Something that is wonder and comfort and mystery all together that they have nowhere else. If you had that, wouldn’t you want to keep it?
+ - The circus looks abandoned and empty. But you think perhaps you can smell caramel wafting through the evening breeze, beneath the crisp scent of the autumn leaves. A subtle sweetness at the edges of the cold.
+ - It is likely to make us think we are not caged. We cannot feel the bars unless we push against them.
+ - I don’t think there’s anything wrong being a dreamer.
+ - Kelly Link is inimitable. Her stories are like nothing else, dark yet sparkling with her unique brand of fairy dust. This is the most marvelous kind of trouble to get in.
+ - I didn’t know your identity, but I had an impression of who my opponent was, being surrounded by things you made.
+ - I think I get some of my love of adult books that can be fun from Douglas Adams.
+ - Her father picks different names for her as they change locales, but he uses Miranda often, presumably because he knows how much it annoys her.
+ - This is not magic. This is the way the world is, only very few people take the time to stop and note it.
+ - I’m an emotional sort of person in general and I have a vivid imagination, so I feel the whole spectrum of emotion strongly when I write.
+ - Memories begin to creep forward from hidden corners of your mind. Passing disappointments. Lost chances and lost causes. Heartbreaks and pain and desolate, horrible loneliness. Sorrows you thought long forgotten mingle with still-fresh wounds.
+ - People see what they wish to see. And in most cases, what they are told that they see.
+ - And there are never really endings, happy or otherwise. Things keep going on, they overlap and blur, your story is part of your sister’s story is part of many other stories, and there is no telling where any of them may lead.
+ - He turns and walks away, moving so quickly that the candle flames shiver with the motion of the air. “I miss you,” Isobel says as he leaves, but the sentiment is crushed by the clatter of the beaded curtain falling closed behind him.
+ - I saw in details while she saw in scope. Not seeing the scope is why I am here and she is not. I took each element spearately and never looked to see that they never did fit together properly.
+ - People are naive about such things, and they would rather write them off as evil than attempt to understand them. An unfortunate truth, but a truth nonetheless.
+ - The rain increases and umbrellas sprout like mushrooms amongst the graves.
+ - But you built me dreams instead.
+ - I have absurdly vivid dreams.
+ - And there are really never endings, happy or otherwise.
+ - And now, I’m a best selling author, a different sort of fairy tale that I still sometimes wonder when I’ll wake up from.
+ - It is perhaps both a blessing and a curse that fictional worlds spring into my mind nearly fully formed and it takes quite a while to sift through everything to find the story.
+ - I couldn’t tell the difference between what was real and what I wanted to be real.
+ - Unusual yet beautiful. Provocative while remaining elegant.
+ - Though I have seen a great deal of the sights, traveled a number of the available paths, there are always corners that remain unexplored, doors that remain unopened.
+ - I am haunted by the ghost of my father, I think that should allow me to quote Hamlet as much as I please.
+ - I mean only that I hope they find darkness or paradise without fear of it, if they can.
+ - Timing is a sensitive thing.
+ - I paint very messy. I throw paint around. So when I let myself do the same sort of thing with my writing, and I would just write and write and write and revise, that’s when I found my rhythm in writing.
+ - I am a fan of magic and fantasy, particularly when it’s grounded in reality.
+ - Scent is often underestimated, when it can be the most evocative.
+ - I do not see as well without her. I do not hear as well without her. I do not feel as well without her. I would be better off without a hand or a leg than without my sister.
+ - A woman I should like to think I know rather well and a woman I had always considered a mystery, are in fact the same person.
+ - Most maidens are perfectly capable of rescuing themselves in my experience, at least the ones worth something, in any case.
+ - It’s helpful for me to get ideas – the physical action of painting. Sometimes it frees up your writer brain. It’s nice for me now that the writing has become a serious career that painting can become more like a hobby.
+ - Natural talent is a questionable phenomenon. Inclination perhaps, but innate ability is extremely rare.
+ - The fact that people are already reading and loving something I wrote is still hard to believe.
+ - The night that seemed endless hours before is now slipping through your fingers, ticking by as it falls into the past and pushes you towards the future.
+ - That man has no shadow.
+ - Something about the circus stirs their souls, and they ache for it when it is absent.
+ - The sensation reminds him of the first snow of winter, for those first few hours when everything is blanketed in white, soft and quiet.
+ - I have had affairs that lasted decades and others that lasted for hours. I have loved princesses and peasants. And I suppose they loved me, each in their way.
+ - It’s a wonderful sort of feeling when people want to spend more time in a world you created.
+ - I keep waiting for things to get back down to whelming, but they stay at overwhelming.
+ - I binge write. I think it’s because I started seriously writing by participating in National Novel Writing Month, an online-based challenge to write 50,000 words in 30 days.
+ - The Burgess sisters arrived together. Tara and Lainie do a little bit of everything. Sometimes dancers, sometimes actresses. Once they were librarians, but that is a subject they will only discuss if heavily intoxicated.
+ - I’m kind of big on performance in general. I like the sort of entertainment where you can go in and be fully immersed in it.
+ - You believe you could not live with the pain. Such pain is not lived with. It is only endured. I am sorry.
+ - Where do you get your ideas? people ask. Sometimes they’re at the bottoms of cups of tea. Sometimes they’re lurking in my shower. Sometimes they’re waiting patiently in glass cases in museums.
+ - I like that ‘once upon a time’ quality, where the telling of a tale has an elevated sense of story. There’s a whimsical quality to it. Sometimes in fairy tales more things seem possible, even though often they’re real world based.
+ - Each of them always gravitating toward the other. Yet still they do not touch.
+ - So it’s really best to keep your secrets when you have them, for their own good, as well as yours.
+ - I think that’s a hallmark of a really good story that it has readers that it speaks to more than others.
+ - I draft quickly and then revise, a lot.
+ - Is magic not enough to live for?
+ - He remembers when he was very small his mother once said she wished happiness and adventure for him. If this does not count as adventure, he is not sure what does.
+ - Have you ever thought about it, about simply leaving? Really, truly thought about it with the intent to follow through and not as a dream or a passing fancy?
+ - And before he can tell her to tell Widget goodbye for him if need be, she leans forward and kisses him, not on the cheek, as she has a handful of times before, but on the lips, and Bailey knows in that moment that he will follow her anywhere.
+ - The circus itself is my personal ideal entertainment venue.
+ - Old stories have a habit of being told and retold and changed. Each subsequent storyteller puts his or her mark upon it. Whatever truth the story once had is buried in bias and embellishment. The reasons do not matter as much as the story itself.
+ - Everything I have done, every change I have made to that circus, every impossible feat and astounding sight, I have done for her.
+ - I thought a circus environment would be an interesting venue to explore, where you didn’t just have one tent with three rings and a show going on but where you could explore different things in different tents.
+ - I suppose there will never be a lack of things to say, of stories to be told and shared.
+ - I don’t always write in order, so composing multi-book stories could get complicated.
+ - He spends the majority of the evening in the company of Celia Bowen, whose elaborate gown changes color, shifting through a rainbow of hues to compliment whoever she is closest to.
+ - If she were gone I would be nothing. You should think better of yourself than to settle for that.
+ - And then he tells her stories. Myths he learned from his instructor. Fantasies he created himself, inspired by bits and pieces of others read in archaic books with crackling spines.
+ - The truest tales require time and familiarity to become what they are.
+ - That’s the beauty of it. Have you seen the contraptions these magicians build to accomplish the most mundane feats? They are a bunch of fish covered in feathers trying to convince the public they can fly, I am simply a bird in their midst.
+
+111 quotes

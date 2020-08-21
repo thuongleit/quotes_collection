@@ -1,0 +1,33 @@
+ - How can there be peace without people understanding each other; and how can this be if they don’t know each other?
+ - Of all our dreams today there is none more important – or so hard to realise – than that of peace in the world. May we never lose our faith in it or our resolve to do everything that can be done to convert it one day into reality.
+ - The only failures are those who fail to try.
+ - Under this flag may our youth find new inspiration for loyalty to Canada; for a patriotism based not on any mean or narrow nationalism, but on the deep and equal pride that all Canadians will feel for every part of this good land.
+ - We’ll jump off that bridge when we come to it.
+ - Diplomacy is letting someone else have your way.
+ - It would be especially tragic if the people who most cherish ideals of peace, who are most anxious for political cooperation on a wider than national scale, made the mistake of underestimating the pace of economic change in our modern world.
+ - Understanding the nature of conflict leads to peace.
+ - The best defence of peace is not power, but the removal of the causes of war, and international agreements which will put peace on a stronger foundation, than the terror of destruction.
+ - Prime ministers require the hide of a rhinoceros, the morals of St. Francis, the patience of Job, the wisdom of Solomon, the strength of Hercules, the leadership of Napoleon, the magnetism of a Beatle and the subtlety of Machiavelli.
+ - As a soldier, I survived World War I when most of my comrades did not.
+ - The choice, however, is as clear now for nations as it was once for the individual: peace or extinction.
+ - It has too often been too easy for rulers and governments to incite man to war.
+ - The grim fact is that we prepare for war like precocious giants, and for peace like retarded pygmies.
+ - We know now that in modern warfare, fought on any considerable scale, there can be no possible economic gain for any side. Win or lose, there is nothing but waste and destruction.
+ - As a civilian during the Second War, I was exposed to danger in circumstances which removed any distinction between the man in and the man out of uniform.
+ - And I have lived since – as you have – in a period of cold war, during which we have ensured by our achievements in the science and technology of destruction that a third act in this tragedy of war will result in the peace of extinction.
+ - Politics is the skilled use of blunt objects.
+ - We are all descendants of Adam, and we are all products of racial miscegenation.
+ - We must keep on trying to solve problems, one by one, stage by stage, if not on the basis of confidence and cooperation, at least on that of mutual toleration and self-interest.
+ - Today continuing poverty and distress are a deeper and more important cause of international tensions, of the conditions that can produce war, than previously.
+ - I have worked in a very close and cordial way with Norwegian representatives at many international meetings, and the pleasure I felt at those associations was equaled only by the profit I always secured from them.
+ - A great gulf, however, has been opened between man’s material advance and his social and moral progress, a gulf in which he may one day be lost if it is not closed or narrowed.
+ - Every state has not only the right but the duty to make adequate provision for its own defense in the way it thinks best, providing it does not do so at the expense of any other state.
+ - When you’re special to a cat, you’re special indeed, she brings to you the gift of her preference of you, the sight of you, the sound of your voice, the touch of your hand.
+ - As to the first, I do not know that I have done very much myself to promote fraternity between nations but I do know that there can be no more important purpose for any man’s activity or interests.
+ - Until the last great war, a general expectation of material improvement was an idea peculiar to Western man. Now war and its aftermath have made economic and social progress a political imperative in every quarter of the globe.
+ - No state, furthermore, unless it has aggressive military designs such as those which consumed Nazi leaders in the thirties, is likely to divert to defense any more of its resources and wealth and energy than seems necessary.
+ - The life of states cannot, any more than the life of individuals, be conditioned by the force and the will of a unit, however powerful, but by the consensus of a group, which must one day include all states.
+ - The scientific and technological discoveries that have made war so infinitely more terrible for us are part of the same process that has knit us all so much more closely together.
+ - Today the predatory state, or the predatory group of states, with power of total destruction, is no more to be tolerated than the predatory individual.
+
+31 quotes

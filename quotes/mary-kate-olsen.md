@@ -1,0 +1,37 @@
+ - I think everything happens for a reason, so there is no such thing as fail.
+ - I think the hardest part to get to is that point of asking for help or reaching out to other people and being honest with yourself.
+ - I am the cute one! She’s just my sister.
+ - I find it’s better to focus on what’s in front of you and to keep putting one foot in front of the other.
+ - I am a really bad test taker. I can get straight As in school, but I get nervous on test.
+ - I wear weird things sometimes. I like to drink coffee. Neither of those things have anything to do with who I am.
+ - When we were growing up, our mother taught us never to have your belly button exposed.
+ - When I was in my freshman year at college I took some acting classes and found that I fell in love with it again.
+ - Our parents got to be kids. Now it’s our turn.
+ - I would love to be able to swim in the ocean in Malibu. But that is asking for a bikini shot. That’s inviting something that I don’t want to happen. I don’t need to be on a ‘Who’s Skinny, Who’s Fat, Who’s Looking Healthy, Who’s Not Eating?’ list.
+ - I think we have the same goals in mind. We are not planning on just all of a sudden taking a film and separating. Hopefully one day she can direct me in something, or I will direct her. Or we’ll produce a movie under our company’s name.
+ - I get extra time to take the test because of my ADD. Everybody’s brains works differently and I just need longer for things to register.
+ - We kinda look at this as the second or third chapter of our lives. After college, most people figure out what they want to do with their lives. But we already know what we want to do in the future and that is to continue to further our business goals.
+ - We had to decide: Do we want to do Saturday Night or go to our Senior Prom? We opted for Saturday Night Live.
+ - I love to play games. I really like football, and I also like to ride horses.
+ - How can you be organized when you’re in Times Square?
+ - A twin knows exactly when the other one is spitting up, but that’s all they know about anything.
+ - I feel like when I carry a bigger bag it looks like it’s a huge bag because I’m really tiny. But I do think it’s important to have the space that you need, because we throw everything in our bags at all times. I think every woman does.
+ - I look at old photos of me, and I don’t feel connected to them at all.
+ - I want to go to culinary school because I love cooking. One day I’d love to open up a restaurant or cafe.
+ - Now that im older i’m more aware of things that make me feel complete as a person. I’m trying to concentrate on those things as opposed to things that make feel empty.
+ - Our career is a dream. I mean, we get to act, travel around the world, and meet cool people. What’s not to love!
+ - I learned how to play the drums. When we were in pre-production, when we were still in LA, I had a couple of drum lessons and then some in Toronto. I got the one beat down and that was it.
+ - We played soccer a lot with our friends and at school. We weren’t on an official team or anything, but we’d definitely be up for it in gym or in after-school pickup games where we live.
+ - It’s weird to be called a celebrity or talk about it. I don’t talk about being a celebrity in my business meetings. I don’t talk about it with my friends. It’s not a part of my life. It’s a media perception of who I am.
+ - Australia is so cool that it’s hard to even know where to start describing it. The beaches are beautiful; so is the weather. Not too crowded. Great food, great music, really nice people. It must be a lot like Los Angeles was many years ago.
+ - Any time that we have time to take off, we love being home.
+ - The best part was the food. There are some great Italian restaurants we go to whenever we are in Toronto, so the eating was a definite highlight.
+ - We’ve played producers almost our entire lives in everything else we’ve created. But when working on a feature and even dealing with something like Warner Bros. or another production company, or other details that you can worry about – we definitely learned a lot.
+ - I made the decision to take acting seriously after high school.
+ - If they’re going to write a story they’re going to write the story whether it’s true or not.
+ - I like to go to parties where I know everyone. How are you going to have fun with people you don’t know?
+ - Well that’s what I generally do with books – I read them.
+ - I think one day I want to be on the other side of the camera-maybe directing.
+ - We get along really well, but TV and film aren’t reality. We’re best friends, but we do have our fights!
+
+35 quotes

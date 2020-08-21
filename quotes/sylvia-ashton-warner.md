@@ -1,0 +1,26 @@
+ - You must be true to yourself. Strong enough to be true to yourself. Brave enough to be strong enough to be true to yourself. Wise enough to be brave enough to be strong enough to shape yourself from what you actually are.
+ - Being always overavid, I demand from those I love a love equal to mine, which, being balanced people, they cannot supply.
+ - Education, fundamentally, is the increase of the percentage of the conscious in relation to the unconscious. It must be a developing idea.
+ - There is only one answer to destructiveness and that is creativity.
+ - I am my own Universe, I my own Professor.
+ - I see the mind of the five-year-old as a volcano with two vents: destructiveness and creativeness.
+ - When love turns away, now, I don’t follow it. I sit and suffer, unprotesting, until I feel the tread of another step.
+ - As the blackness of the night recedes so does the nadir of yesterday. The child I am forgets so quickly.
+ - Off fall the wife, the mother, the lover, the teacher, and the violent artist takes over. I am I alone. I belong to no one but myself. I mate with no one but the spirit. I own no land, have no kin, no friend or enemy. I have no road but this one.
+ - It’s just as possible to live to the full in a narrow corner as it is in bigness.
+ - Inspiration is the richest nation I know, the most powerful on earth. Sexual energy Freud calls it; the capital of desire I call it; it pays for both mental and physical expenditure.
+ - I flung my tongue round like a cat-o’-nine-tails so that my pleasant peaceful infant room became little less than a German concentration camp as I took out on the children what life should have got.
+ - I never forgive attacks on my work.
+ - Self-forgetfulness in creativity can lead to self-transcendence...
+ - A comforting acquaintance, hope, a contagious thing like spring, inebriating like lager.
+ - There’s no such thing beneath the heavens as conditions favorable to art. Art must crash through or perish.
+ - Love has the quality of informing almost everything – even one’s work.
+ - I’ve got to relearn what I was supposed to have learned.
+ - It is not so much the content of what one says as the way in which one says it. However important the thing you say, what’s the good of it if not heard or, being heard, not felt?
+ - Children have two visions, the inner and the outer. Of the two the inner vision is brighter.
+ - To feel as well as hear what someone says requires whole attention.
+ - I am inclined to think that eating is a private thing and should be done alone, like other bodily functions.
+ - When I teach people, I marry them.
+ - What can be heavier than wealth than freedom?
+
+24 quotes

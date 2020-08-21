@@ -1,0 +1,48 @@
+ - What matters is a good person, a good soul, someone who genuinely gives good attention to the relationships in their lives.
+ - You can’t work on the biceps and ignore the rest of the body, and you can’t just say one issue is important when you are looking at how to make the world a better place.
+ - When you suffer a loss, there is before the death and after the death – those become your two existences and your two realities.
+ - Marriage is not about age; it’s about finding the right person.
+ - Beauty has nothing to do with the size you wear. It has to do with what’s in your heart.
+ - To be happy, it first takes being comfortable being in your own shoes. The rest can work up from there.
+ - It’s a very weird thing to know where you want to be in life and all of a sudden to actually have taken some real steps is a very strange feeling. I’ve really done something that I’m proud of.
+ - As a strong woman, there are things I would never put up with.
+ - Because sorry to say, women run the house. They run the family. They hold things up. I mean, it’s like you don’t ever see your mom get sick because she handles everything. And it’s kind of amazing I think to show people just how strong women are.
+ - I love fashion because it can change to suit your mood. I’m very drawn to classic silhouettes, menswear-inspired pieces, and anything that feels a little French. I’m also inspired by Brit girl style.
+ - Being a teenager is an amazing time and a hard time. It’s when you make your best friends – I have girls who will never leave my heart and I still talk to. You get the best and the worst as a teen. You have the best friendships and the worst heartbreaks.
+ - The hardest situation to stay happy in, I think, is when you’re trying to find love, and yourself at the same time. It just doesn’t seem to fit well.
+ - I think the greatest thing that we can do is take care of each other.
+ - I’m not much of a revenge person, because I think when you start with revenge it cheapens what you’ve been through.
+ - Being green saves you money. Being green saves you green.
+ - I was lucky. My family is wonderful. And it’s funny, because most of my best friends come from very large families. So it always felt as if I had lots of siblings, though in the end I had to leave them and go home. I kind of got the best of both worlds as a kid.
+ - Regardless of what you plan on when you fall in love, significant others come and go in your life. Your friends are it. My friends are my everything.
+ - I get to do what I love every day. I get to crawl into someone else’s head and I love that.
+ - When you realize who the good people are in your life, you’re so lucky.
+ - I’m looking for things that are really connected – education, both in the developing world and at home. The way that that affects communities and, in particular, women.
+ - It’s a very bizarre thing to have people very concerned with your life, but I don’t mind it because all that says to me is that they care about the show, and I can’t ask for anything more than that.
+ - Whenever I’m around my guy friends, I’m always playing video games. I’ve always enjoyed the graphics side of them, how they look.
+ - Acting has been my passion from the minute I started. I was pretty young when I wanted to be a doctor, but when I started doing theater work as a freshman in high school, the first time I hit the stage I was like, If I can do this every day, life won’t get any better!
+ - Me, I’d prefer to have a good reputation rather than getting press for being scandalous, getting drunk in public, staying out late and so on.
+ - You can have terrible things happen in your family. A husband and wife can be having a knock-down, drag-out fight and the minute one of the kids gets hurt, the fight is over and it’s about the family.
+ - It devastates me now that I have been reduced to a Hollywood statistic – another joke marriage.
+ - I love to box. I once took a kickboxing class in college and got totally hooked.
+ - I’m not a celebrity. I don’t call myself a celebrity. I’m an actor.
+ - My girlfriends are my life, but I’m also one of those girls who can hang out with the guys.
+ - I’ve heard some pretty bad things in my life. I’m just one of those people I’ve gotten to a point where I don’t want to be rude, but if it’s uninvited attention from people it’s like, “Thank you, but no.” I’m going to shut you down right away.
+ - I’m inspired by everything, really. I’m inspired by locations and travel, I’m inspired by art and music, I’m inspired by people. When my curiosity peaks and I want to know everything about the subject, I want to know how I can get more deeply involved.
+ - Of course, everybody makes mistakes, and we’ve all been young and stupid. But people need to have a sense of respect, particularly in this business, because hundreds of people are ready to take your place at any time. Maybe some people should think about that.
+ - I wanted to be a doctor when I was a kid, but I started doing theater in high school because it was a requirement. At first, I was completely irritated. But I ended up loving it.
+ - I think the best beauty trick is to take good care of your skin. Wash your face at night, wear sunscreen, and hydrate.
+ - I enjoy getting riled up, and nothing’s gonna do that for you like a good scary movie.
+ - I think it’s easy for people to assume that fame is equal to glory, but it can be a very isolating experience...
+ - Getting wasted is only OK when you’re young enough to not know better.
+ - In the initial season of a show, you’re figuring out your character and their life and their background and you’re putting together all the chapters of the book.
+ - You never know what a movie is going to look like when you’re shooting it and you just hope it’s going to look like it’s supposed to be.
+ - We’ve all known a John Tucker. We’ve either known one, dated one or our best friend has dated one. I think a lot of men at one point or another have been a John Tucker.
+ - There’s nothing that I love to do more than act and I feel really lucky to be in the position that I’m in, being able to do it as my job! If I ever do anything other than act, it will be in show business.
+ - My dream job is to be the Robin to Anderson Cooper’s Batman.
+ - I want to play everything. I really want to do it all.
+ - People like to say, “Well, you’re a celebrity. You should really pick a cause.” I felt that’s like telling a doctor, “Well, you should focus on one area of the body.” Current issues, global issues, political issues, women’s issues – whatever one you want to talk about. It’s systemic, you know?
+ - I think it’s healthy when fitness experts encourage fitness rather than getting a certain body shape.
+ - I think the most important recipe for a good date is just spending time with somebody and really connecting and feeling like the best version of yourself regardless of what you may be doing.
+
+46 quotes

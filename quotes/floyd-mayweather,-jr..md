@@ -1,0 +1,144 @@
+ - Hard work, dedication!
+ - All work is easy work.
+ - To be the best you have to work overtime.
+ - A true champion can adapt to anything.
+ - I’m a man of my word.
+ - Just live every day like it’s your last day and be the best person that you can be.
+ - Your body is your temple. You do your body good, your body will do you good.
+ - I push myself to the limit.
+ - I am the best. There is nobody better than me.
+ - Any true champion can bounce back. That’s what being a champion is: being able to deal with adversity and being able to bounce back.
+ - Ain’t no boundaries, ain’t no limits.
+ - You have good days, you have bad days. But the main thing is to grow mentally.
+ - If you’re the best then take the test!
+ - Showing is better than telling.
+ - Boxing is real easy. Life is much harder.
+ - Everything people say I couldn’t do I’ve done.
+ - He can have heart, he can hit harder and he can be stronger, but there’s no fighter smarter than me.
+ - I come from a very rough background, and I’m saying that if you work hard and dedicate yourself that you can make it, too.
+ - The ultimate goal is to always break records.
+ - Everybody is blessed with a certain talent, you have to know what your talent is maximize it and push it to the limit.
+ - When I step in the ring, I bring everything I have.
+ - It’s about being smart, taking your time, keeping your composure, just going out there and being the best that you can be.
+ - Some pay to see me win, some pay to see me lose, but they all pay.
+ - In the end, you have to protect yourself at all times.
+ - Fame is cool but I believe in success.
+ - I want to be able to separate the average from the good and from the great. I want to separate the ordinary from the extraordinary.
+ - Some people are just right for you.
+ - I don’t fold under pressure, great athletes perform better under pressure, so put pressure on me.
+ - Ive never shown my weakness, I will never show my weakness.
+ - My whole outlook on life is, never judge a book by its cover.
+ - I don’t fight for legacy. I don’t fight for none of that, I fight for that check. I’m in the check cashing business.
+ - Sometimes, people say certain things about me that are negative, but that’s no problem. I try to take their negative and turn it to a positive. That’s why I like to surround myself with positive people.
+ - I’m a boxer who believes that the object of the sport is to hit and not get hit.
+ - When people see what I have now, they have no idea of where I came from and how I didn’t have anything growing up.
+ - Cotto is a talented fighter but I’m God gifted.
+ - As long as you know you gave whatever you did 100% you’re considered a winner in my book.
+ - I don’t feel that no fighter has the mental or physical agility to match Floyd Mayweather.
+ - I’m running my mouth a lot and I’m looking for a guy to shut me up. If you don’t shut me up, I’m going to keep running my mouth.
+ - Bob arum is Manny Pacquiao’s boss, Floyd Mayweather is his own boss.
+ - I think my grandmother saw my potential first. When I was young, I told her, ‘I think I should get a job.’ She said, ‘No, just keep boxing.’
+ - I like to play table tennis, spend time with my kids.
+ - Self-preservation is an important thing to me.
+ - Canelo’s a different breed. A lot of people think because of the way I made Canelo look, they’re going to be able to do the same thing, but that’s not true. He’s a strong fighter.
+ - I’m fighting Miguel Cotto on May 5th because Miss Pac Man is ducking me.
+ - I know how I could beat myself: by not being disciplined, by slacking, by not dedicating myself to my craft, by not working hard, by not listening, by thinking I know it all – short like that.
+ - Boxing has always been work to me, a job. If I could say anything to a youngster taking up boxing it would be to “be smart and not take a lot of punches”. It’s called the sweet science for a reason. Hit and not be hit, make a lot of money without taking a lot of punishment. That’s what it’s about.
+ - Of course, we all know what UFC stands for – Undefeated Floyd’s Champion.
+ - I’ve had boxing gloves on since before I could walk and been in gyms all of my life.
+ - I’m not scared of any opponent. I fight who I want to fight.
+ - I’ll back up anything my dad says.
+ - There’s no blueprint on how to beat me.
+ - You can never overlook a guy.
+ - Once I beat a guy, mentally and physically, hes never the same.
+ - All 48 of my fights have been hard. None have been easy. All played a major key. It’s the ‘Mayweather Era.’ I feel that every fighter is an artist and they all take pictures their own way. I’m just one of the very best artists.
+ - Nobody is faster than me.
+ - There are all these athletes out there cheating. I am clean and pure.
+ - I’m looking to expand my portfolio while I’m on top and while I’m young.
+ - Boxing is what pays my bills.
+ - I like fighters who come to fight.
+ - My skills are still my skills.
+ - Once again we’re talking to Brian Kenny, a man of many traits, a master of nothing.
+ - Once I am in the square circle, I am in my home.
+ - I fight myself. I don’t fight to break Ali’s record or Sugar Ray Robinson’s record. I fight to please myself. I know in my heart where I’m rated. I didn’t fight in Ali’s era. This is my era.
+ - What’s so crazy is when you give interviews to reporters that don’t really care too much for you, basically what they’re going to do is write what they want to write and discredit you. They’re going to write and say what they want to say, no matter what you tell them.
+ - When God wants me to lose, then that’s when I’ll lose. But until then, I’m going to be at the top of my game and keep working hard anddedicating myself to the sport of boxing and to being the best entertainer that I can be.
+ - I’m the best at talking trash I’m also the best at going out there and backing it up.
+ - I would lie in bed, and I was nine years old, and say to myself: ‘I want to be the richest man in the world.’ I’ve come a long way from there.
+ - I’ve been in the sport of boxing for a long time, but I haven’t been able to bring my ‘A-game’ totally out. I’ve beaten fighters with my ‘C-Game’ and with my ‘D-Game,’ but I haven’t been able to beat anybody with my ‘A-Game.’
+ - I don’t talk about my personal life – or what I do with no females. Just know that I love women. A lot.
+ - When I was younger, my dad did want me to be perfect, so that’s probably why that’s installed in me to this day. I want to be perfect at whatever I do. I can’t help it. It’s just installed in me.
+ - If I did want to come back, I was going to make, what, $50 million? You know what; don’t call my phone unless you’ve got $100 million.
+ - I don’t fight for bragging rights. I’ve proved myself.
+ - Me and my team always work so hard outside that square circle.
+ - You know, everybody has a slogan, and once you beat people over the head with it so much, then that’s what you’ll eventually be called once you retire from the sport or whatever.
+ - I like to control my own personal life.
+ - I’m always going to love my father.
+ - A belt don’t make me.
+ - Even though I had a rough life I always had my mind on bigger and better things.
+ - People have said things about me, and wrote and criticized me about things in the past, but it goes in one ear and out the other.
+ - I think I already proved that I wasn’t just fighting for the money, because I fought as an amateur. I fought 90 fights for free.
+ - The sport needs the cash cow back.
+ - To be honest with you, I normally beat guys with my C game and I don’t have to pull my A or B game out.
+ - A lot of times, in the beginning of my career, I put pressure on myself just because I wanted to perform so well. I just wanted to be perfect.
+ - When I was about 8 or 9, I lived in New Jersey with my mother and we were seven deep in one bedroom and sometimes we didn’t have electricity.
+ - I walk around at 150-152 pounds to weigh 147 pounds. Other boxers weigh around 160-170 before coming down.
+ - You have to realize that most of these guys get in there and fight on heart. I fight with smarts. There is no fighter that is smarter than me. Most of these fighters are ABC, 1-2-3. I am like 4-5-6 levels above them; that’s why I’m able to beat them.
+ - Floyd Mayweather is in the sport to give great performances.
+ - You hear certain things, negative things, all the time that aren’t true, but you never hear about the positive.
+ - I basically raised myself.
+ - Boxing won’t retire me, I will retire from boxing.
+ - Anything I’ve asked of MGM Grand, they’ve done for me in a heartbeat. They’re all about making entertainers and athletes happy.
+ - My team calls all the shots out of the ring, I call them in the ring.
+ - I’m a professional fighter and like most professional fighters I have had difficulties with my hands in the past.
+ - I didn’t watch one tape on Pacquiao. There is no reason to study him. He’s not at this level.
+ - I want to be promoted in the urban areas. A lot of African-American people should know more about me.
+ - Ricky Hatton ain’t nothing but a fat man. I’m going to punch him in his beer belly when I see him.
+ - I haven’t took no punishment. There’s nothing cool about taking punishment.
+ - I got a granite chin.
+ - Well, you’ve got certain obstacles that get in your way throughout your career, but you have to be a strong individual.
+ - I ain’t never nervous. Never nervous.
+ - I knew boxing before I knew anything else.
+ - You’ve got to have a villain and they’ll always make me a villain. I’m used to it – it makes me work harder and it makes me fight harder.
+ - If anyone has followed my career, they know that there’s been a lot of obstacles and a lot of ups and down through my career. But day in and day out, and in the square circle, I went out there and always did my best.
+ - I don’t know who my three next opponents will be. A lot of people ask me that. You want to fight me? Earn it.
+ - I’ve truly been blessed. I’ve taken my time, kept my eye on the prize and done what I’ve had to do. So I’m able to make a choice when to retire. Most fighters really couldn’t.
+ - It’s the hurt business, it’s boxing. We’re there to get it in.
+ - I loved competing and winning and also wanted to continue my career for the fans, knowing they were there for me and enjoyed watching me fight.
+ - Everywhere I go, I will make a good payday. But we got to choose the right opponent and the right time and the right venue.
+ - I want to beat the best out there and whoever is considered the top fighters of my era.
+ - The American fans would love to see me fight anybody.
+ - I always put my boxing first.
+ - A lot of the time when I go to church, people want to take pictures. They want you to sign autographs. So I don’t go all the time. I go once in a blue moon. Every once in a blue moon.
+ - You know, as a young child, I lay in my bedroom and I swore to myself then: ‘I’m not going to smoke and I’m not going to drink.’ And I said I’m not going to just say that when I’m a kid. I’m going to stick to that as an adult. I kept that in mind my whole life.
+ - Don’t ever know who you may meet, or just because a person may not be dressed up all fancy, don’t mean they’re not an important person. You just don’t ever know who you’re gonna meet in life. So that’s why I look at everybody as equal. Can’t just judge. I treat everybody with respect. Every man.
+ - There comes a time when money doesn’t matter.
+ - If you fight angry, you make a lot of mistakes, and when you fight a sharp, witty fighter like me, you can’t make mistakes.
+ - I’ve set the model of showing fighters how they should conduct their business.
+ - I don’t duck or dodge anybody.
+ - I feel like everybody is against Floyd Mayweather. I don’t get any respect.
+ - Maidana is a young, strong and tough competitor. He’s a guy that I can’t overlook. You can never take any fighter for granted because anything can happen.
+ - Las Vegas is the boxing capital. During a Floyd Mayweather fight weekend, you can shop, party, stay out late and do anything you want. The city of Las Vegas has everything.
+ - I land a higher percentage of punches than any boxer in boxing.
+ - I always say that I’m a clean athlete and that I should be randomly tested anytime, urine and blood.
+ - I just got the will to win at life.
+ - I’m not in this sport to see how hard I can get hit or to see how many big punches I can take. I am in this game to fight as long as I can. I am trying to dish a lot of punishment.
+ - Hopefully, some day I help some of this up-and-coming talent and promote them. Boxing is growing and is here to stay.
+ - Manny Pacquiao I’m calling you out let’s fight May 5th and give the world what they want to see. My Jail Sentence was pushed back because the date was locked in. Step up Punk.
+ - If I’m scared and I’m a coward, why do you guys want to see me fight?
+ - There is boxing and then there is me. The rest are just falling in line behind me or are trying to get in line to fight me. And that includes Manny Pacquiao too.
+ - I’m a firm believer that before you can go anywhere, you have to conquer the level that you are at, just like young kids do it today with video games, they have to finish one level to go to the next one. Conquer one level at the time, and only then you’ll get where you want to go to.
+ - All the money I have, I got it legally.
+ - I don’t have to fight if I don’t want to.
+ - Floyd Mayweather is bigger than the sport. That’s the thing. Because you can go to somebody who don’t even know what boxing is and say, “Floyd Mayweather.” They’ll go, “Oh, I know Floyd Mayweather. I’ve heard that name.”
+ - My kids are the future of the Mayweather family and of the Mayweather brand. I feel our family is stronger if we stay together.
+ - I think my dad, when he works with my older son, puts the same kind ofpressure on him that he put on me – that perfectionist pressure. And that can work in two ways: It can make you a perfectionist yourself, or it can eventually break you in the long run.
+ - No athlete works harder than Floyd Mayweather.
+ - When they put me on ESPN and they talk about negative things, or when they put me on TMZ and they talk about negative things, I’m just glad that I’m relevant; to have lasted this long being relevant.
+ - I don’t adjust my training for any of my opponents. I don’t watch films on my opponents.
+ - There’s ups and downs with boxing, layoffs are part of the sport and they can either help or hurt a guy.
+ - Any fight that Floyd Mayweather is in is going to be entertaining, regardless. People come to see an icon, a living legend, a superstar.
+ - You stick to commentating, let me do the fighting.
+ - Come December 8th his ass gone be hurt. He aint fought 43 Floyd Mayweathers.
+
+142 quotes

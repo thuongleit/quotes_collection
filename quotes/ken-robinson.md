@@ -1,0 +1,101 @@
+ - If you’re not prepared to be wrong, you’ll never come up with anything original.
+ - Most great learning happens in groups. Collaboration is the stuff of growth.
+ - Human resources are like natural resources; they’re often buried deep. You have to go looking for them, they’re not just lying around on the surface. You have to create the circumstances where they show themselves.
+ - The role of a creative leader is not to have all the ideas; it’s to create a culture where everyone can have ideas and feel that they’re valued.
+ - If a man speaks his mind in a forest, and no woman hears him, is he still wrong?
+ - Creativity is as important as literacy.
+ - If you can light the spark of curiosity in a child, they will learn without any further assistance.
+ - There is no system in the world or any school in the country that is better than its teachers. Teachers are the lifeblood of the success of schools.
+ - The arts, sciences, humanities, physical education, languages and maths all have equal and central contributions to make to a student’s education.
+ - Teaching for creativity aims to encourage self-confidence, independence of mind, and the capacity to think for oneself.
+ - What you do for yourself dies with you when you leave this world, what you do for others lives on forever.
+ - Everyone has huge creative capacities. The challenge is to develop them. A culture of creativity has to involve everybody, not just a select few.
+ - Everyday, everywhere our children spread their dreams beneath our feet and we should tread softly.
+ - Humans are born curious, creative, and intuitive.
+ - Imagination is the source of all human achievement.
+ - Learning happens in the minds and souls, not in the databases of multiple-choice tests.
+ - The first task in teaching for creativity in any field is to encourage people to believe in their creative potential and to nurture the confidence to try.
+ - To be creative you actually have to do something.
+ - Life is not linear, it is organic. We create our lives symbiotically as we explore our talents in relation to the circumstances they help create for us.
+ - The gardener does not make a plant grow. The job of a gardener is to create optimal conditions for growth.
+ - Every education system on Earth has the same hierarchy of subjects: at the top are mathematics and languages, then the humanities, and the bottom are the arts.
+ - All kids have tremendous talents – and we squander them pretty ruthlessly.
+ - There isn’t an education system on the planet that teaches dance everyday to children the way we teach them mathematics. Why?
+ - We have sold ourselves into a fast food model of education, and it’s impoverishing our spirit and our energies as much as fast food is depleting our physical bodies.
+ - Creativity is the process of having original ideas that have value.
+ - Creativity is putting your imagination to work, and it’s produced the most extraordinary results in human culture.
+ - Our task is to educate our children’s whole being so they can face the future and make something of it. To achieve this we need to balance education for careers with education for twenty-first century life.
+ - If you are considering earning your living from your Element, it’s important to bear in mind that you not only have to love what you do; you should also enjoy the culture and the tribes that go with it.
+ - The Element is about discovering your self, and you can’t do this if you’re trapped in a compulsion to conform. You can’t be yourself in a swarm.
+ - Some dreams truly are ‘impossible dreams.’ However, many aren’t. Knowing the difference is often one of the first steps to finding your element, because if you can see the chances of making a dream come true, you can also likely see the necessary next steps you need to take toward achieving it.
+ - Finding your element is essential to your wellbeing and ultimate success and, by implication to the health of our organisations and the effectiveness of our educational systems.
+ - Creativity is the greatest gift of human intelligence.
+ - Human communities depend upon a diversity of talent not a singular conception of ability. and at the heart of the challenge is to reconstitute our sense of ability and intelligence.
+ - Creativity is as important as literacy and numeracy, and I actually think people understand that creativity is important – they just don’t understand what it is.
+ - We are all born with extraordinary powers of imagination, intelligence, feeling, intuition, spirituality, and of physical and sensory awareness. For the most part, we use only a fraction of these powers, and some not at all.
+ - Innovation is applied creativity. By definition, innovation is always about introducing something new, or improved, or both and it is usually assumed to be a positive thing.
+ - You cannot predict the outcome of human development. All you can do is like a farmer create the conditions under which it will begin to flourish.
+ - You can’t just give someone a creativity injection. You have to create an environment for curiosity and a way to encourage people and get the best out of them.
+ - Creativity involves putting your imagination to work. In a sense, creativity is applied imagination.
+ - It’s education that’s meant to take us into this future that we can’t grasp.
+ - You don’t think of Shakespeare being a child, do you? Shakespeare being seven? He was seven at some point. He was in somebody’s English class, wasn’t he? How annoying would that be?
+ - Passion is the driver of achievement in all fields. Some people love doing things they don’t feel they’re good at. That may be because they underestimate their talents or haven’t yet put the work in to develop them.
+ - In a world where lifelong employment in the same job is a thing of the past, creativity is not a luxury. It is essential for personal security and fulfillment.
+ - Teaching for creativity involves teaching creatively. There are three related tasks in teaching for creativity: encouraging, identifying and fostering.
+ - I believe this passionately: that we don’t grow into creativity, we grow out of it. Or rather, we get educated out if it.
+ - Education doesn’t need to be reformed- it needs to be transformed.
+ - Creativity, as I see it, is the process of putting your imagination to work. It’s been defined rather simply as applied imagination. That’s not a bad way to think about it.
+ - Sometimes getting away from school is the best thing that can happen to a great mind.
+ - If you’re running an engineering or finance company, all companies depend on ideas and ingenuity. I think the principles of creative leadership apply everywhere, whether it’s an advertising company or whether you’re running a hospital.
+ - You can’t be a creative thinker if you’re not stimulating your mind, just as you can’t be an Olympic athlete if you don’t train regularly.
+ - One way of opening ourselves up to new opportunities is to make conscious efforts to look differently at our ordinary situations. Doing so allows a person to see the world as one rife with possibility and to take advantage of some of those possibilities if they seem worth pursuing.
+ - These powers of imagination and creativity are among the few things that set us apart from the rest of life on Earth. But they make all the difference.
+ - Very many people go through their whole lives having no real sense of what their talents may be, or if they have any to speak of.
+ - Research indicates that, as long as we keep using our brains in an active way, we continue to build neural pathways as we get older. This gives us not only the ongoing potential for creative thought, but also an additional incentive for continuing to stretch ourselves.
+ - Far more than any other power, imagination is what sets human beings apart from every other species on earth.
+ - You can be creative in anything – in math, science, engineering, philosophy – as much as you can in music or in painting or in dance.
+ - Transforming education is not easy but the price of failure is more than we can afford, while the benefits of success are more than we can imagine.
+ - Being wrong doesn’t mean being creative – but if you aren’t afraid of being wrong, you can’t be creative.
+ - One of the enemies of creativity and innovation, especially in relation to our own development, is common sense.
+ - Human intelligence is richer and more dynamic than we have been led to believe by formal academic education.
+ - Make the most of whatever it is that floats your boat...
+ - The arts especially address the idea of aesthetic experience. An aesthetic experience is one in which your senses are operating at their peak; when you’re present in the current moment; when you’re resonating with the excitement of this thing that you’re experiencing; when you are fully alive.
+ - It is difficult to feel accomplished when you’re not accomplishing something that matters to you. Doing something ‘for your own good’ is rarely for your own good if it causes you to be less than who you really are.
+ - Creativity now is as important in education as literacy, and we should treat it with the same status.
+ - Many highly talented, brilliant, creative people think they’re not – because the thing they were good at at school wasn’t valued, or was actually stigmatized.
+ - If you’re doing something you love, an hour feels like five minutes. If you’re doing something that doesn’t resonate with your spirit, five minutes feels like an hour.
+ - Never underestimate the vital importance of finding early in life the work that for you is play.
+ - The more alive we feel, the more we can contribute to the lives of others.
+ - The answer is not to standardize education, but to personalize and customize it to the needs of each child and community. There is no alternative. There never was.
+ - I like university professors, but you know, we shouldn’t hold them up as the high-water mark of all human achievement. They’re just a form of life, another form of life.
+ - Creativity is the process of having original ideas that have value – more often than not, comes about through the interaction of different disciplinary ways of seeing things.
+ - Too many people never connect with their true talents and therefore don’t know what they are capable of achieving.
+ - Creativity is very much like literacy. We take it for granted that nearly everybody can learn to read and write. If a person can’t read or write, you don’t assume that this person is incapable of it, just that he or she hasn’t learned how to do it. The same is true of creativity.
+ - You can think of creativity as applied imagination.
+ - Change what you are doing; change your world. And if enough people do that, we can change the world.
+ - Most people didn’t pursue their passions simply because of the promise of a paycheck. They pursued them because they couldn’t imagine doing anything else with their lives.
+ - Finding the medium that excites your imagination, that you love to play with and work in, is an important step to freeing your creative energies.
+ - The dropout crisis is just the tip of an iceberg. What it doesn’t count are all the kids who are in school but being disengaged from it, who don’t enjoy it, who don’t get any real benefit from it.
+ - A three-year-old is not half a six-year-old.
+ - Creativity is a process more often than it is an event.
+ - We think about the world in all ways we experience it ; we think visually, we think in sign, we think kinesthetically, we think in abstract term, we think in movement. Creativity is the process of having original ideas that have value.
+ - Imagination is the source of every form of human achievement. And it’s the one thing that I believe we are systematically jeopardizing in the way we educate our children and ourselves.
+ - Being creative is at the heart of being human and of all cultural progress.
+ - Up to a point you welcome being interrupted because it is only by interacting with other people that you get anything interesting done.
+ - What you’re doing now, or have done in the past, need not determine what you can do next and in the future.
+ - If all you had was academic ability, you wouldn’t have been able to get out of bed this morning. In fact, there wouldn’t have been a bad to get out of. No one could have made one. You could have written about possibility of one, but not have constructed it.
+ - To realize our true creative potential – in our organizations, in our schools and in our communities – we need to think differently about ourselves and towards each other. We must learn to be creative.
+ - We are educating people out of their creative capacities.
+ - Very often, organizations are inflexible because there is too little communication between functions; they are too segregated.
+ - The combination of creative energies and the need to perform at the highest level to keep up with peers leads to an otherwise unattainable commitment to excellence.
+ - Private imaginings may have no outcomes in the world at all. Creativity does. Being creative involves doing something.
+ - Through imagination, we can visit the past, contemplate the present, and anticipate the future. We can also do something else of profound and unique significance. We can create.
+ - All of our existing ideas have creative possibilities.
+ - It’s not what happens to us that makes the difference in our lives. What makes the difference is our attitude towards what happens. The idea of luck is a powerful way of illustrating the importance of our basic attitudes in affecting whether or not we find our Element.
+ - I believe our only hope for the future is to adopt a new conception of human ecology, one in which we start to reconstitute our concept of the richness in human capacity.
+ - Helping people to connect with their personal creative capacities is the surest way to release the best they have to offer.
+ - I mean, really, whatever you woke up worrying about this morning, get over it. How important in the greater scheme of things can it possibly be? Make your peace and move on.
+ - What we become as our lives evolve depends on the quality of our experiences here and now.
+ - You were probably steered benignly away from things at school when you were a kid – things you liked – on the grounds that you would never get a job doing that: ‘Don’t do music, you’re not going to be a musician. Don’t do art, you won’t be an artist.’ Benign advice – now, profoundly mistaken.
+
+99 quotes

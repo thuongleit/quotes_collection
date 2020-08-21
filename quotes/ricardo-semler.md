@@ -1,0 +1,28 @@
+ - Growth and profit are a product of how people work together.
+ - People are responsible adults at home. Why do we suddenly transform them into adolescents with no freedom when they reach the workplace?
+ - We have absolute trust in our employees. In fact, we are partners with them.
+ - The purpose of work is not to make money. The purpose of work is to make the workers, whether working stiffs or top executives, feel good about life.
+ - For a company to excel, employees must be reassured that self-interest, not the company’s, is their foremost priority. We believe an employee who puts himself first will be motivated to perform.
+ - The key to management is to get rid of the managers.
+ - The key to getting work done on time is to stop wearing a watch.
+ - If you are giving back, you took too much.
+ - Once employees feel challenged, invigorated and productive, their efforts will naturally translate into profit and growth for the organisation.
+ - Only two things grow for the sake of growth: businesses and tumors.
+ - Human nature demands recognition. Without it, people lose their sense of purpose and become dissatisfied, restless, and unproductive.
+ - Man is by nature restless. When left too long in one place he will inevitably grow bored, unmotivated, and unproductive.
+ - If you look at any kind of modern organization and you think, ‘What are the foremost tools of power?’ You will find that it is information.
+ - Large, centralized organizations foster alienation like stagnant ponds breed algae.
+ - I once worked it out – after $12 million, all millionaires are the same. That’s because we’re all humans, confined to human scale. How many homes can you live in? How many meals can you eat? You can have a living room the size of a cathedral, but you won’t live in it. It’s too big.
+ - If we do not let people do things the way they do, we will never know what they are really capable of and they will just follow our boarding school rules.
+ - Every one of us has learned how to send emails on Sunday night. But how many of us know how to go a movie on Monday afternoon. You’ve unbalanced your life without balancing it with someone else.
+ - It is not socialist, as some of our critics contend. It isn’t purely capitalist, either. It is a new way. A third way. A more humane, trusting, productive, exhilarating, and, in every sense, rewarding way.
+ - Bill Gore from Goretex was a very strong influence because he was one of the first larger companies to experiment with freedom in the workplace.
+ - The best way to invest corporate profits is to give them to the employees.
+ - There is no contest between the company that buys the grudging compliance of its work force and the company that enjoys the enterprising participation of its employees.
+ - People are too keen to follow standard preconceptions of how organisations should work. All too often, we feel that we are unable to make changes and so hope that someone, somewhere in your organisation knows what we are doing and what the overall aim is.
+ - The era of using people as production tools is coming to an end. Participation is infinitely more complex to practice than conventional corporate unilateralism, just as democracy is much more cumbersome than dictatorship. But there will be few companies that can afford to ignore either of them.
+ - A high percentage of organisations develop a military rationale, whereby only a very small number of people make all of the decisions. There is little wonder, then, that people aren’t keen to get out of bed and come to work on a Monday morning.
+ - No-one works for money alone and tapping into what people want from their careers and what they have to offer is essential.
+ - I believe no one can afford, endure or can stomach leaving half a life in the parking lot when she or he goes to work. It’s a lousy way to live and a lousy way to work.
+
+26 quotes

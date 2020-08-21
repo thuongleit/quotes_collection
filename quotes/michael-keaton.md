@@ -1,0 +1,21 @@
+ - Work hard. Don’t quit. Be appreciative, be thankful, be grateful, be respectful. Also, never whine, never complain. And always, for crying out loud, keep a sense of humor.
+ - Filmmaking is the ultimate team sport.
+ - It’s great to be young and insane.
+ - Anesthesia is quite remarkable. Its lost time. And you wake up kind of refreshed.
+ - I’m a really sensitive person. I cry if I miss a cab. I’ve always worn my emotions on my sleeve. I think it makes life so much better when you can talk about anything.
+ - It’s odd, how those things happen to actors. A thing where you think, “I have no idea how to do this,” something will happen in your life comes up and you just get it. I don’t know how you get it, but actors are pretty extraordinary, in that regard. I think it’s fear that happens.
+ - You tell me another gang that’s got a dental plan.
+ - High energy creates more energy, more energy, more energy. It kicks off synapses, I guess. It opens up your brain and you think of one thing after another thing, after another. You can really open yourself up comedically, which is fun.
+ - There comes a point in your life when you realize how quickly time goes by, and how quickly it has gone. Then it really speeds up exponentially. With that, I think you start to put a lot of things into context; you start to see how huge the world is, and really, the universe.
+ - Magna carta. Master charga.
+ - To this day, I have the most fond memories of some of my old toys.
+ - Dying is a really hard way to learn about life.
+ - I performed stand-up because I didn’t have to ask anyone’s permission. My set was never joke-centric. It was a performance.
+ - Is this a great country, or what?
+ - I want to thank the Hollywood Foreign Press for even having a comedy category.
+ - Unless you’re flat out dead, you have to think of some other questions like: what’s on the other side? It brings up issues of God, or no God. How does he play into this? Or he, or she, or it? How does it all play into this?
+ - I never knew anyone who was cloned, but I played one in Multiplicity.
+ - Small movie, small role, giant movie, giant role. Work is work. You’ve got to tell the truth and show up.
+ - Yeah, I had to change my name because there were two other actors registered at Equity with that name.
+
+19 quotes

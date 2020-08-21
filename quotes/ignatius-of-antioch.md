@@ -1,0 +1,34 @@
+ - My dear Jesus, my Savior, is so deeply written in my heart, that I feel confident, that if my heart were to be cut open and chopped to pieces, the name of Jesus would be found written on every piece.
+ - Christianity is greatest when it is hated by the world.
+ - It is not that I want merely to be called a Christian, but actually to be one. Yes, if I prove to be one, then I can have the name.
+ - It is better to be silent and be real than to talk and not be real.
+ - I wish not merely to be called Christian, but also to be Christian.
+ - I am God’s wheat and shall be ground by their teeth so that I may become Christ’s pure bread.
+ - Be careful, therefore, to take part only in the one Eucharist; for there is only one Flesh of our Lord Jesus Christ and one cup to unite us with His Blood.
+ - Now I begin to be a disciple. Let fire and cross, flocks of beasts, broken bones, dismemberment come upon me, so long as I attain to Jesus Christ.
+ - Do not have Jesus Christ on your lips, and the world in your heart.
+ - May nothing entice me till I happily make my way to Jesus Christ! Fire, cross, struggles with wild beasts, wrenching of bones, mangling of limbs – let them come to me, provided only I make my way to Jesus Christ.
+ - Wherever the bishop shall appear, there let the multitude also be; even as, wherever Jesus Christ is, there is the Catholic Church.
+ - I would rather die for Christ than rule the whole earth.
+ - He who died in place of us is the one object of my quest. He who rose for our sakes is my one desire.
+ - Be obedient to the bishop and to one another, as Jesus Christ was in the flesh to the Father, and the apostles to Christ and to the Father and to the Spirit, so that there may be unity in flesh and in spirit.
+ - I would rather die and come to Jesus Christ than be king over the entire earth. Him I seek who died for us; Him I love who rose again because of us.
+ - It is impossible for a man to be freed from the habit of sin before he hates it, just as it is impossible to receive forgiveness before confessing his trespasses...
+ - Let no man’s place, or dignity, or riches, puff him up; and let no man’s low condition or poverty abase him. For the chief points are faith towards God, hope towards Christ, the enjoyment of those good things for which we look, and love towards God and our neighbor.
+ - As for me, my charter is Jesus Christ, the inviolable charter is His cross and His death and resurrection, and faith through Him.
+ - Where the bishop is present, there is the Catholic Church.
+ - Take heed often to come together to give thanks to God and show forth His praise. For when you assemble frequently in the same place, the powers of Satan are destroyed, and the destruction at which he aims is prevented by the unity of your faith.
+ - For Faith is the beginning and the end is love, and God is the two of them brought into unity. After these comes whatever else makes up a Christian gentleman.
+ - It is outrageous to utter the name of Jesus Christ and live in Judaism.
+ - Let not then any one deceive you, as indeed you are not deceived, inasmuch as you are wholly devoted to God.
+ - For some are in the habit of carrying about the name in wicked guile, while they still practice things unworthy of God. You must flee these as you would wild beasts. For they are ravening dogs, who bite secretly, against whom you must be on your guard, since they are men who can scarcely be cured.
+ - A Christian is not his own master, since all his time belongs to God.
+ - Only let it be in the name of Jesus Christ, that I may suffer together with Him! I endure everything because He Himself, Who is perfect man, empowers me.
+ - I no longer take pleasure in perishable food or in the delights of this world. I want only God’s bread, which is the Flesh of Jesus Christ, formed of the seed of David, and for drink I crave His Blood which is love that cannot perish.
+ - It is better for me to die in behalf of Jesus Christ, than to reign over all the ends of the earth.
+ - Do everything as if He were dwelling in us. Thus we shall be His temples and He will be within us as our God – as He actually is.
+ - Let us therefore be of a reverent spirit, and fear the long-suffering of God, that it tend not to our condemnation.
+ - Therefore run together as into one temple of God, as to one altar, as to one Jesus Christ, who came forth from one Father, and is with and has gone to one.
+ - The Lord did nothing either of himself or through his apostles without his Father, with whom he is united; so too, you should undertake nothing without the bishop and the presbyters priests.
+
+32 quotes

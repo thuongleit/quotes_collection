@@ -1,0 +1,48 @@
+ - We are more often frightened than hurt; and we suffer more from imagination than from reality.
+ - True happiness is to enjoy the present, without anxious dependence upon the future, not to amuse ourselves with either hopes or fears but to rest satisfied with what we have, which is sufficient, for he that is so wants nothing.
+ - What you think about yourself is much more important than what others think of you.
+ - If a man does not know what port he is steering for, no wind is favorable to him.
+ - All art is an imitation of nature.
+ - The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back.
+ - If you want to be loved, love.
+ - Let us train our minds to desire what the situation demands.
+ - It is a great thing to know the season for speech and the season for silence.
+ - It is not death we fear, but the thought of it.
+ - The road to learning by precept is long, but by example short and effective.
+ - It is the sign of a great mind to dislike greatness, and prefer things in measure to things in excess.
+ - Unhappy is the man, though he rule the world, who doesn’t consider himself supremely blessed. In order to consider himself supremely blessed he must deeply understand that things could be much worse but aren’t! To not do that is to always be less happy than he could be.
+ - No evil propensity of the human heart is so powerful that it may not be subdued by discipline.
+ - A quarrel is quickly settled when deserted by one party; there is no battle unless there be two.
+ - Courage leads starward, fear toward death.
+ - We should every night call ourselves to an account: What infirmity have I mastered today? What passions opposed! What temptation resisted? What virtue acquired?
+ - There is no person so severely punished, as those who subject themselves to the whip of their own remorse.
+ - He who looks for advantage out of friendship strips it all of its nobility.
+ - Add each day something to fortify you against poverty and death.
+ - There’s some end at last for the man who follows a path; mere rambling is interminable.
+ - Courage is a scorner of things which inspire fear.
+ - Unhappy is the man, though he rule the world, who doesn’t consider himself supremely blessed.
+ - It is not manly to turn one’s back on fortune.
+ - Malice drinks one-half of its own poison.
+ - What is the proper limit for wealth? It is, first, to have what is necessary; and, second, to have what is enough.
+ - You can end love more easily than you can moderate it.
+ - A happy life is one which is in accordance with its own nature.
+ - Let us be brave in the face of adversity.
+ - We can be thankful to a friend for a few acres or a little money; and yet for the freedom and command of the whole earth, and for the great benefits of our being, our life, health, and reason, we look upon ourselves as under no obligation.
+ - The mind is slow to unlearn what it learnt early.
+ - No man will swim ashore and take his baggage with him.
+ - Failure changes for the better, success for the worse.
+ - To keep oneself safe does not mean to bury oneself.
+ - Fortune reveres the brave, and overwhelms the cowardly.
+ - The great soul surrenders itself to fate.
+ - It is wrong not to give a hand to the fallen. This right is common to the whole human race.
+ - The sun also shines on the wicked.
+ - If you wish to fear nothing, consider that everything is to be feared.
+ - When in fear, it is safest to force the attack.
+ - The courts of kings are full of people, but empty of friends.
+ - No one is better born than another, unless they are born with better abilities and a more amiable disposition.
+ - It is for the superfluous things of life that men sweat.
+ - Nothing is our except time.
+ - For the great benefits of our being- our life, health, and reason-we look upon ourselves.
+ - Know this, that he that is a friend to himself, is a friend to all men.
+
+46 quotes

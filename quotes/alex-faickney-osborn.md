@@ -1,0 +1,21 @@
+ - Worry is essentially a misuse of imagination.
+ - Creativity is more than mere imagination. It is imagination inseparably coupled with both intent and effort.
+ - If you go fishing you may not catch any fish. If you don’t go fishing, you’ll never catch any fish.
+ - It’s much easier to tame a wild idea than invigorate one that has no life in the first place.
+ - It is easier to tone down a wild idea than to think up a new one.
+ - Creativity is so delicate a flower that praise tends to make it bloom, while discouragement often nips it in the bud. Any of us will put out more and better ideas if our efforts are appreciated.
+ - Creativity is the production of meaning by synthesis.
+ - Most ideas are step-by-step children of other ideas.
+ - Each of us has an Aladdin’s Lamp which psychologists call creative imagination.
+ - Observation capitalizes inspiration.
+ - Any of us will put out more and better ideas if our efforts are appreciated.
+ - Imagination is the cornerstone of human endeavor.
+ - Imagination is vital to precautionary judgement.
+ - Reading supplies bread for imagination to feed on and bones for it to chew on.
+ - Often when economic pressure is lifted, a man must pump back into himself a feeling of must.
+ - As in the piling up of hypothetical alternatives, creative accidents follow the law of probabilities the more we fish, the more likely we are to get a strike.
+ - Necessity may be mother of invention, but fun is the father.
+ - Whatever creative success I gained was due to my belief that creative power can be stepped up by effort, and that there are ways in which we can guide our creative thinking.
+ - Creativity is so delicate a flower that praise tends to make it bloom!
+
+19 quotes

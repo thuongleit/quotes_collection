@@ -1,0 +1,42 @@
+ - We’re changing the world with technology. ~~Bill Gates
+ - If you think technology can solve your security problems, then you don’t understand the problems and you don’t understand the technology. ~~Bruce Schneier
+ - It’s not information overload. It’s filter failure. ~~Clay Shirky
+ - Technology alone is not enough. ~~Steve Jobs
+ - We live in a society exquisitely dependent on science and technology, in which hardly anyone knows anything about science and technology. ~~Carl Sagan
+ - Don’t become a slave to technology – manage your phone, don’t let it manage you. ~~Richard Branson
+ - Programming today is a race between software engineers striving to build bigger and better idiot-proof programs, and the Universe trying to produce bigger and better idiots. So far, the Universe is winning. ~~Rick Cook
+ - Investing in tomorrow’s technology today is more critical than ever... ~~Bill Gates
+ - Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world. ~~Louis Pasteur
+ - Not finance. Not strategy. Not technology. It is teamwork that remains the ultimate competitive advantage, both because it is so powerful and so rare. ~~Patrick Lencioni
+ - While we’re all very dependent on technology, it doesn’t always work. ~~Bill Gates
+ - You’ve got to start with the customer experience and work backwards to the technology. You can’t start with the technology and try to figure out where you’re going to sell it. ~~Steve Jobs
+ - I think the biggest innovations of the 21st century will be at the intersection of biology and technology. A new era is beginning. ~~Steve Jobs
+ - We are stuck with technology when what we really want is just stuff that works. ~~Douglas Adams
+ - People will come to love their oppression, to adore the technologies that undo their capacities to think. ~~Aldous Huxley
+ - You on the cutting edge of technology have already made yesterday’s impossibilities the commonplace realities of today. ~~Ronald Reagan
+ - As a young citizen of India, armed with technology and love for my nation, I realize, a small aim is a crime. ~~Abdul Kalam
+ - The earth, the sea and air are the concern of every nation. And science, technology, and education can be the ally of every nation. ~~John F. Kennedy
+ - There is a difference between what technology enables and what historical business practices enable. ~~Bill Gates
+ - Even in such technical lines as engineering, about 15% of one’s financial success is due one’s technical knowledge and about 85% is due to skill in human engineering, to personality and the ability to lead people. ~~Dale Carnegie
+ - Technology is both a tool for helping humans and for destroying them. This is the paradox of our times which we’re compelled to face. ~~Frank Herbert
+ - Knowledge is of no value unless you put it into practice. ~~Anton Chekhov
+ - The most intractable problem today is not pollution or technology or war; but the lack of belief that the future is very much in the hands of the individual. ~~Margaret Mead
+ - The real problem is not whether machines think but whether men do. ~~B. F. Skinner
+ - Man is still the most extraordinary computer of all. ~~John F. Kennedy
+ - My view is that if your philosophy is not unsettled daily then you are blind to all the universe has to offer. ~~Neil deGrasse Tyson
+ - Information technology has been one of the leading drivers of globalization, and it may also become one of its major victims. ~~Evgeny Morozov
+ - The advance of technology is based on making it fit in so that you don’t really even notice it, so it’s part of everyday life. ~~Bill Gates
+ - Art is obsolete now. New technologies are taking over. ~~Jeff Koons
+ - Most of the time spent wrestling with technologies that don’t quite work yet is just not worth it for end users, however much fun it is for nerds. ~~Douglas Adams
+ - The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction. ~~Eckhart Tolle
+ - Tribalism is a social form which can exist at any level of technology. It’s a complete illusion to associate it with low levels of technology. It is probably, in fact, a form of social organization second only to the family in its ability to endure. ~~Terence McKenna
+ - In technology, we spend so much time experimenting, fine-tuning, getting the absolute cheapest way to do something – so why aren’t we doing that with social policy? ~~Esther Duflo
+ - I would like to die on Mars. Just not on impact. ~~Elon Musk
+ - Our inventions are wont to be pretty toys, which distract our attention from serious things. They are but improved means to an unimproved end. ~~Henry David Thoreau
+ - Man masters nature not by force but by understanding. This is why science has succeeded where magic failed: because it has looked for no spell to cast over nature. ~~Jacob Bronowski
+ - But there’s still so much you can do with technology to improve the customer experience. And that’s the sense in which I believe it’s still Day One, and that it’s early in the day. If anything, the rate of change is accelerating. ~~Jeff Bezos
+ - Technology is society made durable. ~~Bruno Latour
+ - I want Wipro to be among the top ten IT companies in the world. ~~Azim Premji
+ - The most important thing we can do is inspire young minds and to advance the kind of science, math and technology education that will help youngsters take us to the next phase of space travel. ~~John Glenn
+
+40 quotes

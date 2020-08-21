@@ -1,0 +1,43 @@
+ - I love hip hop music, I make hip hop music.
+ - Everybody, at some point in their life, has fallen down and not felt like getting back up, but you have to, no matter how difficult it is.
+ - I mean I’m 16 and 17 years wiser now. So if I could do it when I was 18 with a guy, I can certainly do it at 33 with a lady.
+ - It’s hard to smoke a pipe, and it’s actually kind of brutal. It burns your mouth and your throat, and to keep it lit.
+ - I got expelled from high school, and then did my exams from home. I decided, through that experience, that I was going to expediate my plan and didn’t go to university. Instead, I went to a community college and studied the theory and history of film with the idea that I wanted to write and direct.
+ - My philosophy about the whole thing is that awards are like gifts: it’s lovely to receive them, and it is very bad form to covet them.
+ - I bought a house, and I’ve been decorating it.
+ - I have too many control issues, so it just is not good for me to go and watch a film, too soon after I make it.
+ - A lot of my friends are gangsters. Not like gangsters – well, yeah, all sorts of levels of criminality – but not the types that are preying on innocent people. I have no interest in the type of criminality that has no respect for collateral damage.
+ - There are definitely worse people to be compared with. I think Brad Pitt makes interesting decisions.
+ - If I went to them all dressed up and flashed a nice smile for the cameras it would probably be easier for me to get work. But I just can’t tolerate it.
+ - You have to keep people engaged until you get them through the next commercial. I’m not complaining about working in TV, at all, but just as an artistic reaction, I find myself being so drawn to moments of silence where things are allowed to breathe.
+ - The landscape of cinema is not original. Not to say there aren’t great movies being made, but it’s much easier for studios to make movies that have built-in audiences. So it’s all remakes, adaptations, a lot of remakes of adaptations.
+ - I’m currently doing Undeclared an American TV show set in a college. It just got aired and got massive ratings so hopefully that’ll screen in the UK soon.
+ - It’s generally more fun playing the villain.
+ - I’m reading scripts, desperately wanting to work. I’ve set a couple of things up for next year.
+ - Acting is never really effortless, at least not for me. It requires a massive amount of work. But, there’s definitely an added level of having to just create the whole thing again, every time. It’s also a very exciting thing, to do that.
+ - I was a slightly melancholy child and I think films were a way of escaping for me.
+ - No, I do a bunch of things to entertain myself. I paint, I make music, I take photographs.
+ - It could be my downfall, but I don’t think it is – Hollywood is run on perception, and if you stray off the path of what you want to do with your career, it’s suicide.
+ - If I’d seen a grown man beating a crippled boy, of course I’d intervene. If my father died and left my mother destitute, it’s your instinct to take care of her. So when I started to think about it in those terms, it started to make sense to me.
+ - In the early part of your career you are always compared with somebody until you can stand on your own two feet.
+ - It’s always difficult to really sum up exactly why a relationship works.
+ - Television is all about sound. You’ll never get a moment of silence unless there’s something really extraordinary going on, on screen, visually. They never let a moment of silence pass without being filled in television because it’s a very sound-driven medium.
+ - I get invited to literally every single movie premiere that’s going on.
+ - It always seemed to me like it was a significant thing to do with one’s life to be an actor ’cause I love movies and I felt like, not to be grandiose about it, but there is something important about film with the function it provides to general society.
+ - I’m happy being an actor, it’s what I have always wanted to do. I’m just lucky I got to do it so early.
+ - Being at the mercy of the acting profession, in the early days of one’s career, is really brutal and feels like you have no control over your life, at all.
+ - I always think it’s better to take a smaller role in a great film rather than a leading role in something that you don’t have complete faith in.
+ - I find aspects of the industry tedious and hard to manage.
+ - I watch these actors who when you go to buy a pint of milk you see them smiling on the cover of 20 magazines. Then when you see them in a film it’s hard to believe the character because you just see them everywhere.
+ - The truth of the matter is the real industry is in LA and the cream of the talent is there.
+ - I’m usually the guy who knocks everyone out in order to get the girl.
+ - I was playing pretty boys and these angelic roles like Nicholas Nickleby and all that stuff. And I was like, ‘What am I doing? This isn’t who I am, as a man or an artist.’ I had to overcome people’s belief that I was too pretty to be a badass.
+ - I don’t just look at things as an actor. I’ve also written several films, so I look at it as a storyteller and I know if something worked and should have been in there for the benefit of the story and the benefit of the character.
+ - Good roles are hard to come by, and whether they’re a few lines or a lead, you snap ’em up when they come along.
+ - And I just want to work with good directors and good people.
+ - In a work capacity I’m only interested in acting and producing.
+ - So I try not to do press and if you can keep the balance of keeping a certain degree of anonymity and do interesting work then you can hope for a degree of career longevity.
+ - They say that theater is the actor’s medium, television is the writer’s medium and film is the director’s medium, and it’s really true.
+ - To fight monsters, we created monsters of our own.
+
+41 quotes

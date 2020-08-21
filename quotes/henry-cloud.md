@@ -1,0 +1,81 @@
+ - We change our behavior when the pain of staying the same becomes greater than the pain of changing. Consequences give us the pain that motivates us to change.
+ - Whatever’s happening today, remember it is only ONE SCENE in a long movie. Don’t treat it like it’s the whole story. Keep writing the story.
+ - Be Hard on the issue, Soft on the person.
+ - Getting to the next level always requires ending something, leaving it behind, and moving on. Growth demands that we move on. Without the ability to end things, people stay stuck, never becoming who they are meant to be, never accomplishing all that their talents and abilities should afford them.
+ - Leadership is not taken, it is given. People give leadership to those that they trust. They allow people that they trust to have influence over their lives.
+ - If you are building a culture where honest expectations are communicated and peer accountability is the norm, then the group will address poor performance and attitudes.
+ - Everything has seasons, and we have to be able to recognize when something’s time has passed and be able to move into the next season. Everything that is alive requires pruning as well, which is a great metaphor for endings.
+ - Boundaries are basically about providing structure, and structure is essential in building anything that thrives.
+ - It is true that you get what you tolerate.
+ - The natural response to evaluation is to feel judged. We have to mature to a place where we respond to it with gratitude, and love feedback.
+ - In the end, as a leader, you are always going to get a combination of two things: what you create and what you allow.
+ - To rescue people from the natural consequences of their behavior is to render them powerless.
+ - The fool tries to adjust the truth so he does not have to adjust to it.
+ - There is a difference between solitude and isolation. One is connected and one isn’t. Solitude replenishes, isolation diminishes.
+ - The mature person meets the demands of life, while the immature person demands that life meet her demands.
+ - For someone’s character to grow, it has to be free from internal attack. Falling down never stopped children from developing. But getting yelled at, criticized, and put down can stop them for life.
+ - Faith goes beyond reason. It goes beyond what you can see. But it is as real as anything you can touch or feel.
+ - Anger is frustration at the fact that we are not God, and do not have control over reality.
+ - If you continue to blame other people for “making” you feel guilty, they still have power over you, and you are saying that you will only feel good when they stop doing that. You are giving them control over your life. Stop blaming other people.
+ - Good pain is pain in the service of a purpose. Bad pain is pain endured because we are resisting a needed growth step.
+ - A good test of a relationship is how a person responds to the word ‘no.’ Love respects ‘no,’ control does not.
+ - We all make mistakes, but the people who thrive from their mistakes are the successful ones.
+ - A person who hasn’t grieved a significant loss has unfinished business inside and can cause others great grief as a result.
+ - When truth presents itself, the wise person see the light, takes it in, and makes adjustments. The fool tries to adjust the truth so he does not have to adjust to it.
+ - Leave your pride, ego, and narcissism somewhere else. Reactions from those parts of you will reinforce your children’s most primitive fears.
+ - Confronting an irresponsible person is not painful to him; only consequences are.
+ - Love can only exist where freedom and responsibility are operating.
+ - Marriage is not slavery. It is based on a love relationship deeply rooted in freedom. Each partner is free from the other and therefore free to love the other. Where there is control, or perception of control, there is not love. Love only exists where there is freedom.
+ - Dating is a give and take. If you only see it as “Taking,” you are not getting it.
+ - If you want to become healthy, you have to surround yourself with a group of people that are getting healthy, and you have to be connected to a community that is doing what you want to do.
+ - Encourage literally came from “in courage.” The courage is put “into” you from outside. Our character and abilities grow through internalizing from others what we do not possess in ourselves.
+ - A leader’s responsibility is to cause a vision and mission to have tangible results in the real world.
+ - There is a big difference between hurt and harm. We all hurt sometimes in facing hard truths, but it makes us grow. It can be the source of huge growth. That is not harmful. Harm is when you damage someone. Facing reality is usually not a damaging experience, even though it can hurt.
+ - It’s scary to realize that the only thing holding our friends to us isn’t our performance, or our lovability, or their guilt, or their obligation. The only thing that will keep them calling, spending time with us, and putting up with us is love. And that’s the one thing we can’t control.
+ - One of the first signs that you’re beginning to develop boundaries is a sense of resentment, frustration, or anger at the subtle and not-so-subtle violations in your life. Just as radar signals the approach of a foreign missile, your anger can alert you to boundary violations in your life.
+ - That is why success and fruitfulness depend as much upon focusing on the “who” you are as much as the “what” of the work you do. Invest in your character, and it will give you the returns that you are looking for by only investing in the work itself. You can’t do the latter without the former.
+ - Diligence is not easy, but we can’t reach our goals without it.
+ - One of the worst things you can die with is potential.
+ - Just as we leave the effects of our work behind in results, we leave the effects of our interactions with people in their hearts, minds, and souls.
+ - The human heart will seek to be known, understood, and connected with above all else. If you do not connect, the ones you care about will find someone who will.
+ - Some goals are not going to fulfill you. Choose goals that you value and care about.
+ - He is the Truth, and He wants us to deal in truth with ourselves and our loved ones. We want the truth about you and your family to flood into and overrun the secrets that keep you in bondage to dysfunctional behavior and relationships.
+ - Christianity is not about morality. It’s about reality.
+ - When leaders lead in ways that people’s brains can follow, good results follow as well.
+ - Spouses in healthy relationships cherish each other’s space and are champions of each other’s causes.
+ - You will not grow without attempting to do things you are unable to do.
+ - If people are really narcissistic or have a need to be seen as more than they really are, or to be admired as having it all together, then they cannot be followed and trusted by others.
+ - Things don’t change in a marriage until the spouse who is taking responsibility for a problem that is not hers decides to say or do something about it.
+ - Consequences give us the pain that motivates us to change.
+ - Dating is about finding out who you are and who others are. If you show up in a masquerade outfit, neither is going to happen.
+ - A culture is like an immune system. It operates through the laws of systems, just like a body. If a body has an infection, the immune system deals with it. Similarly, a group enforces its norms, either actively or passively.
+ - If your boundary training consists only of words, you are wasting your breath. But if you ‘do’ boundaries with your kids, they internalize the experiences, remember them, digest them, and make them part of how they see reality.
+ - The business of church is ultimately people. You’re trying to heal people, grow people, teach people, and mend people. And when leaders spend all of their time helping and growing other people, they ignore their own growth.
+ - The extent to which two people in a relationship can bring up and resolve issues is a critical marker of the soundness of a relationship.
+ - We need rest not just so we feel better. We need rest for actual creation of what we’re going to need the next day.
+ - When a person travels through a few years with an organization, or with a partnership, or any other kind of working association, he leaves a ‘wake’ behind in these two areas, task and relationship: what did he accomplish and how did he deal with people?
+ - Who a person is will ultimately determine if their brains, talents, competencies, energy, effort, deal-making abilities, and opportunities will succeed.
+ - Endings are a part of life, and we are actually wired to execute them. But because of trauma, developmental failures, and other reasons, we shy away from the steps that could open up whole new worlds of development and growth.
+ - To get greater than 100% return on a growth step, give up defensiveness. Defensiveness stifles performance, and destroys relationships.
+ - The amount of truth a relationship can handle is proportional to the amount of perceived love that’s present.
+ - The sad thing is that many of us come to Christ because we are sinners, and then spend the rest of our lives trying to pretend that we are not!
+ - We have our own thoughts, and if we want others to know them, we must tell them.
+ - People tend to look at dating sort of like a safari – like they’re trying to land the trophy.
+ - Couples often live out years of falsehood trying to protect and save a relationship, all the while destroying any chance of real relationship.
+ - Values are sometimes worth living and dying for, and are certainly worth dating and breaking up over.
+ - Independence is not an option for us. Remember, God existed without us.
+ - Successful people stick to what they are good at and find ways to make that larger.
+ - You have to be able to face losing some things you might want in order to be free to do the right thing.
+ - Because dating is a human exercise, it can be a tightrope fraught with danger. You will be dating imperfect people, and some of them are more imperfect than others. In addition, you are not perfect either, so that complicates the picture.
+ - Dating is a place to practice how to relate to other people.
+ - Being right can never compete with doing well.
+ - There’s no better way to become a disintegrated character than to be your own authority.
+ - True intimacy is only build around the freedom to disagree.
+ - The physicality of a real relationship – one that encompasses mind, body and soul – ultimately makes it more fulfilling and powerful than any virtual relationship ever could be.
+ - To grow, we need things that we do not have and cannot provide, and we need to have a source of those things who looks favorably upon us and who does things for us for our own good.
+ - In a very real way, ownership is the essence of leadership. When you are ridiculously in charge, then you own whatever happens in a company, school, et cetera.
+ - Dating should be a part of your life, not your life a part of dating. There is more to life than finding a date.
+ - I’m not an expert in the sociological realities of all the pastors in the world, but I would say that there are some very, very positive things about the state of integrity in church leaders.
+ - You aren’t alive if you aren’t in need.
+
+79 quotes

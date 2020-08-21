@@ -1,0 +1,42 @@
+ - F-E-A-R has two meanings: ‘Forget Everything And Run’ or ‘Face Everything And Rise.’ The choice is yours. ~~Zig Ziglar
+ - Being scared is part of being alive. Accept it. Walk through it. ~~Robin S. Sharma
+ - Inaction breeds doubt and fear. Action breeds confidence and courage. ~~Dale Carnegie
+ - Focus on where you want to go, not on what you fear. ~~Tony Robbins
+ - He who is not everyday conquering some fear has not learned the secret of life. ~~Ralph Waldo Emerson
+ - If the challenge we face doesn’t scare us, then it’s probably not that important. ~~Tim Ferriss
+ - Our greatest fear should not be of failure but of succeeding at things in life that don’t really matter. ~~Francis Chan
+ - Fear is your friend. It is an indicator. Sometimes it shows you what you shouldn’t do, more often than not it shows you what you should do. ~~Tim Ferriss
+ - A decision made from fear is always the wrong decision. ~~Tony Robbins
+ - Shatter all your fear. ~~Robin S. Sharma
+ - Anxiety is the dizziness of freedom. ~~Soren Kierkegaard
+ - Fear doesn’t shut you down; it wakes you up. ~~Veronica Roth
+ - Let us never negotiate out of fear. But let us never fear to negotiate. ~~John F. Kennedy
+ - People will do anything, no matter how absurd, to avoid facing their own souls. ~~C.G. Jung
+ - The key to success is for you to make a habit throughout your life of doing the things you fear. ~~Brian Tracy
+ - The key to success is to focus our conscious mind on things we desire not things we fear. ~~Brian Tracy
+ - Love is what we are born with. Fear is what we learn. The spiritual journey is the unlearning of fear and prejudices and the acceptance of love back in our hearts. Love is the essential reality and our purpose on earth. ~~Marianne Williamson
+ - The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience. ~~Eleanor Roosevelt
+ - I will tell you the secret to getting rich on Wall Street. You try to be greedy when others are fearful. And you try to be fearful when others are greedy. ~~Warren Buffett
+ - I died as a mineral and became a plant, I died as a plant and rose to animal, I died as an animal and I was Man. Why should I fear? When was I less by dying? ~~Rumi
+ - Feeling sorry for yourself, and your present condition, is not only a waste of energy but the worst habit you could possibly have. ~~Dale Carnegie
+ - Do not fear mistakes. You will know failure. Continue to reach out. ~~Benjamin Franklin
+ - The world we see that seems so insane is the result of a belief system that is not working. To perceive the world differently, we must be willing to change our belief system, let the past slip away, expand our sense of now, and dissolve the fear in our minds. ~~William James
+ - I failed my way to success. ~~Thomas A. Edison
+ - One can choose to go back toward safety or forward toward growth. Growth must be chosen again and again; fear must be overcome again and again. ~~Abraham Maslow
+ - Courage is fear holding on a minute longer. ~~George S. Patton Jr.
+ - Fear is the path to the dark side. Fear leads to anger. Anger leads to hate. Hate leads to suffering. ~~George Lucas
+ - Fear is the main source of superstition, and one of the main sources of cruelty. To conquer fear is the beginning of wisdom. ~~Bertrand Russell
+ - If you want to be enthusiastic, act enthusiastic. ~~Dale Carnegie
+ - If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? ~~Confucius
+ - Two things awe me most, the starry sky above me and the moral law within me. ~~Immanuel Kant
+ - But man is not made for defeat. A man can be destroyed but not defeated. ~~Ernest Hemingway
+ - The oldest and strongest emotion of mankind is fear, and the oldest and strongest kind of fear is fear of the unknown. ~~H.P. Lovecraft
+ - Live your life that the fear of death can never enter your heart. ~~Tecumseh
+ - Be fearful when others are greedy and greedy when others are fearful. ~~Warren Buffett
+ - Religion is the opium of the masses. ~~Karl Marx
+ - The Bird of Hermes is my name, eating my wings to make me tame. ~~Kohta Hirano
+ - I would never die for my beliefs because I might be wrong. ~~Bertrand Russell
+ - Our interactions with one another reflect a dance between love and fear. ~~Ram Dass
+ - Beware of the man who works hard to learn something, learns it, and finds himself no wiser than before. He is full of murderous resentment of people who are ignorant without having come by their ignorance the hard way. ~~Kurt Vonnegut
+
+40 quotes

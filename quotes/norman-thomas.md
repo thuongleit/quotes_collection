@@ -1,0 +1,21 @@
+ - I am not the champion of lost causes, but the champion of causes not yet won.
+ - I now see Norman Thomas as indeed a liberal, but as a real, old-fashioned, unreconstructed liberal who believes in freedom and justice for everybody.
+ - The Socialist Party will no longer be running a candidate for president. The Democratic Party is leading this country to Socialism much faster than we could ever hope to.
+ - The difference between Democrats and Republicans is: Democrats have accepted some ideas of Socialism cheerfully, while Republicans have accepted them reluctantly.
+ - The American people will never knowingly adopt socialism. But, under the name of ‘liberalism,’ they will adopt every fragment of the socialist program, until one day America will be a socialist nation, without knowing how it happened.
+ - The secret of a good life is to have the right loyalties and hold them in the right scale of values.
+ - The doctrine of thrift for the poor is dumb and cruel, like advising them to try and lift themselves by their bootstraps.
+ - You may use different sorts of sentences and illustrations before different sorts of audiences, but you don’t – if you are wise – talk down to any audience.
+ - The very existence of armaments and great armies psychologically accustoms us to accept the philosophy of militarism. They inevitably increase fear and hate in the world.
+ - If you want a symbolic gesture, don’t burn the flag, wash it.
+ - Harry Truman proves that old adage that any man can become President of the United States.
+ - Rebellion per se is not a virtue. If it were, we would have some heroes on very low levels.
+ - I walk where I choose to walk.
+ - Kennedy said that if we had nuclear war we’d kill 300 million people in the first hour. McNamara, who is a good businessman and likes to save, says it would be only 200 million.
+ - I always get more applause than votes.
+ - To us Americans much has been given; of us much is required. With all our faults and mistakes, it is our strength in support of the freedom our forefathers loved which has saved mankind from subjection to totalitarian power.
+ - All our rulers have said that war is unthinkable, and then we think about it almost all the time. We’ve got to make it unthinkable.
+ - Peace will never be entirely secure until men everywhere have learned to conquer poverty without sacrificing liberty or security.
+ - He who would save liberty must put his trust in democracy.
+
+19 quotes

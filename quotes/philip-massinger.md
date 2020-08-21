@@ -1,0 +1,53 @@
+ - A willing mind makes a hard journey easy.
+ - He that would govern others, first should be the master of himself.
+ - Like a rough orator, that brings more truth Than rhetoric, to make good his accusation.
+ - Revenge, that thirsty dropsy of our souls, makes us covet that which hurts us most.
+ - He that knows no guilt can know no fear.
+ - Petitions, not sweetened with gold, are but unsavory and oft refused; or, if received, are pocketed, not read.
+ - My dancing days are past.
+ - Be wise; soar not too high to fall; but stoop to rise.
+ - Death hath a thousand doors to let out life.
+ - I in my own house am an emperor, And will defend what’s mine.
+ - Malice scorned, puts out itself; but argued, give a kind of credit to a false accusation.
+ - Cheerful looks make every dish a feast, and it is that which crowns a welcome.
+ - Patience, the beggar’s virtue, shall find no harbor here.
+ - This is the Jew that Shakespeare drew.
+ - A diamond, though set in horns, is still a diamond, and sparkles in purest gold.
+ - He that doth public good for multitudes, finds few are truly grateful.
+ - Ill news are swallow-winged, but what is good walks on crutches.
+ - True dignity is never gained by place, and never lost when honors are withdrawn...
+ - Though the desire of fame be the last weakness Wise men put off.
+ - Thou art figured blind, and yet we borrow our best sight from thee.
+ - Black detraction will find faults where they are not.
+ - Gold – the picklock that never fails.
+ - I have play’d the fool, the gross fool, to believe The bosom of a friend will hold a secret Mine own could not contain.
+ - What a seaOf melting ice I walk on!
+ - You may boldly say, you did not plough Or trust the barren and ungrateful sands With the fruitful grain of your religious counsels.
+ - Oh that thou hadst like others been all words, And no performance.
+ - Nay, droop not, fellows; innocence should be bold.
+ - And, to all married men, be this a caution, Which they should duly tender as their life, Neither to doat too much, nor doubt a wife.
+ - But married once, a man is stak’d or pown’d, and cannot graze beyond his own hedge.
+ - The good needs fear no law, It is his safety and the bad man’s awe.
+ - Greatness, with private men Esteem’d a blessing, is to me a curse; And we, whom, for our high births, they conclude The happy freemen, are the only slaves. Happy the golden mean!
+ - To doubt is worse than to have lost; And to despair is but to antedate those miseries that must fall on us.
+ - 0 summer friendship, whose flat-tering leaves shadowed us in our prosperity, With the least gust, drop off in the autumn of adversity.
+ - Such as ne’er saw swans May think crows beautiful.
+ - Ambition, in a private man is a vice, is in a prince the virtue.
+ - Conscience and wealth are not always neighbors.
+ - The soul is strong that trusts in goodness.
+ - The over curious are not over wise.
+ - He is not valiant that dares lie; but he that boldly bears calamity.
+ - Nor custom, nor example, nor cast numbers Of such as do offend, make less the sin.
+ - I had not to this time subsisted, but that I was supported by your frequent courtesies and favours.
+ - We have not an hour of life in which our pleasures relish not some pain, our sours, some sweetness.
+ - Tis the only discipline we are born for; all studies else are but as circular lines, and death the center where they all must meet.
+ - Virtue, thou in rags, may challenge more than vice set off with all the trim of greatness.
+ - If you like not hanging, drown yourself; Take some course for your reputation.
+ - Pleasures of worse natures Are gladly entertained, and they that shun us Practice in private sports the stews would blush at.
+ - For any man to match above his rank is but to sell his liberty.
+ - What pity ’tis, one that can speak so well, Should in his actions be so ill!
+ - They are only safe That know to soothe the prince’s appetite, And serve his lusts.
+ - Virgin me no virgins! I must have you lose that name, or you lose me.
+ - What can innocence hope for, When such as sit her judges are corrupted!
+
+51 quotes

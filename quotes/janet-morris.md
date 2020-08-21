@@ -1,0 +1,174 @@
+ - Be polite to all, friendly to none. Be professional. Be ready to kill everyone and everything.
+ - Grab reality by the balls and squeeze.
+ - Let fools believe what fools believe.
+ - Gods and politics are the tools with which the godless and unprincipled manipulate the gullible.
+ - Humiliation sets armies marching, empires falling, breaks hearts and minds and souls.
+ - The meaning of life, Nikodemos, is to live life with meaning. The purpose of life is merely to live it, perhaps to give it.
+ - If, as you teach, the universe has no beginning and no end, why should we?
+ - Don’t blame yourself, or worry. Neither does a bit of good.
+ - Sometimes the cost of winning for all the right reasons is so great that spirits die and hearts grow cold.
+ - There must be love, and understanding, to betray. Most men haven’t the wit or the honor for betrayal: not to know it when they see it; not the stomach to apprehend it as they do it. Most men, blind and dumb in their self-centeredness, don’t betray: they merely disappoint.
+ - There must be a corps that will battle for righteousness, for there are endless battalions who serve unrighteousness.
+ - The universe forgives those who give until their hearts are aching and their spirits weak, and finds a way to renew all strength and cure all ills, in this world or the next, if a soul can just have faith.
+ - The Riddler says you make the world better one battle at a time.
+ - Life was never simple, happiness never where you thought you’d left it, and right and wrong no more fixed than clouds in the sky.
+ - We know. We’ve seen it all before.
+ - But we’re dying here.
+ - I’m just a weapon of the god.
+ - Wars don’t bring lasting peace, only lasting death.
+ - Bandara was not an easy place to return to: it could hide from the common worlds whose periphery it inhabited. But Bandara never had, in all its years, completely disappeared.
+ - There are stranger things here than Thebans know about...
+ - So well do I love you, I go to my god singing your praises. When I meet my father, I will tell him I fought beside you.
+ - Look around you. It’s an honor to fight beside you. Today we choose to fight. For the freedom to fight on other days. So we remember what’s worth fighting for.
+ - When the balance is restored, people get hurt.
+ - I can start the rain. Bring thunder. Bring lightning. Want to see?
+ - Loyalty must be forged – to him, to his: stronger than iron, from experience, from risk – it can’t be bought, or taught, or promised before the fact. Allegiance must be earned so it will hold, win or lose.
+ - Only from chaos does order come. The angry Fates bring death where they will, when war is king, says Enlil, storm god of the armies, and the tip of his crown rends the clouds above their heads. “Wheresoever I rule, death comes shambling after. So it has always been, is, and will be.”
+ - This fight coming is not a battle of weapons, but a battle of wills.
+ - Choose life over death, Niko, when a choice can be made that puts no soul in jeopardy.
+ - One man, one horse, one holocaust on demand.
+ - Don’t forget, Riddler, how I love thee. Or all we shared together. Or that this sea and all other seas can lead you back to me.
+ - Wanting neither too much to live, nor too much to die.
+ - Life to you, Riddler, and everlasting glory.
+ - Revenge is fruitless.
+ - Ask yourselves if the gods are angry, you who have seen Harmony come among us, walk among us, touch us, look kindly upon us. We are the Sacred Band of Thebes. We fight in the forefront, therefore we bleed first. We live, therefore we die.
+ - Survival has its own etiquette.
+ - It’s in the god’s hands.
+ - Shed your mortal skin and let me take you beneath the waves.
+ - Be careful what you pray for.
+ - One to a customer was the rule: one body; one mind; one swing through life. – Tempus.
+ - I must decide if you deserve to die.
+ - What we hold sacred is honor, justice, and glory. You need not swear allegiance to our storm god, to serve with us. Fighters are among us from many lands, with many gods and many beliefs. Believe as you will. What is between a man and his god is theirs alone to say.
+ - Listen close and you can hear, Please, bless us and forgive us, and make us good here and strong here. Let us get along here. Let those we love and left behind be blessed. Let us find the proper path and keep to it. Help us act harmoniously, and find work pleasing in the sight of god and man.
+ - I am always yours to call, wherever the sea can reach.
+ - Deception is a tactic: use it. Do whatever it takes to win.
+ - It is upon each soul to recognize its limit.
+ - Your honor blinds you, Tempus, to what’s right and wrong these days.
+ - No ethos, pursued without thought or mercy, is ethical.
+ - Men may not believe you, my son. But you must always say the truth, when the truth holds no danger for you or your loved ones.
+ - For the gift of life, the only true thanks was in living fully, and facing death with honor.
+ - You have crossbows: Shoot early; shoot often.
+ - Gather the shards of your courage. Patch together what resolve you can. We’ll find this thing – and kill it.
+ - Always take responsibility for your past. It is your only collateral in life. Unless you despise yourself now, you cannot despise yourself then. Everything you did is a part of the process that brought you here. All your past is as alive and real as your so-called ‘present.’
+ - There is no mercy in trading life for life. And certainly no righteousness. Mercy, once given, cannot be taken back.
+ - Gods colliding, ethos and mythos trying to combine. The Sacred Band caught up in a whirlwind not of any god’s devising: he and Niko had wanted to save twenty-three pairs of fated Theban fighters. Now everything feels fated and fighting oversweeps its boundaries of time and place and plane.
+ - Everyone prepares for battle in his own way.
+ - You three have done quite enough today: all of you and your feckless, treacherous god.
+ - Niko’s angular face caught a flicker of firelight and Tempus saw his future there: sharp purpose, discipline, and power in perfect balance; love of man and gods, and mercy transcending all. If war ever wore a more humane face, this one would make it so.
+ - Go carefully, child of mat, where no mercy can be had, and let your faith lead you on.
+ - Gods have bloody hands.
+ - Order is its own reward.
+ - To the death with honor, shoulder to shoulder, and no one gets closer to a Stepson than his partner.
+ - Some nights, valor and cold purpose aren’t enough.
+ - I won’t go back and live in the sea again.
+ - You’re not one to take lightly, to love of for an evening and leave of a dawn.
+ - Such hubris could only come from a man’s mouth.
+ - Death is a doorway, Niko, that leads to an adventure greater than any you have ever known.
+ - Something awful is always going to happen, Arton. It’s Sanctuary. You’re a Stepson. Awful is a big part of your job.
+ - Love sees all; hate is blind.
+ - These Stepsons tread where mortals don’t belong, some of us think. They seek out battle high above their station. Who knows what powers may yet take them and their mystic allies to task, bring them their comeuppance?
+ - I survive. I survived it all then and I’ll survive the rest of it. Without your help.
+ - The sun is new every day.
+ - The heavens listen to what is said on these cobbles. Laws of man and nature come together here. Here you must be firm. Here you must be true.
+ - Each soul has its appointed doom. How is it you dare to raise a mortal boy so high – high enough to flout the gods? Bring godhead where a man may reach out and take it? growls Enlil, and lightning splits a clear blue sky.
+ - Arrows are cheap; you’re expensive.
+ - Something is going on everywhere, most of which no one understands.
+ - Valor was in Nikodemos, unquestionable, and commitment like trees to stand or night to fall.
+ - Here and now was always where Tempus was, not off somewhere in the realm of Greater Good or Mortal Soul or Eternal Consequence. He’d lost the ability to determine greater good, if there was one; his mortal soul he’d given up on long ago. And as for eternal consequence – he was its embodiment.
+ - This is as ‘alone’ as I’m likely to get with you – you’re not half so fetching as your daughter.
+ - In this new world, this day and forever, then, we are not only Thebans – we are all Stepsons. We are all one Sacred Band. If you will have us. And mine will fight by yours, henceforth, as brothers.
+ - Humans create their futures every day of every year; only you can alter your worlds.
+ - You’ve been playing gods-and-witches again, that’s clear.
+ - Fight for life itself and everlasting freedom of the human spirit.
+ - Revenge is never the best driver for a battle, but a common one.
+ - Gods and men honor those who have fought in battle.
+ - Haste breeds error; error breeds woe.
+ - Proof of war, when it comes, always comes too late.
+ - Now the Fates are here on the beach, three shadows blacker than black, walking through the dunes and looking for their own. Just shadows, lamb-white hands beneath black robes spun of tears, glide among the celebrants on this night wherein the spirits of Thebes have found a home, if serendipitously.
+ - All gods are tricksters, and war gods worst of any.
+ - The Fates are here because of supernal anger, celestial imbalance, and arrogance of men and gods that must be curbed.
+ - You get what you expect. Expect to heal. Expect victory.
+ - And personally, I’ve lost my thirst for vengeance.
+ - To take care of the world seemed, finally, a privilege rather than a burden. The Riddler had led them to life’s greatest victory. They had found a home.
+ - Keep your enemies at a distance, your partners close at hand.
+ - It is hard to battle anger, for whatever it wants it pays from the soul.
+ - Stop grieving. Start giving thanks to me. You live to fight on other days.
+ - Niko knew death like a sister – she was his true partner in the phenomenal world.
+ - Some nights, one wants to tell beloveds everything that’s been waiting to be said. Some nights, a man needs flesh and blood and warm breath and a loving heart.
+ - You count up your dead, every one. Always. Recall them, each and all – every face, every heart.
+ - Tempus would be protected, better shielded from whatever the Stepson thought threatening, if love could heal and save.
+ - This was what men fought for, what men died for: a chance at life, and to fight on other days – the battle of your choice, of the body, or the heart, or the soul.
+ - Here Stormbringer spies the Stepsons, the Theban fighters, and the 3rd Commando, attending to their own. In the face of such unflinching determination and unswerving devotion, the hurricane pauses and calms. Its ravings turn to mutters.
+ - Wisdom, Niko thought as he leaned his cheek against his long-handled rake, cannot be had without price.
+ - He loves the world so much. I agree it would be a shame to take that love away from meadow and tree, stream and sky, and all that lives in nature, and leave them lonely.
+ - Fury from the heavens; fury at the gods – inseparable.
+ - Men live, and then they die. It is the quality of the process of living which matters, that and that alone.
+ - Gods are nothing without their worshipers; they act on the affairs and the passions of men.
+ - Why is it we are always the targets of the angry Fates? Twice as many men of ours met harm as did theirs, since we’ve come here.
+ - What is needed is never to be had without price.
+ - Look to the souls of Your own soldiers, God, who labor in Thine awful cause.
+ - Painful things are quickly forgotten.
+ - Time to unite the Sacred Bands, Thebans and his people: one unit, one heart, one swing through life.
+ - A wise one determines his own fate.
+ - Sanctuary is for lovers, not fighters, this season.
+ - I think we’re all in Cime’s army now. But never mind, the Storm God hasn’t forgotten us. Heaven is no farther away than it ever was.
+ - I want to live like a man.
+ - Death’s easy to find. If She wants you, you’ll meet Her here as well as anywhere.
+ - But she has found real love, and love can heal and save.
+ - Nature has a surer plan than mortals can devise.
+ - Tempus never left a problem for another to solve. Tempus never let the pain or difficulty of an undertaking persuade him not to pursue a resolution his heart thought was right. Tempus never gave up.
+ - Reasons never matter, once Death comes cold and bold and takes the living by the hand. You count up your dead, every one...
+ - It was his soul’s freedom that was in question. And that question was whether freedom was worth the price when it meant shirking the responsibilities of honor.
+ - Learn when to fear, and how to fear, and how much to fear, before you squander all you have left.
+ - And as for death – we get what we expect.
+ - Every man heals himself.
+ - Generosity is never out of season.
+ - So some will be left who remember.
+ - We’ve the new hard-steel, though why they’re all so hot to pay twice the price when men’re soft as clay and even wood will pierce the boldest belly, I can’t say.
+ - Vengeance is disappointing, always.
+ - One man can make another’s life so much better.
+ - For me, myth is the ‘common’ language of us all.
+ - One lot apiece, one chance to undo an error or secure a fate.
+ - Sometimes a man does what he’d most like to avoid.
+ - Nothing walks the earth more savage than a mare enraged.
+ - Live to fight on other days.
+ - I thought we’d die there, quarrels in our backs, you for what you did and me for bearing witness.
+ - Niko, you’re halfway to where you need to go. It’s the most dangerous time. And all the gods and forces have a stake in you, Hero. Or do you want to be just a memory, a cult somewhere, with people sacrificing horses to your name?
+ - Men are fools who forget what really matters while time goes by.
+ - Nothing he knew of, enunciated life like death.
+ - Wisdom, Niko thought as he leaned his cheek against his long-handled rake, cannot be had without price. And that price is blood. The sound of it in your veins. The pound of it in your head. The volume of it in a human body; the sickness when you’ve spilled it.
+ - Survival’s the thing, isn’t it?
+ - Her idea of who’s worth what ain’t mine.
+ - If cities have souls, Sanctuary’s was troubled long before Tempus got here, and will be troubled long after he and his are gone.
+ - What wastrel mankind destroyed takes time for nature to put to rights.
+ - The city guardsmen were like the keres, doom-bringers of merciless vengeance.
+ - I’m going to kill that god of yours, next. Then we’ll see what you can do, and what you can’t.
+ - I don’t want to be any closer to the gods than death will bring me.
+ - Makes you wonder if the gods are always right.
+ - Use him wisely. Few have been given such a weapon by the gods or Fates before.
+ - I see ranks ready for battle, stretching out. Five, six horses across, ranks in formation. Endlessly.
+ - War is all and king of all.
+ - Every man’s in his own hands, with a little help from his brothers.
+ - As Seth’s apprentice, I’ve learned wisdom of which you’ve never dreamed.
+ - Nothing powers hate better than embarrassment.
+ - The gods want to bring a better day, and you are their messengers. Trust not in all you see. Trust only in your hearts. And in us, who love you both.
+ - You’re talent, and we’re the talent scouts.
+ - It’s all right. Things as they once were will never be again, but it’s all right.
+ - I see all sorts of things when I’m clearing my pipes.
+ - If it was true today, it might be untrue tomorrow.
+ - If the gods sent you to fight here, then the gods are fools.
+ - Only so much can be borne from men, so much from gods.
+ - Honorable battle sustains a Sacred Band.
+ - This is for you. A mage named Randal told me to give it to the Band if you ever came back. ‘It surmounts evil,’ he told me, ‘keeps doom at bay.’
+ - These warriors of the Sacred Band were inscrutable; they loved their war and death and picking through the bones of time to sort out right from wrong, good from bad, holy from profane, honor from dishonor.
+ - If, as Niko asks, you show them mercy, then the gods will be well pleased.
+ - I’m reverent from a distance.
+ - What would the world be without him, and those like him?
+ - War’s balance will prevail.
+ - You must become like yourself.
+ - Men make their own fates – it’s personal, not a matter for debate.
+ - Tempus wanders eternally, bringing death to whomever loves him and being spurned by whomsoever he shall love.
+ - Everything that anyone respects is what men naturally excel at: fighting, accruing wealth, playing at power...
+ - When you give death, you give of your own life – every time.
+
+172 quotes

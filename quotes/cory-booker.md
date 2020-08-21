@@ -1,0 +1,53 @@
+ - Leadership is not a position or a title, it is action and example.
+ - If you want extraordinary results you must put in extraordinary effort.
+ - No matter what, we always have the power to choose hope over despair, engagement over apathy, kindness over indifference, love over hate.
+ - Give more than is expected, love more than seems wise, serve more than seems necessary, and help more than is asked.
+ - Before you speak to me about your religion, first show it to me in how you treat other people. Before you tell me how much you love your God, show me in how much you love all His children.
+ - Don’t let your inability to do everything undermine your determination to do something.
+ - The right attitude can transform a barrier into a blessing, an obstacle into an opportunity or a stumbling block into a stepping stone.
+ - Greatness is helping others realize they are great, beautiful and capable. Genius is seeing the wonder and possibility in those others ignore.
+ - Give the respect you want to receive; embody the grace you hope to encounter; and help others with no expectations whatsoever.
+ - When happy, be kind. When angry, be kind. When hopeful, be kind. When discouraged, be kind. When ever, be kind.
+ - Real courage is holding on to a still voice in your head that says, ‘I must keep going.’ It’s that voice that says nothing is a failure if it is not final. That voice that says to you, ‘Get out of bed. Keep going. I will not quit.’
+ - We should not be scrimping on investments in public safety. The lack of infrastructure spending is costing us lives in America. It’s costing every commuter.
+ - First class in life has nothing to do with the clothes you wear, the car you drive or the house you live in. First class is and always will be about the content of your character, the quality of your ideas and the kindness in your heart.
+ - It is okay not to like someone, but it is never okay to try and degrade, humiliate, or dehumanize them.
+ - The world you see outside of you will always be a reflection of what you have inside of you.
+ - If you look at great human civilizations, from the Roman Empire to the Soviet Union, you will see that most do not fail simply due to external threats but because of internal weakness, corruption, or a failure to manifest the values and ideals they espouse.
+ - Before you tell me what you teach and preach, show me how you live and give.
+ - We choose forward. We choose inclusion. We choose growing together. We choose American economic might and muscle, standing strong on the bedrock of the American ideal: a strong, empowered and ever-growing middle class.
+ - In America we have a Declaration of Independence, but our history, our advancements, our global strength all point to an American declaration of interdependence.
+ - Marriage equality is not a choice. It is a legal right.
+ - Cynicism cripples our imagination and limits our ability to see faint possibilities amidst glaring problems.
+ - In life, it is never the big battle, the big moment, the big speech, the big election. That does not change things. What changes things is every day, getting up and rendering small acts of service and love beyond that what’s expected of you or required of you.
+ - Let your critics make you humble, and your enemies make you wise. Learn from every stumble but let nothing keep you down, for you were born to rise!
+ - Never let your soul be silenced. Live life out loud. Every day tell your truth not with words but with actions from your heart.
+ - May we help more than we hurt, may we seek to understand more than be understood and may we love more than we judge.
+ - You cannot find what you do not seek. You cannot grasp when you do not reach. Your dreams won’t come up to your front door. You have got to take a leap if you want to soar.
+ - As you put your sights on your goals – no matter how great and compelling they are – as you look into the distance, don’t forget what is right in front of you today. No matter how great your dreams, no matter how great your destiny, the biggest thing you can do in any day is a small act of kindness.
+ - If you want the things people don’t have, you have to do the things other people will not do.
+ - The more you limit your choices, thereby limiting thought, the more you can simplify your life and focus your energy elsewhere.
+ - You should be able to afford health care for your family. You should be able to retire with dignity and respect. And you should be able to give your children the kind of education that allows them to dream even bigger, go even farther and accomplish even more than you could ever imagine.
+ - May we all, as a nation of believers, fight for the achievement of America; may we make sacrifices worthy of those proud men and women who fought for us, labored for us, bled soil from the beaches of Normandy to the fields of Gettysburg for us.
+ - You cant have a physical transformation until you have a spiritual transformation.
+ - We have had in our nation a well-celebrated Declaration of Independence. But our success as a country will depend upon a new ‘Declaration of Inter-dependence.’ A belief in how much we need each other, how much we share one common destiny.
+ - Go out there and swear to this world your oath, not with your words, but with what you do. Not with your hand over your heart, but with your hand outstretched to a world that desperately needs your hand, your help, your insights, your creativity, your honor, your courage. It needs you.
+ - The history in our country speaks to our highest values of people who did not accept things as they are and go along with them. They resisted, they refused to accept the world as it is, they demanded it to be a better reflection of their highest dreams and highest aspirations.
+ - Remember that the biggest thing you could do today is a small act of kindness.
+ - It’s about time that we create first class citizenship for every American plain and simple. Every New Jersey-ian. This should not be a popular vote. This is something we should do now.
+ - One of the very hallmarks of our nation is the ideal of E Pluribus Unum. It is a concept that richly flows from the highest ideals of our nation.
+ - What more could you ask for in life than to be given an impossible challenge?
+ - The only thing that weakens worry is work, so I will be working for Marie Corfield.
+ - The change we seek for our nation is not the choice of an individual but must be the calling of a country.
+ - When American citizens pull together, there is little we can’t accomplish.
+ - As I review the great history of our nation, community organizers have been at the center of so many of our great social movements.
+ - We become distracted from productive labors by our perceived opponents; we become focused on them and not on our larger calling to advance our nation; our debate becomes more about scoring points against an adversary and less about advancing our common cause.
+ - I still have that new senator smell.
+ - If we cannot provide excellent educational opportunities to all children, safe communities, quality health coverage, or robust and fair avenues towards wealth creation, then our nation will increasingly be in peril.
+ - Our platform calls for a balanced deficit reduction plan where the wealthy pay their fair share. And when your country is in a costly war, with our soldiers sacrificing abroad and our nation facing a debt crisis at home, being asked to pay your fair share isn’t class warfare – it’s patriotism.
+ - There is too much disagreement for disagreement’s sake. In a time of persistent challenges that still call into question our most sacred aspirations as a country, we cannot afford shallow callous divisiveness in our public debate.
+ - I hope and understand that people are getting a better recognition that food stamps is a program that really helps America, helps families in need. It’s not a government handout. If anything, it’s a safety net that helps people through difficult times and bridges them towards stability.
+ - Life is about where you are right now, and the choices you make.
+ - Can you every single day tell a true testimony of who you are? That’s really what life is about.
+
+51 quotes

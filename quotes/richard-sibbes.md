@@ -1,0 +1,56 @@
+ - Times are bad, God is good.
+ - There is more mercy in Christ than sin in us.
+ - When we go to God by prayer, the devil knows we go to fetch strength against him, and therefore he opposes us all he can.
+ - Self-emptiness prepares us for spiritual fullness.
+ - Measure not God’s love and favour by your own feeling. The sun shines as clearly in the darkest day as it does in the brightest. The difference is not in the sun, but in some clouds which hinder the manifestation of the light thereof.
+ - It is a destructive addition to add anything to Christ.
+ - It is better to go bruised to heaven than sound to hell.
+ - God can pick sense out of a confused prayer.
+ - Satan gives Adam an apple, and takes away Paradise. Therefore in all temptations let us consider not what he offers, but what we shall lose.
+ - Whatsoever God takes away from His children, He either replaces it with a much greater favor or else gives strength to bear it.
+ - The life of a Christian is wondrously ruled in this world, by the consideration and meditation of the life of another world.
+ - No sin is so great but the satisfaction of Christ and His mercies are greater; it is beyond comparison. Fathers and mothers in tenderest affections are but beams and trains to lead us upwards to the infinite mercy of God in Christ.
+ - The winter prepares the earth for the spring, so do afflictions sanctified prepare the soul for glory.
+ - Death is only a grim porter to let us into a stately palace.
+ - It is good to divert our sorrow for other things to the root of all, which is sin. Let our grief run most in that channel, that as sin bred grief, so grief may consume sin.
+ - There are no men more careful of the use of means than those that are surest of a good issue and conclusion, for the one stirs up diligence in the other. Assurance of the end stirs up diligence in the means. For the soul of a believing Christian knows that God has decreed both.
+ - What coward would not fight when he is sure of victory?
+ - What unthankfulness is it to forget our consolations, and to look upon matters of grievance. To think so much upon two or three crosses as to forget an hundred blessing.
+ - This is a life of faith, for God will try the truth of our faith, so that the world may see that God has such servants as will depend upon His bare word.
+ - It is Christ’s manner to trouble our souls first, and then to come with healing in his wings.
+ - When we grow careless of keeping our souls, then God recovers our taste of good things again by sharp crosses.
+ - Christ quickens none but the dead. Why do not the papists attain to this grace of justification? They never see themselves wholly dead, but join some life to the natural estate of man. Therefore Christ quickens them not.
+ - There is not a minute of time in all of our life but we must either be near to God or we will be undone.
+ - A man knows no more in religion than he loves and embraceth with the affections of his soul.
+ - A man may be a false prophet and yet speak the truth.
+ - Let weak Christians know that a spark from heaven, though kindled under green wood that sobs and smokes, yet it will consume all at last.
+ - Christ does not choose you because you are good, but to make you good.
+ - If Christ has once possessed the affections, there is no dispossessing of him again. A fire in the heart overcomes all fires without.
+ - A curse lies upon those that, when the truth suffers, have not a word to defend it.
+ - The love of a wife to her husband may begin from the supply of her necessities, but afterwards she may love him also for the sweetness of his person; so the soul first loves Christ for salvation but when she is brought to Him and finds what sweetness there is in Him then she loves Him for Himself.
+ - The depths of our misery can never fall below the depths of mercy.
+ - The whole life of a Christian should be nothing but praises and thanks to God; we should neither eat nor sleep, but eat to God and sleep to God and work to God and talk to God, do all to His glory and praise.
+ - It is atheism to pray and not wait on hope.
+ - God takes a safe course with His children, that they may not be condemned with the world, He permits the world to condemn them, that they may not love the world, the world hates them...
+ - The way to cover our sin is to uncover it by confession.
+ - Those that look to be happy must first look to be holy.
+ - The Christian will desire to see the beauty of God in his house, that his soul might be ravished in the excellency of the object, and that the highest powers of his soul, his understanding, will, and affections might be fully satisfied, that he might have full contentment.
+ - See a flame in a spark, a tree in a seed. See great things in little beginnings.
+ - Providence is the perpetuity and continuance of creation.
+ - Gospel repentance is not a little hanging down of the head. It’s a working of the heart until your sin becomes more odious to you than any punishment for it.
+ - Poverty and affliction take away the fuel that feeds pride.
+ - God’s children improve all advantages to advance their grand end; they labour to grow better by blessings and crosses, and to make sanctified use of all things.
+ - In the godly, holy truths are conveyed by way of a taste; gracious men have a spiritual palate as well as a spiritual eye. Grace alters the spiritual taste.
+ - Sin is not so sweet in the committing as it is heavy and bitter in the reckoning.
+ - God will have the body partake with the soul-as in matters of grief, so in matters of joy; the lanthorn shines in the light of the candle within.
+ - The wronged side is always the safest.
+ - What the heart liketh best, the mind studieth most.
+ - We cannot say this or that trouble will not befall, yet we may, by the help of the Spirit, say, Nothing that does befall will make me do that which is unworthy of a Christian.
+ - Faith, whereby especially Christ rules, sets the soul so high that it looks down on all other things as far below, as having represented to it, by the Spirit of Christ, riches, honor, beauty and pleasures of a higher nature.
+ - God knows we have nothing of ourselves, therefore in the covenant of grace he requires no more than he gives, but gives what he requires, and accepts what he gives.
+ - God’s truth always agrees with itself.
+ - In all their jollity in this world, the wicked are but as a book fairly bound, which when it is opened is full of nothing but tragedies. So when the book of their consciences shall be once opened, there is nothing to be read but lamentations and woes.
+ - It is evident that our conversion is sound when we loathe and hate sin from the heart.
+ - See here, for our comfort, a sweet agreement of all three persons: the Father giveth a commission to Christ; the Spirit furnisheth and sanctifieth to it; Christ himself executeth the office of a Mediator. Our redemption is founded upon the joint agreement of all three persons of the Trinity.
+
+54 quotes

@@ -1,0 +1,73 @@
+ - The difference between the impossible and the possible lies in a man’s determination.
+ - Everybody makes mistakes, that’s why they put erasers on pencils.
+ - You can wake up every day and make today better than the last.
+ - I’m telling you, I don’t like cheaters.
+ - The saddest day of the year is the day baseball season ends.
+ - The only Angels in Los Angeles are in Heaven, and they’re looking down on the Dodgers.
+ - Nothing succeeds like – failure.
+ - I’m sick and tired of people saying that taking drugs is a sickness. When you put something of your own free will in your own body knowing that it’s harmful against the body, it’s against the law and all it will do is lead you down the path of destruction, that is a weakness.
+ - Talking about your troubles is no good. Eighty percent of your friends don’t care and the rest are glad.
+ - If you love your job, you haven’t worked a day in your life.
+ - Sometimes, you get too hopped up, too excited, and it works against you.
+ - Baseball is like driving, it’s the one who gets home safely that counts.
+ - If you don’t love the Dodgers, there’s a good chance you may not get into Heaven.
+ - My wife tells me one day, ‘I think you love baseball more than me.’ I say, ‘Well, I guess that’s true, but hey, I love you more than football and hockey.’
+ - Managing is like holding a dove in your hand. Squeeze too hard and you kill it; not hard enough and it flies away.
+ - The best possible thing in baseball is winning The World Series. The second best thing is losing The World Series.
+ - Everybody wants to win, but everybody doesn’t win.
+ - You give loyalty, you’ll get it back.
+ - I’ve never used one word of profanity in front of my wife, or my daughter, or my granddaughter or anybody else’s wife.
+ - I firmly believe that there is a God. I firmly believe that there is a Heaven. And I firmly believe that if you go there, it’s gonna be great.
+ - Guys ask me, don’t I get burned out? How can you get burned out doing something you love? I ask you, have you ever got tired of kissing a pretty girl?
+ - Never argue with people who buy ink by the gallon...
+ - No matter how good you are, you’re going to lose one-third of your games. No matter how bad you are you’re going to win one-third of your games. It’s the other third that makes the difference.
+ - No, we don’t cheat. And even if we did, I’d never tell you.
+ - A second-guesser is one who doesn’t know anything about the first guess, and he’s one who needs 2 guesses to get one right.
+ - Pressure is a word that is misused in our vocabulary. When you start thinking of pressure, it’s because you’ve started to think of failure.
+ - There are three types of baseball players: Those who make it happen, those who watch it happen and those who wonder what happens.
+ - It’s still the best game in town because you don’t have to be big to play, and everybody plays. Even your grandmother probably played baseball.
+ - I do not care whether you’re a Democrat or you’re a Republican or an independent. We must pull for the people who are wearing the uniform of the armed forces. These people weren’t drafted. They enlisted, because they believe.
+ - I still remember the entire Boy Scout motto. I don’t remember the serial number of my gun in the army. I don’t remember the number of my locker in school. But I remember that Boy Scout code.
+ - Say ‘Dodgers’ and people know you’re talking about baseball. Say ‘Braves’ and they ask, ‘What reservation?’ Say ‘Reds’ and they think of communism. Say ‘Padres’ and they look around for a priest.
+ - I didn’t even graduate from high school. I’ve never told anybody that before. I got my degree later, when I was in the army.
+ - I motivate players through communication, being honest with them, having them respect and appreciate your ability and your help.
+ - Sports has kept me on the straight and narrow path.
+ - My theory of hitting was just to watch the ball as it came in and hit it.
+ - When I was interviewed after I got hired to replace Walter Alston, a future Hall of Famer, I was asked: ‘Don’t you feel pressure on you?’ I said: ‘Want to know something? I’m worried about the guy who’s going to have to replace me.’
+ - About the only problem with success is that it does not teach you how to deal with failure.
+ - The only way I’d worry about the weather is if it snows on our side of the field and not theirs.
+ - When we lose, I eat. When we win, I eat. I also eat when we’re rained out.
+ - Sometimes you’ve just got to let an umpire know that you’re not satisfied with his decision. That they’ve missed the play in your opinion. Not that it’s going to do you any good, but you’ve got to let them know.
+ - Listen, if you start worrying about the people in the stands, before too long you’re up in the stands with them.
+ - Grownups have to say ‘please,’ too.
+ - I’ve had heroes in my life – Joe DiMaggio, Babe Ruth.
+ - I bleed Dodger blue and when I die, I’m going to the big Dodger in the sky.
+ - I’ve been Catholic all my life, and there’s one thing I’ve never understood. Why didn’t the Corinthians write back?
+ - When we win, I’m so happy I eat a lot. When we lose, I’m so depressed, I eat a lot. When we’re rained out, I’m so disappointed I eat a lot.
+ - Bruce Benedict is so slow he’d finish third in a race with a pregnant woman.
+ - When I took the job as the manager of the Olympic team, I didn’t take it because I was a Dodger. I did it because I was an American, and I wanted to bring that gold medal where it belongs in baseball, the United States. And that’s exactly what our team did.
+ - If he raced his pregnant wife he’d finish third.
+ - People say you can’t go out and eat with your players. I say why not.
+ - Everywhere I go, I feel strange.
+ - I am so happy and proud to learn of Hideo Nomo’s election to the Japanese Baseball Hall of Fame. He was quite a pitcher and competitor, but he is also a very special and caring person.
+ - You can have the best team in baseball, and if nobody goes through the turnstiles, you’ve got to shut the doors down.
+ - If you’d see my schedule, you’d know I have no time to slow down.
+ - My God, look at the words people use today. They use profanity like it’s nothing. Christ almighty.
+ - I was told to stay away from pasta and bread for two weeks. Not eating pasta? That’ll kill me. Anything else, but why pasta?
+ - I don’t like the pitch count! How are you gonna develop your arm? If you’re a track man you say, “Hey, you can’t run too much.” Or if you’re a boxer you say, “Hey, you can only box three rounds.” It’s not right!
+ - Always give an autograph when somebody asks you.
+ - Chan Ho had a great career and was the exemplification of class, dignity and character.
+ - When you say you’re a padre, people ask when did you become a parent. When you say you’re a cardinal, they tell you to work hard because the next step is pope. But when you say you’re a Dodger, everybody knows you’re in the Major Leagues.
+ - I love doubleheaders. That way I get to keep my uniform on longer.
+ - I wasn’t quite sure how a player got to the big leagues. As far as I knew, he was just there one day.
+ - When I was 15 years old, I used to actually dream I was pitching in Yankee Stadium. Bill Dickey was my catcher.
+ - Caltech honored me – they named an asteroid after me. There’s only two of them up there with names. One of them is Walter Cronkite. The other is Tommy Lasorda.
+ - I walk into the clubhouse today and it’s like walking into the Mayo Clinic. We have four doctors, three therapists and five trainers. Back when I broke in, we had one trainer who carried a bottle of rubbing alcohol, and by the 7th inning he’d already drunk it.
+ - Everything I have, I owe to baseball and the Dodgers.
+ - My goal is to live to be 100.
+ - Baseball is played by all countries now, and softball, too.
+ - I’ve got a portrait in the Smithsonian. Who ever thought that would happen?
+ - I was glad to see Italy win. All the guys on the team were Italians.
+ - Think about each pitch like you think about women, then select one which is particularly appealing.
+
+71 quotes

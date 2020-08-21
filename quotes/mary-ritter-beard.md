@@ -1,0 +1,21 @@
+ - Action without study fatal. Study without action is futile...
+ - The results of philanthropy are always beyond calculation.
+ - Unless one’s philosophy is all-inclusive, nothing can be understood.
+ - Democracy cannot sustain itself amid a high degree of violence.
+ - The origin of the labor movement lies in self-defense...
+ - Every revolution has its counter-revolution.
+ - The dogma of woman’s complete historical subjection to men must be rated as one of the most fantastic myths ever created by the human mind.
+ - History has been conceived – and with high justification in the records – as the human struggle for civilization against barbarism in different ages and places, from the beginning of human societies.
+ - Woman’s success in lifting men out of their way of life nearly resembling that of the beasts who merely hunted and fished for food, who found shelter where they could in jungles, in trees, and caves was a civilizing triumph.
+ - Comfort, however, easily merges into license.
+ - The interactions of business and culture, one upon the other, form one of the least explored phases of history. For such a study, no city would appear better fixed than Florence, so richly dowered with both economic and spiritual vitality.
+ - While it is generally agreed that the visible expressions and agencies are necessary instruments, civilization seems to depend far more fundamentally upon the moral and intellectual qualities of human beings-upon the spirit that animates mankind.
+ - Those who sit at the feast will continue to enjoy themselves even though the veil that separates them from the world of toiling reality below has been lifted by mass revolts and critics.
+ - In matters pertaining to the care of life there has been no marked gain over Greek and Roman antiquity.
+ - It is grievous to read the papers in most respects, I agree. More and more I skim the headlines only, for one can be sure what is carried beneath them quite automatically, if one has long been a reader of the press journalism.
+ - Viewed narrowly, all life is universal hunger and an expression of energy associated with it.
+ - Could anyone fail to be depressed by a book he or she has published? Don’t we always outgrow them the moment the last page has been written?
+ - We of the third sphere are unable to look at Europe or at Asia as they may survey each other. Wherever we go, across Pacific or Atlantic, we meet, not similarity so much as ‘the bizarre.’ Things astonish us, when we travel, that surprise nobody else.
+ - In brief, we who write are all in the same boat, as if we are survivors of torpedoes, and we hope to reach the shores of thought with strength for more activity.
+
+19 quotes

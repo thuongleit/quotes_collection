@@ -1,0 +1,24 @@
+ - Okay, so let’s run faster.
+ - When I do things I shouldn’t do, my mother says I need a new pair of glasses – that I should be be looking differently at the choices I make.
+ - I’m still only half the writer I hope I will be.
+ - The way you get better is putting words on the page and getting them behind you.
+ - Walt loved technology. He didn’t understand it half the time, but the beauty of good technology was that he didn’t have to understand it. Just use it.
+ - I’m a big girl, Finn.
+ - I’ve been running from, and toward, death all my life, more aware of it than a person should be.
+ - My favorite novel is ‘To Kill a Mockingbird’ because of its broad sweep, its tackling of big issues in ways that even young minds can make sense of and for the heart of the characters, who span a wide range of ages. I reread it every year.
+ - True love isn’t reserved for weddings and ceremonies. It’s from the heart. That’s all it has to be. All it ever is.
+ - Lightning crashed on the horizon. A breeze swirled around the Cast Members. The air tasted dusty, almost bitter, with electrical charge.
+ - Be careful what you wear to bed, because you never know where you might wake up.
+ - MEN, Charlene said. Leave that to you! Willa quipped.
+ - As a young boy, I read ‘Cheaper by the Dozen’ and immediately became neurotic about my use of time. It taxed me severely, but only for the next 50 years. But I think it also allowed me to discipline myself to sit in the chair and be a writer, where one of the most needed qualities is patience.
+ - Wayne was one of the worst drivers Finn had ever met. The bus nearly sideswiped two cars, then veered left and scraped its wheels against the curb, before smashing back down the roadway.
+ - Jez had gone from an evil twin to a sweet, even angelic, girl, all in less than a minute.
+ - Being right wasn’t nearly as important as doing right...
+ - Always trust computer games.
+ - What do you care more about? The kids or your hair?
+ - I’m about to read Scott Turow’s ‘Innocent.’ I’ve been hungry for this book since he first told me it was in the works. I’m a serious Turow fan.
+ - I think every fiction writer, to a certain extent, is a schizophrenic and able to have two or three or five voices in his or her body. We seek, through our profession, to get those voices onto paper.
+ - For the first-time novelist you’ve got to get up at 5:30 in the morning and write until 7, make breakfast and go to work. Or, come home and work for an hour. Everybody has an hour in their day somewhere.
+ - Especially with four insanely angry, sword-carrying pirates bearing down on you, followed closely by an alien with a genetic malfunction that posed like Elvis Presley and looked slightly like a cross between a koala and a cuddly dog.
+
+22 quotes

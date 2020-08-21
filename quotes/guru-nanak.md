@@ -1,0 +1,58 @@
+ - Conquer your mind and conquer the world.
+ - Before becoming a Muslim, a Hindu, a Sikh or a Christian, let’s become a Human first.
+ - With your hands carve out your own destiny.
+ - The world is a drama, staged in a dream.
+ - Speak only that which will bring you honor.
+ - Those who have loved are those that have found God.
+ - The highest religion is to rise to universal brother hood; aye to consider all creatures your equals.
+ - Truth is the highest virtue, but higher still is truthful living.
+ - Do not wish evil for others. Do not speak ill of others. Do not obstruct anyones activities.
+ - Alone let him constantly meditate in solitude on that which is salutary for his soul, for he who meditates in solitude attains supreme bliss.
+ - Be the wisdom your support. Be the compassion your guide and listen to the Divine Music that beats in every heart.
+ - Dwell in peace in the home of your own being, and the Messenger of Death will not be able to touch you.
+ - Like the juggler, deceiving by his tricks, one is deluded by egotism, falsehood and illusion.
+ - Even kings and emperors, with mountains of property and oceans of wealth – these are not even equal to an ant, who does not forget God.
+ - Only fools argue whether to eat meat or not. They don’t understand truth nor do they meditate on it. Who can define what is meat and what is plant Who knows where the sin lies, being a vegetarian or a non vegetarian.
+ - Far from wife and son am 1, far from land and wealth and other notions of that kind. I am the Witness, the Eternal, the Inner Self.
+ - O Lord, You bless all with Your bountiful blessings.
+ - I am a song bird, I am a meek song bird, I offer my prayer to the Lord.
+ - Through shallow intellect, the mind becomes shallow, and one eats the fly, along with the sweets.
+ - Sing the songs of joy to the Lord, serve the Name of the Lord, and become the servant of His servants.
+ - I am neither a child, a young man, nor an ancient; nor am I of any caste.
+ - Death would not be called bad, o people, if one knew how to truly die.
+ - Be kind to all beings, this is more meritorious than bathing at the sixty-eight sacred shrines of pilgrimage and donating money.
+ - Emotional attachment to Maya is totally painful, this is a bad bargain.
+ - I am neither male nor female, nor am I sexless. I am the Peaceful One, whose form is self-effulgent, powerful radiance.
+ - Owing to ignorance of the rope the rope appears to be a snake; owing to ignorance of the Self the transient state arises of the individualized, limited, phenomenal aspect of the Self.
+ - Let no man in the world live in delusion. Without a Guru none can cross over to the other shore.
+ - Even Kings and emperors with heaps of wealth and vast dominion cannot compare with an ant filled with the love of God.
+ - Whatever kind of seed is sown in a field, prepared in due season, a plant of that same kind, marked with the peculiar qualities of the seed, springs up in it.
+ - I bow at His Feet constantly, and pray to Him, the Guru, the True Guru, has shown me the Way.
+ - Make of the Silence your to-do tasks, of the compassion your wealth and of the meditation your beggar’s bowl.
+ - The ignorant soul bride wanders in delusion, in the love of duality, she sits like a widow. She sits like a widow, in the love of duality, infatuated with Maya, she suffers in pain. She grows old, and her body withers away.
+ - False is the body, false are the clothes; false is beauty.
+ - God is one, but he has innumerable forms. He is the creator of all and He himself takes the human form.
+ - Through True Love, she merges with Him. She who does not know her Husband Lord, the Architect of karma, is deluded by falsehood she herself is false.
+ - I am not the born; how can there be either birth or death for me?
+ - The production of children, the nurture of those born, and the daily life of men, of these matters woman is visibly the cause.
+ - Those who have not obtained the Blessed Vision, the Blessed Vision of the Darshan of the True Guru, the Almighty Lord God they have fruitlessly, uselessly wasted their whole lives in vain.
+ - See the brotherhood of all mankind as the highest order of Yogis; conquer your own mind, and conquer the world.
+ - Thou has a thousand eyes and yet not one eye; Thou host a thousand forms and yet not one form.
+ - The soul bride shall never be a widow, she shall never suffer sorrow.
+ - Those who conquer their minds are beings of renunciation and detachment. They are beings of renunciation and detachment they are lovingly focused on the True One, they realize and understand themselves.
+ - I am in constant bliss, day and night, egotism has been dispelled from within me.
+ - My mind and body, my mind and body I cut my body into pieces, and I dedicate these to Him.
+ - One cannot comprehend Him through reason, even if one reasoned for ages.
+ - Food sacred to the manes or to the gods must be given to a man distinguished by sacred knowledge, for hands, smeared with blood, cannot be cleansed with blood.
+ - Blessed, blessed is the True Guru, the Immaculate, Almighty Lord God, meeting Him, I meditate on the Name of the Lord.
+ - The word is the Guru, The Guru is the Word, For all nectar is enshrined in the world Blessed is the word which reveal the Lord’s name But more is the one who knows by the Guru’s grace.
+ - May liberal men abound with us! May our knowledge of the Vedas and our progeny increase! May faith not forsake us! May we have much to give to the needy.
+ - The widow cries out at the door, The light of my mind has gone out, O my mother, with his death. So cry out, O soul brides of the Husband Lord, and dwell on the Glorious Praises of the True Lord.
+ - Blessed, blessed is that body horse which meditates on the Lord God.
+ - Whatever be the qualities of the man with whom a woman is united according to the law, such qualities even she assumes, like a river, united with the ocean.
+ - There, where neither your children nor your spouse shall accompany you, the Name of the Lord shall emancipate you.
+ - Offspring, the due performance on religious rites, faithful service, highest conjugal happiness and heavenly bliss for the ancestors and oneself, depend on one’s wife alone.
+ - That one plant should be sown and another be produced cannot happen; whatever seed is sown, a plant of that kind even comes forth.
+ - For each and every person, our Lord and Master provides sustenance. Why are you so afraid, O mind? The flamingos fly hundreds of miles, leaving their young ones behind. Who feeds them, and who teaches them to feed themselves? Have you ever thought of this in your mind?
+
+56 quotes

@@ -1,0 +1,92 @@
+ - Peace comes not from the absence of trouble, but from the presence of God.
+ - The root of all steadfastness is in consecration to God.
+ - If God sends us on stony paths, He will provide us with strong shoes.
+ - Kindness does not require us to be blind to facts or to live in fancies, but it does require us to cherish a habit of goodwill, ready to show pity if sorrow appears, and slow to turn away even if hostility appears.
+ - Faith is the sight of the inward eye.
+ - The apostolic church thought more about the Second Coming of Jesus Christ than about death and heaven. The early Christians were looking, not for a cleft in the ground called a grave but for a cleavage in the sky called Glory.
+ - He who has the Holy Spirit in His heart and the Scripture in his hands has all he needs.
+ - Embrace in one act the two truths-thine own sin, and God’s infinite mercy in Jesus Christ.
+ - If you would win the world, melt it, do not hammer it.
+ - Don’t waste your sorrows.
+ - Fruitful and acceptable worship begins before it begins.
+ - The tears of Christ are the pity of God. The gentleness of Jesus is the long-suffering of God. The tenderness of Jesus is the love of God. He that hath seen me hath seen the Father.
+ - To pursue joy is to lose it. The only way to get it is to follow steadily the path of duty.
+ - Conflict, not progress, is the word that defines man’s path from darkness into light. No holiness is won by any other means than this, that wickedness should be slain day by day, and hour by hour.
+ - Only he who can say, “The Lord is the strength of my life” can say, “Of whom shall I be afraid?”
+ - Christ wrought out His perfect obedience as a man, through temptation, and by suffering.
+ - Trust Christ! and a great benediction of tranquil repose comes down upon the calm mind and the tranquil heart.
+ - Here is the manliness of manhood, that a man has a good reason for what he does, and has a will in doing it.
+ - Being in Christ, it is safe to forget the past; it is possible to be sure of the future; it is possible to be diligent in the present.
+ - Our work, abiding, shall bring to us the endless glory with which God at last overpays the toils, even as now He overanswers the poor prayers of His laboring servants.
+ - True peace comes not from the absence of trouble, but from the presence of God and will be deep and passing all understanding in the exact measure in which we live in and partake of the love of God.
+ - The cross is the centre of the world’s history; the incarnation of Christ and the crucifiction of our Lord are the pivot round which all the events of the ages revolve. The testimony of Christ was the spirit of prophecy, and the growing power of Jesus is the spirit of history.
+ - To pursue joy is to lose it. The only way to get it is to follow steadily the path of duty, without thinking of joy, and then, like sheep, it comes most surely unsought, and we ‘being in the way,’ the angel of God, bright-haired joy, is sure to meet us.
+ - Do not let the empty cup be your first teacher of the blessings you had when it was full. Do not let a bard place here and there in the bed destroy your rest. Seek, as a plain duty, to cultivate a buoyant, joyous sense of the crowded kindnesses of God in your daily life.
+ - Seek to cultivate a buoyant, joyous sense of the crowded kindnesses of God in your daily life.
+ - The more we work the more we need to pray. In this day of activity there is great danger, not of doing too much, but of praying too little for so much work.
+ - Every life has dark tracts and long stretches of somber tint, and no representation is true to fact which dips its pencil only in light, and flings no shadows on the canvas.
+ - Heaven is endless longing, accompanied with an endless fruition-a longing which is blessedness, a longing which is life.
+ - Logically, faith comes first, and love next; but in life they will spring up together in the soul; the interval which separates them is impalpable, and in every act of trust, love is present; and fundamental to every emotion of love to Christ is trust in Christ.
+ - And so, in calm expectation of a blessed future and a finished work which will explain the past, in honest submission of out way to God, in supreme delight in Him who is the gladness of our joy, the secret of tranquillity will be ours.
+ - The mystery of the universe, and the meaning of God’s world, are shrouded in hopeless obscurity, until we learn to feel that all laws suppose a lawgiver, and that all working involves a Divine energy.
+ - Remember that vision on the Mount of Transfiguration; and let it be ours, even in the glare of earthly joys and brightnesses, to lift up our eyes, like those wondering three, and see no man any more, save Jesus only.
+ - Let the current of your being set towards God, then your life will be filled and calmed by one master-passion which unites and stills the soul.
+ - That is faith, cleaving to Christ, twining round Him with all the tendrils of our heart, as the vine does round its support.
+ - We must have Christ in our hearts, that He may shine forth from our lives.
+ - The prayer that begins with trustfulness, and passes on into waiting, will always end in thankfulness, triumph, and praise.
+ - If our faith in God is not the veriest sham, it demands, and will produce, the abandonment sometimes, the subordination always, of eternal helps and material good.
+ - Love is the foundation of all obedience.
+ - Man’s course begins in a garden, but it ends in a city.
+ - Love is the only fire that is hot enough to melt the iron obstinacy of a creatures’s will.
+ - The message of love can never come into a human soul, and pass away from it unreceived, without leaving that spirit worse, with all its lowest characteristics strengthened, and all its best ones depressed, by the fact of rejection.
+ - Surely Scripture is right when it makes the sin of sins that unbelief, which is at bottom nothing else than a refusal to take the cup of salvation. Surely no sharper grief can be inflicted upon the Spirit of God than when we leave His gifts neglected and unappropriated.
+ - In heaven after ages of ages of growing glory, we shall have to say, as each new wave of the shoreless, sunlit sea bears us onward, It doth not yet appear what we shall be.
+ - Faith refers to Christ. Holiness depends on faith. Heaven depends on holiness.
+ - The cup which my Saviour giveth me, can it be anything but a cup of salvation?
+ - If life has not made you by God’s grace, through faith, holy – think you, will death without faith do it? The cold waters of that narrow stream are no purifying bath in which you may wash and be clean. No! no! as you go down into them, you will come up from them.
+ - We are only asking you to give to Christ that which you give to others, to transfer the old emotions, the blessed emotions, the exercise of which makes gladness in the life here below, to transfer them to Him, and to rest safe in the Lord. Faith is trust.
+ - Ah, there is nothing more beautiful than the difference between the thought about sinful creatures which is natural to a holy being, and the thought about sinful creatures which is natural to a self-righteous being. The one is all contempt; the other, all pity.
+ - The grave has a door on its inner side.
+ - Trust yourselves, my brethren, to the immortal love and perfect work of the Divine Saviour, and by His dear might your days will advance by peaceful stages, whereof each gathers up and carries forward the blessings of all that went before, to a death which shall be a birth.
+ - You must cast yourself on God’s gospel with all your weight, without any hanging back, without any doubt, without even the shadow of a suspicion that it will give.
+ - God gives us power to bear all the sorrows of His making; but He does not give us power to bear the sorrows of our own making, which the anticipation of sorrow most assuredly is.
+ - The Gospel is not a mere message of deliverance, but a canon of conduct; it is not a theology to be accepted, but it is ethics to be lived. It is not to be believed only, but it is to be taken into life as a guide.
+ - A living man must have a living God, or his soul will perish in the midst of earthly plenty, and will thirst and die whilst the water of earthly delights is running all around him. We are made to need persons not things.
+ - Unless we are wedded to Jesus Christ by the simple act of trust in His mercy and His power, Christ is nothing to us.
+ - Let us learn how the love of Christ, received into the heart, triumphs gradually but surely over all sin, transforms character, turning even its weakness into strength, and so, from the depths of transgression and the very gates of hell, raises men to God.
+ - Every sin is a mistake, as well as a wrong; and the epitaph for the sinner is, “Thou fool!”
+ - If you want to live in this world, doing the duty of life, knowing the blessings of it, doing your work heartily, and yet not absorbed by it, remember that the one power whereby you can so act is, that all shall be consecrated to Christ, and done for His sake.
+ - The vision of the Divine presence ever takes the form which our circumstances most require.
+ - Christ’s voice sounds now for each of us in loving invitation; and dead in sin and hardness of heart though we be, we can listen and live. Christ Himself, my brother, sows the seed now. Do you take care that it falls not on, but in, your souls.
+ - Death is but a passage. It is not a house, it is only a vestibule. The grave has a door on its inner side.
+ - Turn your confidence and your fears alike into prayer.
+ - Unbelief is criminal because it is a moral act, an act of the whole nature.-Belief or unbelief is a test of a man’s whole spiritual condition, because it is the whole being, affections, will, conscience, as well as the understanding, which are concerned in it.
+ - A picture without sky has no glory. This present, unless we see gleaming beyond it the eternal calm of the heavens, above the tossing tree tops with withering leaves, and the smoky chimneys, is a poor thing for our eyes to gaze at, or our hearts to love, or our hands to toil on.
+ - The gospel is not speculation but fact. It is truth, because it is the record of a person who is the Truth.
+ - We believe that the history of the world is but the history of His influence and that the center of the whole universe is the cross of Calvary.
+ - Love Christ, and then the eternity in the heart will not be a great aching void, but will be filled with the everlasting life which Christ gives and is.
+ - There can be no faith so feeble that Christ does not respond to it.
+ - I am satisfied, for I awake in Thy likeness.
+ - Given a man full of faith, you will have a man tenacious in purpose, absorbed in one grand object, simple in his motives, in whom selfishness has been driven out by the power of a mightier love, and indolence stirred into unwearied energy.
+ - God keeps giving Himself as long as we bring that into which He can pour Himself. And when we stop bringing, He stops giving.
+ - Life should be a constant vision of God’s presence. Here is our defense against being led away by the gauds and shows of earth’s vulgar attractions.
+ - The never-ceasing boom of the great ocean as it breaks on the beach, drowns all smaller sounds.
+ - He that has his trust set upon God does not need to dread anything except the weakening or the paralyzing of that trust.
+ - God is His own motive. His love is not drawn out by our loveableness, but wells up, like an artesian spring, from the depths of His nature.
+ - If you would know Christ at all, you must go to Him as a sinful man, or you are shut out from Him altogether.
+ - That which of all things unfits man for the reception of Christ as a Savior, is not gross profligacy and outward, vehement transgression, but it is self-complacency, fatal self-righteousness and self-sufficiency.
+ - Christ by His intercession is able to save thee beyond the horizon and largest compass of thy thoughts, even to the utmost. In danger Christ lashes us to Himself, as Alpine guides do when there is perilous ice to get over.
+ - My child, wilt thou not at this time cry unto me, ‘Abba, Father?’
+ - No man loveth God except the man who has first learned that God loves him.
+ - Grieve not the Christ of God, who redeems us; and remember that we grieve Him most when we will not let Him pour His love upon us, but turn a sullen, unresponsive unbelief towards His pleading grace, as some glacier shuts out the sunshine from the mountain-side with its thick-ribbed ice.
+ - The true confidence which is faith in Christ, and the true diffidence which is utter distrust of myself – are identical.
+ - In such a world as this, with such hearts as ours, weakness is wickedness in the long run. Whoever lets himself be shaped and guided by any thing lower than an inflexible will, fixed in obedience to God, will in the end be shaped into a deformity, and guided to wreck and ruin.
+ - The world takes its notions of God from the people who say that they belong to God’s family. They read us a great deal more than they read the Bible. They see us; they only hear about Jesus Christ.
+ - Let me always remember that it is not the amount of religious knowledge which I have, but the amount which I use, that determines my religious position and character.
+ - Nothing but Christian faith gives to the furthest future the solidity and definiteness which it must have if it is to be a breakwater for us against the fluctuating sea of present cares and thoughts.
+ - Be sure that your soul is never so intensely alive as when in the deepest abnegation it waits hushed before God .
+ - All that this world knows of living lies in giving – and more giving; He that keeps, be sure he loses -Friendship grows by what it uses.
+ - The grace of God, says Luther, “is like a flying summer shower.” It has fallen upon more than one land, and passed on. Judea had it, and lies barren and dry. These Asiatic coasts had it, and flung it away.
+ - While the agent of renovation is the Divine Spirit, and the condition of renovation is our cleaving to Christ, the medium of renovation and the weapon which the transforming grace employs is “the word of the truth of the gospel,” whereby we are sanctified.
+
+90 quotes

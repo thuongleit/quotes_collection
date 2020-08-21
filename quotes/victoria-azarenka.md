@@ -1,0 +1,29 @@
+ - I don’t feel 25 years old. Sometimes I feel I’m 12 years old. Sometimes I feel I’m 50 years old.
+ - I feel like when the task is more difficult for me it’s more exciting.
+ - Seeing Messi play is like watching a video game.
+ - My grandmother is the person who inspires me the most.
+ - I kind of put myself in this mindset where time doesn’t really exist that much. There is no past or future. I just try to stay really in the present.
+ - You have to go through rough patches to achieve great things.
+ - I’m my own toughest opponent. So I talk to myself. I curse at myself. I pump myself up. Whatever it takes to do. I don’t really give a damn how it looks really because when I’m in the moment I need to be me.
+ - Everybody has something to lose. You have points to lose. You have money to lose. You have opportunity to lose.
+ - I’ll never be like a Barbie girl, that’s for sure.
+ - Nobody will tell me what I can or I cannot do.
+ - Awkward gestures, clumsy gestures, fist pumps. I just do whatever I feel like is right in the moment. If I need to be hyped, I’m hyped. If I need to talk to myself, I talk to myself. Whatever it takes to win, I’m going to do it.
+ - I wouldn’t say I let myself down, just sometimes it doesn’t go your way.
+ - That intensity, that feeling of the battle, heat of the moment: personally, that’s what I live for.
+ - I have learned how to better handle things as they come.
+ - You know, I think I’m the worst player to talk to about statistics.
+ - I like to go shopping, to the movies, all the girl stuff. Just a normal girl.
+ - That’s what I love about kids: they don’t care about anything else but who you are as a person.
+ - I love New York. It’s one of my favorite cities.
+ - New York has their own character. I love the fans here. They are very honest, and I love that.
+ - There are so many steps you have to go through to reach a high level, so youre kind of building your own, I would say, mountain. You have to go piece by piece by piece. When youre young and really ambitious, you want to jump right up. It kind of teaches you a lesson, I would say.
+ - I’m not a big fan of watching my matches.
+ - I always take things step by step and match by match.
+ - I hope I was a good example of women’s tennis.
+ - I don’t really care how I sound.
+ - Things are never perfect, so I never get too high about things, or get too down about things anymore.
+ - You cannot be in pretend for people to like you.
+ - I just want to have fun.
+
+27 quotes

@@ -1,0 +1,63 @@
+ - There’s no tyrant like a brain.
+ - Truth is a pain which will not stop. And the truth of this world is to die. You must choose: either dying or lying. Personally, I have never been able to kill myself.
+ - Most people die at the last minute; others twenty years beforehand, some even earlier. They are the wretched of the earth.
+ - An unfamiliar city is a fine thing. That’s the time and place when you can suppose that all the people you meet are nice. It’s dream time.
+ - To hell with reality! I want to die in music, not in reason or in prose. People don’t deserve the restraint we show by not going into delirium in front of them. To hell with them!
+ - If you aren’t rich you should always look useful.
+ - When you stay too long in the same place, things and people go to pot on you, they rot and start stinking for your special benefit.
+ - The beginning of genius is being scared shitless.
+ - Love is like liquor, the drunker and more impotent you are, the stronger and smarter you think yourself and the surer you are of your rights.
+ - Our journey is entirely imaginary. That is its strength.
+ - One can’t relive one’s life. Forgiveness is not what’s difficult; one’s always too ready to forgive. And it does no good, that’s obvious.
+ - My trouble is insomnia. If I had always slept properly, I’d never have written a line.
+ - That is perhaps what we seek throughout life, that and nothing more, the greatest possible sorrow so as to become fully ourselves before dying.
+ - Poor people never, or hardly ever, ask for an explanation of all they have to put up with. They hate one another, and content themselves with that.
+ - Never believe straight off in a man’s unhappiness. Ask him if he can still sleep. If the answer’s “yes,” all’s well. That is enough.
+ - Philosophizing is simply one way of being afraid, a cowardly pretense that doesn’t get you anywhere.
+ - Love is the infinite placed within the reach of poodles. I have my dignity!
+ - To travel is very useful, it makes the imagination work, the rest is just delusion and pain. Our journey is entirely imaginary, which is its strength.
+ - The more one is hated, I find, the happier one is.
+ - Women always have some mental reservation.
+ - Life is filigree work. What is written clearly is not worth much, it’s the transparency that counts.
+ - All great innovations are built on rejections.
+ - I’d seen too many troubling things to be easy in my mind. I knew too much and not enough. I’d better go out, I said to myself, I’d better go out again.
+ - This instinctive repulsion which tradespeople inspire in men of sensitive feeling is one of the very rare consolations for being so impoverished which are given to those of us who don’t sell anything to anybody.
+ - Experience is a dim lamp, which only lights the one who bears it.
+ - Almost every desire a poor man has is a punishable offence.
+ - The sadness of the world has different ways of getting to people, but it seems to succeed almost every time.
+ - The whole business of your life overwhelms you when you live alone. One’s stupefied by it. To get rid of it you try to daub some of it off on to people who come to see you, and they hate that. To be alone trains one for death.
+ - When men can hate without risk, their stupidity is easily convinced, the motives supply themselves.
+ - They came from the four corners of the earth, driven by hunger, plague, tumors, and the cold, and stopped here. They couldn’t go any futrther because of the ocean. That’s France, that’s the French people.
+ - Living, just by itself – what a dirge that is! Life is a classroom and Boredom’s the usher, there all the time to spy on you; whatever happens, you’ve got to look as if you were awfully busy all the time doing something that’s terribly exciting -or he’ll come along and nibble your brain.
+ - You can lose your way groping among the shadows of the past.
+ - I warn you that when the princes of this world start loving you it means they are going to grind you up into battle sausage.
+ - The plain truth, I may as well admit it, is that I’ve never been really right in the head.
+ - There is no rest for the humble except in despising the great, whose only thought of the people is inspired by self-interest or sadism.
+ - All in all, death is something like marriage.
+ - Love, Arthur, is a poodle’s chance of attaining the infinite, and personally I have my pride.
+ - I crawled back into myself all alone, just delighted to observe that I was even more miserable than before, because I had brought a new kind of distress and something that resembled true feeling into my solitude.
+ - The novel can’t compete with cars, the movies, television, and liquor. A guy who’s had a good feed and tanked up on good wine gives his old lady a kiss after supper and his day is over. Finished.
+ - The mind is satisfied with phrased, but not the body, the body is more fastidious, it wants muscles. A body always tells the truth, that’s why it’s usually depressing and disgusting to look at.
+ - A God who counts minutes and pennies, a desperate sensual God, who grunts like a pig. A pig with golden wings, who falls and falls, always belly side up, ready for caresses, that’s him, our master. Come, kiss me.
+ - There’s no such thing as intelligent vanity. It’s an instinct. And you’ll never find a man who is not first and foremost vain.
+ - We’ve no use for intellectuals in this outfit. What we need is chimpanzees. Let me give you a word of advice: never say a word to us about being intelligent. We will think for you, my friend. Don’t forget it.
+ - Lots of men are like that, their artistic leanings never go beyond a weakness for shapely thighs.
+ - To hell with reality! I want to die in music, not in reason or in prose.
+ - It is of men, and of them only, that one should always be frightened.
+ - For the poor of this world, two major ways of expiring are available: either by the absolute indifference of your fellow-men in peace-time, or by the homicidal passion of these same when war breaks out.
+ - When you stop to examine the way in which our words are formed and uttered, our sentences are hard-put to it to survive the disaster of their slobbery origins.
+ - A man should be resigned to knowing himself a little better each day if he hasn’t got the guts to put an end to his sniveling once and for all.
+ - The rich don’t have to kill to eat. They employ people, as they call it. The rich don’t do evil themselves. They pay. People do all they can to please them, and everybody’s happy.
+ - People avenge themselves for the favors done them.
+ - To philosophize is only another way of being afraid and leads hardly anywhere but to cowardly make-believe.
+ - When you’re not used to comfort and good things to eat, you’re intoxicated by them in no time. Truth’s only too pleased to leave you. Very little is ever needed for Truth to let go of you. And after all, you’re not really very keen to keep hold of it.
+ - In the kitchens of love, after all, vice is like the pepper in a good sauce; it brings out the flavor, it’s indispensable.
+ - When it becomes really impossible to get away and sleep, then the will to live evaporates of its own accord.
+ - All that makes a lunatic are the very ordinary ideas of mankind shut up inside a man’s head.
+ - History doesn’t pass the dishes again.
+ - I was a hundred-percent sick, I felt as if I had no further use for my legs, they just hung over the edge of my bed like unimportant and rather ridiculous objects.
+ - Since life consists of madness spiked with lies, the farther you are from each other the more lies you can put into it and the happier you’ll be. That’s only natural and normal. Truth is inedible.
+ - There’s a point of poverty at which the spirit isn’t with the body all the time. It finds the body really too unbearable. So it’s almost as if you were talking to the soul itself. And a soul’s not properly responsible.
+ - The poetry of heroism appeals irresistibly to those who don’t go to a war, and even more to those whom the war is making enormously wealthy. It’s always so.
+
+61 quotes

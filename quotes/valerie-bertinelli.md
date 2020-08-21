@@ -1,0 +1,28 @@
+ - When faced with the choice, choose happy.
+ - You’re only as sick as your secrets.
+ - When you’re busy blocking out difficult emotions and feelings, you’re not going to feel the good stuff, either.
+ - If I sleep in and don’t run, I’ll feel a little bit off because I didn’t do what I was supposed to do. But I’m not going to beat myself up because of it. I’ll just get right back on track.
+ - It took me years after stopping the cocaine before I was able to enjoy a sunrise and enjoy the sound of birds.
+ - Ed is very sexy because his emotions are really there – not forced.
+ - I’ve earned all these years on my face. I don’t want to be a liar if in five or 10 years I do get some Botox, but needles in the face scare me, so I don’t really know if I am ever going to do that.
+ - I’ve got this old-school workout – push-ups, sit-ups, tricep dips. And it worked. Anybody can do this at home.
+ - Think of every step in a workout as a step in the right direction.
+ - Once a food becomes off-limits, then it takes on this whole other personality. Forbidden is more tempting. And it becomes something evil, but food is food. Its there to nourish your body.
+ - If you say you’re fat, all of a sudden people like you.
+ - I’m excellent at losing weight, but I’ve never been excellent at maintenance. I have some better days than others in terms of being hypervigilant, but with maintenance you don’t know if you’ve been good at it until you’re done.
+ - I have faith in faith. God is there, whether we have faith or not, so why not have faith in him?
+ - As an emotional eater, I eat to soothe.
+ - I have obsessed about my weight in some sort of way all my life. I used to write in my journal what I weighed every day.
+ - I’m a full-time mom right now and a part-time actress.
+ - Everybody complains that people are so flaky in LA. I’d rather be flaky than mean.
+ - I’m a food addict, that’s my downfall.
+ - The only things I really love about myself physically are my ankles and my hair.
+ - We all have our painful pasts we have to get through.
+ - I kept buying bigger and bigger jeans, and once the size 14s got too tight, I thought, That’s it. I’m not buying the next size.
+ - My eyes aren’t special, my nose isn’t special, my mouth isn’t special.
+ - People come up to me and tell me how I changed their life and I’ve inspired them. And they tell me their stories, and that keeps me going.
+ - Professionally, I have no major goals. That’s partly because I’m really flaky. I want things, but I don’t go after them. I’d rather they be placed in my lap.
+ - I think a lot of people think because I was getting the divorce, that was really the catalyst for gaining so much weight.
+ - I never, ever, ever had deltoids! Oh my God, when I’m doing exercises and I see them pop out, I’m like, Yes!
+
+26 quotes

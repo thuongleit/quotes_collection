@@ -1,0 +1,56 @@
+ - I tell you what freedom is to me: no fear.
+ - You have to learn to get up from the table when love is not being served.
+ - I’m a real rebel with a cause.
+ - Jazz is not just music, it’s a way of life, it’s a way of being, a way of thinking.
+ - It was always Marx, Lenin, and revolution – real girl’s talk.
+ - To be young, gifted and black!
+ - It’s time to take a look at my failures and stop calling them successes. Now I can start working at something that can use me best.
+ - What kept me sane was knowing that things would change, and it was a question of keeping myself together until they did.
+ - I was always a politician from the day the civil rights people chose me as their protest singer.
+ - Slavery has never been abolished from America’s way of thinking.
+ - Talent is a burden not a joy. I am not of this planet. I do not come from you. I am not like you.
+ - I’m just human, I have faults like anyone.
+ - Life is short. People are not easy to know. They’re not easy to know, so if you don’t tell them how you feel, you’re not going to get anywhere, I feel.
+ - I feel more alive now than I ever have in my life. I have a chance to live, as I’ve dreamed.
+ - Music is a gift and a burden I’ve had since I can remember who I was.
+ - Jazz is a white term to define black people. My music is black classical music.
+ - There’s no excuse for the young people not knowing who the heroes and heroines are or were.
+ - I applied for a scholarship to Curtis Institute of Music in Philadelphia. I knew I was good enough, but they turned me down. And it took me about six months to realize it was because I was black. I never really got over that jolt of racism at the time.
+ - Greed has driven the world crazy. And I think I’m lucky that I have a place over here that I can call home.
+ - My love is like the wind and wild is the wind. Give me more than one caress, satisfy my hungriness. Let the wind blow through your heart for wild is the wind.
+ - I don’t like drug addicts and she sounds like a cat.
+ - You can’t help it. An artist’s duty, as far as I’m concerned, is to reflect the times.
+ - This is the world you have made yourself, now you have to live in it.
+ - I don’t like rap music at all. I don’t think it’s music. It’s just a beat and rapping.
+ - I’m sorry that I did not become the world’s first black classic pianist. I think I would have been happier.
+ - I think the rich are too rich and the poor are too poor. I don’t think the black people are going to rise at all; I think most of them are going to die.
+ - The allusion was that I was actually naked. I loved that. It always, kind of shocked people enough that they became mine immediately.
+ - Every day has its emotional difficulties. I miss my mother whether I’m singing her music or not.
+ - I don’t like to go to strange places. I was in Italy for about five hours on my way to Africa.
+ - How do you explain what it feels like to get on the stage and make poetry that you know sinks into the hearts and souls of people who are unable to express it.
+ - Once I understood Bach’s music, I wanted to be a concert pianist. Bach made me dedicate my life to music, and it was that teacher who introduced me to his world.
+ - How can you be an artist and not reflect the times?
+ - Desegregation is a joke.
+ - To most white people, jazz means black and jazz means dirt, and that’s not what I play. I play black classical music.
+ - I try to swim every damn day I can, and I’ve learned to scuba dive and snorkel.
+ - Music has been a burden and a joy for as long as I can remember.
+ - Everything that happened to me as a child involved music. It was part of everyday life, as automatic as breathing.
+ - I think the rich will eventually have to cave in too, because the economic situation around the world is not gonna tolerate the United States being on top forever.
+ - I demand perfection in what I do, and I practice very hard before I give a concert-sometimes three to six hours a day.
+ - It’s a good time for black people to be alive.
+ - That is why we fly from the inner void, since God might steal into it. It is not the pursuit of pleasure and the aversion for effort which causes sin, but fear of God. We know that we cannot see him face to face without dying, and we do not want to die.
+ - I would like you to know, I am a doctor of music.
+ - I think if I were over there in America, protest music would be more important. But I’m not going.
+ - I was not reluctant to become a singer. Singing has been an activity I’ve done my whole life, without thought.
+ - I look forward to doing my own show, not someone else’s. That’s always been my dream.
+ - I feel what they feel. And people who listen to me know that, and it makes them feel like they’re not alone.
+ - I would like a man now who is rich, and who can give me a boat – a sailboat. I want to own it and let him pay for it. My first love is the sea and water, not music. Music is second.
+ - There’s no excuse for the young...
+ - I don’t like to go to strange places.
+ - From the beginning, it has been a no-no for a black man to touch a white woman.
+ - My job is not done. I address my songs now to the third world. I am popular all over Asia and Africa and the Middle East, not to speak of South Africa, where I’m trying to go to see Nelson Mandela.
+ - I am particular about the seating of the audience – also about how much money they pay – but most of all where they are seated. If I am going to sing something intimate, who am I going to sing it to?
+ - Since I was three I’ve been playing the piano. I’ve been onstage. My mother is an Evangelist and I used to play the piano at her revival meetings.
+ - This may be a dream, but I’ll say it anyway: I was supposed to be married last year, and I bought a gown. When I meet Nelson Mandela, I shall put on this gown and have the train of it removed and put aside, and kiss the ground that he walks on and then kiss his feet.
+
+54 quotes

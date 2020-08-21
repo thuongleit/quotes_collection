@@ -1,0 +1,66 @@
+ - Execute like there’s no tomorrow, strategize like there will be.
+ - Better to be too early and have to try again, than be too late and have to catch up.
+ - Start with the assumption that the best way to do something is not the way it’s being done right now.
+ - The most customer-centric organizations can answer any question by deciding what’s best for the customer, without ever having to ask.
+ - There’s a lot of pride that business owners have. It’s actually really critical that pride and ownership extends to everyone in the organization. I think of everyone is in the same boat in driving the company forward.
+ - I don’t use many apps. I use naps.
+ - If people don’t think the odds are against you, you’re doing it wrong.
+ - You’ll learn more in a day talking to customers than a week of brainstorming, a month of watching competitors, or a year of market research.
+ - I think I’m the kind of person who would be very difficult to employ – I’m pretty annoying, but driven.
+ - That’s already been tried before only means the first attempt got it wrong.
+ - I’m obsessed with speed. I’m always asking myself, ‘Why can’t we do things faster? Why can’t it happen more efficiently? Why is this requiring three meetings instead of one?’
+ - Every single industry is going through a major business model and technology oriented disruption.
+ - Modularize, don’t customize. Build a platform as opposed to building all of the custom technology and custom vertical experiences.
+ - The product that wins is the one that bridges customers to the future, not the one that requires a giant leap.
+ - If there could’ve ever been a magical time to build an enterprise software company, now is absolutely that time.
+ - Startups often win because it’s easier to see what comes next when you don’t have to worry about maintaining what came last.
+ - I’m certainly not into money and prestige. For me there is simply nothing more exciting than people involved in the creation of great products. That is what drives me.
+ - The only barrier to entry you can create is to consistently build a great product.
+ - When you’re doing something you’re passionate about, stress becomes a featurenot a bug.
+ - Too little process and you can’t get good work done. Too much process and you can’t get any work done. Most companies never find the middle.
+ - Entrepreneurship: 10% coach, 20% player, 30% cheerleader, 40% waterboy.
+ - You can keep ‘consumer’ DNA at the center of your product. That will always mean that adoption is easier.
+ - My dad is a chemical engineer, and my mom was a teacher. They were pretty serious about education, but I always thought about things a little bit differently.
+ - Your product should sell itself, but that does not mean you don’t need salespeople.
+ - Startups live at the intersection of existential crisis and everything going perfectly great.
+ - A lot of being productive personally is determined by how you organize your entire business. You can’t separate those two things.
+ - Sometimes things are the way they are and can’t be changed, other times it’s because no one ever tried. Your job is to find the latter.
+ - If you don’t go to every level of your company, you distance yourself from the marketplace and from your people.
+ - The chance of failure is almost always better than the guarantee of never knowing.
+ - We’re going from a world of customized software to standardized platforms.
+ - Do things that incumbents can’t or won’t do because it’s economically or technically infeasible.
+ - I think people are always able to achieve more than they think they can. While that’s cliche, I don’t know if managers think about that enough. You have to set your sights extremely high.
+ - Focus too much on the near-term and you won’t get tomorrow’s customers, focus too much on the long-term and you won’t get today’s.
+ - We didn’t really start the company to go build an enterprise software company.
+ - Opportunity lives at the intersection of what people need tomorrow and can be just barely built today.
+ - If every customer is using your product “correctly”, you’ll never learn anything interesting about what to do next.
+ - My downtime tends to resemble my uptime. Weekends are workdays, but toned down. Over the whole weekend, I may have five meetings, as opposed to six on a weekday. I used to play piano for 30 minutes at night, but I had to pull that out of my schedule. I don’t have time for nonwork stuff.
+ - I have a lot of faults. I often interrupt in meetings. I talk too loud. I talk too fast.
+ - The best technology is aimed far enough in the future that it stands out, but close enough to the present that it blends in.
+ - Innovation in tech favors the naive and the stubborn. If you are too rational you won’t tackle problems that others once failed at.
+ - The benefit to building a startup is that customers don’t have the same kind of friction when they adopt new technology.
+ - Start with something simple and small, then expand over time. If people call it a ‘toy’ you’re definitely onto something.
+ - The only way to avoid disruption is to constantly do what you would if you were just starting out.
+ - Better to be right about the trend and wrong about the implementation, than the other way around.
+ - You want to find the really crazy but still somewhat reasonable outliers within the customer ecosystem.
+ - If you’re waiting for encouragement from others, you’re doing it wrong. By the time people think an idea is good, it’s probably too late.
+ - Companies have never won. You’re always either fighting for survival, or fighting for relevance.
+ - Jeff Bezos is opening a retail store and owns a newspaper. Turns out everything we thought about the Internet is wrong.
+ - We’re enamored with the concept that there’s always a price. But sometimes, your goal is to build a great company, not sell it.
+ - Why we do what we do: that moment when you get to see the future on your computer screen before the rest of the world.
+ - It’s unfortunate biologically we have to sleep.
+ - Look for new enabling technologies that create a wide gap between how things have been done and how they can be done.
+ - Go after the customers that are working in the future, but haven’t totally lost their minds.
+ - In the enterprise you want to start intentionally small.
+ - Steve Jobs is the most epic entrepreneur of all time. He served as a guiding light for any emerging businessperson who wanted to learn how things should get done. He’ll be looked at as one of the best business leaders of all time, and certainly one of the best tech entrepreneurs.
+ - What happens to the Microsofts, Oracles and IBMs of the world is that when they get big enough, they don’t think they need to bring that same level of focus and energy to the end-user experience.
+ - The IT model of the enterprise has become a lot more user lead.
+ - The 10% between 90% done to 100% done takes most of the time, causes most of the stress, but is all of the value.
+ - I think bad politics are incredibly dangerous, so it’s important to make sure that people are communicating well. Culture and morale are super important. It’s best to not force it, but let it happen organically and genuinely.
+ - In an IT lead world, incumbents generally win because they have the existing relationship with the IT organization.
+ - Tip: Take the stodgiest, oldest, slowest moving industry you can find. And build amazing software for it.
+ - I tend to not discriminate when it comes to people I can learn from. Basically, if someone has built a meaningful business in software, technology or media, faced disruption and adversity, and overcame underdog status, I want to know how they did it.
+ - Listen to your customers, but don’t always build exactly what they’re telling you. This is a really key distinction around building enterprise software.
+ - All of a sudden, if you think about the entire ecosystem of connected devices that can pull down information, access content and allow me to share and work and communicate, the vast majority now are not Windows computers. They are iPhones. They are iPads. They are Android devices.
+
+64 quotes

@@ -1,0 +1,27 @@
+ - To understand a new idea, break an old habit.
+ - People mistake their limitations for high standards.
+ - The only way to seek God is to seek God first. Deny the nayward, affirm the yeaward, be true to those stirrings and motions which He starts in us, refuse priority to all else, and be faithful to the sacred.
+ - We learn the rope of life by untying its knots.
+ - Fear is a noose that binds until it strangles.
+ - Men try to run life according to their wishes; life runs itself according to necessity.
+ - Most novices picture themselves as masters – and are content with the picture. This is why there are so few masters.
+ - Acceptance of prevailing standards often means we have no standards of our own.
+ - There is no such thing as happiness. Life bends joy and pain, beauty and ugliness, in such a way that no one may isolate them. No one should want to. Perfect joy, or perfect pain, with no contrasting element to define them, would mean a monotony of consciousness, would mean death.
+ - Whats beauty anyway but ugliness if it hurts you?
+ - We start with gifts. Merit comes from what we make of them.
+ - Men are apt to idolize or fear that which they cannot understand, especially if it be a woman.
+ - It takes a well-spent lifetime, and perhaps more, to crystalize in us that for which we exist.
+ - In a sick world, it is the first duty of the artist to get well.
+ - If you have heard a Jewish cantor sing, if he has touched you and made your own sorrow seem trivial when compared with his, you will know my feeling when I follow the curves of her profile, like mobile rivers, to their common delta.
+ - I am not less poet; I am more conscious of all that I am, am not, and might become.
+ - Thank everyone who calls out your faults, your anger, your impatience, your egotism; do this consciously, voluntarily.
+ - We never know we are beings till we love. And then it is we know the powers and potentialities of human existence.
+ - The realization of ignorance is the first act of knowing.
+ - We do not posses imagination enough to sense what we are missing.
+ - One may receive the information but miss the teaching.
+ - No eyes that have seen beauty ever lose their sight.
+ - Once a man has tasted creative action, then thereafter, no matter how safely he schools himself in patience, he is restive, acutely dissatisfied with anything else. He becomes as a lover to whom abstinence is intolerable.
+ - Talk about it only enough to do it. Dream about it only enough to feel it. Think about it only enough to understand it. Contemplate it only enough to be it.
+ - Whatever I believed, I did; I did with my whole heart and mind as far as possible to do so...
+
+25 quotes

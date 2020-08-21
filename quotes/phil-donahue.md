@@ -1,0 +1,49 @@
+ - Will you remember me when I’m gone?
+ - Suicide is a permanent solution to a temporary problem.
+ - There is no democracy without dissent.
+ - The Commission on Presidential Debates is a corrupt stranglehold on our democracy.
+ - Some people are uncomfortable with the idea that humans belong to the same class of animals as cats and cows and raccoons. They’re like the people who become successful and then don’t want to be reminded of the old neighborhood.
+ - Its like threading a needle while walking on a water bed.
+ - The biggest threat to this country isn’t the Russians. It’s our own inability to make democracy or capitalism work.
+ - The establishment people tell us that if the workers wanted to share the profits, it was called communism. When management wants to share profits, it’s called a bonus.
+ - I certainly think we have an emergency in media, and we gotta fix it.
+ - Recognition should come to the reporter who uncovers public cheating or proves a convicted man innocent.
+ - I realize what you can do when you scare the population and how media contributes to that.
+ - I think the idea of creating a television news source that is not beholden to corporate interests is nirvana.
+ - Spanking and verbal criticism have become, to many parents, more important tools of child rearing than approval.
+ - This is Sesame Street. A place where people, birds, monsters all live in perfect harmony.
+ - A large psychic void is left by a loss of faith. So many Catholics have tried so many things to replace it.
+ - To a journalist, good news is often not news at all.
+ - I have had time to analyze my feelings. I am certain that they are totally neurotic, sexist, silly, and a big waste of time.
+ - We should not use crippled children to sell hamburgers. Ever.
+ - Women are smarter than men because they listen.
+ - Miss Child is never bashful with butter.
+ - I have been in the witness protection program for the last three weeks. I campaigned for Ralph Nader. I’m now living as a woman in Mississippi.
+ - I find celebrity status difficult to bear when I am in the company of my mother.
+ - In 1953 there were two ways for an Irish Catholic boy to impress his parents: become a priest or attend Notre Dame.
+ - The House looks like more fun. It’s like the Donahue show. The Senate is like one of those Sunday morning public service programs.
+ - I could never understand how we could put 120,000 Japanese behind a fence in World War II. I remember being bewildered about that.
+ - Cindy Sheehan is one tough mother and nothing you say or anyone else is gonna slow her down.
+ - Is it any wonder that for millions of men the only intimacy is physical, silent, and predictable?
+ - I have moved from certainty to doubt, from devotion to rebellion.
+ - If Stalin ever told me to urinate, I’m not sure I’d be able to...
+ - What really keeps me going is the constant belief that it could all disappear tomorrow.
+ - In reality, the most important things happen when you don’t look for them.
+ - Airlines are interesting. They not only favor celebrities, they court them.
+ - I was proud of the waves I had made, but wondered how many boats I was supposed to rock.
+ - At first, I thoroughly enjoyed being famous.
+ - In a network situation, a vice president, while he’s shaving, can decide your history.
+ - Oprah is more than an institution. Oprah is a very special star in the firmament. I can’t imagine a greater success than she’s enjoyed.
+ - When I was a kid, people who got divorced were people who had no gumption.
+ - Praising the Lord and passing the ammunition are mutually exclusive ideas.
+ - Presenting statues of honor to reporters for covering an earthquake is like presenting a first prize to a doctor for performing surgery.
+ - I believe celebrity spoils people – some worse than others.
+ - I’m not a pacifist. I’m not that brave.
+ - I tip like crazy. Theyll remember me. Celebrity can be expensive.
+ - December 25th has become guilt and obligation.
+ - Television is not the exclusive target of promoters. Is Superman really worthy of a Newsweek cover?
+ - Everybody is under pressure to shut up and sing.
+ - The system of volunteerism is divisive. It pits one charity against the others for the charity dollar.
+ - The Tube is a vehicle for selling things, not for exploring ideas.
+
+47 quotes

@@ -1,0 +1,48 @@
+ - And if a day goes by without my doing something related to photography, it’s as though I’ve neglected something essential to my existence, as though I had forgotten to wake up. I know that the accident of my being a photographer has made my life possible.
+ - Start with a style and you are in chains, start with an idea and you are free.
+ - It’s not hard being great occasionally. It’s difficult to be good consistently.
+ - All photographs are accurate. None of them is the truth.
+ - People – running from unhappiness, hiding in power – are locked within their reputations, ambitions, beliefs.
+ - He sleeps fastest who sleeps alone.
+ - A portrait photographer depends upon another person to complete his picture. The subject imagined, which in a sense is me, must be discovered in someone else willing to take part in a fiction he cannot possibly know about.
+ - A photographic portrait is a picture of someone who knows he is being photographed.
+ - To be an artist, you have to nurture the things that most people discard.
+ - My portraits are more about me than they are about the people I photograph.
+ - The moment an emotion or fact is transformed into a photograph it is no longer a fact but an opinion.
+ - A photographic portrait is a picture of someone who knows he’s being photographed, and what he does with this knowledge is as much a part of the photograph as what he’s wearing or how he looks. He’s implicated in what’s happening, and he has a certain real power over the result.
+ - The pictures have a reality for me that the people don’t. It is through the photographs that I know them.
+ - There is no truth in photography. There is no truth about anyone’s person.
+ - A portrait isn’t a fact but an opinion – an occasion rather than a truth.
+ - When you pose for a photograph, it’s behind a smile that isn’t yours. You are angry and hungry and alive. What I value in you is that intensity. I want to make portraits as intense as people.
+ - A portrait is not a likeness. The moment an emotion or fact is transformed into a photograph it is no longer a fact but an opinion. There is no such thing as inaccuracy in a photograph. All photographs are accurate. None of them is the truth.
+ - I think all art is about control, the encounter between control and uncontrollable.
+ - The way someone who’s being photographed presents himself to the camera, and the effect of the photographer’s response on that presence, is what the making of a portrait is all about.
+ - I’ve worked out of a series of no’s. No to exquisite light, no to apparent compositions, no to the seduction of poses or narrative. And all these no’s force me to the yes. I have a white background. I have the person I’m interested in and the thing that happens between us.
+ - People, unprotected by their roles, become isolated in beauty and intellect and illness and confusion.
+ - One man’s fantasy is another man’s job.
+ - Faces are the ledgers of our experience.
+ - I always prefer to work in the studio. It isolates people from their environment.
+ - Anything is an art if you do it at the level of an art.
+ - I see pictures of myself and I always knew that what I was feeling didn’t look like that guy in the pictures.
+ - We all perform. It’s what we do for each other all the time, deliberately or unintionally. It’s a way of telling about ourselves in the hope of being recognized as what we’d like to be. – PERFORMANCE.
+ - You can’t get at the thing itself, the real nature of the sitter, by stripping away the surface. You can only get beyond the surface by working with the surface. All that you can do is manipulate that surface-gesture, costume, expression-radically and correctly.
+ - My photographs don’t go below the surface. They don’t go below anything. They’re readings of the surface. I have great faith in surfaces. A good one is full of clues.
+ - Marilyn Monroe gave more to the still camera than any actress, any woman I’ve ever photographed; infinitely more patient, more demanding of herself and more comfortable in front of the camera than away from it.
+ - Just advertising departments with legs and high heels.
+ - When I was a boy, my family took great care with our snapshots. We really planned them. We made compositions. We posed in front of expensive cars, homes, that werent ours. We borrowed dogs. Almost every family picture taken of us when I was young had a different borrowed dog in it.
+ - Real people move, they bear with them the element of time. It is this fourth dimension of people that I try to capture in a photograph.
+ - I am, and forever will be, devastated by the gift of Audrey Hepburn before my camera. I cannot lift her to greater heights. She is already there. I can only record. I cannot interpret her. There is no going further than who she is. She has achieved in herself her ultimate portrait.
+ - If each photograph steals a bit of the soul, isn’t it possible that I give up pieces of mine every time I take a picture?
+ - How many pictures have you torn up because you hate them? What ends up in your scrapbook? The pictures where you look like a good guy and a good family man, and the children look adorable – and they’re screaming the next minute. I’ve never seen a family album of screaming people.
+ - Sometimes I think all my pictures are just pictures of me.
+ - My parents put the New Yorker in my crib. I saw Vogue and Vanity Fair around the house before I could read.
+ - I never wanted to be called an artist. I wanted to be called a photographer.
+ - I’ve photographed just about everyone in the world. But what I hope to do is photograph people of accomplishment, not celebrity, and help define the difference once again.
+ - I can see myself as a very old man in a terrific wheelchair. Only, I won’t be photographing the tree outside my window, the way Steichen did. I’ll be photographing other old people.
+ - I believe that you’ve got to love your work so much that it is all you want to do.
+ - I am always stimulated by people. Almost never by ideas.
+ - I hate cameras. They interfere, they’re always in the way. I wish: if I could work with my eyes alone.
+ - I know that the accident of my being a photographer has made my life possible.
+ - If I could do what I want with my eyes alone, I would be happy.
+
+46 quotes

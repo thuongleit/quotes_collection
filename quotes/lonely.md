@@ -1,0 +1,42 @@
+ - Its beautiful to be alone. To be alone does not mean to be lonely. it means the mind is not influenced and contaminated by society. ~~Jiddu Krishnamurti
+ - I’m all alone, but I’m not lonely. ~~Haruki Murakami
+ - The happiest of all lives is a busy solitude. ~~Voltaire
+ - Do not feel lonely on the road of righteousness Because of the fewness of the walkers on it. ~~Ali ibn Abi Talib
+ - Writing, at its best, is a lonely life. ~~Ernest Hemingway
+ - I’m afraid that sometimes you’ll play lonely games too. Games you can’t win ’cause you’ll play against you. ~~Dr. Seuss
+ - All great and precious things are lonely. ~~John Steinbeck
+ - If one’s different, one’s bound to be lonely. ~~Aldous Huxley
+ - If you came to see the truth, the purity, it’s here inside a lonely heart. ~~Michael Jackson
+ - A tramp, a gentleman, a poet, a dreamer, a lonely fellow, always hopeful of romance and adventure. ~~Charlie Chaplin
+ - I’ve never been lonely. I like myself. I’m the best form of entertainment I have. Let’s drink more wine! ~~Charles Bukowski
+ - The empty, the angry, the lonely, the tricked, we are all museums of fear. ~~Charles Bukowski
+ - No one can tell what goes on in between the person you were and the person you become. No one can chart that blue and lonely section of hell. There are no maps of the change. You just come out the other side. Or you don’t. ~~Stephen King
+ - Solitude is different from loneliness, and it doesn’t have to be a lonely kind of thing. ~~Fred Rogers
+ - He was a lonely ghost uttering a truth that nobody would ever hear. But so long as he uttered it, in some obscure way the continuity was not broken. It was not by making yourself heard but by staying sane that you carried on the human heritage. ~~George Orwell
+ - Writing fiction, especially a long work of fiction, can be a difficult, lonely job; it’s like crossing the Atlantic Ocean in a bathtub. There’s plenty of opportunity for self-doubt. ~~Stephen King
+ - You’re not supposed to have iron bars around you – no one is supposed to have that. You’re supposed to fall down hills and get lonely, and find your own food and get wet when it rains. That’s what happens when you’re alive. ~~Sonya Hartnett
+ - Why do people have to be this lonely? What’s the point of it all? Millions of people in this world, all of them yearning, looking to others to satisfy them, yet isolating themselves. Why? Was the earth put here just to nourish human loneliness? ~~Haruki Murakami
+ - Our planet is a lonely speck in the great enveloping cosmic dark. In our obscurity, in all this vastness, there is no hint that help will come from elsewhere to save us from ourselves. ~~Carl Sagan
+ - Find your own Calcutta. Find the sick, the suffering and the lonely right there where you are. ~~Mother Teresa
+ - If a man knows more than others, he becomes lonely. ~~C.G. Jung
+ - Doubt is a pain too lonely to know that faith is his twin brother. ~~Khalil Gibran
+ - I see myself forever and ever as the ridiculous man, the lonely soul, the wanderer, the restless frustrated artist, the man in love with love, always in search of the absolute, always seeking the unattainable. ~~Henry Miller
+ - The farther one gets into the wilderness, the greater is the attraction of its lonely freedom. ~~Theodore Roosevelt
+ - Don’t let ignorance blind you. Open your eyes, heart and your mind. And if you’re feeling alone, know that the world can be a lonely place, but it would be lonelier without you in it. ~~Hayley Williams
+ - It’s better to be dead, or even perfectly well, than to suffer from the wrong affliction. The man who owns up to arthritis in a beri-beri year is as lonely as a woman in a last month’s dress. ~~John Forbes Nash
+ - The trouble is not that I am single and likely to stay single, but that I am lonely and likely to stay lonely. ~~Charlotte Brontë
+ - Cycling can be lonely, but in a good way. ~~David Byrne
+ - I would rather sit on a pumpkin and have it all to myself, than be crowded on a velvet cushion. ~~Henry David Thoreau
+ - We’re all lonely for something we don’t know we’re lonely for. How else to explain the curious feeling that goes around feeling like missing somebody we’ve never even met? ~~David Foster Wallace
+ - Dark and lonely. I need somebody to hold me. ~~Lana Del Rey
+ - The road to death is a lonely highway, and longer than it apears, even when it leads straight down from the scaffold, by way of a rope; and it’s a dark road, with never any moon shining on it, to light your way. ~~Margaret Atwood
+ - What should young people do with their lives today? Many things, obviously. But the most daring thing is to create stable communities in which the terrible disease of loneliness can be cured. ~~Kurt Vonnegut
+ - I have never found a companion that was so companionable as solitude. We are for the most part more lonely when we go abroad among men than when we stay in our chambers. A man thinking or working is always alone, let him be where he will. ~~Henry David Thoreau
+ - Oh, no, I think I’d die on my own. I’d be so lonely. Even at home, I’m lonely. I sit in my room and sometimes cry. It is so hard to make friends, and there are some things you can’t talk to your parents or family about. I sometimes walk around the neighborhood at night, just hoping to find someone to talk to. But I just end up coming home. ~~Michael Jackson
+ - The best remedy for those who are afraid, lonely or unhappy is to go outside, somewhere where they can be quiet, alone with the heavens, nature and God. Because only then does one feel that all is as it should be. ~~Anne Frank
+ - I dwell in a lonely house I know That vanished many a summer ago. ~~Robert Frost
+ - I’m lonely like Adam and you’re evil like Eve. ~~Elvis Presley
+ - At night in this part of the West the stars, as I had seen them in Wyoming, were as big as Roman Candles and as lonely as the Prince who’s lost his ancestral home and journeys across the spaces trying to find it again, and knows he never will. ~~Jack Kerouac
+ - Being the boss anywhere is lonely. Being a female boss in a world of mostly men is especially so. ~~Robert Frost
+
+40 quotes

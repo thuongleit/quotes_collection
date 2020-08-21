@@ -1,0 +1,33 @@
+ - Santa Claus wears a Red Suit, he must be a communist. And a beard and long hair, must be a pacifist. What’s in that pipe that he’s smoking?
+ - There’s only one God. Call him whatever you want.
+ - Being famous is not the same as being important. A lot of important people aren’t famous, and a lot of famous people aren’t important.
+ - Everyone has a responsibility to not only tolerate another person’s point of view, but also to accept it eagerly as a challenge to your own understanding. And express those challenges in terms of serving other people.
+ - What’s in that pipe that he’s smoking?
+ - Basically, I think you need two things to get by in this world: a sense of humor and the ability to laugh when your ego is destroyed.
+ - If you want to end war and stuff, you gotta sing loud.
+ - You can’t have a light without a dark to stick it in.
+ - The New York State Freeway’s closed, man. Far out!
+ - Everyone has troubles. Finding yourself in the same boat with everyone else is the first sign of spirituality.
+ - Coming into Los Angeles, bringing in a couple of keys. Don’t touch my bags, if you please Mr. Customs man.
+ - I’d rather have friends who care than friends who agree with me.
+ - Songs are like fish. You just gotta have your line in the water. And it’s a bad idea to fish downstream from Bob Dylan.
+ - Greed and globalization aren’t just America’s fault.
+ - We had a great time on the bench talking about crime, mother-stabbin’, father raping, all kinds of groovy things.
+ - Building walls isn’t going to work in the long run. Some people are happy with the wall in Israel, but somebody will get a weapon someday and knock it over or something. Walls aren’t the answer between countries, though.
+ - Songwriting is like fishing in a stream; you put in your line and hope to catch something. And I don’t think anyone downstream from Bob Dylan ever caught anything.
+ - We live in an increasingly sophisticated world that makes it difficult to make simple comments on stuff. There are too many people on both sides of the border who are taking advantage of circumstances and the situation.
+ - If readers understand that they do not understand what they are reading then they must possess an understanding which is superior to the meaning which caused that misunderstanding.
+ - It’s about the time I was riding my Motorcycle, going down a mountain road at 150 miles an hour, playing my guitar.
+ - You don’t need spirituality to discover the troubles that come your way. But, it’s good to know that troubles are not unique to you alone.
+ - There are people all over the world who are willing to exploit others. You can’t just point the finger at America.
+ - Ostrich is a very lean meat. Bison is a very lean meat. Chicken is a very lean meat. Notice something about my favorite meats?
+ - I don’t want a pickle, just want to ride on my motorsickle.
+ - I don’t write as many songs as I used to. But, I find myself writing for social media more – times have changed. And I love photography, so a lot of my creative energy gets caught up that way.
+ - Be serious. Folk songs are serious. That’s what Pete Seeger told me. Arlo, I only wanna tell you one thing. Folk songs are serious. And I said Right.
+ - The death of what’s dead is the birth of what’s living.
+ - You teach kids how to succeed when they successfully foil the educational system.
+ - Only the words of love kept alive are worthy of not being wasted.
+ - Any big organization can be subverted by governments or multinational special interests. They have the resources to cast doubt and fear over any group they feel threatened by.
+ - But think of the last guy. For one minute, think of the last guy. Nobodys got it worse than that guy. Nobody in the whole world.
+
+31 quotes

@@ -1,0 +1,63 @@
+ - Chemistry cannot be purchased.
+ - ADHD isn’t a bad thing, and you shouldn’t feel different from those without ADHD.
+ - I’m fiercely independent, but I’m also terrified of being alone.
+ - Markets are conversations.
+ - It’s much more interesting to embrace who you really are rather than waste energy pretending to be someone else.
+ - I’m intelligent enough to survive happily and be compassionate. If I were too smart, I would realize all the ills of the world.
+ - Music was a way of rebelling against the whole rah-rah high school thing.
+ - I love music videos, I really do. I think it’s kind of sad that it’s a dying art form.
+ - I think pain is the best feeling for song writing. You can write good happy songs, but I think the kind of bruiting, depressing ones are more effective. They are easier to write when I am impassioned and angry. It is a good way to channel that negative energy.
+ - I’ve got the moves like Jagger.
+ - Normal is enormously susceptible to swinging with the gusts of politics and history. Disguised as scientific and fixed, it is subjective and protean. That is why I used the word normative above, a term derived from statistics, simply meaning what most people do.
+ - It is dangerous to exist in the world. To exist is to be threatened. We must live with threats.
+ - As a pop star, you don’t have to be that smart for people to think you’re intelligent.
+ - The power and the potency of music will transcend any one person’s opinion about it.
+ - I hate flying. Know why? Because no one really understands how planes actually work.
+ - In real life, I am emotionally confused, which enables me to write songs. I’m a Pisces, and they say that Pisces are very sensitive. If men were just honest with themselves, they would see that they all have that side.
+ - It’s a really big struggle for me to write a song. Songs take either 30 seconds for me to write or a year or two to piece together, depending on the song and how I’m feeling on any given day. I don’t really like to write music at all unless I am completely unbothered by touring.
+ - I don’t date my girlfriend because she’s a model. I date her because I love her.
+ - I do believe that I deserve what I have. I don’t think I’m entitled to it. That’s a big difference.
+ - At any Maroon 5 concert, you’ll see a room backstage marked ‘yoga.’
+ - Not every song has to be about love and tenderness, sometimes you have those strictly physical feelings for somebody and it’s okay to have those feelings.
+ - Doing something that you love regardless when it’s a blockbuster movie or you’re writing a pop song or trying shamelessly to succeed in something is not selling out. I think that’s actually fine, and I would encourage that all the time.
+ - I’m feeling like the music business is reaping what it’s sown. It’s going through what inevitably it was going to go through. It was a very decadent, very glamorous business that took advantage of a lot of people for a long time and didn’t do things right and had a poor business model.
+ - Let’s face it, I only practice yoga because the classes are always packed with beautiful women.
+ - Some people don’t like confidence. They resent confidence.
+ - It’s sweet that I don’t have to do my laundry.
+ - I spend most of my life naked. In fact, I often have to be told by the people around me that it’s inappropriate to be as naked as I am. But I live in California, where it’s always warm, so why not?
+ - Caffeine is like a really attractive girl that has nothing to say. You get all jacked up on it and then you’re left feeling hollow and empty.
+ - I’d rather be loud and misunderstood than quiet and bored.
+ - I’m doing pretty well. If you don’t get married, you can’t get divorced. Why couldn’t we learn from the devastatingly low percentage of successful marriages that our last generation went through?
+ - I had to fight with myself ’cause he’s so good, yet he’s so popular.
+ - Yoga carves you into a different person – and that is satisfying physically.
+ - Shakira is a new friend, but I love her dearly already. She’s so sweet and adorable and hilarious.
+ - I don’t know if it’s possible to live the rock’n’roll lifestyle and still be romantic.
+ - If world peace was as important to people as getting tweeted back by their favorite celebrity, we’d live in a blissful Utopia.
+ - A lot of times people will think, “I’m strong, I’m in shape; why can’t I do this pose?” But that’s not the point. There’s nothing to win in yoga. You just do what you can do, one day to the next.
+ - Taylor Swift is super charming. Damn you Swift.
+ - Men need to live and breathe women.
+ - I was a huge Beatles fan. The Stones, Dylan. Later on, I got into Stevie Wonder, and Bill Withers – he’s one of my heroes. Al Green, too.
+ - George Bush is just as much in the dark as I am, and it scares me.
+ - I want to study marriage. I want to learn about it. I want to know it. I want to figure out whether or not I want to do it. I’m not just going to leap into it, because that’s not good for anybody.
+ - There’s nothing to win in yoga. You just do what you can do, one day to the next.
+ - Before I go on stage I pretend that everyone loves me.
+ - I have a very young brother and sister, and if you can get a kid singing the words to a song after they heard it for the first time, it’s a hit.
+ - And I think I have a distinct voice.
+ - I’m cocky. It’s different. Cocky is playful.
+ - I absolutely loathe the idea of doing a fragrance simply as a moneymaker. Personal brand to make money? Vomit.
+ - I have a high self-opinion – I don’t need to hide that. I don’t need to be self-deprecating.
+ - Nobody has it all, but for me to even come close is amazing.
+ - When you commit to being a musician, I don’t think you’re really sure or care about when you’re going to pay the bills. I don’t think you care about that as much as you care about playing music.
+ - I don’t think any relationship responds well to pressure.
+ - People always – when you rise, whenever you’re getting to a point where you’re a very big band, which is a very rare thing, there are always going to be people that aren’t going to like you.
+ - I play in a band, I write songs, I sing, you know, perform on stage.
+ - I don’t want to be an actor, but why not take these opportunities when they come to you? I’m not killing myself auditioning, chasing that dream.
+ - Playing a show before thousands of people is a highly unnatural state, and when I get on the mat to do an hour of yoga before the show, I come out physically relaxed.
+ - I never got down with conveying a larger-than-life vibe.
+ - You wouldn’t be a complete band without a slightly cocky frontman, would you?
+ - I think the first thing that you need to detach yourself from is numbers, because music has now splintered off into so many different forms of media, MTV doesn’t play videos, the radio is now competing with the Internet.
+ - There are many things that keep me from getting married. But there will be a time when marriage makes sense to me.
+ - Yoga takes what you have and molds and sculpts it, which is a much more natural way to look and feel.
+ - I felt like people only knew me as a singer who dated pretty girls.
+
+61 quotes

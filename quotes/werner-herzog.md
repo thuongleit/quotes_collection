@@ -1,0 +1,129 @@
+ - Civilization is like a thin layer of ice upon a deep ocean of chaos and darkness.
+ - I believe the common denominator of the universe is not harmony; but chaos, hostility and murder.
+ - Do you not then hear this horrible scream all around you that people usually call silence.
+ - Life in the oceans must be sheer hell. A vast, merciless hell of permanent and immediate danger. So much of a hell that during evolution some species – including man – crawled, fled onto some small continents of solid land, where the Lessons of Darkness continue.
+ - Tourism is a mortal sin.
+ - Every man should pull a boat over a mountain once in his life.
+ - Look into the eyes of a chicken and you will see real stupidity. It is a kind of bottomless stupidity, a fiendish stupidity. They are the most horrifying, cannibalistic and nightmarish creatures in the world.
+ - If you don’t read, you will never be a filmmaker.
+ - What would an ocean be without a monster lurking in the dark? It would be like sleep without dreams.
+ - I despise formal restaurants. I find all of that formality to be very base and vile. I would much rather eat potato chips on the sidewalk.
+ - Sometimes bad luck hits you like in an ancient Greek tragedy, and it’s not your own making. When you have a plane crash, it’s not your fault.
+ - I have never been one of those who cares about happiness. Happiness is a strange notion. I am just not made for it. It has never been a goal of mine; I do not think in those terms.
+ - Get used to the bear behind you.
+ - Academia is the death of cinema. It is the very opposite of passion. Film is not the art of scholars, but of illiterates.
+ - Film is not analysis, it is the agitation of mind; cinema comes from the country fair and the circus, not from art and academicism.
+ - May I propose a Herzog dictum? those who read own the world, and those who watch television lose it.
+ - I prefer to be alive, so I’m cautious about taking risks.
+ - I am torn between the beauty of the natural world, which you see all around us, and the idea that some dumb tornado could blow a telephone pole onto my sweet Camaro.
+ - I think it is a quest of literature throughout the ages to describe the human condition.
+ - We are surrounded by worn-out, banal, useless and exhausted images, limping and dragging themselves behind the rest of our cultural evolution.
+ - For me a true landscape is not just a representation of a desert or a forest. It shows an inner state of mind, literally inner landscapes, and it is the human soul that is visible through the landscapes presented in my films.
+ - I think psychology and self-reflection is one of the major catastrophes of the twentieth century.
+ - Fact creates norms, and truth illumination.
+ - I love nature, but against my better judgment.
+ - If you do not have an absolutely clear vision of something, where you can follow the light to the end of the tunnel, then it doesn’t matter whether you’re bold or cowardly, or whether you’re stupid or intelligent. Doesn’t get you anywhere.
+ - I’m not into the culture of complaint. I roll up my sleeves and somehow I get it together.
+ - Ambition is to be the fastest runner on this planet, to be the first on the South Pole, which is a grotesque perversion of ambition. It’s an ego trip, and I’m not on an ego trip. I don’t have ambitions – I have a vision.
+ - You will learn more by walking from Canada to Guatemala than you will ever learn in film school.
+ - I would travel down to Hell and wrestle a film away from the devil if it was necessary.
+ - When you look at the paintings at Chauvet Cave, they’re not primitive or like children’s little scribbles, it bursts on the scene fully accomplished and when you look through the faces of cultural history, art history, it has never gotten any better.
+ - I have a great map of the Tibesti Mountains in the southern Sahara or Northern Chad. It’s a dream of mine to go there, but it’s such a volatile area, you have to be prudent.
+ - I discover no kinship, no understanding, no mercy. I see only the overwhelming indifference of nature.
+ - People think we had a love-hate relationship. Well, I did not love him, nor did I hate him. We had mutual respect for each other, even as we both planned each other’s murder.
+ - The danger is to stupidly believe that depicting facts gives us much insight. If facts were the only thing that counted, the telephone directory would be the book of books.
+ - Money doesn’t make films. You just do it and take the initiative.
+ - The punishment itself is something I respectfully disagree with, but for thousands and thousands of years it was practiced everywhere.
+ - A fairly young, intelligent-looking man with long hair asked me whether filming or being filmed could do harm, whether it could destroy a person. In my heart the answer was yes, but I said no.
+ - For such an advanced civilization as ours to be without images that are adequate to it is as serious a defect as being without memory.
+ - We ought to be grateful that the Universe out there knows no smile.
+ - The world reveals itself to those who travel on foot.
+ - If I had to climb into hell and wrestle the devil himself for one of my films, I would do it.
+ - In my films, I hope there are a few moments where you feel almost illuminated, like in a state of ecstasy, stepping out of yourself, beyond yourself and perceiving something which is only, in the case of cinema, possible in collective dreams.
+ - There are deeper strata of truth in cinema, and there is such a thing as poetic, ecstatic truth. It is mysterious and elusive, and can be reached only through fabrication and imagination and stylization.
+ - Martin Luther was asked, what would you do if tomorrow the world would come to an end, and he said, ‘I would plant an apple tree today.’ This is a real good answer. I would start shooting a movie.
+ - I find it interesting that there are impostors out on the Internet pretending to be Werner Herzog.
+ - Never wallow in your troubles; despair must be kept private and brief.
+ - The universe is not harmonious: you know that by looking outside.
+ - I think the worst that can happen in filmmaking is if you’re working with a storyboard. That kills all intuition, all fantasy, all creativity.
+ - Perseverance has kept me going over the years. Things rarely happen overnight. Filmmakers should be prepared for many years of hard work. The sheer toil can be healthy and exhilarating.
+ - I’m not into digital marketing, downloading, or streaming – I’ve always been a man of the theaters.
+ - I have nothing against 3D films but I do not need to see them.
+ - Everyone who makes films has to be an athlete to a certain degree because cinema does not come from abstract academic thinking; it comes from your knees and thighs.
+ - I am someone who takes everything very literally. I simply do not understand irony, a defect I have had ever since I was able to think independently.
+ - I’m not a journalist; I’m a poet.
+ - I do not believe in the Cinema verite. Sometimes a really good lie is better than any truth.
+ - We live in a society that has no adequate images anymore, and if we do not find adequate images and an adequate language for our civilization with which to express them, we will die out like the dinosaurs.
+ - I never planned my career in steps. It’s all coming at me like burglars in the night.
+ - Someone like Jean-Luc Godard is for me intellectual counterfeit money when compared to a good kung fu film.
+ - I know for sure that there is only one step from insecticide to genocide.
+ - You must live life in its very elementary forms. The Mexicans have a very nice word for it: pura vida. It doesn’t mean just purity of life, but the raw, stark-naked quality of life. And that’s what makes young people more into a filmmaker than academia.
+ - In the Chauvet Cave, there is a painting of a bison embracing the lower part of a naked female body. Why does Pablo Picasso, who had no knowledge of the Chauvet Cave, use exactly the same motif in his series of drawings of the Minotaur and the woman? Very, very strange.
+ - If you want to propose marriage to your girlfriend and you live in England and she is in Sicily, do the decent thing and walk down there. Travelling by car or aeroplane wouldn’t be right at such a moment.
+ - I have been in lots of very intense life situations. I have been shot at, and I have been hungry, and I have been in solitude, and I have also briefly been behind bars. So in a way, I know the heart of men.
+ - Tourism is sin, and travel on foot virtue.
+ - Facts do not convey truth. That’s a mistake. Facts create norms, but truth creates illumination.
+ - If you’re purely after facts, please buy yourself the phone directory of Manhattan. It has four million times correct facts. But it doesn’t illuminate.
+ - In the face of the obscene, explicit malice of the jungle, which lacks only dinosaurs as punctuation, I feel like a half-finished, poorly expressed sentence in a cheap novel.
+ - Of course, as a German, I wouldn’t like to tell the American people how to handle their criminal justice.
+ - I don’t spend sleepless nights over getting very bad reviews.
+ - I don’t care whether the person is guilty or not guilty. It’s not my business to establish guilt or innocence. It’s a court of law that does that and a jury does that, but not me.
+ - I have always postulated that we have to find a new way to deal with reality. It’s not so much facts that interest me, but a deeper truth in them – an ecstasy of truth, an ecstatic truth that illuminates us. That’s what I’ve been after.
+ - I live my life outside of the glitz and glamour of the red carpet events, and so you’ll never see me there. I’m never at parties.
+ - I function better in the jungle in Amazonia or Antarctica or Alaska or the Sahara desert. An artificial environment like a studio has never attracted me. I could work in a studio, but I would never really feel at home.
+ - I do whatever pushes me hardest. It’s coming at me and I try to. It’s like uninvited guest and I have to wrestle them out the door or through the window – get them out and get over with them quickly.
+ - I’m quite convinced that cooking is the only alternative to film making. Maybe there’s also another alternative, that’s walking on foot.
+ - I think there should be holy war against yoga classes.
+ - There is never an excuse not to finish a film.
+ - I see planets that don’t exist and landscapes that have only been dreamed.
+ - We have to articulate ourselves. Otherwise we would be cows in the field.
+ - I am so used to plunging into the unknown that any other surroundings and form of existence strike me as exotic and unsuitable for human beings.
+ - There are specific times where film noir is a natural concomitant of the mood. When there’s insecurity, collapse of financial systems – that’s where film noir always hits fertile ground.
+ - English is a really wonderful language and I urge you all to investigate it.
+ - If you want to do a film, steal a camera, steal raw stock, sneak into a lab and do it!
+ - It’s all movies for me. And besides, when you say documentaries, in my case, in most of these cases, means “feature film” in disguise.
+ - If you go to Florence, it has all surface beauty, but like Venice, it’s simply a museum of Renaissance times. Los Angeles is raw, uncouth and bizarre, but it’s a place of substance. It has more new horizons than any other place.
+ - Technology has a great advantage in that we are capable of creating dinosaurs and show them on the screen even though they are extinct 65 million years. All of a sudden, we have a fantastic tool that is as good as dreams are.
+ - The collapse of the stellar universe will occur – like creation – in grandiose splendor.
+ - There is a fascination about crime, which is understandable, but hardly anyone talks about the families of victims of violent crime and the devastation that is beyond the victim alone.
+ - If you truly love film, I think the healthiest thing to do is not read books on the subject. I prefer the glossy film magazines with their big color photos and gossip columns, or the National Enquirer. Such vulgarity is healthy and safe.
+ - If your project has real substance, ultimately the money will follow you like a common cur in the street with its tail between its legs.
+ - I could not become an American citizen. I would not like to become a citizen of a country that has capital punishment.
+ - It happens sometimes that the material itself carries things you have not fully planned. The footage has its own right, its own life, its own vibrancy and energy in it.
+ - I travel without barely any luggage. Just a second set of underwear and binoculars and a map and a toothbrush.
+ - You can fight a rumour only with an even wilder rumour.
+ - In Germany, you would be hanged if you cracked a joke about Hitler and you would be killed by the state if you were insane in a project of euthanasia.
+ - I make films because I have not learned anything else and I know I can do it to a certain degree. And it is my duty because this might be the inner chronicle of what we are. We have to articulate ourselves, otherwise we would be cows in the field.
+ - Facts sometimes have a strange and bizarre power that makes their inherent truth seem unbelievable.
+ - There’s more substance in my prose and my poetry than in all my films together. Writing is a more direct way of expressing yourself because, in cinema, you always have finances, organization, actors, technical apparatus and all that stuff coming in between.
+ - I am not an artist and never have been. Rather I am like a craftsman and feel very close to the mediaeval artisans who produced their work anonymously and who, along with their apprentices, had a true feeling for the physical materials they were working with.
+ - There are certainly laws and elements that make a film more accessible to mainstream audiences. If you’ve got Tom Cruise as a strongman, I’m sure it would have larger audiences, but it wouldn’t have the same substance.
+ - I cannot work fast enough. I cannot cope fast enough, really. And just releasing a film is hard.
+ - I’m a very professional man. I’m not out for the experience of adventure.
+ - One of the most original and poetic works of cinema made anywhere in the seventies.
+ - In a way, I managed to get the deepest things, the best things out of people. That’s why I’m a filmmaker. If you don’t have it in you, you’d better do something else.
+ - For me, the distinction between documentaries and feature films is not so clear – my “documentaries” were largely scripted, rehearsed, and repeated, and have a lot of fantasy and concoction in them.
+ - If you don’t have a deal in two days, you won’t have a deal in two years.
+ - But the question that everyone wanted answered was whether I would have the nerve and the strength to start the whole process from scratch. I said yes; otherwise I would be someone who had no dream left, and without dreams I would not want to live.
+ - I have not seen a film as powerful, surreal, and frightening in at least a decade unprecedented in the history of cinema.
+ - Without dreams we would be cows in a field, and I don’t want to live like that. I live my life or I end my life with this project.
+ - I work very fast and steadily, and I don’t hardly ever notice that I’m working. It feels like just breathing or walking when I do films.
+ - Women have a very good sense for seeing instantly what constitutes a good man. Not physically. The physical strength is only a small side of it.
+ - Some of the most important caves, like Lascaux in the Dordogne region in France, have had to be closed down. There had been too many people allowed in, and they left a mold on the walls that is spreading and which can’t really be stopped.
+ - Coincidences always happen if you keep your mind open, while storyboards remain the instruments of cowards who do not trust in their own imagination and who are slaves of a matrix If you get used to planning your shots based solely on aesthetics, you are never that far from kitsch.
+ - I’m a very circumspect and prudent person, and I eliminate danger as far as it can be done.
+ - I do other sorts of things. I act in other people’s movies. I direct operas. I write books.
+ - I am somebody who creates images, with my perspectives, fascinations and my instincts as a narrator. You have to activate the audience’s imagination. If you are just giving them scientific results, they would forget the film in five minutes flat.
+ - Along with this rapid growth of forms of communication at our disposal – be it fax, phone, email, Internet or whatever – human solitude will increase in direct proportion.
+ - What have we done to our images? What have we done to our embarrassed landscapes? I have said this before and will repeat it again as long as I am able to talk: if we do not develop adequate images we will die out like dinosaurs.
+ - I like and I love everything that has to do with cinema: writing, directing, editing, creating music, and even acting.
+ - I think a state should not be in the capacity of killing anyone with the exception of warfare.
+ - I shouldn’t make movies anymore. I should go to a lunatic asylum.
+ - I like to direct landscapes just as I like to direct actors and animals.
+ - I know whenever it comes to be really dysfunctional and vile and base and hostile on screen, I’m good at that.
+ - There’s a completely new culture out there. I’m not a participant of texting and driving – or texting at all – but I see there’s something going on in civilization which is coming with great vehemence at us.
+ - My contacts with the film industry can be described in very simple terms: The industry does not really need me, and I do not really need the industry.
+ - With actors, normally I don’t like to have any conversation about background and about motivations and all this.
+ - You should bear in mind that almost all my documentaries are feature films in disguise.
+
+127 quotes

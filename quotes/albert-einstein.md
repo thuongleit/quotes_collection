@@ -1,0 +1,502 @@
+ - A ship is always safe at the shore, but that is not what it is built for.
+ - You never fail until you stop trying.
+ - If you want to live a happy life, tie it to a goal, not to people or things.
+ - Time is an illusion.
+ - Creativity is intelligence having fun.
+ - A clever person solves a problem. A wise person avoids it.
+ - Everybody is a genius. But if you judge a fish by its ability to climb a tree, it will live its whole life believing that it is stupid.
+ - Once we accept our limits, we go beyond them.
+ - Life is like riding a bicycle. To keep your balance, you must keep moving.
+ - Logic will get you from A to Z. Imagination will get you everywhere.
+ - Any fool can know. The point is to understand.
+ - In the middle of difficulty lies opportunity.
+ - I have no special talents. I am only passionately curious.
+ - Anyone who has never made a mistake has never tried anything new.
+ - Try not to become a man of success. Rather become a man of value.
+ - I must be willing to give up what I am in order to become what I will be.
+ - The mind that opens to a new idea never returns to its original size.
+ - Common sense is what tells us the earth is flat.
+ - Two things are infinite, the universe and human stupidity, and I am not yet completely sure about the universe.
+ - Only those who attempt the absurd can achieve the impossible.
+ - It's not that I'm so smart, it's just that I stay with problems longer.
+ - There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
+ - Insanity is doing the same thing, over and over again, but expecting different results.
+ - Nothing happens until something moves.
+ - Never memorize something that you can look up.
+ - Logic will get you from A to B. Imagination will take you everywhere.
+ - Out of clutter, find simplicity.
+ - The difference between stupidity and genius is that genius has its limits.
+ - Great spirits have always encountered violent opposition from mediocre minds.
+ - Everything must be made as simple as possible. But not simpler.
+ - I'd rather be an optimist and a fool than a pessimist and right.
+ - The world is a dangerous place to live, not because of the people who are evil, but because of the people who don’t do anything about it.
+ - If a cluttered desk is a sign of a cluttered mind, of what, then, is an empty desk a sign?
+ - Imagination is more important than knowledge.
+ - Genius is 1% talent and 99% percent hard work.
+ - Black holes are where God divided by zero.
+ - Student is not a container you have to fill but a torch you have to light up.
+ - Reality is merely an illusion, albeit a very persistent one.
+ - Creativity is knowing how to hide your sources.
+ - Imagination is everything. It is the preview of life’s coming attractions.
+ - If at first the idea is not absurd, then there is no hope for it.
+ - The only sure way to avoid making mistakes is to have no new ideas.
+ - Any man who can drive safely while kissing a pretty girl is simply not giving the kiss the attention it deserves.
+ - The only thing that you absolutely have to know is the location of the library.
+ - Men marry women with the hope they will never change. Women marry men with the hope they will change. Invariably they are both disappointed.
+ - When you trip over love, it is easy to get up. But when you fall in love, it is impossible to stand again.
+ - If I were not a physicist, I would probably be a musician. I often think in music. I live my daydreams in music. I see my life in terms of music.
+ - Gravitation is not responsible for people falling in love.
+ - Intellectual growth should commence at birth and cease only at death.
+ - I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.
+ - If I had an hour to solve a problem I’d spend 55 minutes thinking about the problem and 5 minutes thinking about solutions.
+ - If you can’t explain it to a six year old, you don’t understand it yourself.
+ - Love is a better master than duty.
+ - Learn from yesterday, live for today, hope for tomorrow. The important thing is to not stop questioning.
+ - Look deep into nature, and then you will understand everything better.
+ - The one who follows the crowd will usually go no further than the crowd. Those who walk alone are likely to find themselves in places no one has ever been before.
+ - The true sign of intelligence is not knowledge but imagination.
+ - Coincidence is God’s way of remaining anonymous.
+ - Our task must be to free ourselves by widening our circle of compassion to embrace all living creatures and the whole of nature and it’s beauty.
+ - What is right is not always popular and what is popular is not always right.
+ - Information is not knowledge.
+ - I never think of the future – it comes soon enough.
+ - Education is what remains after one has forgotten what one has learned in school.
+ - Weakness of attitude becomes weakness of character.
+ - Peace cannot be kept by force; it can only be achieved by understanding.
+ - If A is a success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.
+ - The world as we have created it is a process of our thinking. It cannot be changed without changing our thinking.
+ - The most beautiful thing we can experience is the mysterious. It is the source of all true art and science.
+ - The moon does not simply disappear when we are not looking at it.
+ - I am enough of an artist to draw freely upon my imagination. Imagination is more important than knowledge. Knowledge is limited. Imagination encircles the world.
+ - I speak to everyone in the same way, whether he is the garbage man or the president of the university.
+ - Make everything as simple as possible, but not simpler.
+ - If we knew what it was we were doing, it would not be called research, would it?
+ - When the solution is simple, God is answering.
+ - Great spirits have always encountered opposition from mediocre minds. The mediocre mind is incapable of understanding the man who refuses to bow blindly to conventional prejudices and chooses instead to express his opinions courageously and honestly.
+ - Only a life lived for others is a life worthwhile.
+ - A little knowledge is a dangerous thing. So is a lot.
+ - Blind belief in authority is the greatest enemy of truth.
+ - Anyone who doesn’t take truth seriously in small matters cannot be trusted in large ones either.
+ - Weak people revenge. Strong people forgive. Intelligent People Ignore.
+ - It is the supreme art of the teacher to awaken joy in creative expression and knowledge.
+ - Few are those who see with their own eyes and feel with their own hearts.
+ - The important thing is not to stop questioning. Curiosity has its own reason for existing. One cannot help but be in awe when he contemplates the mysteries of eternity, of life, of the marvelous structure of reality. It is enough if one tries merely to comprehend a little of this mystery every day. Never lose a holy curiosity.
+ - Never do anything against conscience even if the state demands it.
+ - If you want your children to be intelligent, read them fairy tales. If you want them to be more intelligent, read them more fairy tales.
+ - Out of clutter, find simplicity. From discord, find harmony. In the middle of difficulty lies opportunity.
+ - If I were to remain silent, I’d be guilty of complicity.
+ - I see my life in terms of music.
+ - One cannot alter a condition with the same mindset that created it in the first place.
+ - Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.
+ - Everything that is really great and inspiring is created by the individual who can labor in freedom.
+ - We still do not know one thousandth of one percent of what nature has revealed to us.
+ - Common sense is the collection of prejudices acquired by age eighteen.
+ - Knowledge of what is does not open the door directly to what should be.
+ - No amount of experimentation can ever prove me right; a single experiment can prove me wrong.
+ - How I wish that somewhere there existed an island for those who are wise and of good will.
+ - My religion consists of a humble admiration of the illimitable superior spirit who reveals himself in the slight details we are able to perceive with our frail and feeble mind.
+ - We know from daily life that we exist for other people first of all, for whose smiles and well-being our own happiness depends.
+ - A table, a chair, a bowl of fruit and a violin; what else does a man need to be happy?
+ - My pacifism is an instinctive feeling, a feeling that possesses me because the murder of men is disgusting. My attitude is not derived from any intellectual theory but is based on my deepest antipathy to every kind of cruelty and hatred.
+ - Everything is Energy and that is all there is to it. Match the frequency of the reality you want and you can not help but get that reality. It can be no other way. This is not philosophy. This is physics.
+ - We cannot solve our problems with the same thinking we used when we created them.
+ - Never regard study as a duty, but as the enviable opportunity to learn.
+ - Be a voice not an echo.
+ - Failure is success in progress.
+ - The bigotry of the nonbeliever is for me nearly as funny as the bigotry of the believer.
+ - Once you stop learning, you start dying.
+ - You have to learn the rules of the game. And then you have to play better than anyone else.
+ - The intuitive mind is a sacred gift and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.
+ - The only source of knowledge is experience.
+ - The most important decision we make is whether we believe we live in a friendly or hostile universe.
+ - Everyone knew it was impossible, until a fool who didn’t know came along and did it.
+ - Pure mathematics is in its way the poetry of logical ideas.
+ - I fear the day technology will surpass our human interaction. The world will have a generation of idiots.
+ - Genius is making complex ideas simple, not making simple ideas complex.
+ - Compound interest is the eighth natural wonder of the world and the most powerful thing I have ever encountered.
+ - No problem can be solved from the same level of consciousness that created it.
+ - In theory, theory and practice are the same. In practice, they are not.
+ - If you want different results, do not do the same things.
+ - One picture is worth a thousand words.
+ - If you can’t explain something simply, you don’t know enough about it.
+ - Only one who devotes himself to a cause with his whole strength and soul can be a true master. For this reason mastery demands all of a person.
+ - Learning is experience. Everything else is just information.
+ - Future medicine will be the medicine of frequencies.
+ - One should not pursue goals that are easily achieved. One must develop an instinct for what one can just barely achieve through one’s greatest efforts.
+ - The important thing is not to stop questioning. Curiosity has its own reason for existing.
+ - I never teach my pupils, I only attempt to provide the conditions in which they can learn.
+ - I love Humanity but I hate humans.
+ - Condemnation without investigation is the height of ignorance.
+ - Everything that can be counted does not necessarily count; everything that counts cannot necessarily be counted.
+ - I have tried 99 times and have failed, but on the 100th time came success.
+ - Energy cannot be created or destroyed, it can only be changed from one form to another.
+ - The world will not be destroyed by those who do evil, but by those who watch them without doing anything.
+ - I think 99 times and find nothing. I stop thinking, swim in the silence, and the truth comes to me.
+ - Time is relative; its only worth depends upon what we do as it is passing.
+ - God does not play dice.
+ - If I had 20 days to solve a problem, I would take 19 days to define it.
+ - God did not create evil. Just as darkness is the absence of light, evil is the absence of God.
+ - The value of a college education is not the learning of many facts but the training of the mind to think.
+ - Dancers are the athletes of God.
+ - The only mistake in life is the lesson not learned.
+ - Don’t wait for miracles, your whole life is a miracle.
+ - Be a loner. That gives you time to wonder, to search for the truth. Have holy curiosity. Make your life worth living.
+ - We dance for laughter, we dance for tears, we dance for madness, we dance for fears, we dance for hopes, we dance for screams, we are the dancers, we create the dreams.
+ - Information is not knowledge. The only source of knowledge is experience. You need experience to gain wisdom.
+ - Science without religion is lame, religion without science is blind.
+ - I live in that solitude which is painful in youth, but delicious in the years of maturity.
+ - Time flies when you are having fun.
+ - Computers are incredibly fast, accurate, and stupid: humans are incredibly slow, inaccurate and brilliant; together they are powerful beyond imagination.
+ - We all know that light travels faster than sound. That’s why certain people appear bright until you hear them speak.
+ - I wish to do something Great and Wonderful, but I must start by doing the little things like they were Great and Wonderful.
+ - Do not worry about your difficulties in Mathematics. I can assure you mine are still greater.
+ - Not all things worth counting are countable and not all things that count are worth counting.
+ - Creativity is contagious. Pass it on.
+ - A question that sometimes drives me hazy: am I or are the others crazy?
+ - Assumptions are made and most assumptions are wrong.
+ - The best design is the simplest one that works.
+ - More the knowledge lesser the Ego, lesser the knowledge, more the Ego.
+ - Education is not received. It is achieved.
+ - Imagination is the highest form of research.
+ - The distinction between the past, present and future is only a stubbornly persistent illusion.
+ - The most powerful force in the world is compound interest.
+ - When I read the Bhagavad-Gita and reflect about how God created this universe everything else seems so superfluous.
+ - Imagination is more important than knowledge. Imagination is the language of the soul. Pay attention to your imagination and you will discover all you need to be fulfilled.
+ - I don’t need to know everything, I just need to know where to find it, when I need it.
+ - It is harder to crack prejudice than an atom.
+ - We are slowed down sound and light waves, a walking bundle of frequencies tuned into the cosmos. We are souls dressed up in sacred biochemical garments and our bodies are the instruments through which our souls play their music.
+ - Everything in life is vibration.
+ - The magic of compounding interest is truly the eighth wonder of the world!
+ - The Universe is a friendly place.
+ - The definition of genius is taking the complex and making it simple.
+ - Whoever is careless with the truth in small matters cannot be trusted with important matters.
+ - Those who have the privilege to know have the duty to act.
+ - For every action, there is a reaction.
+ - Education is only a ladder to gather fruit from the tree of knowledge, not the fruit itself.
+ - I believe in intuition and inspiration. Imagination is more important than knowledge. For knowledge is limited, whereas imagination embraces the entire world, stimulating progress, giving birth to evolution. It is, strictly speaking, a real factor in scientific research.
+ - The human spirit must prevail over technology.
+ - As far as the laws of mathematics refer to reality, they are not certain; and as far as they are certain, they do not refer to reality.
+ - There is a driving force more powerful than steam, electricity and nuclear power: the will.
+ - Empathy is patiently and sincerely seeing the world through the other person’s eyes. It is not learned in school; it is cultivated over a lifetime.
+ - The only real valuable thing is intuition.
+ - If the facts don’t fit the theory, change the facts.
+ - Scientists investigate that which already is; Engineers create that which has never been.
+ - Three great forces rule the world: stupidity, fear and greed.
+ - A man should look for what is, and not for what he thinks should be.
+ - If you want to know the future, look at the past.
+ - The intellect has little to do on the road to discovery. There comes a leap in consciousness, call it Intuition or what you will, the solution comes to you and you don’t know how or why.
+ - Intellectuals solve problems, geniuses prevent them.
+ - As our circle of knowledge expands, so does the circumference of darkness surrounding it.
+ - Adversity introduces a man to himself.
+ - Thinking is hard work; that’s why so few do it.
+ - What counts can’t always be counted; what can be counted doesn’t always count.
+ - Try first to be a man of value; success will follow.
+ - Never lose a holy curiosity. Try not to become a man of success but rather try to become a man of value. He is considered successful in our day who gets more out of life than he puts in. But a man of value will give more than he receives.
+ - Compassionate people are geniuses in the art of living, more necessary to the dignity, security, and joy of humanity than the discoverers of knowledge.
+ - I never commit to memory anything that can easily be looked up in a book.
+ - A bartender is just a pharmacist with a limited inventory.
+ - The only thing more dangerous than ignorance is arrogance.
+ - Do not grow old, no matter how long you live. Never cease to stand like curious children before the Great Mystery into which we were born.
+ - Although I am a typical loner in my daily life, my awareness of belonging to the invisible community of those who strive for truth, beauty, and justice has prevented me from feelings of isolation.
+ - Now he has departed from this strange world a little ahead of me. That means nothing. People like us, who believe in physics, know that the distinction between past, present, and future is only a stubbornly persistent illusion.
+ - If I had an hour to solve a problem and my life depended on the solution, I would spend the first 55 minutes determining the proper question to ask, for once I know the proper question, I could solve the problem in less than five minutes.
+ - Am I, or the others crazy?
+ - I am neither especially clever nor especially gifted. I am only very, very curious.
+ - Knowledge and ego are directly related. the less knowledge, the greater the ego.
+ - A problem defined, is a problem half solved.
+ - There is no vaccine against stupidity.
+ - The world is in greater peril from those who tolerate or encourage evil than from those who actually commit it.
+ - Nationalism, on my opinion, is nothing more than an idealistic rationalization for militarism and aggression.
+ - Nothing happens until something moves. When something vibrates, the electrons of the entire universe resonate with it. Everything is connected.
+ - At least once a day, allow yourself the freedom to think and dream for yourself.
+ - You can’t use an old map to explore a new world.
+ - Never lose a holy curiosity.
+ - The harmony of natural law reveals an Intelligence of such superiority that, compared with it, all the systematic thinking and acting of human beings is an utterly insignificant reflection.
+ - Nationalism is an infantile disease. It is the measles of mankind.
+ - If you feed your mind as often as you feed your stomach, then you’ll never have to worry about feeding your stomach or a roof over your head or clothes on your back.
+ - Politics is more difficult than physics.
+ - Nothing truly valuable arises from ambition or from a mere sense of duty; it stems rather from love and devotion towards men and towards objective things.
+ - Why is it that no one understands me and everybody likes me.
+ - You have to color outside the lines once in a while if you want to make your life a masterpiece.
+ - Don’t listen to the person who has the answers; listen to the person who has the questions.
+ - Time does not exist – we invented it.
+ - Relativity applies to physics, not ethics.
+ - We owe a lot to the Indians, who taught us how to count, without which no worthwhile scientific discovery could have been made.
+ - Concerning matter, we have been all wrong. What we have called matter is energy, whose vibration has been so lowered as to be perceptible to the senses. There is no matter.
+ - If I could do it all again, I’d be a plumber.
+ - The more I study science, the more I believe in God.
+ - The pursuit of truth and beauty is a sphere of activity in which we are permitted to remain children all our lives.
+ - True knowledge comes with deep understanding of a topic and its inner workings.
+ - Physics is essentially an intuitive and concrete science. Mathematics is only a means for expressing the laws that govern phenomena.
+ - I see a pattern, but my imagination cannot picture the maker of that pattern. I see a clock, but I cannot envision the clockmaker. The human mind is unable to conceive of the four dimensions, so how can it conceive of a God, before whom a thousand years and a thousand dimensions are as one?
+ - Time and space are not conditions of existence, time and space is a model for thinking.
+ - The most precious things in life are not those you get for money.
+ - Outer changes always begin with an inner change of attitude.
+ - Many of the things you can count, don’t count. Many of the things you can’t count, really count.
+ - You cannot prepare for war and peace at the same time.
+ - Everything is determined, the beginning as well as the end, by forces over which we have no control. It is determined for the insect, as well as for the star. Human beings, vegetables, or cosmic dust, we all dance to a mysterious tune, intoned in the distance by an invisible piper.
+ - We act as though comfort and luxury were the chief requirements of life. All that we need to make us happy is something to be enthusiastic about.
+ - Cherish the questions, for the answers keep changing.
+ - No worthy problem is ever solved within the plane of its original conception.
+ - Success comes from curiosity, concentration, perseverance and self criticism.
+ - Everything you can imagine, nature has already created.
+ - We have to do the best we can. This is our sacred human responsibility.
+ - All I want to do is learn to think like God. All the rest is just details.
+ - Rejoice with your family in the beautiful land of life.
+ - If honey bees become extinct, human society will follow in four years.
+ - The formulation of the problem is often more essential than its solution, which may be merely a matter of mathematical or experimental skill.
+ - Incompetence is the true crisis.
+ - There comes a point in your life when you need to stop reading other people’s books and write your own.
+ - You cannot solve current problems with current thinking. Current problems are the result of current thinking.
+ - For an idea that does not first seem insane, there is no hope.
+ - Life isn’t worth living, unless it is lived for someone else.
+ - When forced to summarize the general theory of relativity in one sentence: Time and space and gravitation have no separate existence from matter.
+ - Astrology is a science in itself and contains an illuminating body of knowledge. It taught me many things and I am greatly indebted to it.
+ - Most people see what is, and never see what can be.
+ - You do not really understand something unless you can explain it to your grandmother.
+ - Striving for social justice is the most valuable thing to do in life.
+ - The majority of the stupid is invincible and guaranteed for all time. The terror of their tyranny, however, is alleviated by their lack of consistency.
+ - If the bees disappear, man would have only four years of life left.
+ - To raise new questions, new possibilities, to regard old problems from a new angle, requires creative imagination and marks real advance in science.
+ - He to whom this emotion is a stranger, who can no longer pause to wonder and stand rapt in awe, is as good as dead: his eyes are closed.
+ - One thing I have learned in a long life: that all our science, measured against reality, is primitive and childlike – and yet it is the most precious thing we have.
+ - When you are courting a nice girl an hour seems like a second. When you sit on a red-hot cinder a second seems like an hour. That’s relativity.
+ - Nuclear power is one hell of a way to boil water.
+ - There is only one road to human greatness: through the school of hard knocks.
+ - Excellence is doing a common thing in an uncommon way.
+ - A hundred times every day I remind myself that my inner and outer life are based on the labors of others.
+ - Keep on sowing your seed, for you never know which will grow – perhaps it all will.
+ - Creativity is seeing what others see and thinking what no one else has ever thought.
+ - We must not only learn to tolerate our differences. We must welcome them as the richness and diversity which can lead to true intelligence.
+ - Nothing truly valuable can be achieved except by the unselfish cooperation of many individuals.
+ - A mathematical equation stands forever.
+ - Only a monomaniac gets anything done.
+ - A theory is something nobody believes, except the person who made it. An experiment is something everybody believes, except the person who made it.
+ - The special theory of relativity owes its origins to Maxwell’s equations of the electromagnetic field.
+ - My sense of god is my sense of wonder about the universe.
+ - If one day you have to choose between the world and love, remember this: If you choose the world you’ll be left without love, but if you choose love, with it you will conquer the world.
+ - Overpopulation in various countries has become a serious threat to the health of people and a grave obstacle to any attempt to organise peace on this planet.
+ - Solitude is painful when one is young, but delightful when one is more mature.
+ - The environment is everything that isn’t me.
+ - Intelligence is not the ability to store information, but to know where to find it.
+ - I know quite certainly that I myself have no special talent; curiosity, obsession and dogged endurance, combined with self-criticism, have brought me to my ideas.
+ - My only genius talent is inquisitiveness.
+ - A happy man is too satisfied with the present to dwell too much on the future.
+ - You can never solve a problem on the level on which it was created.
+ - If people are good only because they fear punishment, and hope for reward, then we are a sorry lot indeed.
+ - The hardest thing in the world to understand is the income tax.
+ - The only thing that interferes with my learning is my education.
+ - I don’t try to imagine a personal God; it suffices to stand in awe at the structure of the world, insofar as it allows our inadequate senses to appreciate it.
+ - The most incomprehensible thing about the world is that it is at all comprehensible.
+ - Truth is what stands the test of experience.
+ - Knowledge is realizing that the street is one way; wisdom is looking in both directions anyway.
+ - Live life to the fullest. You have to color outside the lines once in a while if you want to make your life a masterpiece. Laugh some every day. Keep growing, keep dreaming, keep following your heart. The important thing is not to stop questioning.
+ - The horizon of many people is a circle with a radius of zero. They call this their point of view.
+ - We are all very ignorant. What happens is that not all ignore the same things.
+ - Earth is the insane asylum of the universe.
+ - Most people stop looking when they find the proverbial needle in the haystack. I would continue looking to see if there were other needles.
+ - The greatest tragedy of human existence is the illusion of separateness.
+ - Chess holds its master in its own bonds, shackling the mind and brain so that the inner freedom of the very strongest must suffer.
+ - Our separation from each other is an optical illusion.
+ - I am not a genius, I am just curious. I ask many questions. and when the answer is simple, then God is answering.
+ - Women always worry about things that men forget; men always worry about things women remember.
+ - Past is dead Future is uncertain; Present is all you have, So eat, drink and live merry.
+ - Anger dwells only in the bosom of fools.
+ - If I can’t picture it, I can’t understand it.
+ - Without “ethical culture”, there is no salvation for humanity.
+ - The Bible is a great source of wisdom and consolation and should be read frequently.
+ - Know where to find the information and how to use it – That’s the secret of success.
+ - Vegetarian food leaves a deep impression on our nature. If the whole world adopts vegetarianism, it can change the destiny of humankind.
+ - I want to know what God thinks. The rest are details.
+ - It is better to believe than to disbelieve; in doing you bring everything to the realm of possibility.
+ - Every day I remind myself that my inner and outer life are based on the labors of other men, living and dead, and that I must exert myself in order to give in the same measure as I have received and am still receiving.
+ - It may be possible to fight intolerance, stupidity, and fanaticism separately, but when they come together there is no hope.
+ - Wisdom is not a product of schooling but of the lifelong attempt to acquire it.
+ - My mind is my laboratory.
+ - Nothing will benefit human health and increase the chances for survival of life on Earth as much as the evolution to a vegetarian diet.
+ - Experience is knowledge. All the rest is information.
+ - When I have one week to solve a seemingly impossible problem, I spend six days defining the problem. Then, the solution becomes obvious.
+ - It takes a touch of genius-and a lot of Courage-to move in the opposite direction.
+ - When a man is sufficiently motivated, discipline will take care of itself.
+ - A new idea comes suddenly and in a rather intuitive way, but intuition is nothing but the outcome of earlier intellectual experience.
+ - What a sad era when it is easier to smash an atom than a prejudice.
+ - The greatest scientists are artists as well.
+ - Problems cannot be solved by thinking within the framework in which the problems were created.
+ - The world is not threatened by evil people, but by those who allow evil to take place.
+ - Nature hides her secrets because of her essential loftiness, but not by means of ruse.
+ - To punish me for my contempt for authority, fate made me an authority myself.
+ - Where there is love, there is no imposition.
+ - Art is standing with one hand extended into the universe and one hand extended into the world, and letting ourselves be a conduit for passing energy.
+ - Understanding physics is child’s play when compared to understanding child’s play.
+ - The height of stupidity is most clearly demonstrated by the individual who ridicules something he knows nothing about.
+ - A great thought begins by seeing something differently, with a shift of the mind’s eye.
+ - Genius abhors consensus because when consensus is reached, thinking stops. Stop nodding your head.
+ - Marriage is but slavery made to appear civilized.
+ - Given the millions of billions of Earth-like planets, life elsewhere in the Universe without a doubt, does exist. In the vastness of the Universe we are not alone.
+ - Experts are just trained dogs.
+ - However rare true love may be, it is less so than true friendship.
+ - I live my daydreams in music I see my life in terms of music. I get most joy in life out of music.
+ - There is no place in this new kind of physics both for the field and matter, for the field is the only reality.
+ - The development of general ability for independent thinking and judgment should always be placed foremost, not the acquisition of special knowledge.
+ - I have little patience with scientists who take a board of wood, look for its thinnest part, and drill a great number of holes where drilling is easy.
+ - It occurred to me by intuition, and music was the driving force behind that intuition. My discovery was the result of musical perception.
+ - The thinking that got us to where we are is not the thinking that will get us to where we want to be.
+ - Our technology has surpassed our humanity.
+ - The monotony and solitude of a quiet life stimulates the creative mind.
+ - The grand aim of all science is to cover the greatest number of empirical facts by logical deduction from the smallest number of hypotheses or axioms.
+ - The equation for ego is: One over Knowledge.
+ - So long as there are men, there will be wars.
+ - Bureaucracy is the death of all sound work.
+ - After a certain high level of technical skill is achieved science and art tend to coalesce in aesthetics, plasticity, and form. The greatest scientists are artists as well.
+ - Work is the only thing that gives substance to life.
+ - Always do what’s right; this will gratify some and astonish the rest.
+ - It is easier to denature plutonium than to denature the evil spirit of man.
+ - If the bee disappeared off the surface of the globe, then man would have only four years of life left. No more bees, no more pollination, no more plants, no more animals, no more man.
+ - The unleashed power of the atom has changed everything save our modes of thinking and we thus drift toward unparalleled catastrophe.
+ - Physical concepts are free creations of the human mind, and are not, however it may seem, uniquely determined by the external world.
+ - Everyone sits in the prison of his own ideas; he must burst it open, and that in his youth, and so try to test his ideas on reality.
+ - Nature conceals her secrets because she is sublime, not because she is a trickster.
+ - I assert that the cosmic religious experience is the strongest and the noblest driving force behind scientific research.
+ - The conscientious objector is a revoultionary. On deciding to disobey the law he sacrifices his personal interests to the most important cause of working for the betterment of society.
+ - A country cannot simultaneously prepare and prevent war. I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones. The distinctions separating the social classes are false; in the last analysis they rest on force.
+ - The only way to escape the corruptible effect of praise is to go on working.
+ - It is entirely possible that behind the perception of our senses, worlds are hidden of which we are unaware.
+ - The economic anarchy of capitalist society as it exists today is, in my opinion, the real source of evil.
+ - I learned many years ago never to waste time trying to convince my colleagues.
+ - God is subtle but he is not malicious.
+ - Fear or stupidity has always been the basis of most human actions.
+ - It is every man’s obligation to put back into the world at least the equivalent of what he takes out of it.
+ - We are part of the whole which we call the universe, but it is an optical delusion of our mind that we think we are separate. This separateness is like a prison for us. Our job is to widen the circle of our compassion so we feel connected with all people and situations.
+ - God is clever, but not dishonest.
+ - It would be possible to describe everything scientifically, but it would make no sense; it would be without meaning, as if you described a Beethoven symphony as a variation of wave pressure.
+ - The intuitive mind is a sacred gift.
+ - The faster you go, the shorter you are.
+ - Jesus is too colossal for the pen of phrasemongers, however artful. No man can dispose of Christianity with a bon mot.
+ - Life is like a bicycle; keep moving on to maintain balance.
+ - The Universe is stranger than we imagine!
+ - The facts, although interesting, are irrelevant.
+ - If there is any religion that could respond to the needs of modern science, it would be Buddhism.
+ - What I see in Nature is a magnificent structure that we can comprehend only very imperfectly, and that must fill a thinking person with a feeling of humility. This is a genuinely religious feeling that has nothing to do with mysticism.
+ - Hail to the man who went through life always helping others, knowing no fear, and to whom aggressiveness and resentment are alien. Such is the stuff of which the great moral leaders are made.
+ - Technological progress is like an axe in the hands of a pathological criminal.
+ - One may say the eternal mystery of the world is its comprehensibility.
+ - We will never be able to solve the problems of tomorrow with the thinking of today.
+ - Don’t let the measurable drive out the relevant.
+ - The individual who has experienced solitude will not easily become a victim of mass suggestion.
+ - Gravity is a response to geometry.
+ - Anonymity is no excuse for stupidity.
+ - Pure logical thinking cannot yield us any knowledge of the empirical world. All knowledge of reality starts from experience and ends in it.
+ - You see, wire telegraph is a kind of a very, very long cat. You pull his tail in New York and his head is meowing in Los Angeles. Do you understand this? And radio operates exactly the same way: you send signals here, they receive them there. The only difference is that there is no cat.
+ - Example isn’t another way to teach, it is the only way to teach.
+ - When you examine the lives of the most influential people who have ever walked among us, you discover one thread that winds through them all. They have been aligned first with their spiritual nature and only then with their physical selves.
+ - It is a miracle that curiosity survives formal education.
+ - I have come to know the mutability of all human relationships and have learned to insulate myself against both heat and cold so that a temperature balance is fairly well assured.
+ - If my theory of relativity is proven successful, Germany will claim me as a German and France will declare me a citizen of the world. Should my theory prove untrue, France will say that I am a German, and Germany will declare that I am a Jew.
+ - Reason is intuition’s servant.
+ - What I value in life is quality rather then quantity.
+ - Even if you have to go through hell – go without hesitation.
+ - What I see in Nature is a grand design that we can understand only imperfectly, one with which a responsible person must look at with humility.
+ - Love brings much happiness, much more so than pining for someone brings pain.
+ - Every kind of peaceful cooperation among men is primarily based on mutual trust and only secondarily on institutions such as courts of justice and police.
+ - There’s no question dolphins are smarter than humans as they play more.
+ - We should take care not to make the intellect our god; it has, of course, powerful muscles, but no personality.
+ - I have made the Bhagwad Gita as the main source of my inspiration and guide for the purpose of scientific investigations and formation of my theories.
+ - Dostoevsky gives me more than any scientist, more than Gauss.
+ - Remember today, for it is the beginning of always. Today marks the start of a brave new future filled with all your dreams can hold. Think truly to the future and make those dreams come true.
+ - I’m more interested in the future than in the past, because the future is where I intend to live.
+ - Man usually avoids attributing cleverness to somebody else unless it is an enemy.
+ - If I had only known, I would have been a locksmith.
+ - The woman who follows the crowd will usually believe that I said this.
+ - Compound interest on debt was the banker’s greatest invention, to capture, and enslave, a productive society.
+ - The truth isn’t always a blinding light. Sometimes it’s a deep and dazzling darkness, that illuminates – and burns – just as surely.
+ - I now see the necessity of a beginning.
+ - All meaningful and lasting change starts first in your imagination and then works its way out. Imagination is more important than knowledge.
+ - I like to think the moon is there even if I am not looking at it.
+ - The idle man does not know what it is to enjoy rest.
+ - Time is what the clock says.
+ - The only way to escape the personal corruption of praise is to go on working. One is tempted to stop and listen to it. The only thing is to turn away and go on working. Work. There is nothing else.
+ - The world will not evolve past its current state of crisis by using the same thinking that created the situation.
+ - Hunger, love, pain, fear are some of those inner forces which rule the individual’s instinct for self preservation.
+ - Long hair minimizes the need for barbers; socks can be done without; one leather jacket solves the coat problem for many years; suspenders are superfluous.
+ - The pursuit of knowledge is more valuable than its possession.
+ - Joy and amazement of the beauty and grandeur of this world of which man can just form a faint notion...
+ - The field is the sole influence of the particle.
+ - Necessity is the mother of all invention.
+ - God reveals himself in the orderly harmony of what exists.
+ - Bear in mind that the wonderful things you learn in your schools are the work of many generations. All this is put in your hands as your inheritance in order that you may receive it, honor it, add to it, and one day faithfully hand it on to your children.
+ - Games are the most elevated form of investigation.
+ - Don’t dream of being a good person, be a human being is valuable and gives value to life.
+ - Matter is spirit reduced to point of visibility.
+ - If a man aspires towards a righteous life, his first act of abstinence is from injury to animals.
+ - Laws alone can not secure freedom of expression; in order that every man present his views without penalty there must be spirit of tolerance in the entire population.
+ - As long as I have any choice in the matter, I shall live only in a country where civil liberty, tolerance and equality of all citizens before the law prevail.
+ - You can’t blame gravity for falling in love.
+ - The supreme task of the physicist is to arrive at those universal elementary laws from which the cosmos can be built up by pure deduction. There is no logical path to these laws; only intuition, resting on sympathetic understanding of experience, can reach them.
+ - Put your hand on a hot stove for a minute and it seems like an hour. Sit with a pretty girl for an hour, and it seems like a minute.
+ - It is high time the ideal of success should be replaced with the ideal of service.
+ - Paper is to write things down that we need to remember. Our brains are used to think.
+ - Never underestimate your own ignorance.
+ - Then there are the fanatical atheists whose intolerance is of the same kind as the intolerance of the religious fanatics and comes from the same source.
+ - Smoke like a chimney, work like a horse, eat without thinking, go for a walk only in really pleasant company.
+ - I admit that thoughts influence the body.
+ - I want to go when I want. It is tasteless to prolong life artificially. I have done my share, it is time to go. I will do it elegantly.
+ - If one tries to navigate unknown waters one runs the risk of shipwreck.
+ - Combinatory play seems to be the essential feature in productive thought.
+ - I am happy because I want nothing from anyone. I do not care for money. Decorations, titles or distinctions mean nothing to me. I do not crave praise. The only thing that gives me pleasure, apart from my work, my violin and my sailboat, is the appreciation of my fellow workers.
+ - Only morality in our actions can give beauty and dignity to life.
+ - When a blind beetle crawls over the surface of the globe, he doesn’t realize that the track he has covered is curved. I was lucky enough to have spotted it.
+ - The tragedy of life is what dies inside a man while he lives.
+ - The true value of a human being can be found in the degree to which he has attained liberation from the self.
+ - Without changing our pattern of thought, we will not be able to solve the problems we created with our current patterns of thought.
+ - Imagination without knowledge may create beautiful things, knowledge without imagination can create only perfect ones.
+ - Be a loner. That gives you time to wonder...
+ - Indeed, it is not intellect, but intuition which advances humanity. Intuition tells man his purpose in this life.
+ - New frameworks are like climbing a mountain – the larger view encompasses rather than rejects the more restricted view.
+ - I shall never believe that God plays dice with the world.
+ - One lives one’s life under constant tension, until it’s time to go for good.
+ - Man owes his strength in the struggle for existence to the fact that he is a social animal.
+ - One who scorns the power of intuition will never rise above the ranks of journeyman calculator.
+ - I thought of that while riding my bicycle.
+ - The religion of the future will be cosmic religion. It will transcend personal God and avoid dogma and theology.
+ - All that is valuable in human society depends upon the opportunity for development accorded the individual.
+ - Sometimes one pays most for the things one gets for nothing.
+ - Stupidity is a personal achievement which transcends national boundaries.
+ - Our lives will be measured by what we do for others.
+ - I’m not an atheist. I don’t think I can call myself a pantheist. The problem involved is too vast for our limited minds. We are in the position of a little child entering a huge library filled with books in many languages. The child knows someone must have written those books.
+ - Women marry men hoping they will change. Men marry women hoping they will not.
+ - I have repeatedly said that in my opinion the idea of a personal God is a childlike one.
+ - One should respect an honest person even if he expresses opinions differing from one’s own.
+ - The more I learn of physics, the more I am drawn to metaphysics.
+ - Everybody should be ashamed who uses the wonders of science and engineering without thinking and having mentally realized not more of it than a cow realizes of the botany of the plants which it eats with pleasure.
+ - Fortunate Newton, happy childhood of science. Nature to him was an open book. He stands before us strong, certain, and alone.
+ - What you can’t imagine, you can’t discover.
+ - All conditions and all circumstances in our lives are a result of a certain level of thinking. If we want to change the conditions and circumstances, we have to change the level of thinking that is responsible for it.
+ - I am not only a pacifist but a militant pacifist. I am willing to fight for peace. Nothing will end war unless the people themselves refuse to go to war.
+ - To stimulate creativity one must develop childlike inclination for play and the childlike desire for recognition.
+ - Growth comes through analogy; through seeing how things connect, rather than only seeing how they might be different.
+ - Possessions, outward success, publicity, luxury – to me these have always been contemptible. I believe that a simple and unassuming manner of life is best for everyone, best for both the body and the mind.
+ - A theory can be proved by experiment; but no path leads from experiment to the birth of a theory.
+ - From the viewpoint of a Jesuit priest I am, of course, and have always been an atheist.
+ - The pursuit of knowledge for its own sake, an almost fanatical love of justice and the desire for personal independence – these are the features of the Jewish tradition which make me thank my stars that I belong to it.
+ - I think that only daring speculation can lead us further and not accumulation of facts.
+ - A perfection of means, and confusion of aims, seems to be our main problem.
+ - I would teach peace rather than war, love rather than hate.
+ - Nothing will end war unless the people refuse to go to war.
+ - It is strange to be known so universally and yet to be so lonely.
+ - Curiosity is its own reason.
+ - The strength of the Constitution lies entirely in the determination of each citizen to defend it. Only if every single citizen feels duty bound to do his share in this defense are the constitutional rights secure.
+ - Morality is of the highest importance – but for us, not for God.
+ - I asked myself childish questions and proceeded to answer them.
+ - Before God we are all equally wise – and equally foolish.
+ - The greatest activity of which man is capable: Opening up yet another fragment of the frontier of beauty.
+ - One is born into a herd of buffaloes and must be glad if one is not trampled under foot before one’s time.
+ - The wing structure of the hornet, in relation to its weight, is not suitable for flight, but he does not know this and flies anyway.
+ - God gave me the stubbornness of a mule and a fairly keen scent.
+ - The ancients knew something, which we seem to have forgotten.
+ - Watch the stars, and from them learn.
+ - Galileo – the father of modern physics – indeed of modern science.
+ - The minority, the ruling class at present, has the schools and press, usually the Church as well, under its thumb. This enables it to organize and sway the emotions of the masses, and make its tool of them.
+ - Turkish soldiers are very brave. They love their homeland and they do not hesitate to give their lives for it if necessary.
+ - Racism is America’s greatest disease, racism is a disease of the white man.
+
+500 quotes

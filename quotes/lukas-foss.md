@@ -1,0 +1,33 @@
+ - Personality is essential. It is in every work of art. When someone walks on stage for a performance and has charisma, everyone is convinced that he has personality. I find that charisma is merely a form of showmanship. Movie stars usually have it. A politician has to have it.
+ - Most artists have experienced the creative block. We get stuck in our work. We beat our head against the wall: nothing. Sometimes, it is because we are trying something at the wrong time.
+ - In the nineteenth century the more grandiose word inspiration began to replace the word idea in the arts.
+ - Great music does not just make me feel good. It means something. It makes us understand. It makes us happy.
+ - Composing is like making love to the future.
+ - I don’t dare postulate about science, but I know that it takes both emotion and intellect in order for art to happen.
+ - It is the element I miss in electronic music – no performance, no loving immersion. Maybe that is why I was never particularly drawn to electronic music.
+ - There is another interesting paradox here: by immersing ourselves in what we love, we find ourselves. We do not lose ourselves. One does not lose one’s identity by falling in love.
+ - Why do we pigeonhole and label an artist? It is a sure way of missing the important, the contradictory, the things that make him or her unique.
+ - Anybody can put things together that belong together. to put things together that don’t go together, and make it work, that takes genius like Mozart’s. Yet he is presented in the play Amadeus as a kind of silly boy whom the gods loved.
+ - To come to grips with creativity, I must ask creative, adventurous questions – the kind which, in all likelihood, cannot be answered.
+ - I still do not know where the notes will come from when I accept a commission for a new work.
+ - Yes, influences are enriching, and they can be found in every work of art, even the most original.
+ - That is why the analogy of stealing does not work. With a thief, we want to know how much money he stole, and from whom. With the artist it is not how much he took and from whom, but what he did with it.
+ - The creative act is like writing a letter. A letter is a project; you don’t sit down to write a letter unless you know what you want to say and to whom you want to say it.
+ - Truth is a big concept.
+ - Truth implies meaning.
+ - The best way to investigate the elusive phenomenon called the creative process may well be to target all the misconceptions, to explain what the creative process is not.
+ - Most people think an artist tries to be original, but originality is the last thing that develops in the artist.
+ - When I went back to visit my native Berlin after World War II, I noticed that the only thing I really remembered from my childhood Berlin days is the shoe store.
+ - The fact that Stravinsky used the classics as a major influence is obvious. What is interesting is how he used them, how he turned Bach into Stravinsky.
+ - As I sit down and start to work, I often panic. I stare at the empty piece of music paper. How can I say that my piece will be ready for performance next January when I do not have a recipe for making it happen?
+ - My students frequently ask what their next project should be. My advice: immerse yourself in the music you love and you will find what you want to do; you will discover your next project.
+ - If one uses music that one does not really love, then one will not succeed in making it one’s own.
+ - Mozart wrote so many works in his thirty-five years that it would take a lifetime just to write out the notes. We literally do not know how he did it.
+ - Any creator owes a debt to past creation.
+ - Since age seven, I’ve been composing and have never stopped composing, yet, the creative process is as elusive to me as it has ever been.
+ - To understand Mozart’s contradictory qualities would indeed be to understand genius.
+ - It is obvious that anything a scientist discovers or invents is based on previous discoveries and inventions. The same applies to the arts.
+ - To me, Mozart is our Shakespeare, the one who wrote the most dramatic, psychologically most baffling music. He combined ideas that no one else would have thought of putting together.
+ - I strongly suggest that we play down basics like who influenced whom, and instead study the way the influence is transformed, in other words: how the artist made it his own.
+
+31 quotes

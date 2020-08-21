@@ -1,0 +1,76 @@
+ - Sometimes, reaching out and taking someone’s hand is the beginning of a journey. At other times, it is allowing another to take yours.
+ - Whenever you read a good book, somewhere in the world a door opens to allow in more light.
+ - A woman is human. She is not better, wiser, stronger, more intelligent, more creative, or more responsible than a man. Likewise, she is never less. Equality is a given. A woman is human.
+ - The nutcracker sits under the holiday tree, a guardian of childhood stories. Feed him walnuts and he will crack open a tale...
+ - The world is shaped by two things – stories told and the memories they leave behind.
+ - Close your eyes and turn your face into the wind. Feel it sweep along your skin in an invisible ocean of exultation. Suddenly, you know you are alive.
+ - Not every puzzle is intended to be solved. Some are in place to test your limits. Others are, in fact, not puzzles at all...
+ - Luck is not as random as you think. Before that lottery ticket won the jackpot, someone had to buy it.
+ - The master of the garden is the one who waters it, trims the branches, plants the seeds, and pulls the weeds. If you merely stroll through the garden, you are but an acolyte.
+ - Have you ever seen the dawn? Not a dawn groggy with lack of sleep or hectic with mindless obligations and you about to rush off on an early adventure or business, but full of deep silence and absolute clarity of perception? A dawning which you truly observe, degree by degree. It is the most amazing moment of birth. And more than anything it can spur you to action. Have a burning day.
+ - Would you like to know your future? If your answer is yes, think again. Not knowing is the greatest life motivator. So enjoy, endure, survive each moment as it comes to you in its proper sequence – a surprise.
+ - If Music is a Place – then Jazz is the City, Folk is the Wilderness, Rock is the Road, Classical is a Temple.
+ - To every rule there is an exception – and an idiot ready to demonstrate it. Don’t be the one!
+ - A boomerang returns back to the person who throws it.
+ - Dangling a carrot in front of a donkey – or anyone else for that matter – is not nice, and not fair, unless you eventually plan to give it up to them.
+ - Whenever you go on a trip to visit foreign lands or distant places, remember that they are all someone’s home and backyard.
+ - When you reach for the stars, you are reaching for the farthest thing out there. When you reach deep into yourself, it is the same thing, but in the opposite direction. If you reach in both directions, you will have spanned the universe.
+ - When tough times come, it is particularly important to offset them with much gentle softness. Be a pillow.
+ - Was it you or I who stumbled first? It does not matter. The one of us who finds the strength to get up first, must help the other.
+ - Being smart as a whip includes knowing when not to crack it.
+ - Sometimes, being true to yourself means changing your mind. Self changes, and you follow.
+ - Instructions are never included. They vary with the strength of your ability to see, the measure of your selective blindness, the limits of your mercy, and the intensity of your desire.
+ - Don’t let a loud few determine the nature of the sound. It makes for poor harmony and diminishes the song.
+ - Use this day to do something daring, extraordinary and unlike yourself. Take a chance and shape a different pattern in your personal cloud of probability!
+ - Patience is not a virtue. It is an achievement.
+ - Some people prefer eating dessert to the main course. These people have never been really hungry.
+ - Respect the young and chastise your elders. It’s about time the world was set aright.
+ - Listen to the trees as they sway in the wind. Their leaves are telling secrets. Their bark sings songs of olden days as it grows around the trunks. And their roots give names to all things. Their language has been lost. But not the gestures.
+ - A fine glass vase goes from treasure to trash, the moment it is broken. Fortunately, something else happens to you and me. Pick up your pieces. Then, help me gather mine.
+ - Desire is like fog on a bathroom mirror – its presence incites you to wipe the mirror, and see yourself clearly again.
+ - In the kingdom of glass everything is transparent, and there is no place to hide a dark heart.
+ - Never look directly at the sun. Instead, look at the sunflower.
+ - Q: Why do I love thee, O Night? A: Because you know I will never answer.
+ - Why does every road eventually narrow into a point at the horizon? Because that’s where the point lies.
+ - I’ll tell you a secret. Old storytellers never die. They disappear into their own story.
+ - One true king knew when to step aside and give up the reins of power – to remove his crown and relinquish his kingdom – all for the sake of glimpsing, just once in a lifetime, the face of a holy child. He was the Fourth to follow the Star. His gift was a secret. The rest of his journey is unknown.
+ - Each letter of the alphabet is a steadfast loyal soldier in a great army of words, sentences, paragraphs, and stories. One letter falls, and the entire language falters.
+ - The only thing faster than the speed of thought is the speed of forgetfulness. Good thing we have other people to help us remember.
+ - Love – not dim and blind but so far-seeing that it can glimpse around corners, around bends and twists and illusion; instead of overlooking faults love sees through them to the secret inside.
+ - It is interesting that we call something good a “dream,” but being called a “dreamer” is somewhat of a putdown. Without dreamers, no dream would ever be given reality, and we would live in a very small and shallow world. If you are a secret dreamer, it’s your time to announce yourself.
+ - If you have never changed your mind about some fundamental tenet of your belief, if you have never questioned the basics, and if you have no wish to do so, then you are likely ignorant.
+ - It’s easier for a rich man to ride that camel through the eye of a needle directly into the Kingdom of Heaven, than for some of us to give up our cell phone.
+ - Worry is the secret weapon perpetrated upon us by the dark forces of the world that lurk in the shape of fear, uncertainty, confusion, and loss. We, on the other hand, have our own secret weapon against these incorporeal fiends. It is laughter.
+ - The great miraculous bell of translucent ice is suspended in mid-air. It rings to announce endings and beginnings. And it rings because there is fresh promise and wonder in the skies.
+ - Withhold a smile only when the smile can hurt someone. Otherwise, let it bloom forth in a riot.
+ - Stick around long enough to be someone’s friend. Because true friendship, once recognized, in its essence is effortless.
+ - The desert is a place of bones, where the innards are turned out, to desiccate into dust.
+ - The pyramid shape is said to hold many secrets and amazing properties. One of them is a sense of wonder.
+ - Neither sugar nor salt tastes particularly good by itself. Each is at its best when used to season other things. Love is the same way. Use it to “season” people.
+ - Strange dreams are better than no dreams at all.
+ - I am happy. I have something to accomplish, create, and achieve. I am happy.
+ - Imagine a delicious glass of summer iced tea. Take a long cool sip. Listen to the ice crackle and clink. Is the glass part full or part empty? Take another sip. And now?
+ - Passion and courtesy are two polar opposite traits that serve to balance each other into a full-blooded whole. Without socialization, passion is a crude barbarian, and without passion, the elegant and polite are dead. Allow both passion and courtesy into your life in equal measure, and be complete.
+ - The ocean is a place of skin, rich outer membranes hiding thick juicy insides, laden with the soup of being.
+ - The weight of the world is a trifle, if we all put our two fingers under it and try to lift together.
+ - A tornado of thought is unleashed after each new insight. This in turn results in an earthquake of assumptions. These are natural disasters that re-shape the spirit.
+ - There’s a difference between playing and playing games. The former is an act of joy, the latter – an act.
+ - One sin seldom mentioned is that of killing time.
+ - In the desert, the only god is a well.
+ - In the plains the grass grows tall, since there is no one to cut it. There is no one to water it either.
+ - The heartland lies where the heart longs to be. Sometimes it takes a lifetime to find the true place to plant it.
+ - Creativity is not so much a boundless well, but an all-you-can-eat buffet of elements for your creative endeavor. Eventually you’ve eaten your fill, and it’s time to digest and then make something. But at some point, it will be time to return to the restaurant.
+ - Is it folly to believe in something that is intangible? After all, some of the greatest intangibles are Love, Hope, and Wonder. Another is Deity. The choice to be a fool is yours.
+ - Karma has been a pop culture term for ages. But really, what the heck is it?
+ - Money is like fire. It is only good when there’s just the right amount of it, when it’s properly contained and under your control.
+ - A great ancient poet was blind. A great classical composer was deaf. Many of us are dumb. What have we to show for it?
+ - Unlike a fountain that circulates the same water in an enclosed, perpetually recycling system, a human being circulates thoughts in an unlimited reservoir of self. Don’t limit yourself to being a mere fountain when you contain an ocean.
+ - Every story needs to be worth telling.
+ - A wise person is like a smoothly polished rock: it takes time to become either.
+ - What is blood but the wine of life?
+ - Don’t be afraid of the dark. Shine!
+ - Freedom is not a license to act but a license to exercise free choices in any given situation.
+ - There is only Love – and Stories. All else is but a shadow dream.
+ - Yawns are not the only infectious things out there besides germs. Giggles can spread from person to person. So can blushing. But maybe the most powerful infectious thing is the act of speaking the truth.
+
+74 quotes

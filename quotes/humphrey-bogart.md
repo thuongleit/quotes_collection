@@ -1,0 +1,40 @@
+ - The problem with the world is that everyone is a few drinks behind.
+ - The only thing money is good for is to buy your freedom.
+ - Things are never so bad they can’t be made worse.
+ - I let my drinking do the talking.
+ - Rick: Here’s looking at you, kid.
+ - I stick my neck out for nobody.
+ - I always cry at weddings, especially my own.
+ - I gave up drinking once – it was the worst afternoon of my entire life.
+ - The only good reason to have money is this: so that you can tell any SOB in the world to go to hell.
+ - The only way to find the best actor would be to let everybody play Hamlet and let the best man win.
+ - Physically, I’m not tough. I may think tough. I would say I’m kinda tough and calloused inside. I could use a foot more in height and fifty more pounds and fifteen years off my age and then God help all you bastards.
+ - Ugarte: You despise me, don’t you? Rick Blaine: If I gave you any thought I probably would.
+ - Ah, nuts. I’m an actor. I just do what comes naturally.
+ - Capt. Renault: What on Earth brought you to Casablanca? Rick Blaine: My health, I came to Casablanca for the waters. Capt. Renault: The waters? What waters? We’re in the desert! Rick Blaine: I was misinformed.
+ - On the House Un-American Activities Committee: They’ll nail anyone who ever scratched his ass during the National Anthem.
+ - There are certain sections of New York, Major, that I wouldn’t advise you to try to invade.
+ - You’re not a star until they can spell your name in Karachi.
+ - Sinatra’s idea of paradise is a place where there are plenty of women and no newspapermen. He doesn’t know it, but he’d be better off if it were the other way around.
+ - Everybody has something to conceal.
+ - I’m not good-looking. I used to be, but not anymore. Not like Robert Taylor. What I have got is I have character in my face. It’s taken an awful lot of late nights and drinking to put it there. When I go to work in a picture, I say, ‘Don’t take the lines out of my face. Leave them there.’
+ - Unless you really understand the water, and understand the reason for being on it, and understand the love of sailing and the feeling of quietness and solitude, you don’t really belong on a boat anyway. I think Hemingway said one time that the sea is the last free place on earth.
+ - Ain’t nothing a man can’t do if he believes in himself.
+ - There is more to talking than just words.
+ - Such a lot of guns around town and so few brains!
+ - If a face like Ingrid Bergman’s looks at you as though you’re adorable, everybody does. You don’t have to act very much.
+ - People who don’t drink are afraid of revealing themselves.
+ - It is at least worth arguing that there is a modicum of the creative novelist in all of us, and that this absorption with how men get out of difficulties, single-handedly and alone if possible, is the stuff of which we weave the warp and woof of our own better dramatic imaginings.
+ - An actor needs something to stabilize his personality, something to nail down what he really is, not what he is currently pretending to be.
+ - All you owe the public is a good performance.
+ - I hate funerals. They aren’t for the guy who’s dead. They’re for the guys who are left alive and enjoy mourning.
+ - The only reason to make a million dollars in this business is to tell some fat producer to go to hell.
+ - There never seems to be any trouble brewing around a bar until a woman puts that high heel over the brass rail. Don’t ask me why, but somehow women at bars seem to create trouble among men.
+ - Errol Flynn and I are the only ones left who do any good old hell raising.
+ - Acting is experience with something sweet behind it.
+ - I don’t approve of the John Waynes and the Gary Coopers saying “Shucks, I ain’t no actor – I’m just a bridge builder or a gas station attendant.” If they aren’t actors, what the hell are they getting paid for? I have respect for my profession. I worked hard at it.
+ - Awards are meaningless for actors, unless they all play the same part.
+ - I don’t hurt the industry. The industry hurts itself, by making so many lousy movies – as if General Motors deliberately put out a bad car.
+ - I made more lousy pictures than any actor in history.
+
+38 quotes

@@ -1,0 +1,31 @@
+ - I only see the faults, flaws, the imperfections. That attracts me.
+ - People have started wasting fashion.
+ - Start copying what you love. Copy copy copy copy. At the end of the copy you will find your self.
+ - I think perfection is ugly. Somewhere in the things humans make, I want to see scars, failure, disorder, distortion.
+ - Clothing doesn’t lie, it shows everything.
+ - Black is modest and arrogant at the same time. Black is lazy and easy – but mysterious. But above all black says this: “I don’t bother you – don’t bother me”.
+ - You can say that designing is quite easy; the difficulty lies in finding a new way to explore beauty.
+ - A beautiful flower does not exist. There’s only a moment when a flower looks beautiful.
+ - With my eyes turned to the past, I walk backwards into the future.
+ - Colour disturbs people. I am confident in black, not in light. This dark side of life is attractive to me forever and from the beginning. I am a lazy designer when it comes to colour.
+ - To be modern is to tear the soul out of every thing.
+ - Adidas is a very personal inspiration to me. It has enriched my creative life. It’s an exchange between different cultures, different ideas, and most of all, it is teamwork.
+ - Dirty, stained, withered, broken things seem beautiful to me.
+ - I want to achieve anti-fashion through fashion. That’s why I’m always heading in my own direction, in parallel to fashion.
+ - I don’t think we should try to make space our own. I believe that as modern people we should live in mobility. We should always be moving.
+ - Fashion cannot make you sexy. Experience makes you sexy. Imagination makes people sexy. You have to train yourself, you have to study, and you have to live your life.
+ - I always want to have a new challenge involved. I need to put myself to the test, and if I make mistakes, it doesn’t matter. What matters to me, instead, is making my dreams come true and putting them on display.
+ - Beautiful things are disappearing every day.
+ - My role in all of this is very simple. I make clothing like armor. My clothing protects you from unwelcome eyes.
+ - I feel like I have become a living fossil in the fashion world. Without even noticing it, in my own collection I have moved away from the street style.
+ - If you feel strongly about someone, go up to them. Pursue what you want in life. Why be shy about something like that?
+ - A pair of brilliantly cut cotton trousers can be more beautiful than a gorgeous silk gown...
+ - Fashion is only complete when it is worn by ordinary people who exist now, managing their lives, loving and grieving.
+ - The more we possess, the more distant we grow from God.
+ - The best moments in my life are just before going to bed. Those are my happiest moments.
+ - There is also a schedule to fashion – the deadline is always set. So maybe the fashion business is a good business for me in that way because I’m basically lazy, man.
+ - Just listen to the material. What is it going to say? Just wait. Probably the material will tell you something.
+ - I’m going to create a very strong scent which can kill a boy!
+ - I have no imagination about holidays, vacations, or retiring life. I can’t imagine about those things.
+
+29 quotes

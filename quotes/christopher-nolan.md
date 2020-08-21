@@ -1,0 +1,80 @@
+ - Why do we Fall? So we can learn to pick ourselves back up.
+ - A hero can be anyone, even a man doing something as simple and reassuring as putting a coat on a young boy’s shoulders to let him know the world hadn’t ended.
+ - A camera is a camera, a shot is a shot, how you tell the story is the main thing.
+ - You’re never going to learn something as profoundly as when it’s purely out of curiosity.
+ - Every great story deserves a great ending.
+ - I like films that continue to spin your head in all sorts of different directions after you’ve seen them.
+ - You musn’t be afraid to dream a little bigger, darling.
+ - Every film should have its own world, a logic and feel to it that expands beyond the exact image that the audience is seeing.
+ - I think there are advantages to different scales of filmmaking. You wouldn’t want to do just one thing.
+ - I think audiences get too comfortable and familiar in today’s movies. They believe everything they’re hearing and seeing. I like to shake that up.
+ - If you’re going to perform inception, you need imagination. You need the simplest version of the idea-the one that will grow naturally in the subject’s mind. Subtle art.
+ - One of the things you do as a writer and as a filmmaker is grasp for resonant symbols and imagery without necessarily fully understanding it yourself.
+ - People want to see something that shows them you can do what you say. That’s the trick.
+ - I just love photographing things and putting them together to tell a story.
+ - We all wake up in the morning wanting to live our lives the way we know we should. But we usually don’t, in small ways. That’s what makes a character like Batman so fascinating. He plays out our conflicts on a much larger scale.
+ - I’ve been fascinated by dreams my whole life, since I was a kid, and I think the relationship between movies and dreams is something that’s always interested me.
+ - When you play a videogame, you could be a completely different person than you are in the real world, certain aspects of the way your brain works can be leveraged for something you could never do in the real world.
+ - My approach with actors is to try and give them whatever it is they need from me. Direction to me is about listening and responding and realizing how much they need to know from me and how much they have figured out for themselves, really.
+ - I will miss the Batman. I like to think that he’ll miss me, but he’s never been particularly sentimental.
+ - I try to be as efficient as possible because in my process, I think that actually helps the work. I like having the pressure of time and money and really trying to stick to the parameters we’ve been given.
+ - I never considered myself a lucky person. I’m the most extraordinary pessimist. I truly am.
+ - I like films where the music and the sound design, at times, are almost indistinguishable.
+ - I’ve been interested in dreams since I as a kid and I’ve wanted to do a film about them for a long time.
+ - The only job that was ever of interest to me other than filmmaking is architecture.
+ - I realized that if you’re trying to reach an audience, being as subjective as possible and really trying to write from something genuine is the way to go. Really it’s mostly from my own process, my own experience.
+ - Sometime, when you start thinking too much what an audience is going to think, when you’re too self-conscious about it, you make mistakes.
+ - Superheroes fill a gap in the pop culture psyche, similar to the role of Greek mythology. There isn’t really anything else that does the job in modern terms. For me, Batman is the one that can most clearly be taken seriously.
+ - To be honest, I don’t enjoy watching movies much when I’m working. They tend to fall apart on me a bit.
+ - I don’t particularly enjoy watching films in 3D because I think that a well-shot and well-projected film has a very three-dimensional quality to it, so I’m somewhat sceptical of the technology.
+ - I’ve done really well so far in my career by trusting the audience to be as dissatisfied with convention as I am, as a film-goer. You want to go see a film that surprises you in some way.
+ - Movie logistics never really allow you to do anything but shoot the way the budget dictates.
+ - When you’re dealing with the world of dreams, the psyche, and potential of a human mind, there has to be emotional stakes. You have to deal with issues of memory and desire.
+ - The term ‘genre’ eventually becomes pejorative because you’re referring to something that’s so codified and ritualised that it ceases to have the power and meaning it had when it first started.
+ - There’s very few directors I think in this industry that would pitch to a studio that they wanted to do a multi-layered almost at times existential high action, high drama surreal film that’s sort of locked in his mind. And then have an opportunity to do that.
+ - I have always been a huge fan of Ridley Scott and certainly when I was a kid. ‘Alien,’ ‘Blade Runner’ just blew me away because they created these extraordinary worlds that were just completely immersive. I was also an enormous Stanley Kubrick fan for similar reasons.
+ - Film is the best way to capture an image and project that image. It just is, hands down.
+ - For me, Batman is the one that can most clearly be taken seriously. He’s not from another planet, or filled with radioactive gunk. I mean, Superman is essentially a god, but Batman is more like Hercules: he’s a human being, very flawed, and bridges the divide.
+ - Well, you always discover a lot in the editing room. Particularly the action, because you have to over-shoot a lot and shoot an enormous amount of material because many of the sequences have to be discovered in the editing and manipulation of it.
+ - By the time I was 10 or 11, I knew I wanted to make films.
+ - In Hollywood there’s a great openness, almost a voracious appetite for new people. In England there’s a great suspicion of the new. In cultural terms, that can be a good thing, but when you’re trying to break into the film industry, it’s definitely a bad thing.
+ - I’ve always believed that if you want to really try and make a great film, not a good film, but a great film, you have to take a lot of risks.
+ - You always have to be very aware that the audience is extremely ruthless in its demand for newness, novelty and freshness.
+ - The real truth of that is that much as you want to believe that it’s you being on top of everything, you’re actually relying massively on the people around you.
+ - We shouldn’t be chasing other movies, but stay true to the tone of Man of Steel.
+ - My most enjoyable movie going experiences have always been going to a movie theater, sitting there and the lights go down and a film comes on the screen that you don’t know everything about, and you don’t know every plot turn and every character movement that’s going to happen.
+ - Revenge is a particularly interesting concept, especially the notion of whether or not it exists outside of just an abstract idea.
+ - I remember the initial genesis quite clearly. My interest in dreams comes from this notion of realizing that when you dream you create the world that you are perceiving, and I thought that feedback loop was pretty amazing.
+ - I made ‘Batman’ the way I made every other film, and I’ve done it to my own satisfaction – because the film, truly, is exactly the way I wanted it to be.
+ - I think there’s a vague sense out there that movies are becoming more and more unreal. I know I’ve felt it.
+ - I think for me when you look at the idea of being able to create a limitless world and use it almost as a playground for action and adventure and so forth, I naturally gravitate towards cinematic worlds, whether it’s the Bond films and things like that.
+ - There are points where you worry that you might be putting too much in and alienating the audience. But, funnily enough, some of those fears aren’t correct.
+ - I’m very happy where 3-D is going, which is that it’s becoming a choice – and thankfully, most people are still choosing 2-D.
+ - Batman and Superman are very different characters but they’re both iconic and elemental. Finding the right story for them both is the key.
+ - The film that really struck me was Ridley Scott’s Blade Runner. That was a film I watched many, many times and found endlessly fascinating in it’s density. I think the density of that film is primarily visual density, atmospheric, sound density, moreso than narrative density.
+ - You never quite know what you’re going to come back to and figure out how to make it work. You never quite know where that desire to finish something, or return to something in a fresh way, is going to come from. Every time I finished a film and went back and looked at it, I had changed as a person.
+ - When I look at a digitally acquired and projected image, it looks inferior against an original negative anamorphic print or an IMAX one.
+ - I want to be surprised and entertained by a movie, so that’s what we’re trying to do for the audience. Obviously, we also have to sell the film.
+ - If I could steal someone’s dream myself, I’d have to go for one of Orson Welles.
+ - It’s always a fun collaboration with my brother. I’m very fortunate to be able to work with him. There’s an honesty to collaboration. There’s a lack of a gender or ego in our conversations. And so you can really throw anything around.
+ - Writing, for me, is a combination of objective and subjective approach. You take an objective approach at times to get you through things, and you take a subjective approach at other times, and that allows you to find an emotional experience for the audience.
+ - The problem with big films is they snowball very rapidly and you can never pull back. It’s a pipeline that needs to be fed.
+ - I’ve never read Joseph Campbell, and I don’t know all that much about story archetypes.
+ - I’ve always been a movie guy, movies have been my thing. I love movies, all kinds of movies.
+ - I have been interested in dreams, really since I was a kid. I have always been fascinated by the idea that your mind, when you are asleep, can create a world in a dream and you are perceiving it as though it really existed.
+ - I don’t actually tend to do a lot of research when I’m writing. I do know because I think a lot of what I find you want to do with research is just confirming things you want to do. If the research contradicts what you want to do, you tend to go ahead and do it anyway.
+ - I have always been a big fan of the character and am more of a moviegoer than a comic book guy, there is always something about the character of Batman that is very elemental. There is a great powerful myth to the character and romantic element that draws from a lot of literary sources.
+ - Heist movies tend to be a bit superficial, glamorous, and fun. They don’t tend to be emotionally engaging.
+ - The quality of racing continues to excel with starters increasing to 1496,.
+ - The best actors instinctively feel out what the other actors need, and they just accommodate it.
+ - I’m taking a bit of a wait-and-see attitude towards 3D.
+ - I never meet anybody who actually likes the format, and it’s always a source of great concern to me when you’re charging a higher price for something that nobody seems to really say they have any great love for.
+ - I would never say someone else’s film isn’t ‘a real film.’ The quote is inaccurate.
+ - It’s certainly difficult to balance marketing a film and putting it out there to everybody with wanting to keep it fresh for the audience.
+ - As soon as television became the only secondary way in which films were watched, films had to adhere to a pretty linear system, whereby you can drift off for ten minutes and go and answer the phone and not really lose your place.
+ - I think for me, what I’m doing on set is I’m watching things happen as an audience member and trying to just look at, what’s the image we’re photographing, how will that advance the story and what will the next image be.
+ - The structural notions to me always have to be worked out very carefully in the script stage. Whatever a particular structure is. Whether it’s chronological or non-chronological. To me that’s always about what point of view are we trying to address in the film?
+ - But, in each case, as a filmmaker who’s been given sizable budgets with which to work, I feel a responsibility to the audience to be shooting with the absolute highest quality technology that I can and make the film in a way that I want.
+ - It’s not that often that you get to have a large commercial success and then have something that you want to do that you can excite people about.
+
+78 quotes

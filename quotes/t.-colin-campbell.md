@@ -1,0 +1,32 @@
+ - In the next ten years, one of the things you’re bound to hear is that animal protein is one of the most toxic nutrients of all that can be considered. Quite simply, the more you substitute plant foods for animal foods, the healthier you are likely to be.
+ - A plant-based diet is more likely to produce good health and to reduce sharply the risk of heart problems, cancer, diabetes, osteoporosis, gallstones, and kidney disease.
+ - We now had impressive evidence that low protein intake could markedly decrease enzyme activity and prevent dangerous carcinogen binding to DNA.
+ - The people who eat the most animal protein have the most heart disease, cancer and diabetes.
+ - It’s never too late to start eating well. A good diet can reverse many of those conditions as well. In short: change the way you eat and you can transform your health for the better.
+ - A good diet is the most powerful weapon we have against disease and sickness.
+ - No chemical carcinogen is nearly so important in causing human cancer as animal protein.
+ - You can’t be protein deficient without being calorie deficient because even if you take the foods that have the least amount of protein in them, let’s say potatoes, for example, or rice at 8 or 9%. That’s the figure we more or less need.
+ - The answer to the American health crisis is the food that each of us chooses to put in our mouths each day. It’s as simple as that.
+ - In every respect, vegans appear to enjoy equal or better health in comparison to both vegetarians and non-vegetarians.
+ - In short, it is about the multiple health benefits of consuming plant-based foods, and the largely unappreciated health dangers of consuming animal-based foods, including all types of meat, dairy and eggs.
+ - Nutrition is not a mathematical equation in which two plus two is four. The food we put in our mouths doesn’t control our nutrition-not entirely. What our bodies do with that food does.
+ - Nutrition trumps genes.
+ - As you will come to see, much is governed by the Golden Rule: he who has the gold makes the rules.
+ - I was raised on a dairy farm and ate plenty of meat and eggs until about twenty years ago. I started doing nutritional research, and a decade pr so after that my family made some major dietary changes. I’m just paying attention to what the data are telling me: The scientific evidence came first.
+ - First, nutrition is the master key to human health. Second, what most of us think of as proper nutrition – isn’t.
+ - Furthermore, a pattern was beginning to emerge: nutrients from animal-based foods increased tumor development while nutrients from plant-based foods decreased tumor development.
+ - Once people start introducing animal products into their diet, that’s when the mischief starts.
+ - Everything in food works together to create health or disease. The more we think that a single chemical characterizes a whole food, the more we stray into idiocy.
+ - There’s only one thing that we have to do in life, and that is to die.
+ - Americans love to hear good things about their bad habits.
+ - When absurdities get repeated often enough, they start sounding like truth.
+ - Protein during promotion trumps the carcinogen, regardless of initial exposure.
+ - Excessive animal protein is at the core of many chronic diseases.
+ - Everything in food works together to create health or disease.
+ - One way to identify the optimal human diet, pretty obvious to all but fundamentalist reductionists, is to survey and compare populations as they already exist, and see what they eat and how healthy they are.
+ - Let’s start with the most prominent ecological crisis of our time: global warming. When you look seriously at the numbers, you find that switching from a meat-based to a plant-based diet would do more to curb and reverse global warming than any other initiative.
+ - Quite simply, the more you substitute plant foods for animal foods, the healthier you are likely to be.
+ - Good health is about being able to fully enjoy the time we do have. It is about being as functional as possible throughout our entire lives and avoiding crippling, painful and lengthy battles with disease. There are many better ways to die, and to live.
+ - The national debate on health-care reform wildly misses the mark, with Democrats and Republicans alike arguing about who’s going to pay rather than about what would actually make people healthy.
+
+30 quotes

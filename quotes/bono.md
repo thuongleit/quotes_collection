@@ -1,0 +1,60 @@
+ - Music can change the world because it can change people.
+ - Dream up the kind of world you want to live in. Dream out loud.
+ - My heroes are the ones who survived doing it wrong, who made mistakes, but recovered from them.
+ - Stop asking God to bless what you’re doing. Find out what God’s doing. It’s already blessed.
+ - U2 is an original species... there are colours and feelings and emotional terrain that we occupy that is ours and ours alone.
+ - Feelings are much stronger than thoughts. We are all led by instinct, and our intellect catches up later
+ - Jesus, Jesus help me. I’m alone in this world...
+ - Pop music often tells you everything is OK, while rock music tells you that it’s not OK, but you can change it.
+ - To be one, to be united is a great thing. But to respect the right to be different is maybe even greater.
+ - When you align yourself with God’s purpose as described in the Scriptures, something special happens to your life.
+ - We thought that we had the answers, it was the questions we had wrong.
+ - Whenever I see grace, I’m moved.
+ - Every age has its massive moral blind spots. We might not see them, but our children will.
+ - Religion can be the enemy of God. It’s often what happens when God, like Elvis, has left the building.
+ - There’s a point where you find yourself tiptoeing as an artist, and then you know that you’re in the wrong place.
+ - Sometimes religion gets in the way of God.
+ - Laughter is eternity if joy is real.
+ - I love America and I hate it. I’m torn between the two. I have two conflicting visions of America. One is a kind of dream landscape and the other is a kind of black comedy.
+ - At a certain point, I just felt, you know, God is not looking for alms, God is looking for action.
+ - It’s still very difficult for me to rely. Your weakness, the blessing of your weakness is it forces you into friendships. The things that you lack, you look for in others.
+ - Convictions, in the end, they can be dangerous, but a world without them is just kind of an awful kind of gray, amorphous mass.
+ - The human heart is greedy; it will use religion, color, or any other excuse to justify its greed. Blame the human heart.
+ - We can’t fix all problems but we must fix the ones we can.
+ - To touch is to heal, to hurt is to steal, if you want to kiss the sky, better learn how to kneel – on your knees boy!
+ - I wish to begin again on a daily basis. To be born again every day is something that I try to do. And I’m deadly serious about that.
+ - In my dream, I was drowning my sorrows But my sorrows they learned to swim.
+ - Perspective is the cure for depression.
+ - The right to be irresponsible and stupid is something I hold very dear. And luckily it is something I do well.
+ - Selling out is doing something you don’t really want to do for money. That’s what selling out is.
+ - Books! I dunno if I ever told you this, but books are the greatest gift one person can give another.
+ - In general people put too much faith in the rich, the famous, the politicians, and not enough faith in themselves.
+ - God’s Spirit moves through us and the world at a pace that can never be constricted by any one religious paradigm.
+ - When those people get up at the Grammys and say, “I thank God”, I always imagine God going, “Oh, don’t, please don’t thank me for that one. Please, oh, that’s an awful one! Don’t thank me for that – that’s a piece of crap !”
+ - It is impossible to meet God without abandon, without exposing yourself, being raw.
+ - Smack in the centre of contradiction is the place to be.
+ - I’m a musician. I write songs. I just hope when the day is done I’ve been able to tear a little corner off of the darkness.
+ - Christians are hard to tolerate; I don’t know how Jesus does it.
+ - Even though I’m a believer, I still find it really hard to be around other believers. They make me nervous, they make me twitch. I sorta watch my back.
+ - Facts, like people, want to be free – and when they’re free, liberty is usually around the corner.
+ - The strangest thing has happened. I really missed my dog. That’s never happened to me before. You know, on a long tour you do hear people saying they miss their pets. I never have. But last night I started really missing my dog. It’s very odd, ’cause I don’t have a dog.
+ - I wouldn’t run for President. I wouldn’t want to move to a smaller house.
+ - If I don’t understand it, it must be art.
+ - But with Christ, we have access in a one-to-one relationship, for, as in the Old Testament, it was more one of worship and awe, a vertical relationship. The New Testament, on the other hand, we look across at a Jesus who looks familiar, horizontal. The combination is what makes the Cross.
+ - The extraction of oil, coal and minerals brought, and still brings, a cost to the environment.
+ - U2 is sort of song writing by accident really. We don’t really know what we’re doing and when we do, it doesn’t seem to help.
+ - U2 was involved in Live Aid, and I ended up going to Ethiopia and working there for some time with my wife, Ali.
+ - There is a root arrogance in any writer; a hugely arrogant assumption that anyone is going to listen to them.
+ - Let’s not bequeath the pop charts to just children.
+ - The fact is that ours is the first generation that can look disease and extreme poverty in the eye, look across the ocean to Africa, and say this, and mean it. We do not have to stand for this. A whole continent written off – we do not have to stand for this.
+ - I’m as skeptical as anyone would be about celebrities and causes – and I will dare to say to you that I don’t think of myself as a celebrity per se.
+ - I’m never nervous when I go to meet heads of state. I feel they should be nervous, because they are the ones who’ll be held accountable for the lives their decisions will impact the most.
+ - We’re starting our own religion at last. The Order of Frisbeetarians. We believe that when you die, your soul ascends to a rooftop and you can never get it back.
+ - Because you know when you first become famous, you start walking a little different because people are staring at you.
+ - Hanging out with politicians and corporations is very unhip work. But I think that the U2 audience have turned out to be incredibly subtle in their understanding.
+ - I will admit that we are attracted to issues that unify people rather than divide them.
+ - The great gifts of models are not that they’re more beautiful than the next person, it’s that they’re able to be photographed and not be self-conscious.
+ - Celebrity is ridiculous and silly and it’s mad that people like me are listened to – you know, rap stars and movie stars.
+ - As a musician and a songwriter, it is an act of the ego to believe that other people might be interested in your point of view. But it is usually an empathetic nature that gets you going in the first place. Music keeps the heart porous in many ways.
+
+58 quotes

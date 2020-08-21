@@ -1,0 +1,259 @@
+ - Look, if you had one shot, or one opportunity. To seize everything you ever wanted in one moment. Would you capture it or just let it slip?
+ - Why be a king, when you can be a god?
+ - I don't care if you're black, white, straight, bisexual, gay, lesbian, short, tall, fat, skinny, rich or poor. If you're nice to me, I'll be nice to you. Simple as that.
+ - Somewhere deep down there's a decent man in me, he just can't be found.
+ - Love is just a word, but you bring it definition.
+ - Behind every successful person lies a pack of haters.
+ - Just be yourself man, be proud of who you are.
+ - Before you judge someone, walk a mile in his shoes.
+ - Dealing with backstabbers, there was one thing I learned. They're only powerful when you got your back turned.
+ - Damn. How much damage can you do with a pen?
+ - I shoot for the moon but I’m too busy gazing the stars.
+ - You don’t get another chance, life is no Nintendo game.
+ - When I say or do something I do it, I don’t give a damn what you think, I’m doing this for me...
+ - Love, when spelled backwards and read phonetically, reads evil
+ - If you have enemies, good that means you stood up for something.
+ - Don’t do drugs, don’t have unprotected sex, don’t be violent. Leave that to me.
+ - The truth is you don’t know what is going to happen tomorrow. Life is a crazy ride, and nothing is guaranteed.
+ - Personally, I just think rap music is the best thing out there, period. If you look at my deck in my car radio, you're always going to find a hip-hop tape; that's all I buy, that's all I live, that's all I listen to, that's all I love.
+ - I will not fall, I will stand tall, feels like no one can beat me.
+ - I can’t tell you what it really is, I can only tell you what it feels like.
+ - Imma be what I set out to be without a doubt undoubtedly.
+ - I have nothing to lose, but something to gain.
+ - I bully myself cause I make me do what I put my mind to.
+ - Love is evil, spell it backwards, I’ll show ya.
+ - I’ve got to formulate a plot or end up in jail or shot, success is my only option, failure’s not.
+ - When you're a little kid, you don't see color, and the fact that my friends were black never crossed my mind. It never became an issue until I was a teenager and started trying to rap
+ - Just promise me you’ll think of me everytime you look up in the sky and see a star.
+ - Everything always happens for a reason.
+ - I maybe made some mistakes, but I’m only human.
+ - Everybody has goals, aspirations or whatever, and everybody has been at a point in their life where nobody believed in them.
+ - It sometimes feels like a strange movie, you know, it’s all so weird that sometimes I wonder if it is really happening.
+ - You can make something of your life, it just depends on your drive.
+ - They say music can alter moods and talk to you.
+ - To the people I forgot, you weren’t on my mind for some reason and you probably don’t deserve any thanks anyway.
+ - I find you offensive for finding me offensive.
+ - Step by step, heart to heart, left right left. We all fall down like toy soldiers. Bit by bit, torn apart, we never win.
+ - When you feel like you’ve had it up to here, and you’re mad enough to scream, but you’re sad enough to tear, that’s rock bottom.
+ - I need to keep working on myself for a while.
+ - And all those who look down on me I’m tearing down your balcony.
+ - You better lose yourself in the music, the moment You own it, you better never let it go You only get one shot, do not miss your chance to blow This opportunity comes once in a lifetime, yo.
+ - Inside it drives me crazy, my insecurities could eat me alive.
+ - You’d have to walk a thousand miles in my shoes just to see what its like to be me!!
+ - What are friends? Friends are people you think are your friends but they really your enemies, with secret identities.
+ - I don’t hate women – they just sometimes make me mad.
+ - People can try to reinvent themselves. I don’t think you can really change who you are, though, because who you are is pretty much where you came from and what you’ve done up to now.
+ - Money is what makes a man act funny.
+ - I love the attention but I don’t like too much of it.
+ - If there’s not drama and negativity in my life, all my songs will be really wack and boring or something.
+ - It was my decision to get clean, I did it for me Admittedly I probably did it subliminally for you.
+ - My brain’s gone, my soul’s worn and my spirit is torn The rest of my body’s still bein operated on.
+ - My skin is too thick and bullet proof to touch me.
+ - I’m stupid, I’m ugly, I’m dumb, I smell. Did I mention I’m stupid?
+ - I come from Detroit where it’s rough and I’m not a smooth talker.
+ - I’m standing on my Monopoly board that means I’m on top of my game.
+ - Opportunity may only come once in a lifetime.
+ - I really should have fell but I stood.
+ - I always wished for this, but it’s almost turning into more of a nightmare than a dream.
+ - I’m just a little bit sicker then the average individual I think.
+ - When I say I’ll murder my baby’s mother, maybe I wanted to but I didn’t. Anybody who takes it literally is 10 times sicker than I am.
+ - They call me superman, I’m here to rescue you.
+ - I’d rather die than you not be by my side.
+ - I believe people can change, but only for the worse.
+ - I’m not really book-smart.
+ - I don’t think that anything anyone has to say should ever be censored or unheard.
+ - Question is, are you bozos smart enough to feel stupid?
+ - When I die, so does hip hop.
+ - You can be a permanent fixture in my lyrical mixture.
+ - My rhyming skills got you climbing hills, I’ll travel through your mind into your spine like siren drills.
+ - Never take ecstasy, beer, baccardi, weed, pepto bismol, vivarin, tums, tagamet hb, xanax, and valium in the same day. It makes it difficult to sleep at night.
+ - Cause see they call me a menace; and if the shoe fits I’ll wear it.
+ - See I’m a poet to some, a regular modern day Shakespeare.
+ - I truly believe I may be getting too big for my own good.
+ - Anybody with a sense of humor is going to put on my album and laugh from beginning to end.
+ - Ultimately, who you choose to be in a relationship with and what you do in your bedroom is your business.
+ - Since age twelve, I’ve felt like I’m someone else,’cause I hung my original self from the top bunk with a belt.
+ - Follow me and do exactly what the song says, smoke weed, take pills, drop outta school, kill people, and drink, and jump behind the wheel like it was still illegal.
+ - I don’t think I ever thought of myself as Superman. But there were people who thought of me that way, and maybe I believed them a little.
+ - A plaque and platinum status is whack if I’m not the baddest.
+ - Though I’m not the first king of controversy, I am the worst thing since Elvis Presley. To do black music so selfishly, and use it to get myself wealthy.
+ - I do say things that I think will shock people. But I don’t do things to shock people. I’m not trying to be the next Tupac, but I don’t know how long I’m going to be on this planet. So while I’m here, I might as well make the most of it.
+ - In the land of the killers, a sinner’s mind is a sanctum.
+ - I want to keep making records as long as I can, but I don’t know how long you can be taken seriously in rap.
+ - Fame hit me like a ton of bricks.
+ - My only scheme was to be a rapper.
+ - I stopped watching TV because of ‘The Wire.’ Like, ‘The Wire’ ruined everything for me because I don’t even want to watch anything else now.
+ - Nothing on ‘Relapse’ and very little on ‘Recovery’ was produced by me.
+ - Lose yourself in the music, the moment – you own it.
+ - Music is so therapeutic for me that if I can’t get it out, I start feeling bad about myself – a lot of self-loathing.
+ - I make music to make you sick of fake music hate music like devil worshippin Satan music. So say your prayers your Hail Mary’s and Jesuses. Take two sticks, tape ’em together and make a crucifix.
+ - Any MC who chooses to go up against me is getting taken advantage of like Monica Lewinski.
+ - I’d rather be 80-year-old me than 20-year-old you.
+ - Of course you don’t want your kids swearing. But remember how fun it was to cuss when you were in the first grade?
+ - I think if two people love each other, then what the hell? I think that everyone should have the chance to be equally miserable, if they want. It’s the new tolerant me!
+ - Believe it or not, I thank my mom for how she raised me in a neighborhood daily to jump and chase me. It only made me what I am today.
+ - My morals went when the president got oral.
+ - A lot of my rhymes are just to get chuckles out of people. Anybody with half a brain is going to be able to tell when I’m joking and when I’m serious.
+ - My father? I never knew him. Never even seen a picture of him.
+ - Yeah, I did see where the people dissing me were coming from. But, it’s like, anything that happened in the past between black and white, I can’t really speak on it, because I wasn’t there. I don’t feel like me being born the color I am makes me any less of a person.
+ - You beef wit me, I’m-a even the score equally. Take you on Jerry Springer and beat your ass legally.
+ - If we can hump dead animals and antelopes, there’s no reason that a man and another man can’t elope.
+ - I’m not afraid to take a stand. Everybody come take my hand. We’ll walk this road together, through the storm. Whatever weather, cold or warm. Just let you know that, you’re not alone. Holla if you feel that you’ve been down the same road.
+ - Smacked her so hard I knocked her clothes backwards like Kris Kross.
+ - If people take anything from my music, it should be motivation to know that anything is possible as long as you keep working at it and don’t back down.
+ - If somebody is smoking a joint in a movie, I say it’s a cigarette – a big cigarette if it’s a Cheech and Chong movie.
+ - I’ve accomplished enough with the music that I haven’t had to go out there and do other things to over-saturate.
+ - I don’t want to just die a normal death, I wanna be killed twice.
+ - I was playing in the beginning, the mood all changed.
+ - But no matter how many fish in the sea, itd be so empty without me.
+ - I am whatever you say I am; if I wasn’t, then why would you say I am.
+ - I was born with the biggest middle finger on Earth.
+ - England? England is in London right?
+ - I wanna get on TV and just let loose. But can’t, but it’s cool for Tom Green to hump a dead moose.
+ - I’ve always respected what Wayne does, and Wayne, to me is definitely one of the greatest in the game right now.
+ - My biggest flops are your greatest hits.
+ - You can try and read my lyrics off of this paper before I lay ’em But you won’t take the sting out these words before I say ’em.
+ - Saving Private Ryan was probably the illest, sickest movie I’ve ever watched, and I didn’t see anybody criticizing that one for violence.
+ - I just can’t sit back and wallow, In my own sorrow, but I know one fact: I’ll be one tough act to follow.
+ - I say what I want to say and do what I want to do. There’s no in between. People will either love you for it or hate you for it.
+ - Trust is hard to come by. That’s why my circle is small and tight. I’m kind of funny about making new friends.
+ - If that mockingbird don’t sing and that ring don’t shine, I’m a break that birdie’s neck.
+ - People will hate you for speaking the truth, but you’ve gotta learn to stand up to them, so don’t be offended if I say something you don’t like.
+ - Britney Spears has shoulders like a man.
+ - I ain’t looking back only forward.
+ - Don’t let them tell you ain’t beautiful.
+ - In my mind I’ma fighter, my heart’s a lighter, my soul is the fluid. My flow sparks it right up.
+ - That’s why we seize the moment try to freeze it and own it, squeeze it and hold it.
+ - Inside I’ll always be an outsider.
+ - I don’t mean to be mean but that’s all I can be, that’s just me.
+ - I realized, ‘Yo, I can’t do anything in moderation. I don’t know how.’
+ - The day you put out a hit’s the day Diddy admits that he put the hit out that got Pac killed.
+ - But how you gonna name yourself after a damn gun and have a man bun?
+ - Your red sweater, your black leather. You dress better, I rap better.
+ - Just be yourself, the minute you start being yourself youre gonna win.
+ - I don’t need a tank top to be a wife beater.
+ - I pray that god answers, maybe I’ll ask nicer.
+ - Sometimes I even cut myself to see how much it bleeds It’s like adrenaline, the pain is such a sudden rush for me.
+ - I’m thankful for the talent in which God gave me and I’m thankful for the environment that he placed me.
+ - Music is reflection of self.
+ - I have big nuts. huge nuts. Elephantitis of the balls – that’s what I have.
+ - I had this whole Slim Shady concept of being two different people, having two different sides of me. One of them I was trying to let go, and I looked at the mirror and smashed it. That was the whole intro of the Slim Shady EP. Slim Shady was coming to haunt me...
+ - Piracy doesn’t hurt an artist unless the artist puts out a bad album.
+ - A lot of truth is said in jest.
+ - My pen and paper causes a chain reaction, to get your brain relaxing.
+ - I need drama in my life to keep making music.
+ - You may be gone but you’re never over.
+ - They said I rap like a robot, so call me rapbot.
+ - But music is reflection of self, we just explain it, and then we get our checks in the mail.
+ - I have a slight bit of OCD, I think. I’m not walking around flipping light switches. But when I say I’m going to do something, I have to do it.
+ - If you aint like me, you aint gotta like me.
+ - Sometimes I feel like rap music is almost the key to stopping racism.
+ - Honestly, I never really put the mic down.
+ - I will hit a man with glasses.
+ - Try to strip me of my credibility and make me look fake, G you only gonna be in for a rude awakening.
+ - ’Til I’m hitting old age, still can fill a whole page with a ten-year-old’s rage.
+ - The giant’s woke, eyes open, undeniable, supplyin’ smoke, got the fire stoked.
+ - I sold my soul to the devil. I’m going to hell. I’m headed to hell. I want the money, the women, the fortune, and the fame. That Means I’ll end up burning in hell scorching in flames. Satan’ll be in to see me later to see if I’m interested in being partners. Devil worshippin’, Satan music.
+ - Money will brainwash you and leave your ass mindless.
+ - My soul is possessed by this devil my new name is Rain Man.
+ - As long as the wrong feels right – it’s like I’m in flight.
+ - I was poor white trash, no glitter, no glamour, but I’m not ashamed of anything.
+ - Nuts they go, macadamia they go so ballistic, whoa.
+ - Mother, are you there? I love you. I never meant to hit you over the head with that shovel.
+ - See, regardless of what anybody believes who hates me; you ain’t gonna make or break me.
+ - Gave a girl herpes in exchange for syphilis, put my LP on your Christmas gift list.
+ - I just say whatever I want to whoever I want whenever I want wherever I want however I want.
+ - I was a smart kid, but I hated school.
+ - Yeah, it’s been a ride I guess I had to go to that place to get to this one Now some of you might still be in that place If you’re trying to get out, just follow me I’ll get you there.
+ - These times are so hard, and they’re getting even harder.
+ - Insecure about my body, about my personality, sometimes even about my understanding of everything.
+ - I had too much Nyquil and Vivarin again. Lost my stomach all over the place.
+ - I can never turn my back on a city that made me.
+ - I’m about as normal as Norman Bates.
+ - Nobody likes to fail. I want to succeed in everything I do, which isn’t much. But the things that I’m really passionate about, if I fail at those, if I’m not successful, what do I have?
+ - Youre still beautiful to me, cause youre my mom.
+ - Slim Shady, Eminem was the old initials.
+ - Say there’s a white kid who lives in a nice home, goes to an all-white school, and is pretty much having everything handed to him on a platter – for him to pick up a rap tape is incredible to me, because what that’s saying is that he’s living a fantasy life of rebellion.
+ - Don’t you wanna grow up to be just like me, I slap women and eat mushrooms then OD.
+ - Sporadic thoughts will pop into my head and I’ll have to go write something down, and the next thing you know I’ve written a whole song in an hour.
+ - As for being AIDS infested, I don’t know yet, I’m too scared to get tested.
+ - Be proud to be out of your mind and out of control.
+ - It’s just hard to meet new people, in my position.
+ - Music is my time capsule. Each album reflects what I’m going through or what’s going on in my life at that moment.
+ - Throughout my career, I fed off the fuel of people not being able to understand me.
+ - I’m an attention freak. I want all the women in the world, and if I don’t get them, I fall to the ground and start kicking my feet.
+ - If you could count the skeletons in my closet, under my bed and up under my faucet, then you would know I’ve completely lost it. Is he nuts? No he’s insane!
+ - I got a generation brainwashed to pop pills and smoke pot til they brains rot.
+ - Told me my tape taught them to swear. What about the make-up you allow your 12 year old daughter to wear?
+ - Now that I understand that I’m an addict, I definitely have compassion for my mother. I get it.
+ - Better try to stay wide awake, or you might end up found dead by the lake.
+ - Soul’s escaping through this hole that is gaping.
+ - Why is it so hard for people to believe that white people are poor?! I wouldn’t say I lived in a ghetto, I’d say I lived in the ’hood. The same friends I had back then are the same people on tour with me now.
+ - Now who is the king of these lewd, ludicrous, lucrative lyrics; who could inherit the title, to put the youth in hysterics; using his music as spirit.
+ - I try to keep it positive and play it cool, shoot up the playground and tell the kids to stay in school.
+ - Anything I’ve ever said, I certainly was feeling at the time.
+ - My songs can make you cry, take you by surprise at the same time, can make you dry your eyes with the same rhyme.
+ - You know, I don’t know if you know this about me or not, but I’m kind of a big deal.
+ - I would love it if, even for one day, you could walk through a neighborhood and see an Asian guy sitting on his stoop, then you look across the street and see a black guy and a white guy sitting on their porches, and a Mexican dude walking by.
+ - I’m very much a creature of habit.
+ - Honestly, I’d love to be remembered as one of the best to ever pick up a mic, but if I’m doing my part to lessen some racial tension I feel good about what I’m doing.
+ - You could date a stick of dynamite and wouldn’t go out with a bang.
+ - People at rehab were stealing my hats and pens and notebooks and asking for autographs. I couldn’t concentrate on my problem.
+ - I did not know that I would grow to be my mothers evil seed and do these evil deeds.
+ - We just kept moving back and forth because my mother never had a job. We kept getting kicked out of every house we were in. I believe six months was the longest we ever lived in a house.
+ - You couldn’t make the fans throw up their hands if they swallowed their fingers.
+ - Well, I’m working all the time to stay out of trouble!
+ - Never was a gangsta, till I graduated to one.
+ - Hip-hop is ever changing but you’ll always have the pack. And you’ll always have those people who are separated from the pack.
+ - I want to solidify as an artist and show that as I grow as a person and make mistakes and learn from them, I’m going to grow artistically.
+ - We sing for these kids who don’t have a thing.
+ - If you get offended by my music, don’t listen to it.
+ - Infinite was me trying to figure out how I wanted my rap style to be, how I wanted to sound on the mic and present myself. It was a growing stage. I felt like Infinite was like a demo that just got pressed up.
+ - But you lied again. Now you get to watch her leave out the window. Guess that’s why they call it ’window pane.
+ - It’s not a contest, and I ain’t on no conquest for no mate.
+ - I feel like a spoilt rapper. I get to pick and choose everything.
+ - But I still rap like I’m on my Pharoahe Monch grind.
+ - Guns are bad, I tell you.
+ - My thing is this; if I’m sick enough to think it, then I’m sick enough to say it.
+ - It creeps me out sometimes to think of the person I was. I was a terrible person. I was mean to people.
+ - Certainly I’m not going to sit on the Internet all day and read what Sam from Iowa is saying about me. But I’m a sponge. I’ve always been a sponge.
+ - It feels good to have your work respected again.
+ - Yo, I failed ninth grade three times, but I don’t think it was necessarily ’cause I’m stupid.
+ - I might talk about killing people, but that doesn’t mean I do it.
+ - I am who I am and I say what I think. I’m not putting a face on for the record.
+ - I think my first album opened a lot of doors for me to push the freedom of speech to the limit.
+ - If I had one wish I would ask for a big enough ass for the whole world to kiss.
+ - He made you feel like you knew him. I think that honestly, 2pac was the greatest songwriter that ever lived. He made it seem so easy. The emotion was there, and feeling, and everything he was trying to describe. You saw a picture that he was trying to paint.
+ - So many lives I touch, so much anger.
+ - I didn’t just invent saying offensive things.
+ - My family has never been there for me. They expect things because we’re blood.
+ - I don’t think I’ve ever read poetry, ever.
+ - I always felt that if I was going to do a movie, I wanted it to be authentic.
+ - The kids are old enough now – I just want to let them be kids. I don’t want to comment on them too much. They’re at an age where I just want to let them be kids.
+ - Sometimes you just gotta let sh-t go and say ‘to hell with it’ and move on.
+ - I Like Gay Men, Right Ken?
+ - A lot of the problems I had with fame I was bringing on myself. A lot of self-loathing, a lot of woe-is-me. Now I’m learning to see the positive side of things, instead of, like, ‘I can’t go to Kmart. I can’t take my kids to the haunted house.’
+ - I don’t know if I ever feel totally great about a record when I put it out. With every record that I put out, someone has literally got to come pry it from me because when I listen to my own music, I just hear flaws in it.
+ - If you’re the parent, be a parent. You know what I mean? I’m a parent. I have daughters.
+ - I don’t know why this world keeps turning, round and round. But I wish it would stop and let me off right now!
+ - I don’t even know how to speak up for myself, because I don’t really have a father who would give me the confidence or advice.
+ - Before I was famous, when I was just working in Gilbert’s Lodge, everything was moving in slow motion.
+ - It was a slow process. You gotta remember I hadn’t recorded a song sober in seven years. So it took me awhile to even feel like I could record a song sober.
+ - The details surrounding both my marriage and subsequent filing for divorce are private, and I had hoped to keep them that way for the sake of my family.
+ - The album requires a certain focus of mine that I can’t really explain – let’s just say it’s all I can really do while I’m doing it.
+ - It’d be stupid for me to sit here and say that there aren’t kids who look up to me, but my responsibility is not to them. I’m not a baby sitter.
+ - You heard of hell, well I was sent from it.
+ - You’re not going to say anything about me that I’m not going to say about myself. There’s so many things that I think about myself; if someone really wanted to get at me, they could say this and this and this. So I’m going to say it before they can. It’s the best policy for me.
+ - Rap will never be the same as before.
+ - I have the right to remain violente. Everything I say can and will be used against you.
+ - My overall look on things is a lot more mature than it used to be.
+ - Despite what I say in my songs, its never okay for a man to put his hands on a female.
+ - I’d go to, like, six different schools in one year. We were on welfare, and my mom never ever worked.
+ - I’ve been running a lot, taking care of myself.
+ - The emotions in a song – the anger, aggression – have got to be legitimate.
+ - Touring is hard on the body.
+ - I try to treat all the money I’m making like it’s the last time I’m going to make it.
+ - But you’re a mole hill, now I’ma make a mountain out of you, woo!
+ - Here’s that autograph for your daughter, I wrote it on a Starter cap.
+
+257 quotes

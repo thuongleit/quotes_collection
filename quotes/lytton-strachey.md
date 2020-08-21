@@ -1,0 +1,31 @@
+ - Perhaps the best test of a man’s intelligence is his capacity for making a summary.
+ - A writer’s promise is like a tiger’s smile.
+ - Perhaps of all the creations of man language is the most astonishing.
+ - Ignorance is the first requisite of the historian – ignorance, which simplifies and clarifies, which selects and omits, with a placid perfection unattainable by the highest art.
+ - In pure literature, the writers of the eighteenth century achieved, indeed, many triumphs; but their great, their peculiar, triumphs were in the domain of thought.
+ - The history of the Victorian Age will never be written: we know too much about it.
+ - If this is dying, I don’t think much of it.
+ - It is probably always disastrous not to be a poet.
+ - The amateur is very rare in French literature – as rare as he is common in our own.
+ - Englishmen have always loved Moliere.
+ - English dramatic literature is, of course, dominated by Shakespeare; and it is almost inevitable that an English reader should measure the value of other poetic drama by the standards which Shakespeare has already implanted in his mind.
+ - It is perhaps as difficult to write a good life as to live one.
+ - The genius of the French language, descended from its single Latin stock, has triumphed most in the contrary direction – in simplicity, in unity, in clarity, and in restraint.
+ - When Louis XIV assumed the reins of government France suddenly and wonderfully came to her maturity; it was as if the whole nation had burst into splendid flower.
+ - But Racine’s extraordinary powers as a writer become still more obvious when we consider that besides being a great poet he is also a great psychologist.
+ - There are a great deal of a great many kinds of love.
+ - Modern as the style of Pascal’s writing is, his thought is deeply impregnated with the spirit of the Middle Ages. He belonged, almost equally, to the future and to the past.
+ - With a very few exceptions, every word in the French vocabulary comes straight from the Latin.
+ - Discretion is not the better part of biography.
+ - When the French nation gradually came into existence among the ruins of the Roman civilization in Gaul, a new language was at the same time slowly evolved.
+ - The old interests of aristocracy – the romance of action, the exalted passions of chivalry and war – faded into the background, and their place was taken by the refined and intimate pursuits of peace and civilization.
+ - How far the existence of the Academy has influenced French literature, either for good or for evil, is an extremely dubious question.
+ - The stability and peace which seemed to be so firmly established by the brilliant monarchy of Francis I vanished with the terrible outbreak of the Wars of Religion.
+ - There is something dark and wintry about the atmosphere of the later Middle Ages.
+ - Unlike the majority of the writers of his age, La Rochefoucauld was an aristocrat; and this fact gives a peculiar tone to his work.
+ - In the literature of France Moliere occupies the same kind of position as Cervantes in that of Spain, Dante in that of Italy, and Shakespeare in that of England. His glory is more than national – it is universal.
+ - During this earlier period of his activity Voltaire seems to have been trying – half unconsciously, perhaps – to discover and to express the fundamental quality of his genius.
+ - In sheer genius Pascal ranks among the very greatest writers who have lived upon this earth. And his genius was not simply artistic; it displayed itself no less in his character and in the quality of his thought.
+ - Though, with the ascendancy of Louis, the political power of the nobles finally came to an end, France remained, in the whole complexion of her social life, completely aristocratic.
+
+29 quotes

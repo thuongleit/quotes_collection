@@ -1,0 +1,178 @@
+ - Sometimes when we are generous in small, barely detectable ways it can change someone else’s life forever.
+ - I can’t drag myself away from ‘Final Cut Pro.’ It is a digital video editing system. I am obsessed with it, but I am always away from home, and I can’t use it.
+ - I’m not a body shamer. The word fat has been used to hurt me my entire life.
+ - My philosophy is, “murder the rapist in your mind so you stop killing yourself.” I’ve seen, in my lifetime, that sexual abuse has turned into self-abuse. When I kill the rapist inside of me, I will stop killing myself.
+ - White fragility! White people are so sensitive about race and racial conversations. I feel like I’m always walking on eggshells when I’m around white people.
+ - I punished myself and avoided my reflection in mirrors and any windows. I would see myself reflected back, and I would look away, trying to pretend I didn’t exist, because I hated myself so much.
+ - It’s good to be able to laugh at yourself and the problems you face in life. Sense of humor can save you.
+ - Try to put your happiness before anyone else’s, because you may never have done so in your entire life, if you really think about it, if you are really honest with yourself.
+ - Love is the big booming beat which covers up the noise of hate.
+ - I think white people like to tell Asian people how they should feel about race because they’re too scared to tell black people.
+ - I will never stop complaining.
+ - A few words about ‘trannychasing.’ I am not a trannychaser. Ok, actually I am a trannychaser. No I am not. I am a trannycatcher! Just kidding!
+ - It’s not the best between my family and me. There are so many crimes left unpunished, debts unpaid, white elephants in the middle of the room that no one will even offer a peanut to. We are in the red, emotionally speaking.
+ - I am in love with Counting Crows. It is so manly and American.
+ - To start telling people that you’re beautiful, or just feel beautiful, just start acting like you are the most beautiful woman in the world. And it really improves everything! Because your sort of psyche responds to it – like this is truthful!
+ - If you are a woman, if you are a person of colour, if you are gay, lesbian, bisexual, transgender, if you are a person of size, if you are person of intelligence, if you are a person of integrity, then you are considered a minority in this world.
+ - Pot is an insidious drug because it can steal your life away from you, without you even being aware of it. I had a love affair with pot for ten years. Pot was my most devoted partner.
+ - The label of tasteful or tasteless is so often used to silence people and to maintain the status quo. It’s used to shame people for not following the commonly accepted routine, for not aligning themselves with the status quo.
+ - My former bullies pay extra to come backstage and meet me after shows, and I pretend not to know them in front of their friends. It is the most divine pleasure to exact the revenge of the brutalized child that resides within.
+ - Silence is so often applauded and those who speak out are often called tasteless.
+ - I am always writing no matter what I am doing and no matter what it is for.
+ - Korean children get a lot of fuss made over them, I guess because life was tough in the old country, and it was a big deal if you survived. There’s a big party thrown when you are 100 days old, followed by another when you make it to one whole year.
+ - Often something that is in bad taste or considered to be in bad taste is something that’s just very true but that people are unwilling to discuss or comment on.
+ - I think I appeal to people who are living in the margins because of their identity and who need to feel freedom somewhere.
+ - This was an era where I was going out every night seeing Sparks, Berlin, Duran Duran, and Split Enz. Amazing acts doing really weird stuff, and I was very open to music and letting it transform me.
+ - Try to have a good day today, wherever you are, whatever you do, whoever is near, if no one is near. Try to be happy, because you may not see tomorrow. There is someone this morning, who didn’t wake up, who will never see this day. Try to feel lucky that this is not you.
+ - I love heavily tattooed women. I imagine their lives are filled with sensuality and excess, madness and generosity, impulsive natures and fights. They look like they have endured much pain and sadness, yet have the ability to transcend all of it by documenting it on the body.
+ - I love drugs, but I hate hangovers, and the hatred of the hangover wins by a landslide every time.
+ - Being called ugly and fat and disgusting to look at from the time I could barely understand what the words meant has scarred me so deep inside that I have learned to hunt, stalk, claim, own and defend my own loveliness.
+ - Over half the world menstruates at one time or another, but you’d never know it. Isn’t that strange?
+ - The power of visibility can never be underestimated.
+ - My life is anything but typical.
+ - One of my first jobs was on a lesbian cruise. I was the ship comedian for the Lesbian Love Boat.
+ - Success is meaningless if you can’t sleep at night because of harsh things said, petty secrets sharpened against hard and stony regret, just waiting to be plunged into the soft underbelly of a ‘friendship.’
+ - I have a song about how much I hate emojis and the lazy thinking of people who use them. I wish that more people had respect for the English language.
+ - When you feel powerful, you are willing to stand up for your rights, you are willing to stand up for what you believe in, you’re more willing to stand up and be counted.
+ - Now on Facebook I have all these ‘friends’ who used to bully me, and they’re like, ‘We’re so proud! We love you!’ They come to shows and want to take a picture, and they’re like, ‘Don’t you remember us?’ And I’m like, ‘I’m sorry, I don’t.’ And I feel bad, but I feel good.
+ - Just because you are blind, and unable to see my beauty doesn’t mean it does not exist.
+ - People drain me, even the closest of friends, and I find loneliness to be the best state in the union to live in.
+ - I don’t want to hurt anybody because of their looks. That’s been used to hurt me so much.
+ - I was lucky. I always had really great friends in my personal life, people always just knew who I was. It wasn’t until I was in show business where that sort of changed or shifted at first. I have always had a great support network. I have had a lot of really wonderful, close friends.
+ - When I was 14, I told my mother I was going to drop out of high school and go do stand-up comedy. All she said was ‘Oh maybe it’s better if you just die,’ because it was killing her that I was doing this.
+ - My attitude toward peace does not depend on which war we are discussing. I think that words should do the work of bombs.
+ - It’s hard to find peace with your thighs, but when they chafe, try to be grateful for them. Your thighs let you run and get you where you want to go. I have not just thigh peace but thigh happiness, and it begins with thigh gratitude.
+ - It’s always considered bad taste to comment on a tragedy right when it’s happening, but I love when something is considered too soon to talk about because then you can blast past that social censorship to get into something real.
+ - I urge you all today, especially today during these times of chaos and war, to love yourself without reservations and to love each other without restraint. Unless you’re into leather.
+ - Sometimes the only way to deal with horrific things in life is through a dark sense of humor.
+ - In America, I’m a foreigner because of my Korean heritage. In Asia, because I was born in America, I’m a foreigner. I’m always a foreigner.
+ - It’s okay for you to have relationships, but it’s not okay to talk about them. It’s not okay to be out or to be public about it. It’s not okay to be photographed with your partner.
+ - Silence equals nonexistence. If I don’t raise my voice, it’s like I never existed.
+ - I love Wilco’s “I’m the Man Who Loves You.” Nels Cline has that weird guitar slide at the beginning and the song is whispered actually.
+ - Humanity is a natural foil for inhumanity, and humanity is what will ultimately keep us going when all else has failed.
+ - I was raised to be self-conscious about weight. Then as I got older and started doing television, it became a career issue, like, ‘You have to lose weight or you’ll lose that job.’
+ - I mean, what’s great about touring is that’s what you do. You’re in a constant state of motion and then you stop to do a show and you move onto the next city. All you have to do is do the show. That’s the only responsibility that you have.
+ - I could never make a joke about somebody unless I could say it to their face and they’d laugh.
+ - I have 3 dogs myself – I actually have a kennel license in order to do so. I love them so much I couldn’t imagine my life without them.
+ - I think comedy is an angry art form; it’s an outsider art form. Anger and comedy are really connected. If I’m angry about something I will try to think about something funny about it to lighten the load of the anger and cope with the anger.
+ - Tattooing is my social life, too, so most of my time is taken up with that. People like Henry Lewis, Mike Davis at Everlasting Tattoo.
+ - Snooki is really beautiful and looks quite like Elizabeth Taylor in ‘Cleopatra.’ She has the same bone structure. I’m kind of obsessed with ‘Jersey Shore.’ People don’t give them enough credit for how entertaining they are.
+ - I don’t like catchphrases either. A current one would be, “Bye, Felicia.” It’s used so much that we don’t even know the origin anymore.
+ - I don’t have children, and I am not sure if I have wanted them or never wanted them. It’s weird not to be able to decide. I don’t know if I could stand that kind of commitment, or if I am really honest, I don’t think that I could handle being that vulnerable to someone else.
+ - I want to get married but I look at husbands the same way I look at tattoos. I want one, but I can’t decide what I want, and I don’t want to be stuck with something I’d grow to hate and have surgically removed.
+ - I knew I was crazy because I was watching Jesus Christ Superstar and the part where Jesus carries the cross up the mountain, I actually said to myself, Wow! That must be a really good workout! Yeah, because you’re doing arms and cardio!
+ - I became a comedian because I didn’t want to be bullied anymore. Onstage I was safe.
+ - I was about 17 or 18 and there were a lot of clubs and dancing. It was the beginning of rave culture and a lot of ecstasy. Because of all the drugs, there are certain songs that make me feel high.
+ - Privacy and security are those things you give up when you show the world what makes you extraordinary.
+ - I’ve always wanted to have tattoos. I grew up around people who were very tattooed. It’s a self-expression thing; it’s also helped me claim my body as my own. So I think it’s really positive. It’s really joyful.
+ - I have a box of awards in the closet. I think it is weird to put them out. I might if I had an Emmy or Oscar, but I don’t.
+ - I’m a survivor. But I’m also victim, too. Surviving has the connotation that you’ve been through it, you lived through it and that’s wonderful – but a victim is what I was. “Survivor” is the more healing way to look at it.
+ - I love singing and that’s kind of my new thing.
+ - I’m not going to die because I failed as someone else. I’m going to succeed as myself.
+ - I think self-deprecation is such a disease, and I want to cure everybody of it and so that’s my contribution.
+ - My history in show business spans over a quarter of a century, and I have seen many people in the industry struggle with coming out, only to find much more success after they finally did.
+ - I voice my opinions on social media and I have people threatening me with violence. It is troubling but I can fight back, which is good.
+ - If you say you’re not a feminist, you’re almost denying your own existence.
+ - You didn’t hear Yello until later in the night in the bondage clubs. Things would start getting crazy and that’s when you’d hear Yello. It was bad.
+ - If I’m talking to a guy who’s straight and cute and single, I’m like ‘are you a unicorn?’
+ - Comedy was the key to everything. I grew up fast and controlled my future by bringing it on faster than it naturally unfolded. I cheated myself out of a childhood but then got a running headstart into adulthood that no one else could keep up with.
+ - Maybe I wanted to hear it so badly that my ears betrayed my mind in order to secure my heart.
+ - I loved everything. I read everything. Art and poetry and literature and trash and sci fi. I didn’t know what I would become yet and I needed to read to figure it out.
+ - I’ve always been an ajumma, but when you get older, the culture we were brought up in works in our favor where aging is good, combatting the Hollywood idea that aging is bad. I’m very grateful for that.
+ - I’m not playing the race card. I’m playing the rice card.
+ - I think that all bodies are beautiful in millions of different ways but I get down on myself too!
+ - I always felt like an outsider growing up. In school, I felt like I never fit in. But it didn’t help when my mother, instead of buying me glue for school projects, would tell me to just use rice.
+ - Ugly. Is irrelevant. It is an immeasurable insult to a woman, and then supposedly the worst crime you can commit as a woman. But ugly, as beautiful, is an illusion.
+ - I’m lucky that I have good genetics. Like you said, it just gets better as I get older.
+ - I just think women are funnier than men.
+ - It’s like your batteries get low, and you need to charge them on someone else’s story.
+ - I feel sorry for anyone that I am obsessed with. I am worse than gum in your hair, very, very close to the roots.
+ - I got back from Toronto, where they had a severe outbreak of SARS- you know, Severe Asian Racism Syndrome.
+ - I have learned to love that which is meant to harm me, so that I can stand in the way of those who are less strong. I can take the bullets for those who aren’t able to.
+ - When people think the world of you, be careful with them.
+ - Comedy is a noble art. And every comedian who does anything is serving a noble purpose.
+ - If you’re a songwriter, you want to write a song like “Oh Yeah” that radically shifts everything. You can definitely retire on that song. You want to have something you can put in your songbook that everybody can recognize, whether it’s a good or bad thing.
+ - The best tattooists are in San Francisco, and they’re kind of like my family now. I’m always excited to come back to San Francisco.
+ - I love New York. I love working here.
+ - The incognito of lower class employment is an effective cloak for any dagger one might wish to hide.
+ - I don’t want to bring myself down to place where there are hard and fast rules. In general I try to be compassionate, but that is dependent on the moment ultimately.
+ - I am star-struck but also I’ve known a lot of people for a long time. Like I’m super star-struck by Grant Lee Phillips and Jon Brion but I’ve known them for 17 years. So it’s kinda like weird to be star-struck still, but I still am!
+ - For women in my family, in Korean culture, women are really valued in their youth, and then when they get older, it’s like they almost become irrelevant.
+ - I was crazy about the song “Doot Doot,” so I usually love this genre of weird, European electronic.
+ - I have so much hate that it has turned into love.
+ - In the early ’90s, there was such a limited idea of what you could see on TV.
+ - I don’t like to criticize music and I had a really hard time picking out the song I hate for this because I end up seeing and working with musicians all the time.
+ - I love fashion, I’m actually a pretty talented seamstress, so I can make stuff for myself, but that’s really time-consuming.
+ - Im not a mom, but I think the word mother is about wisdom.
+ - People are so sensitive about race that they can’t hear someone speaking about their life in a very true way, or doing satire or political parody.
+ - Since I became a dancer, I have felt much better about myself.
+ - I’m taking a lot of my favorite artists, different people, my favorite music and marrying that with what I do as a comic. It’s very collaborative, arty, fun and cool.
+ - I don’t like pot anymore – I forget why.
+ - Comedy was all I ever wanted.
+ - The stuff I do and say onstage I can do easily. As a performer, that comes easily. But being social offstage, it’s not easy for me.
+ - I really love Steve Martin and all the stuff he did in the ’70s. I think it’s really great.
+ - I am a big ‘Ellen’ fan. I have been one for quite a long time now. I used to do the local news talk shows with her in San Francisco, when we were both still kids.
+ - I’m always too fat. And I always look terrible. But I love the theater of the red carpet.
+ - I get a lot from great ’90s artists like Juliana Hatfield, The Pixies, and bands like That Dog and The Breeders.
+ - Try to love someone who you want to hate, because they are just like you, somewhere inside, in a way you may never expect, in a way that resounds so deeply within you that you cannot believe it.
+ - I think it is time for all babies to let us know who they want for president.
+ - Monogamy is so weird. Like when you know their name and stuff.
+ - People are really terrified of me. I don’t know why, I’m very nice, but people are very intimidated by me.
+ - I am into belly dancing. I used to only hang with comics. Now I have friends who are dancers, and my whole house has a harem feel.
+ - To be a feminist is to be alive.
+ - Comedy is the only weapon I have to battle totalitarianism.
+ - Thankfully, beauty is easier to remove than apply, and a swipe of demaquillage in the right direction and you are you once again.
+ - A lot of the actresses who were around when I started, I don’t know where they are. Comics stick around.
+ - Why go through life feeling cheated? It does nothing but make you bitter.
+ - When it comes to children, my mom doesn’t believe in borders. She loves all children, and that’s a good example of mothering the world. I need to do that, but before I can, I need to get over my fear of kids in the first place.
+ - It makes it very hard to say what you believe in and not be attacked for it. And it’s not fair; I’m Korean, but I’m not supposed to talk about my experience and my life? It’s unaccepting.
+ - I didn’t appreciate the young woman that I was, or my young beauty, because I was so obsessed with the fact that I felt fat. It’s never good to add to anybody else’s suffering. It’s an important topic to really get the gravity and the importance of – dealing with dignity.
+ - I taught Sunday School for two years. And I got fired. I abused my authority. I used to teach class like this, “OK, if one more person talks, everybody is going to Hell.”
+ - Usually, if you smile at them and show some interest in the toy, they will give it to you. That’s a straight up Democrat move!
+ - I think it is really sad that when people lose their homes they kind of lose their minds too.
+ - I think political correctness really does help us when it serves us but it doesn’t help us when it silences us.
+ - People have a lot of shame and suffering around it and I felt that the best thing I could do was to share my experiences, which I have been doing for a long time, and let people know that of all the things that I’ve endured.
+ - You have to adhere to a certain morality, a certain level of decorum, or else you’ll be punished and labeled.
+ - It’s important to feel beautiful; it’s political to feel beautiful.
+ - Some people are that – more than a parent, more than a role model, more than anything less than a religion.
+ - I’m a huge fan of the people and things that are considered the epitomes of tastelessness – things like drag and raunchy comedy.
+ - That it is not the people who really feel that way, but it is people who have the most money to fire up these propaganda campaigns, these like, basically these lies that they are willing to lie to the public in order to manipulate them into doing what they want. And to me it doesn’t make any sense.
+ - You don’t become a Republican until you lose all your baby teeth and fall down a lot and get the croup and then become angry and bitter.
+ - There’s a lot of guy comics who I think are funny, but I generally am more excited about a special or a show where there are females.
+ - I thought I was so ugly for so long, and I wasted so much of my life on this dumb notion.
+ - Politics has less to do with where you live than where your heart is.
+ - I’m very much a stand-up comedian in my heart. That’s really what I do. Now I’m trying to incorporate all of the different elements of my work as a performer, and use it as a stand-up comedian.
+ - Grow up and let anyone try to content with the adult you.
+ - Sexual fulfillment goals, to make them happen, you have to work on them as a project. I don’t think it’s a bad thing.
+ - As a comedian you are making yourself vulnerable in order to make others happy.
+ - I think that when you are accused of being in bad taste it can be quite positive. You’re challenging the notions of polite society. I’d like to put across the notion that bad taste is actually good for you.
+ - The first thing you lose on a diet is brain mass.
+ - That’s part of being an artist; you have to be that sensitive.
+ - I do love the road, because for me, the road is very comfortable, and it’s very much what I’ve always wanted to do. It’s one of the most appealing things about comedy for me, so I do really have an affection for it.
+ - If you really care about children then why would you want to keep families from adopting them?
+ - Why can’t all different types of women be considered beautiful? Why can’t we can’t we all be considered possible love interests?
+ - Political correctness sometimes does great work when it helps equalize the playing field when it comes to language, but it does a great disservice when it tries to silence a person of color.
+ - Your goal is to write that masterpiece. Yello’s masterpiece was “Oh Yeah.” Whatever I say about the song doesn’t matter, because it has a huge impact on how we remember the era.
+ - Interventions are really emotionally exhausting and I would never ever want to have one. In the same way, I would never want to have a surprise birthday party. That would be horrible.
+ - I think the best way to get over your body issues is to just flaunt your body at every opportunity.
+ - I think reality television is such a special talent.
+ - Comedians and people in general have a cultural right to talk about their own culture and race.
+ - If we have the opportunity to be generous with our hearts, ourselves, we have no idea of the depth and breadth of love’s reach.
+ - My parents are very funny when they have to deal with anything racy or off-color. They usually pretend they don’t speak English.
+ - I’ve worked with incredible producers who have also taken my voice and brought it to another level. I think I have some natural abilities, but it’s the technique that I’ve been learning from the best that keeps me going. I’m really honored to do it.
+ - I’m super-obsessed with ‘Intervention.’ I wrote a song about it.
+ - George Bush isn’t Hitler. He could be if he applied himself.
+ - I can never tell when something is funny. I just have to do it onstage and find out.
+ - My parents never really had that much money, so I kind of live in the same world that they do.
+ - I have permanent damage to my body because I wanted to be thin.
+ - People at shows have told me that they’ve shown my videos to their parents and families to help them come out of the closet. It’s very inspiring that comedy can do that and can help people cope with everyday life and challenges through humor.
+ - We women are constantly at war with our bodies, it is hard to find amnesty for ourselves.
+ - I think that failure is just as important as success. In a way, failure is a kind of success if you can look at it in the right way, if you can accept it and enjoy it in the right way.
+ - For me to be ten pounds thinner is a full-time job, and I am handing in my notice and walking out the door!!
+ - As a woman of color you have little more permission to go deeper and question things because your identity, in a way, is a shield. But if you come at it from a minority status, my person, who I am, softens the blow of whatever it is that I’m saying, because I am that.
+ - That’s the nature of comedy – you always want to be improving and growing and changing with what’s happening in the world. That’s when comedy is most effective.
+ - Christ’s purpose was to really show how everyone can be loved and how everyone should be loved and accepted.
+ - That we are selfish gives us the opportunity to gain the power so that, in time, we might be selfless. To give back what we have learned. To teach what we know, and shorten the journey for those who will come after us.
+ - The newest victims of the nation’s foreclosure crisis are pets, which is extremely distressing to me.
+
+176 quotes

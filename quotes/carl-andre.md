@@ -1,0 +1,54 @@
+ - Art is what we do. Culture is what is done to us. A photograph of an art object is not the art object. An essay about an artist’s work is not the artist’s work.
+ - Lenin thought abstract art was a conspiracy by the bourgeois to demoralize the proletariat. Yeah, socialist realism!
+ - SoHo was called Hell’s Hundred Acres because it was full of sweatshops – without fire escapes. Completely not up to code. Every once in a while, these buildings would burn and 26 Puerto Ricans would be killed.
+ - I’ve often stopped working for long periods.
+ - We don’t have a single point of view for a road at all, except a moving one, moving along it.
+ - A man climbs a mountain because it is there. An artist makes a work of art because it is not there.
+ - Art is an intersection of many human needs.
+ - Once you turn something into something, its universal usage is over.
+ - The wood was better before I cut it, than after. I did not improve it in any way.
+ - Art is the exclusion of the unnecessary.
+ - New York is dead. It’s too expensive.
+ - I grew up in a brick house. What’s wrong with bricks? An Englishman took me aside and said, “You have to understand, all the bricklayers in England are Irish, and the English hate the Irish.”
+ - What do little kids do? They crawl on the floor and they build with blocks. I just continued to do that for the rest of my life.
+ - Artists tend to be beyond embarrassment the way little children tend to be beyond embarrassment.
+ - Money is a very complicated problem. The history of money is very curious.
+ - That’s wonderful, but my mind has been destroyed by alcohol.
+ - I believe that woman are superior to men.
+ - You could own coins but you couldn’t have bars of gold. We were on the gold standard. I think it was Nixon who took us off the gold standard.
+ - If you’re any good as an artist, you have to be doing something nobody else has interest in. Nobody would be interested in my work except a few crazy people.
+ - Americans understand better than the Europeans and the English that any publicity is good.
+ - The world is imperfect, and young people are always trying to perfect it and they always fail – which is a good thing. Who’d want to live in a perfect world?
+ - It seems with progress you gain certain things and you lose certain things. The automobile replaced the horse and buggy but you lost all of that nice manure.
+ - I was never good at painting. The great turning point came when I had a block of wood and I carved a shape into the wood and put a small piece of timber into that space – like a negative – and so it made an endless column, only inward.
+ - People are always trading their excess for somebody else’s excess. One country has a lot of aluminum so they trade aluminum for sugar. It’s the law of supply and demand.
+ - I mean, art for art’s sake is ridiculous. Art is for the sake of one’s needs.
+ - I didn’t study the piano – the piano studied me.
+ - Why carve? It’s a better sculpture that way. I’ll never improve the block. So I just started using uncarved blocks.
+ - Look at the chaos of European history. Europeans cannot believe in certainty. But Americans believe in certainty. Americans think this can go on like this forever. Just as it is. No change.
+ - My art will reflect not necessarily conscious politics but the unanalysed politics of my life.
+ - I’ve never been a representational artist at all. Most artists have been representational. That’s when you discover yourself.
+ - I was one of the first post-studio artists. I used to do my works in the streets. I used to find them in the streets, and I used to leave them in the streets.
+ - You can always find somebody to beat up. This goes back to the schoolyard. Most men would think, Don’t chum with girls. But I chummed with girls.
+ - If you forge a Carl Andre, it’s just another Carl Andre. It’s not like a Vermeer.
+ - It is futile for an artist to try to create an environment because you have an environment around you all the time. Any living organism has an environment.
+ - I had no place to put anything. I would give my sculpture away because I had no place to put it.
+ - My art springs from my desire to have things in the world which would otherwise never be there.
+ - An artist, to achieve anything in art, has to finally do the thing that nobody else wants to do and nobody else has thought to do.
+ - I’m a feminist. I’ve always been in favor of women.
+ - I think my work is very American because I’m American. But I found that Europeans like uncertainty and doubt.
+ - The girls you picked up from the bars were not the girls you took home to mother.
+ - A place is an area within an environment that has been altered in such a way to make the general environment more conspicuous.
+ - I was hanging out and drinking as long as I could afford it, or as long as somebody else could afford it.
+ - I didn’t like men, but I liked women.
+ - My works have always been unjoined. People were always making variations of my works, and I just said, “I don’t want to know.” You can’t put limits on those pieces. You can’t be there all of the time when they’re installed.
+ - Matter as matter rather than matter as symbol is a conscious political position, essentially Marxist.
+ - I’m afraid we get a great deal of our exposure to art through magazines and through slides and I think this is dreadful, this is anti-art because art is direct experience with something in the world and photography is just a rumor, a kind of pornography of art.
+ - When I came to New York, it was cheap!
+ - Every time you work, you have to do it all over again, to rid yourself of this dross. I suppose for a person who is not an artist or not attempting art, it is not dross, because it is the common exchange of everyday life.
+ - Isn’t it wonderful to be an artist whose works have mostly been lost?
+ - I think it was Henry Moore who was asked where he got his ideas for his sculptures, and he said something like, “I continue to do as an adult the things I did as a child.” I think that’s what art is about.
+ - What I made depended on what I found on the street. At least in the beginning, my materials came from the street.
+ - I never stopped doing what I did as a child.
+
+52 quotes

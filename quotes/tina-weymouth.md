@@ -1,0 +1,33 @@
+ - In Europe they understand that the arts are incredibly important both culturally and economically.
+ - We always thought the Tom Tom Club could change to anything, but it acquired this image, which was cartoon animation and this real light-hearted dance music.
+ - Stick to your instincts.
+ - If you have this passion for music, you don’t stop doing it – it chooses you and doesn’t release you.
+ - It’s a cruel, heartless world out there in commercial rock ‘n’ roll, and when you take as much time off as we did, eight years, booking agents don’t know if you’ll draw.
+ - When Talking Heads started, we called ourselves Thinking Man’s Dance Music.
+ - I’m not going to hold my breath because life goes on. Life is too short to sit around moaning about what could have been or what was.
+ - Sometimes, you have to go through a phase whether you like it or not.
+ - I wasn’t originally a bass player. I just found out I was needed, because everyone wants to play guitar.
+ - Make it, not make it? What’s the difference? Music is a language, it’s a dance of life, and it can be a part of your life without being something that earns.
+ - Tom Tom Club has a whole different attitude and approach, not just musically but in performance. Some people said they liked it.
+ - Generosity is the key to all relationships. To friendships and bands. That’s the golden rule.
+ - You learn just as much from your failures. Sometimes you love your failures even more.
+ - I play bass. I don’t have to go out there and screech.
+ - We wore our safety pins on the inside of our clothes.
+ - I tend to like people that are generous and give other people the benefit of the doubt.
+ - It’s hard to be perfect, It really is. I keep learning things after I’ve already bungled it.
+ - We had our unhappy moments but they got channelled into the kind of sadness that was necessary for singing a song about going nowhere. So it worked out very well I think.
+ - I like the idea of Wild Infancy, of people who have a deprived background, of starting out wild.
+ - Richard Lloyd of Television is one of my favorite guitarists. His mentor was Jimi Hendrix when he was just 14. Jimi was always pounding everything he knew into that kid.
+ - Even the Beatles found it hard to escape their image; they were trapped by it.
+ - There are no more barbershop quartets wearing boaters, even though I still like them. Life goes on.
+ - Sometimes you don’t want to be a slapstick clown in order to convey a funny perception of the world.
+ - I have respect for those who make money at art and do it well and smartly, because that commercial aspect keeps the world going and running, in a sense.
+ - I would really love to work with Paul McCartney. Isn’t that arrogant?
+ - We groove off of everything, any sort of live show. The inner dialogue you’re having with yourself, between you and the music, is for me the search for God.
+ - I don’t want to wreck my voice. I love to concentrate on playing the bass and keeping it very rock-solid. If I were singing, I would have blown out my voice.
+ - Art is not predictable. Art is not golf, as great as that may be. There are 360 degrees of choice to make.
+ - It’s just such a pleasure to bring a talent you respect to the world.
+ - We don’t really have more than acouple of solos. It’s just the way our music is put together.
+ - Being able to allow people to be who they are without trying to change them is important.
+
+31 quotes

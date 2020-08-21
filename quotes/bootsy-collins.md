@@ -1,0 +1,38 @@
+ - If you fake the funk, your nose will grow.
+ - Just another point of view, I’m just a reflection of you.
+ - There’s a magical layer of love that’s laced, designed to take us to a higher place.
+ - During the course of the day, I write things down, things I don’t do anything with. Then, when I get ready to start recording, I just look through my books and I see if I can find something that stands out. That’s how I come up with the off-the-wall-kinda-strange-indirect-stuff.
+ - Skid marks all across my brain, cause you’re leaving me with so much pain. I was pretty sure that you could be the one, now it is evident that it was hit and run.
+ - Funk is the absence of any and everything you can think of, but the very essence of all that is. And saying that, I’m saying funk is anything that we create in our minds that we want to do, what we want to be, but we don’t have the resources.
+ - A roast is like a get-together where people come down and talk about you and dog you out, the way you came up, the knucklehead things that you did, stuff like that.
+ - My brother was very important to me. And he played guitar. So that’s what I wanted to be. I wanted to be a guitar player. So he was the first one to inspire me to do something with my life. And I was so glad that he was there.
+ - The smartphones and the computer separates everybody, makes you think that you don’t need nobody else.
+ - Yeah, because what it all boils down to is at the end of the day, we are all riding on the same boat and we have to learn how to deal with each other. I think that the music and what we do in our actions is what can kind of bring us together, hopefully.
+ - I used to draw stickmen with star glasses when I was at school. I didn’t realise that would end up being me! The whole idea was that the glasses had mirrors, and if a youngster looked at me, they’d see themselves. Everybody is a star.
+ - Sacred spirit of love, fall down on me from above.
+ - Usually when I’m out doing stuff, I’m just out in the wild, doing the wild thing. I don’t really get a chance to just chill out until I come here, in my creative space.
+ - Happiness is a side effect of doing something that has nothing to do with it.
+ - Nowadays, it’s like two different arenas, recording and touring. When I started way back in the day, doing both was nothing, you didn’t have to think about it, the road and recording.
+ - It’s very important that people realize: the air is being taken away, the oceans are being taken away, the room is being taken away, but we’re so worried about gas prices that we don’t even see this stuff.
+ - I like being out front, doing what I do, but then I also like playing in a band too. I’d like to do stuff like I did with Deee-lite. I went out and played with them and they were the stars, that was cool.
+ - But I’m always trying to plan ahead too and in doing so, and in working on this album, I’ve met a lot people that I hope to be involved with, on their records and in their situations.
+ - We are the greatest computers in this world, but now we’ve created the smart phone which is smarter than us now, but we’re still making dumb decisions. We have given our creations more power than we have, and that to me is dumb.
+ - We were brash young fellows. I was always hanging with the older crowd anyway. The musicians were the Hip Cats, and I was hanging with them anyway. I Just started out real early.
+ - I’ve thought maybe of getting younger artists out doing stuff, like I used to do a lot of. I don’t wanna do it day in and day out like I used to, but I still wanna do it.
+ - But by us doing a lot on the road, we were able to afford things like videos on the tours, cartoons that we’d open up the shows with. We were doing that way back when and now it’s the hippest thing to do. We’re just coming back around, I guess trying to play catch-up.
+ - When I was coming up, we weren’t trying to get a hit or get paid, we were just trying to do our thing. The only thing we were really trying to do was to be recognized for our originality.
+ - I’d like to have younger people around me and that I’ll be involved with them a lot more now, as opposed to me being the main focal point.
+ - I wanna keep creating those situations for myself so I don’t have to be out front all the time. Then when I do have to be out front, I can do it to the max.
+ - Recording wasn’t as important to me as actually being to get on stage and act the fool.
+ - I guess some of today’s programming has rubbed off on me because I find myself having to set time around for touring, putting that together and then setting time around for recording.
+ - I try to bring it across on my record, in my dress, in what I do and what I say because to me humor is important. You should have a dose of that and I guess giving it is what I’m here for.
+ - Once you lose that musician part -not just the playing, I’m talking about musician attitude- then you’re lost, man. Especially if you started out that way. It feels so good to be back, starting from the ground up.
+ - You have to get up and plant the seed and see if it grows, but you cant just wait around, you have to water it and take care of it.
+ - When you’re used to playing with people, when you’re in a band, then you’re used to playing with each other. People nowadays aren’t used to playing with each other because they don’t have to.
+ - Well actually, we are working on the live album from the shows in Japan. I’m trying to get that finished.
+ - We are all human and I want to relate that message to all people.
+ - Catfish is not playing guitar no more, he’s doing like a home-front thing. He had been in the business around ten years before I got in it, so I guess he’s had enough of it.
+ - I wanted to get my recording and become a musician again, work; with other people, do that kind of thing because I kind of got away from that for a while once we started happening, you know, selling records, sold out concerts.
+ - We learn a lot, but the actions we don’t put behind those things that we learn and we continue to make the same mistakes.
+
+36 quotes

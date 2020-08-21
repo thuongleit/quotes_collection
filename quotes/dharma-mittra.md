@@ -1,0 +1,39 @@
+ - Everything is perfect and nothing is permanent.
+ - Be kind to everyone; forgive everyone everything.
+ - Move your joints every day. You have to find your own tricks. Bury your mind deep in your heart, and watch the body move by itself.
+ - Go into seclusion and rest your mind on the silence.
+ - If you open your heart and become like a child, you will always be blissful, always content.
+ - When you are quiet, you see everything with love.
+ - With constant practice, one can improve his physical body and mental attitude rapidly, thereby igniting the higher motives of making one’s self useful to himself and all mankind.
+ - Always remember that Nature refuses to be rushed. She can only be made to evolve and that takes time, so take heart.
+ - You have to get serious about your practice!
+ - You have to find your own tricks!
+ - The highest state of meditation is Samadhi, where there is no ego anymore, no doubts, no me, no you, no notion of time, no eating, no talking, no walking, no working and not doing anything at all, realizing that the Self is action-less.
+ - The Spiritual Sun already blazes within.
+ - See yourself in the practice you are not able to access right now. Imagine yourself in it.
+ - Reduce your wants and lead a happy and contented life. Never hurt the feelings of others and be kind to all. Think of God as soon as you get up and when you go to bed.
+ - People become depressed when they neglect their spiritual practice.
+ - Animals are our inferior brothers and sisters. They are not meant to be eaten, but must be treated with love.
+ - Without the Yamas, known as the ethical rules, there is no success in Yoga.
+ - Every time you have a chance, go within and do your meditation.
+ - The chakras are very intelligent – they are like the software of the whole computer body.
+ - When you are doing things together, you are inside the collective mind, and share psychic knowledge with each other. That is how you become one.
+ - Everything depends on your mental attitude.
+ - Most adults don’t sing anymore. We have to break that, and start singing the name of the Almighty One, try to cultivate the emotions. We have to elevate our emotions to the maximum, to the limit, and that then turns into spiritual bliss.
+ - I love you all. I am you and you are me!
+ - If you offer them some sugarcane, even elephants can do this, sometimes on the first try.
+ - There are young people today that move like old people from eating too much junk food and not getting enough exercise.
+ - If you eat dead, toasted, fried or frozen food, you will feel dead, toasted, fried and frozen.
+ - I spent six years in the army. That’s the reason I am like a drill sergeant sometimes.
+ - I am only here to share my knowledge with others and to help them make rapid progress on the path of yoga.
+ - With the Ethical Rules and a little concentration, anything is possible.
+ - Sometimes you think you are 100% right, but you are 100% wrong!
+ - It is very good to see thousands of new teachers, so that with our thoughts, we can gradually change the world -send peace to the world. That’s the best contribution to world peace-first the students should find their peace, and then they share with the other students.
+ - Yogis love to be alone.
+ - Try this now. If you can’t do it, you can do Headstand instead. If you don’t want to do that, go home!
+ - Don’t worry. These poses have nothing to do with meditation or enlightenment.
+ - Let the skin be like water, let the flesh hang from the bones.
+ - There is a time to be still in the pose.
+ - Don’t teach too many postures; just the main ones, and hold them for a long time.
+
+37 quotes

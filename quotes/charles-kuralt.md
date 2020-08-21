@@ -1,0 +1,83 @@
+ - It takes an earthquake to remind us that we walk on the crust of an unfinished planet.
+ - Good teachers know how to bring out the best in students.
+ - Thanks to the Interstate Highway System, it is now possible to travel across the country from coast to coast without seeing anything.
+ - New York is the true City of Light in any season.
+ - It does no harm just once in a while to acknowledge that the whole country isn’t in flames, that there are people in the country besides politicians, entertainers, and criminals.
+ - I would like to explore some side roads in life while I am still in good health and good spirits.
+ - The everyday kindness of the back roads more than makes up for the acts of greed in the headlines.
+ - The love of family and the admiration of friends is much more important than wealth and privilege.
+ - There is melancholy in the wind and sorrow in the grass.
+ - I can’t say that I’ve changed anybody’s life, ever, and that’s the real work of the world, if you want a better society.
+ - I believe that writing is derivative. I think good writing comes from good reading.
+ - I much preferred the peaceful life on the road, where I didn’t have to ask embarrassing questions and do all the things real reporters have to do.
+ - And still I wander, seeking compensation in unforseen encounters and unexpected sights, in sunsets, storms and passing fancies.
+ - What you need for breakfast, they say in East Tennessee, is a jug of good corn liquor, a thick steak and a hound dog. Then you feed the steak to the dog.
+ - It is liberalism, whether people like it or not, which has animated all the years of my life. What on Earth did conservatism ever accomplish for our country?
+ - A true Southerner will never say in 2-3 words what can better be said in 10-12.
+ - When we become a really mature, grown-up, wise society, we will put teachers at the center of the community, where they belong. We don’t honor them enough, we don’t pay them enough.
+ - Often I have been exhausted on trout streams, uncomfortable, wet, cold, briar scarred, sunburned, mosquito bitten, but never, with a fly rod in my hand have I been less than in a place that was less than beautiful.
+ - The Mississippi River carries the mud of thirty states and two provinces 2,000 miles south to the delta and deposits 500 million tons of it there every year. The business of the Mississippi, which it will accomplish in time, is methodically to transport all of Illinois to the Gulf of Mexico.
+ - Look for joy in your life; it’s not always easy to find.
+ - I did stories about unexpected encounters, back roads, small towns and ordinary folk, sometimes doing something a little extraordinary.
+ - There are a lot of people who are doing wonderful things, quietly, with no motive of greed, or hostility toward other people, or delusions of superiority.
+ - The greatest thing you can do in life is to tell a young boy or girl that they’re ‘the very best’ at something – baseball, reading, art. That gives them the wonderful feeling that they can do anything, which they can!
+ - I didn’t know what narcissism was until I beheld my own naricssus.
+ - Rivers run through our history and folklore, and link us as a people. They nourish and refresh us and provide a home for dazzling varieties of fish and wildlife and trees and plants of every sort. We are a nation rich in rivers.
+ - In television, everything is gone with the speed of light, literally. It is no field for anybody with intimations of immortality.
+ - America is a great story and there is a river on every page of it.
+ - The reality of any place is what its people remember of it.
+ - That was the overwhelming thing to me, the joy of carrying my portable typewriter to an event and trying to describe it.
+ - It was so much fun to have the freedom to wander America, with no assignments. For 25 or 30 years I never had an assignment. These were all stories I wanted to do myself.
+ - You never heard anybody ask ‘Elvis who?’
+ - Since my retirement, I’ve spent a lot of time trying to help the School of Social Work at the University of North Carolina. A society like this just can’t afford an uneducated underclass of citizens.
+ - The storytelling tradition that you bring from the South, I don’t know where it arose, but it’s still there. You can’t go to the feed store, or the country courthouse without running into storytellers.
+ - I suppose I was a little bit of what would be called today a nerd. I didn’t have girlfriends, and really I wasn’t a very social boy.
+ - I had a tight stomach all the time. I actually developed ulcers. I’ve learned better than to put all that internal pressure on myself.
+ - I could tell you which writer’s rhythms I am imitating. It’s not exactly plagiarism, it’s falling in love with good language and trying to imitate it.
+ - I gained a great appreciation for what I would call the collective achievement of the country. I began thinking of America as a much more just and humane place than I would have thought if I’d been covering the civil rights struggle.
+ - I started out thinking of America as highways and state lines. As I got to know it better, I began to think of it as rivers.
+ - Just by luck, I picked good heroes to worship.
+ - It was cold out there, bitter, biting, cutting, piercing, hyperborean, marmoreal cold, and there were all these Minnesotans running around outdoors, happy as lambs in the spring.
+ - My parents encouraged me in everything I ever wanted to do.
+ - The sparrows are preparing for winter, each one dressed in a plain brown coat and singing a cheerful song.
+ - For a while there, I was a stringer. The expression comes from the old habit of stringing together the column inches that you had written. They’d measure it and pay you 10 cents an inch for your printed copy.
+ - You know, most reporters can’t go back to the towns they wrote stories about. I never wrote that kind of story.
+ - I don’t think I had a reputation as a hard worker, but inside I was always being eaten up by the pressures.
+ - I used to think that driving, sleepless, ambitious labor was what you needed to succeed.
+ - What I learned on the road. Above all else – to love my native land.
+ - You can find your way across this country using burger joints the way a navigator uses stars.
+ - I recognize that I had a good deal of good luck in my life. I came along at a time when it was pretty easy to get a job in journalism. I went to work at CBS News when I was about 22, and within a year or so was reporting on the air.
+ - I would love to write something that people would still read 50 or 100 years from now. That comes with growing older, I think.
+ - The first books I was interested in were all about baseball. But I can’t think of one single book that changed my life in any way.
+ - My mother, at least twice, cancelled our family’s subscription to the newspaper I was working on, because she was so mad about its treatment of my father.
+ - TV critics, who traditionally hate television and make their living writing about it, often didn’t like what I did on the air.
+ - A country so rich that it can send people to the moon still has hundreds of thousands of its citizens who can’t read. That’s terribly troubling to me.
+ - I’m not knocking the wholesale grocery business or any other, but there is a kind of romance in journalism which some people, the lucky ones, feel inside them all their lives.
+ - I think all those people I did stories about measured their own success by the joy their work was giving them.
+ - Most of those old settlers told it like it was, rough and rocky. They named their towns Rimrock, Rough Rock, Round Rock, and Wide Ruins, Skull Valley, Bitter Springs, Wolf Hole, Tombstone. It’s a tough country. The names of Arizona towns tell you all you need to know.
+ - I can’t remember a time when I didn’t want to be a reporter. I don’t know where I got the idea that it was a romantic calling.
+ - I was on the high school track team, believe it or not, and played baseball, poorly but passionately.
+ - I wasn’t a very discriminating reader. I read just about everything that came along.
+ - I’m not any kind of social reformer.
+ - I remember being in the public library and my jaw just aching as I looked around at all those books I wanted to read. There just wasn’t time enough to read everything I wanted to read.
+ - There is such a thing as a national conscience, and it can be touched.
+ - When I worked in Los Angeles covering hard news, very often when something important would happen I’d be off in the woods covering something unimportant, which was more interesting to me.
+ - I don’t know what makes a good feature story. I’ve always assumed that if it was a story that interested or amused me, that it would have the same impact on other people.
+ - I think the feature reporter often walks a very thin line between a truly human story and one that slops over into mushiness or sentimentality.
+ - I had a little insight into life that most kids probably didn’t have. My mother was a schoolteacher, and my father was a social worker. Through his eyes I saw the underside of society.
+ - I don’t think one should ever come to my stage of life and have to look back and say, Gosh. I wish I hadn’t spent all those years doing that job I was never really interested in.
+ - I didn’t like the competitiveness of big-time journalism.
+ - When I was a little boy I used to borrow my father’s hat, and make a press card to stick in the hat band. That was the way reporters were always portrayed in the movies.
+ - We always take credit for the good and attribute the bad to fortune.
+ - I didn’t have the ambition to be a broadcaster. I was going to be a newspaper reporter the rest of my life, but that opportunity came along.
+ - It’s best to leap into something you know you love. You might change your mind later, but that is the privilege of youth.
+ - It’s that enthusiasm, that passion for what you’re doing, that is most important.
+ - Kids are always asked, What are you going to be when you grow up? I needed an answer. So instead of saying, a fireman, or a policeman, I said, a reporter.
+ - If there are bleachers in heaven and a warm sun, that’s where you’ll find Bill Veeck.
+ - I saw how many people were poor and how many kids my age went to school hungry in the morning, which I don’t think most of my contemporaries in racially segregated schools in the South thought very much about at the time.
+ - I think I’d have done better if I had been a little more relaxed-if I had not pressed quite so hard, if I’d not lost quite so much sleep.
+ - I made friends with a lot of those who could have criticized me in print and who didn’t, who praised me instead.
+ - I don’t have any well-developed philosophy about journalism. Ultimately it is important in a society like this, so people can know about everything that goes wrong.
+ - Now that I look back on it, having retired from being a reporter, it was kind of romantic. It was a wonderful way to live one’s life, just as I imagined it would be when I was 6 or 7.
+
+81 quotes

@@ -1,0 +1,27 @@
+ - Bryan Lee O’Malley has been alive since he was born and will lives until he dies.
+ - I remember talking to someone who is vegan. At the time, I would hear a lot of outrageous claims from vegans about the good that being a vegan can do for you, for your health and whatnot. I remember someone once told me vegans don’t sweat, so I started my mind going.
+ - You suck, surprising no one!!!! If bad was a boot, you’d fit it!!!! You’re a stupid poo-poo head! I had sexual relations with your mother! Your mother was not that good in bed! You, sir, are a wretched soul! I am rubber, you are glue!
+ - I have a lot on my mind and not a lot to do so it’s going to come out, all of it, and then, then, it may begin to make a sort of sense.
+ - Maybe it’s important to open up I people- people who are right there with you, not some thousand miles away in another universe. Or maybe it’s something else. Maybe I should just settle for not knowing. Maybe it’s just good to know that you’re not the only one who doesn’t know.
+ - I’m too young to have experienced firsthand the ’70s rock, but when I was in high school, me and my friends were super into Neil Young. That was the grunge era, and he was considered cool again.
+ - Scott: I don’t think I’m ready to be a grown-up. Kim: I don’t think you are either, buddy. But hey, you’ll get it. It just takes practice.
+ - Listen to this, okay? Just listen. You hear that? That’s market bacon hitting the pan. Today a child is born unto us, and his name will be bacon.
+ - Scott, if your life had a face, I would punch it. I would punch your life in the face.
+ - These shoes are Mr Silly’s shoes, Scott.
+ - I don’t want to spend my entire life drawing talking heads. It seems like a waste of everyone’s time.
+ - Writing music is sort of my hobby, but it’s been falling off more and more. Doing comic books takes up my entire life.
+ - Each new book that comes out kind of pulls up the old ones a little bit.
+ - There was about six months when I was absorbing other stuff and not drawing very much. After a long period of not drawing, you have to, like, relearn how to draw. It’s not very fun.
+ - I’m 25 and just trying to understand women. Obviously, that is a process that never ends.
+ - When you do your first book, you’re just like, “This is my work.” And it’s just this whole other world that you throw yourself into.
+ - I do get the sense sometimes that if I draw things too nice, maybe I won’t be indie-rock enough anymore.
+ - When you’re alone, you look at yourself more, it is kind of inevitable.
+ - My readership seems to be the sensitive people, for the most part. Then there are the occasional fans who are like, “Ah, video games!”
+ - Let’s be friends based on mutual hate.
+ - Oh, hey, maybe I should have mentioned that my friends are retarded douchebags.
+ - Okay, this might sound vague, but do you know this one girl with hair like this?
+ - Out here where the world begins and ends, it’s like nothing ever stops happening.
+ - I’m sometimes sort of in touch with the readership, and they seem to have perceptive questions, for the most part.
+ - I used to be really influenced by Brian Bendis, back in his indie days. But I guess I try to tone that down.
+
+25 quotes

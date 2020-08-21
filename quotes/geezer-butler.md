@@ -1,0 +1,23 @@
+ - It doesn’t matter who you vote for. It’s still the same billionaires that run the world.
+ - If you polish things too much, it loses the feeling.
+ - I’d sort of dabbled in Black Magic, not practicing it, but I was interested in it. All these horrible things kept happening to me – a lot of my aunts and uncles started dying and I was seeing all these bloody things visiting me during the night.
+ - The ’80s were the worst period. You had these horrible pop bands growing their hair and calling themselves metal.
+ - Toward the later days of Sabbath, instead of going in and knocking out what songs we did in rehearsal, we would polish them to death.
+ - I’ve been perfectly happily married for 25 years, and have a nice life. Inane things don’t interest me.
+ - I never try and sound like Sabbath.
+ - I never picked a bass up before Sabbath started.
+ - The Geezer album, Black Science, had a lot of keyboards and it did not work.
+ - I love soccer. That’s all I ever watch. I’ll watch it all day if I can. But I’m too bloody old to play now.
+ - During our first meeting, Tony Iommi was a great jazz guitarist, his capabilities cover all styles – Black Sabbath has even narrowed his horizons.
+ - I was so frustrated in Sabbath after the last few albums. I just didn’t like the musical direction Sabbath was going in.
+ - To do the Ozzfest again would be great. I’d like to finish with a final Sabbath album. You always feel that it is still a challenge.
+ - What I used to play was rhythm guitar before I saw Jack Bruce. I said, That’s what I want to do in life. He was definitely the main influence.
+ - To me, Sabbath was always just a really heavy blues band. That s all we were. We just took those blues roots and made them heavier.
+ - When you see all of these bands citing you as influences, it makes you feel relevant.
+ - I would not want to write something about something I do not think about.
+ - Lately, Ive been listening to some jazz albums. I love the new Pat Metheny album. John Coltrane. I still like good metal, though!
+ - I like to deal in the reality of life. I’m too old to sing about women and things like that.
+ - Jack Bruce, as soon as I saw him, it changed me. I didn’t even know what bass players did until I saw Cream.
+ - Ozzy wanted to get us back together. It’s been 20 years. We did a couple of songs during his farewell in 1992 and that got the ball rolling.
+
+21 quotes

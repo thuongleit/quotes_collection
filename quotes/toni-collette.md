@@ -1,0 +1,36 @@
+ - The better you know yourself, the better your relationship with the rest of the world.
+ - I think that the Japanese culture is one of the very few cultures left that is its own entity. They’re just so traditional and so specific in their ways. It’s kind of untouched, it’s not Americanized.
+ - My life is as good as an Abba song. It’s as good as Dancing Queen.
+ - People are so fearful about opening themselves up. All you want to do is to be able to connect with other people. When you connect with other people, you connect with something in yourself. It makes you feel happy. And yet it’s so scary, it makes people feel vulnerable and unsafe.
+ - We’re all really happy with what’s familiar. But what’s inevitable in life is change. That’s what life is.
+ - An accent in a way can be an entry into a character.
+ - I think the most interesting thing about any story is how people change. That’s usually a struggle, because change is pretty much an uncomfortable thing.
+ - I’ve never really been a fan of violence.
+ - What I do affects others; what others do affects me.
+ - Travelling’s so much better when you know you’ve got a lovely home to go back to.
+ - It’s strange, because it seems that society is kind of promoting or nurturing this kind of ostracized existence. People are kind of very much in their own little worlds.
+ - Being in the desert was brilliant and it was hard.
+ - I don’t mind where I work, it’s really nice to be able to travel around and taste the flavours of different countries.
+ - I really believe in a oneness. So if I’m looking at somebody else, it’s not in a narcissistic way, but you’re kind of seeing yourself.
+ - I’m very happy with my lot. I like the variety I get. You don’t want to spend your life repeating yourself. It’s true of any kind of artist, you want to explore as wide and far as you can go, so that’s what I’ve been trying to do.
+ - It’s a funny time, but I’m sure in any time you live in, you’d consider it funny because life is change and it’ll just keep doing that. It’s a matter of embracing it or not.
+ - I don’t understand why I do what I do. I don’t understand why I act anymore. But I do know that I love it, and that I find it really interesting and satisfying to enter into other worlds and explore different ways of thinking.
+ - I think I’m true to myself – you hear that actors have like plans. I’m gonna do this type of movie, then I’m gonna play this kind of character, and that’ll get me from A to B. I’ve never done that. I honestly just follow my gut and I don’t think you can go wrong with that.
+ - I don’t try to live the life of my character but I think it’s inevitable that there is some carry-over into your life.
+ - I think it’s exciting to see actors do new things.
+ - To me, there are so many different things to believe in, but I think ultimately we’re all energy and that energy keeps changing.
+ - I try to play real people who inspire me through something in their journey.
+ - There are actors who are really fantastically talented at being natural on screen and appearing to be themselves, but I like the challenge of becoming somebody else.
+ - I grew up watching a lot of American television and so the American sound has been in my psyche somehow for a long time and is quite familiar and so that does make it easier.
+ - As far as kids go, at an early age they have to develop a sense of individuality. It’s just something that everyone goes through. But I think the older I get, the more I appreciate the fact that we really are just so connected.
+ - I personally kind of yearn to play characters who are complex and who strike a truthful chord in me and who are challenged in some way and, I guess, who kind of move through those challenges.
+ - I like being married, but it was never something I felt I had to do.
+ - Also, I think having a musicality about me that helps in identifying different things in languages and getting them right.
+ - I’ve never really been a fan of violence. I’m more into the characters and their journey and those kinds of movies don’t really allow for that. It’s a different focus.
+ - I kind of realized I could sing, so I played around with that for a while. And that led me to acting in itself, which I came more passionate about by the age of 15.
+ - Sometimes it was so quiet, its frightening. It really prioritizes things.
+ - I love kids, so working with them wasn’t a problem.
+ - I think as with everything in life you’ve got to follow your gut. If you believe it wholeheartedly, then it’s not going to feel like you’re kind of pasting on an idea.
+ - I’m glad that it was so physical and so isolated.
+
+34 quotes

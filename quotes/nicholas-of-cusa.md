@@ -1,0 +1,31 @@
+ - In humility alone lies true greatness, and knowledge and wisdom are profitable only in so far as our lives are governed by them.
+ - Through itself the soul arrives at all harmony that is perceptible in otherness-just as through what is internal the soul arrives at what is external.
+ - Divinity is in all things in such a way that all things are in divinity.
+ - The fact is that man has no longing for any other nature but desires only to be perfect in his own.
+ - Love is subsequent to knowledge and to the thing known, for nothing unknown is loved.
+ - Since beings desire to exist, because to exist is a good thing: they desire the One without which they cannot exist.
+ - There will be a machina mundi whose centre, so to speak, is everywhere, whose circumference is nowhere, for God is its circumference and centre and He is everywhere and nowhere.
+ - All we know of the truth is that the absolute truth, such as it is, is beyond our reach.
+ - But if you search further, you find in yourself nothing similar to God, but rather you affirm that God stands above all this as cause, origin, and the light of life of your intellective soul.
+ - In creating the world, God used arithmetic, geometry, and likewise astronomy.
+ - God says to man: ‘Be thou thyself, and I shall be thine.’
+ - A given circle cannot be so true that a truer one cannot be found; and the movement of a sphere at one moment is never precisely equal to its movement at another, nor does it ever describe two circles similar and equal, even if from appearances the opposite may seem true.
+ - Time is to eternity as an image is to its exemplar, and those things which are temporal bear a resemblance to those things which are eternal.
+ - Therefore, in the Beginning, which is Truth, all things are Eternal Truth itself.
+ - Within itself the soul sees all things more truly than as they exist in different things outside itself. And the more it goes out unto other things in order to know them, the more it enters into itself in order to know itself.
+ - Nothing could be more beneficial for even the most zealous searcher for knowledge than his being in fact most learned in that very ignorance which is peculiarly his own; and the better a man will have known his own ignorance, the greater his learning will be.
+ - For reason’s measurements, which attain unto temporal things, do not attain unto things that are free from time-just as hearing does not attain unto whatever is not-audible, even though these things exist and are unattainable by hearing.
+ - Just as all motion is from an unmovable cause, so everything divisible is from an indivisible cause. However, this visible, corporeal world is, assuredly, of a divisible nature, since what is corporeal is divisible. Therefore, this world is from an earlier, indivisible Cause.
+ - When Eternity is considered to be the Beginning, then our speaking of the Beginning of the Begun is nothing but our speaking of the Eternity of the Eternal or our speaking of the Eternity of the Begun.
+ - Nor is the darkness of colour a proof of the earth’s baseness; for the brightness of the sun, which is visible to us, would not be perceived by anyone who might be in the sun.
+ - The rational is apprehended through the intellect, however, the intellect is not found in the region of the rational; the intellect is as the eye and the rational as the colors.
+ - Number, in consequence, includes all things that are capable of comparison. It is not then in quantity only that number produces proportion; it produces it in all things that are capable of agreement and differences in any way at all, whether substantially or accidentally.
+ - With the senses man measures perceptible things, with the intellect he measures intelligible things, and he attains unto supra-intelligible things transcendently.
+ - That that which is neither true nor truthlike does not exist. Now, whatever exists, exists otherwise in something else than it exists in itself.
+ - All things are in the intended endpoint, and this mode of being is called will or desire.
+ - Otherness cannot be a form. For to alter is to deform rather than to form. Therefore, that which is seen in different things can also be seen in and of itself without otherness, since otherness did not give being to it.
+ - For when we say that what is different is different, we affirm that what is different is the same as itself. For what is different can be different only through the Absolute Same, through which all that is is both the same as itself and other than another.
+ - The intellect alone has an eye for viewing an essence, which it cannot see except in the true Cause, which is the Fount of all desire. Moreover, since all things seek to exist, then in all things there is desire from the Fount-of-desire, wherein being and desire coincide in the Same.
+ - All visible things would not claim as their king some color of their region, which is actually among the visible things of this region, but rather would say, he is the highest possible beauty of the most lucid and perfect color.
+
+29 quotes

@@ -1,0 +1,25 @@
+ - We led with our conviction rather than rational, because rational said it was impossible.
+ - Put your consumers in focus, and listen to what they’re actually saying, not what they tell you.
+ - The value of a company is the sum of the problems you solve.
+ - I had two passions growing up – one was music, one was technology. I tried to play in a band for a while, but I was never talented enough to make it. And I started companies. One day came along and I decided to combine the two – and there was Spotify.
+ - There are half a billion people that listen to music online and the vast majority are doing so illegally. But if we bring those people over to the legal side and Spotify, what is going to happen is we are going to double the music industry and that will lead to more artists creating great new music.
+ - I was born in Sweden, and in Sweden we are known for the piracy services.
+ - I’m not an inventor. I just want to make things better.
+ - In general, people are comfortable sharing their music. There are two exceptions, though – Lady Gaga and Britney Spears.
+ - This is a way for artists to communicate directly to their fans. If you think of an artist like Bruno Mars, he’s using Spotify, creating playlists and listening to music through it.
+ - Music isn’t like news, where it’s what happened five minutes ago or even 10 seconds ago that matters. With music, a song from the 1960s could be as relevant to someone today as the latest Ke$ha song.
+ - At the end of the day, I want the music industry to be larger than what it is today.
+ - At Spotify, we really want you to democratically win as a musician. We want you to win because your music is the best music.
+ - No one wants to wait for tracks to buffer or spend hours searching through a Web site to find their favorite song.
+ - With Spotify, people don’t get it until they try it. Then they tell their friends.
+ - But right now we have an advantage of being the number one in music.
+ - Ask yourself: given everything you have to do, is there a way that we can make this better?
+ - Spotify has paid more than two billion dollars to labels, publishers and collecting societies for distribution to songwriters and recording artists.
+ - It disturbed me that the music industry had gone down the drain, even though people were listening to more music than ever and from a greater diversity of artists.
+ - I actually bought a travel guitar, and that guitar is really cool. You can actually fold the guitar, and you can plug headphones into it, but it’s acoustic, or semi-acoustic.
+ - People just want to have access to all of the world’s music.
+ - I was deeply uncertain of who I was and who I wanted to be. I really thought I wanted to be a much cooler guy than what I was.
+ - There are millions of people who consume music illegally every month. Just getting them into a legal service will make the music industry way bigger than it’s ever been before.
+ - With Twitter and other social networking tools, you can get a lot of advice from great people. I learn more from Twitter than any survey or discussion with a big company.
+
+23 quotes

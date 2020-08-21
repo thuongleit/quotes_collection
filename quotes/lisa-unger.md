@@ -1,0 +1,38 @@
+ - The past is history. The future is a mystery. The present is a gift.
+ - The Universe doesn’t like secrets. It conspires to reveal the truth, to lead you to it.
+ - The universe conspires to reveal the truth and to make your path easy if you have the courage to follow the signs.
+ - It must be the ultimate punishment, don’t you think, to finally gain wisdom, only to realize that the consequences of your actions are irrevocable?
+ - Once you’ve started down that road to self-discovery, no matter how treacherous the path before you, you can’t turn back. The universe doesn’t allow it.
+ - I loved him so much. It didn’t change all the reasons we couldn’t be together, but it kept me returning to his body, kept my skin seeking his skin over and over again in the sad dance we did.
+ - You can cut the ties that bind but not without losing a part of yourself. You can walk away and hide from the people who made you, but you’ll always hear them calling your name.
+ - When you love someone, it doesn’t really matter if they love you back or not. Having love in your heart for someone is its own reward. or punishment, depending on the circumstances.
+ - Bored people looked for drama and caused trouble.
+ - Denial: my family heritage. If you don’t ask the questions, the truth will never inconvenience you.
+ - Everyone always talks about how well mothers know their children. No one ever seems to notice how well children know their mothers.
+ - We can’t hold on to anyone or anything, you know. We lose everything except that which we carry within us.
+ - The truth has not so much set us free as it has ripped away a carefully constructed facade, leaving us naked to begin again.
+ - I think that’s the moment when we all grow up, when we stop blaming our parents for the messes we’ve made out of our lives and start owning the consequences of our actions.
+ - Even if someone is overcome with rage, it takes amazing arrogance to kill.
+ - Love accepts. Forgiveness comes in time.
+ - There have been plenty of chances to close my eyes and go back to the sleep of my life as it was, but I hadn’t taken any of them. Do I wish now that I had? It’s hard to answer that question, as the wraiths move closer.
+ - We may say we’re looking for love, following dreams, chasing the dollar, but aren’t we just looking for a place where we belong? A place where our thoughts, feelings, and fears are understood? – Ridley Jones.
+ - If I weren’t a writer, I’d be a psychiatrist.
+ - People who stay in the same town with the same friends for their entire lives never get a chance to find out who they can really be, because they will always be considered as who they were.
+ - The woman I was seems hopelessly naive. I envy her.
+ - Hope is good. Without it, well, you do the math. But hope has to be like a prayer. Putting it out there to something more powerful than yourself.
+ - Chevy Stevens is in top form. ALWAYS WATCHING is a tense and twisty exploration of dark memories, hidden pasts, and a place that seems like heaven but might be hell. This is a deep and exciting novel, as unsettling as it is gripping.
+ - I don’t think of my characters as people I create, I think of them more as people I have met and whom I’m exploring on the page. I don’t actually think of myself as having ‘created’ any of these people.
+ - In the end, I cared about him so much that I just thought he deserved someone who loved him more than I did.
+ - Alafair Burke is one of the finest young crime writers working today.
+ - Judgment is such a useful shield, isn’t it? We can hide behind it, rise above others on its crest, keep ourselves safe and separate.
+ - It’s strange how memory gets twisted and pulled like taffy in its retelling, how a single event can mean something different to everyone present.
+ - The worst violence we can do to each other often is psychological, especially in families. I dwell a lot on domestic danger. Thats the backdrop of most of my novels – what kind of damage is done without ever lifting a finger.
+ - Writers are first and foremost observers. We lose ourselves in the watching and then the telling of the world we find. Often we feel on the fringes, in the margins of life. And that’s where we belong. What you are a part of, you cannot observe.
+ - Many people believe that evil is the presence of something. I think it’s the absence of something.
+ - Motherhood was an ever widening circle of good-byes.
+ - Isn’t it funny how the people least impacted by tragedy are the most eager to move on?
+ - When you’re young it’s easy to confuse passion for love.
+ - I didn’t see the point of judging and analyzing a single moment in someone’s life.
+ - Today something interesting happened. I died.
+
+36 quotes

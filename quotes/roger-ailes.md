@@ -1,0 +1,39 @@
+ - I quit politics because I hated it.
+ - I think the worst decision is usually no decision. If you make the wrong decision you can usually course-correct, but if you don’t make it, you’ve already made it, and it’s usually the bad one.
+ - If you have a choice between qualifications and personal qualities when it comes to hiring people, go with personal qualities. You can teach them the job.
+ - I can’t stand cruel people. And if I see people doing something mean to somebody else just to make themselves feel important, it really gets me mad.
+ - It’s better to be in charge of change than to have to react to change.
+ - I only understand friendship or scorched earth.
+ - I love rich people. Any time I needed a job, I went to a rich person. I like poor people, but they never had a job for me.
+ - My doctor told me that I’m old, fat, and ugly, but none of those things is going to kill me immediately.
+ - Growing up in Ohio and just being kind of an average guy from flyover country – my dad was a factory guy – I try to put things on a screen that reflect reality. I don’t mind if people want to argue with that, or think that’s crazy.
+ - I don’t have any focus groups on talent and programming. If I need five people in a mall to be paid $40 to tell me how to do my job, I shouldn’t do my job.
+ - You can get people the qualifications; But you can’t teach them the qualities they’re going to need. You can’t teach integrity, a drive for excellence, refusal to quit under pressure. It’s too late to build that into people you’re going to hire.
+ - Capitalism works. In the end, socialism imploded on itself. Communism imploded on itself. Ultimately jihadism will implode on itself, if we stay in the fight and stay on offense because failed philosophies don’t work, there’s no future.
+ - Obama’s the one who never worked a day in his life. He never earned a penny that wasn’t public money. How many fund-raisers does he attend every week? How often does he play basketball and golf? I wish I had that kind of time.
+ - Television and I grew up together.
+ - You can’t sell a book in America if you don’t dump on Bush. That’s the cheapest shot in the world. You cannot get an advance, and you can’t sell a book because the publishers are all people who hate Bush and hate Republicans.
+ - I hired Sarah Palin because she was hot and got ratings.
+ - I want to elect the next president.
+ - You never pull the trigger until you know you can win.
+ - CNN International, Al-Jazeera and BBC are the same in how they report mostly that America is wrong and bad.
+ - Truth is whatever people will believe.
+ - People always describe my successes in life. My successes in life tend to be personal, not career.
+ - The thing you always have to remember is, you look at people and they might look like a failure but there’s often a narrow thing they do very well.
+ - I hire people who can do their jobs and who will advise me of things they don’t agree with. The worst thing you can do is get in a room with 14 people who say, “OK!” Then you really are making decisions about engineering and finance and other areas.
+ - I often tell my clients they should do at least 30 percent of all their reading outside their own field. This will give them perspective and knowledge that will make them more interesting.
+ - I have a soft spot for Joe Biden. I like him. But he’s dumb as an ashtray.
+ - I’m very confident in the management team, very confident in the on-air people. That’s the whole secret to everything. It’s having people who love to work where they’re working and want to win.
+ - I’ve been in entertainment, politics, business, business coaching, public affairs, documentaries, programming, news, theater. So, there aren’t many things I see that I haven’t seen something like that before.
+ - I think I have a good eye for talent. I think I’m smart enough to figure out what the mission is and achieve it. I achieve it by hiring good people.
+ - You cover the bad news about America. You do. But you don’t get up in the morning hating your country. And so, until somebody shows me lines at the border trying to get out, I think there’s some good news.
+ - The candidates that can’t face Fox, can’t face al Qaeda.
+ - Almost everything I do is related to my ability to hire good people. I don’t take much of the credit myself. I think I have a good eye.
+ - I look for something unique, and I look for people who haven’t reached their potential. I think I’m pretty good at developing talent.
+ - There is a – deep down, underneath all the work I do, I think there’s a laziness in me.
+ - Every other network has given all their shows to liberals. We are the balance.
+ - I grew up in the era when Dan Rather hated Richard Nixon. He was a newsman, but you knew what his opinion was.
+ - Everybody who’s in the news business today was influenced in a positive way by Walter Cronkite. He had ability, humility and integrity, a rare combination.
+ - Everybody fears the unknown. But I have a strong feeling there’s something bigger than us. I don’t think all this exists because some rocks happened to collide. I’m at peace. When it comes, I’ll be fine, calm. I’ll miss life, though. Especially my family.
+
+37 quotes

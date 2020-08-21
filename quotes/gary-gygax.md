@@ -1,0 +1,28 @@
+ - Role-playing isn’t storytelling. If the dungeon master is directing it, it’s not a game.
+ - The secret we should never let the gamemasters know is that they don’t need any rules.
+ - Games give you a chance to excel, and if you’re playing in good company you don’t even mind if you lose because you had the enjoyment of the company during the course of the game.
+ - I would like the world to remember me as the guy who really enjoyed playing games and sharing his knowledge and his fun pastimes with everybody else.
+ - The essence of a role-playing game is that it is a group, cooperative experience.
+ - I’m just a risk taker. I have gut instincts.
+ - Enjoy a ‘world’ where the fantastic is fact and magic really works!
+ - I hated school, didn’t like the discipline.
+ - There is no winning or losing, but rather the value is in the experience of imagining yourself as a character in whatever genre you’re involved in, whether it’s a fantasy game, the Wild West, secret agenst or whatever else. You get to sort of vicariously experience those things.
+ - Random chance plays a huge part in everybody’s life.
+ - Of course as children, we all, in all cultures and societies, learn behavior from observation, imitation, and encouragement of various kinds. So by the suggestion made, we all ‘pretend’ most of the time.
+ - Games give you a chance to excel...
+ - Gaming in general is a male thing. It isn’t that gaming is designed to exclude women. Everybody who’s tried to design a game to interest a large female audience has failed. And I think that has to do with the different thinking processes of men and women.
+ - I wasn’t popular in the home office because I wasn’t chicken. I’m just a risk taker. I have gut instincts.
+ - Outside of the mindless sitcoms that the networks thrive on, people able to think generally consider most entertainment is escape in one form or another.
+ - When AI approximates Machine Intelligence, then many online and computer-run RPGs will move towards actual RPG activity. Nonetheless, that will not replace the experience of ‘being there,’ any more than seeing a theatrical motion picture can replace the stage play.
+ - One more thing: don’t spend too much time merely reading. The best part of this work is the play, so play and enjoy!
+ - Somebody said they threw their copy of Dungeons and Dragons into the fire, and it screamed. It’s a game! The magic spells in it are as real as the gold. Try retiring on that stuff.
+ - Pen-and-paper role-playing is live theater and computer games are television. People want the convenience and instant gratification of turning on the TV rather than getting dressed up and going out to see a live play. In the same way, the computer is a more immediately accessible way to play games.
+ - As a typically ambitious player, I did what all others of that ilk do: Everything I could do to gain advantage for my PCs and rise in level as rapidly as possible.
+ - Send anyone claiming that their RPG activity is an art form my way, and I’ll gladly stick a pin in their head and deflate it just to have the satisfaction of the popping sound that makes. One might play a game artfully, but that makes neither the game nor its play art.
+ - There’s a call to adventure. It’s something in the inner psyche of humanity, particularly males.
+ - I foresee online gaming changing when there are good audio-visual links connecting the participants, thus approximating play in a face-to-face group.
+ - I think a lot of what I was taught, gathered, and learned is worth keeping. Heritage and “wisdom” and simply personal family and local history enrich the one able to tap such information. As it is I wish I had garnered more from my grandparents and parents.
+ - If you are an inventor, then you are destined for blood, sweat and tears.
+ - The books I write because I want to read them, the games because I want to play them, and stories I tell because I find them exciting personally.
+
+26 quotes

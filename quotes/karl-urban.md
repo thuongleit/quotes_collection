@@ -1,0 +1,29 @@
+ - Nothing beats a great smile.
+ - Sometimes it’s nice to know that what you’ve done has been appreciated.
+ - A lot of the ancient Norse myths and legends are the basis of a lot of the sci-fi, fantasy films out there. Telling these stories in a contemporary medium, it’s all good.
+ - When you pick up a script and you can’t stop reading it because it’s a real page-turner, that’s a good sign.
+ - There’s only so much you can do until you get on set and see the aesthetics of what you’re dealing with. Then you see what the other players are giving to you. It’s all about the transfer of energy between different actors.
+ - I love fishing and surfing, and I work out every day.
+ - When you work so hard on making a film, it’s all worthwhile when you get to experience seeing that film with an audience who thoroughly enjoy it and react to the movie.
+ - I am in awe, in admiration of the man who Gaius Julius Caesar was. I don’t actually do him as the man himself. He is maybe a distant relative. It’s hard to approach the real man because he is such an awesome icon.
+ - Yeah, I played video games on and off for quite a few years. I played Doom and was a fan of the game and that was my prime reason for doing the film.
+ - I would think, as an actor, it’s just much more fun to be the bad guy.
+ - Russell Means is quite a legend in the Indian community for what he’s been able to achieve. It was a real honor to work with a guy who’s been on the front lines of fighting for what he believes in.
+ - There’s only so much artistic output that I can actually expel at any one given time.
+ - I’ve always wanted to do a Western.
+ - My philosophy is whatever you do, you’ve got to invest in yourself. If you don’t, there are a lot of people out there who will get the job because they’re more prepared than you.
+ - I’ll need every ounce that I have to drive it through. Film and TV require that energy. Sometimes fight scenes can be pretty intense. When I was shooting “Heaven” it was truly guerrilla film-making.
+ - When I work, I try to eat as much vegetarian as possible. When I do Cupid, I eat vegetarian because I need the energy. I’ve got those wings on my back.
+ - That’s always an interesting concept when you try to make your dream into a reality and you come up against the facts of exactly what it is you’re attempting to do.
+ - I’ve got a New Zealand film coming out here called Out of the Blue. It’s a very heavy story, and it’s the first time I’ve played a character who is alive.
+ - I don’t believe I could work as effectively at what I do without the support of my wife.
+ - That is a big danger, losing your inspiration. When I work in film and television I try to do each take a little differently. I never want to do the same thing twice, because then you’re not being spontaneous, you’re just recreating something.
+ - One of the crazy things about our job is that we get taught these insane skills that we could never use in real life.
+ - I just really hope that Peter Jackson and New Line Cinema can resolve all their differences. I’m hoping that’s going to happen, but we’d have to wait and see. I would love to explore Middle Earth again with Peter.
+ - I was a fan of the ‘Dredd’ comics when I was a teenager.
+ - I did a little theatre work after that and the following year I got another part in a television series. Then it was almost to the end of the year before I got more work. That was coming to terms with the reality of the vocation I had chosen.
+ - I don’t see a benefit in accepting every single little morsel of work that comes along because I think in essence what you’re doing is you’re raping yourself really.
+ - I like the timeframe involved in being an actor.
+ - If I read a script and find it engaging and I start making choices in my mind on how to approach the work, than that’s a good indication that it is something worth pursuing.
+
+27 quotes

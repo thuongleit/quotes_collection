@@ -1,0 +1,123 @@
+ - They said you could not make it. Prove them wrong.
+ - Be your own motivation.
+ - If you think, you can become successful and you are willing to learn and work at success, one day you will become successful.
+ - Look in the mirror. You must first love yourself before you can receive true love from someone else.
+ - The fruits of your labor will bare the fruits of your success.
+ - There is no way to completely fail unless you completely quit.
+ - Success for me is to go out there and dominate.
+ - Success is not going to just come to you. You must go out and get it.
+ - Success is a state of mind, waiting for action.
+ - Love with no feelings is a waste.
+ - True love can’t be bought.
+ - I might not be as successful as you are today, but tomorrow, next month, next year, or five years from now will be another story.
+ - The only limitations are the ones we put on ourselves and I just don’t believe in limiting myself.
+ - My biggest complaint about customer service is that I am put on hold too long.
+ - Customer service. That is what it means.
+ - Wanting the best that life has to offer is so nice. Working for the best that life has to offer is greater.
+ - Love is wonderful to have. True love is hard to find.
+ - Today is the best day to accomplish something.
+ - I’m beating all the weakness out of myself, beating all the give-up out of myself, I’m beating the lack of cardio, I’m beating the lack of confidence – any sign of weakness that’s in my heart, I’m getting rid of it.
+ - Talk is cheep. Love is priceless.
+ - I am an athlete in every sense of the word. Athlete, martial artist.
+ - Successful people are often times highly motivated people.
+ - You don’t have to be the smartest person to become successful and wealthy. Many of the most successful and wealthy people in society are not the most educated people.
+ - True love will never fade like a rainbow.
+ - Like a raisin in the sun; that will swivel up and fade away. Your success dreams will swivel up and fade away, if you are not motivated enough to work for them.
+ - Just when I thought life was over you came into my life.
+ - If you fail to pay your bill by 9 AM tomorrow morning your service will be discontinued.
+ - There is one thing I know for sure. You can become successful, if you are willing to pay the price for success.
+ - No doubt, love comes in many colors of the rainbow.
+ - To become successful you will have to get mad about your current situation. After you get mad, get motivated to do something about it.
+ - Love lost can be found again.
+ - Lying is a false significance of speech, with a will to deceive, which cannot be cured but by shame and reason; it is a monstrous and wicked evil, that filthily depraved and defileth the tongue of man.
+ - To live and love is a wonderful thing.
+ - Love can’t be stolen without willing participants.
+ - Though I lost you years ago, I dreamed you were here. That dream gave me the inspirational feeling that I could make it one more day.
+ - I look at obstacles as opportunities.
+ - In a fight, you got to know that there’s a strong chance you’re going to get hurt. But at the same time, you know, most of the injuries you sustain in fighting are not career-ending injuries.
+ - One of the greatest forms of success is to be able to help others accomplish their own success.
+ - I’m sorry I thought I paid my bill. I was wrong.
+ - When life has beaten you up and you can’t see a way to go on. Trust that tomorrow will change your fortune.
+ - Change Quotes were designed for those who need to change.
+ - Most customer service people are great. It’s that one customer service person from hell that drives me crazy!
+ - I’m crazy enough to believe that maybe I’ll never lose a fight.
+ - Hell will freeze over before I send you any money for this unwarranted bill.
+ - A natural adversary is a customer service representative.
+ - Time is invincible, impregnable, insurmountable, invulnerable, unstoppable and time is invisible.
+ - Look at those who have talked about you and doubted you. They are your inspirational reason to succeed.
+ - When the going gets tough that should be your inspirational reason to drive on.
+ - Don’t ask for love when you are not capable of giving it.
+ - The economy has made me think I have no power. That is not true. I control the power to change my future.
+ - I’m just a different machine than I used to be, where now I’ve taken my diet more serious than I ever have in my life, and I’ve gotten way small. My physique is just completely different to the way it used to be.
+ - I think part of what people are responding to with Lambeau Field is that it’s a solid culture. There’s so much committed to what hockey means and that’s how we feel about football. It’s just a great connection between the culture of football and the culture of hockey.
+ - As lonely and sad as I am today, your return will cause a new birth in me.
+ - Change quotes were meant to move us from inaction to action.
+ - Trust may be in short supply after years of disappointments. However, improvement could come in a bat of an eye!
+ - We have concluded that “Intelligent Design” is not science, and moreover that ID cannot uncouple itself from its creationist, and thus religious, antecedents.
+ - I’m not going to pay this bill. I don’t owe you any money. You do what you got to do!
+ - I refuse to pay a bill I don’t owe.
+ - I had rather get a root canal without anesthesia than to call your customer service office for help.
+ - Believe in yourself. Believe in your heart and once you get there, don’t slow down.
+ - I think my confidence offends a lot of people, but I think people should learn from it and be inspired by it, instead of finding it offensive.
+ - Thank you for helping me solve this problem.
+ - That customer service representative is crazy, if he think I am going to pay that bill.
+ - This customer service person doesn’t understand that this bill was paid and I am not going to pay it again.
+ - Bill collectors and harassing phone calls is enough to motivate some people to become successful. Maybe the pain is not great enough yet for you to act. Are you going to continue to feel sorry for yourself? On the other hand, are you ready to do what you need to do to change your situation?
+ - Just to clear the record ive never turn down a mma fight against anyone and never will.
+ - It is alright to trust. But trust comes with responsibility.
+ - My account is paid in full. So, why are you calling me?
+ - I get fired up when emotions are involved. I think it pulls a little bit of extra out of me.
+ - Tell someone you love them and mean it.
+ - Love has been stronger than the air you breathe.
+ - Having to call your customer service department is like falling off a six story building.
+ - When you are down and out, find something or someone to love.
+ - I know you have been waiting on hold for 40 minutes, but I can’t answer your question.
+ - I have been on the phone 30 minutes with you and you haven’t helped me solve this problem.
+ - If you really want love, ask for it. Those who are willing to ask are often the ones who receive.
+ - Thus men of more enlighten’d genius and more intrepid spirit must compose themselves to the risque of public censure, and the contempt of their jealous contemporaries, in order to lead ignorant and prejudic’d minds into more happy and successful methods.
+ - I’m glad the UFC wanted to work with me as well, and I think that they trust that I’ll never make them look bad. You never have to worry about me with a DWI or doing something crazy.
+ - It’s hard to live a full life without love.
+ - You can call me 10 times a day to pay this bill but, I do not owe your company any money.
+ - Despite the failures you’ve had, you can be great.
+ - I have never felt any pain that I can remember.
+ - As a customer service representative; it is hard to deal with people who has an attitude when I pick up the phone.
+ - In my mind, I’ve never lost a fight.
+ - The universe is the baby of time.
+ - Become important to others.
+ - Success is more a part of who you are, than anything outside of you.
+ - I guess the worst thing you feel in a fight is being out of shape.
+ - The mighty army of time is without equal.
+ - You know, when you’ve been to the top, you get comfortable, and you know what it feels like to be a champion, to have nice things and all that. You know, it’s just not as appealing as it was coming up.
+ - I’ve dominated a majority of my opponents. Very few people I only win against. Most of the time it’s pretty one-sided. That’s success to me.
+ - Technology is the gene uncorked.
+ - Sir, if you don’t pay this bill by the close of business on Friday; we will be forced to disconnect your service.
+ - True love has always been a two-way proposition.
+ - The worst injury I’ve ever seen in a fight was with Anderson Silva when his leg snapped in half.
+ - When it comes to trust it is better to have it than to live without it.
+ - Nothing can take the place of true love.
+ - When it comes to love, too many people are out to lunch.
+ - I paid my bill. Let me speak to your supervisor!
+ - It is possible for love to grow and multiply if you work at it.
+ - Failure is what you may need to eventually succeed.
+ - Oh no. I got a customer service person from another country.
+ - Everything is a possibility. I believe we’re put on this earth to think big and dream big.
+ - There’s a quote that says, ‘If you know yourself and you know your opponent, you shouldn’t fear the results of 100 battles.’ Just really being prepared gives you a lot of confidence.
+ - Peace is one of the greatest gifts we can leave our children.
+ - Love can climb the highest mountain or sink to the lowest depth.
+ - Help! The customer service representative doesn’t understand my problem.
+ - I’ve always been a guy that has strived for dominating, not only winning.
+ - I take it so seriously as far as meditation, notes, visualization, preparation, everything. I take it a lot more serious than a lot of people that play this sport. I’m obsessed with the game that I play.
+ - Opportunity seldom come along and knock you on the Head.
+ - I appear to be a lot bigger than what I am.
+ - Love will turn you on your head.
+ - Wake up this morning knowing that the possibility for love is closer.
+ - I’ve been on hold for 30 minutes. I just got disconnected.
+ - I guess emotion really isn’t necessary for me to go out and perform well.
+ - Love and happiness is a great match.
+ - When there is, love life gets better.
+ - Why do I have to pay a reconnect fee when you all made the mistake?
+ - How the hell can I owe that much? That’s not right.
+ - Quotes about marriage are surprised filled.
+ - I think it’s important to be an absolute believer and have that confidence.
+
+121 quotes

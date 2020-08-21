@@ -1,0 +1,26 @@
+ - The art of life is a constant readjustment to our surroundings.
+ - Tea began as a medicine and grew into a beverage.
+ - Let us dream of evanescence, and linger in the beautiful foolishness of things.
+ - Perfection is everywhere if we only choose to recognise it.
+ - True beauty could be discovered only by one who mentally complete the incomplete.
+ - Friends are flowers in life’s garden.
+ - Those who cannot feel the littleness of great things in themselves are apt to overlook the greatness of little things in others.
+ - In joy or sadness, flowers are our constant friends.
+ - A man without tea in him is incapable of understanding truth and beauty.
+ - Meanwhile, let us have a sip of tea. The afternoon glow is brightening the bamboos, the fountains are bubbling with delight, the soughing of the pines is heard in our kettle. Let us dream of evanescence, and linger in the beautiful foolishness of things.
+ - Cares melt when you kneel in your garden.
+ - A garden is a friend you can visit any time.
+ - Tea is more than an idealization of the form of drinking; it is a religion of the art of life.
+ - Our mind is the canvas on which the artists lay their colour; their pigments are our emotions; their chiaroscuro the light of joy, the shadow of sadness. The masterpiece is of ourselves, as we are of the masterpiece.
+ - The ancient sages never put their teachings in a systematic form. They spoke in paradoxes, for they were afraid of uttering half-truths. They began by talking like fools and ended by making their hearers wise.
+ - In Japan, I took part in a tea ceremony. You go into a small room, tea is served, and that’s it really, except that everything is done with so much ritual and ceremony that a banal daily event is transformed into a moment of communion with the universe.
+ - We take refuge in pride, because we are afraid to tell the truth to ourselves.
+ - Teaism is a cult founded on the adoration of the beautiful among the sordid facts of everyday existence. It inculcates purity and harmony, the mystery of mutual charity, the romanticism of the social order.
+ - Tea is a work of art and needs a master hand to bring out its noblest qualities. We have good and bad teas, as we have good and bad paintings – generally the latter.
+ - It is not the accumulation of extraneous knowledge, but the realization of the self within, that constitutes true progress.
+ - The canvas upon which the artist paints is the spectator’s mind.
+ - Translation is always a treason, and as a Ming author observes, can at its best be only the reverse side of a brocade- all the threads are there, but not the subtlety of colour or design.
+ - The art of today is that which really belongs to us: it is our own reflection. In condemning it we but condemn ourselves.
+ - Fain would we remain barbarians, if our claim to civilization were to be based on the gruesome glory of war.
+
+24 quotes

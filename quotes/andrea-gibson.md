@@ -1,0 +1,77 @@
+ - I don’t have a single plan for my life more important than learning to love people well.
+ - I said to the sun, ‘Tell me about the big bang.’ The sun said, ’it hurts to become.
+ - Commit to loving yourself completely. It’s the most radical thing you will do in your lifetime.
+ - You keep worrying you’re taking up too much space. I wish you’d let yourself be the milky way.
+ - I could never trust anyone who’s well adjusted to a sick society.
+ - When your heart is broken, you plant seeds in the cracks and pray for rain.
+ - We have to create; it is the only thing louder than destruction.
+ - Everyone’s chest is a living room wall with awkwardly placed photographs hiding fist-shaped holes.
+ - Know you belong here. You belong here and everything you feel is okay.
+ - Before I die, I want to be somebody’s favorite hiding place, the place they can put everything they know they need to survive, every secret, every solitude, every nervous prayer, and be absolutely certain I will keep it safe. I will keep it safe.
+ - I am living today as someone I had not yet become yesterday and tonight I will borrow only pieces of who I am today to carry with me to tomorrow.
+ - Remind me that the most fertile lands were built by the fires of volcanoes.
+ - My mouth is a fire escape. The words coming out don’t care that they are naked. There is something burning in there.
+ - Safety isn’t always safe. You can find one on every gun.
+ - I’d cut my soul into a million different pieces just to form a constellation to light your way home. I’d write love poems to the parts of yourself you can’t stand. I’d stand in the shadows of your heart and tell you I’m not afraid of your dark.
+ - I’m good at loving books. I’m good at loving soft bed sheets. I’m good at loving coffees and teas. I am good at loving things that can’t love me back, that don’t have the power to leave. And maybe, that’s why I love them.
+ - Sometimes the most healing thing to do is remind ourselves over and over and over, other people feel this too.
+ - I write because it is while I’m writing that I feel most connected to why we’re here. I write because silence is a heavy weight to carry. I write to remember. I write to heal. I write to let the air in. I write as a practice of listening.
+ - Autumn is the hardest season. The leaves are all falling, and they’re falling like they’re falling in love with the ground.
+ - If love did not exist, I would be so goddamn sane.
+ - For Halloween I’m gonna be emotionally stable. No one’s gonna know it’s me.
+ - Sometimes the break in your heart is like the hole in the flute. Sometimes it’s the place where the music comes through.
+ - I intend to leave this life so shattered there’s gonna have to be a thousand separate heavens for all of my flying parts.
+ - I am wrong more often than i am writing and even then i am often wrong.
+ - Fear is only a verb if you let it be. Don’t you dare let go of my hand!
+ - A doctor once told me I feel too much. I said, so does god. that’s why you can see the grand canyon from the moon.
+ - Forests may be gorgeous but there is nothing more alive than a tree that learns how to grow in a cemetery.
+ - This is my body. It is no one’s but mine.
+ - I know a thousand things louder than a soldier’s gun; I know the heartbeat of his mother.
+ - Someday we will dare to trade good for true.
+ - My heart is still a leather jacket I am waiting to give to someone sweet.
+ - We all have different reasons for forgetting to breathe.
+ - You have a heart of gold and I am kneeling in your bloodstream panning for the only thing that has ever felt like home.
+ - Do you think anger is a sincere emotion or the timid motion of a fragile heart trying to beat away its pain?
+ - If a tree fell in the forest, and you were the only one there to hear it; if its fall to the ground didn’t make a sound, would you panic in fear that you didn’t exist, or would you bask in the bliss of your nothingness?
+ - Remember, you didn’t come here to write your heart out. You came to write it in.
+ - If you’re handing out flashlights in the dark, start handing out stars.
+ - This is my heartbeat like yours, it is a hatchet It can build a house or tear one down.
+ - Your ignorance keeps dismembering every piece of patience I have left.
+ - We’re boxed in and labeled before we’re ever able to speak who we believe we are or who we dream we’ll become.
+ - Yes, I like girls; Yes, I like boys; I like boys who like boys; I like girls who wear toys and girls who don’t; I like girls who don’t call themselves girls; Crew cuts or curls or that really bad hair phase in between.
+ - But when I thought I hit bottom, it started hitting back. There is no bruise like the bruise loneliness kicks into your spine.
+ - I have always been comfortable weathering the storm. I’d like to get more comfortable weathering the sunny day.
+ - You never wish on shooting stars. You wish on the ones that have the courage to shine where they are.
+ - Our insanity is not that we see people who aren’t there. It’s that we ignore the ones who are.
+ - Every lover is a storm chaser. Every good heart has lost its roof.
+ - Love isn’t always magic. Sometimes it’s just melting.
+ - We were all born on days when too many people died in terrible ways, but you still have to call it a birthday.
+ - The holy have done more damage to this world than the devil ever could.
+ - Everything but “I LOVE YOU” is small talk.
+ - Touch me ’til my ribs become piano keys, ’til there is sheet music scrolled across the inside of my lungs.
+ - You are not weak just because your heart feels so empty.
+ - To think, a sweater, is made entirely of knots. My stomach could clothe a village.
+ - We all have bullets beneath our skin we pray our lovers won’t flinch at when they find.
+ - My heart is a parachute that has never opened in time.
+ - Love is like sunshine. Sometimes you have to get burned to know you were there. I want to know that I’m here.
+ - What Gods do you believe in? I’ll build you a temple of mirrors so you can see them.
+ - If you ever reach enlightenment. will you remember how to laugh?
+ - Say this is what the pain made of you: an open, open, open road, an avalanche of feel it all.
+ - None of us are pretty, but our ugly has an alibi.
+ - So guess what, if I ever have my own team I am picking everyone first even the worst kid and the kid with the stutter like a skipping record ’cause I know all of us are scratched, even if you can’t hear it when we speak.
+ - Right now there’s a man on the street outside my door with outstretched hands full of heartbeats no one can hear. He has cheeks like torn sheet music every tear-broken crescendo falling on deaf ears. At his side there’s a boy with eyes like an anthem no one stands up for.
+ - I don’t believe we’re hateful. I think mostly we’re just asleep, but the math adds up the same.
+ - How many wars will it take us to learn that only the dead return?
+ - Touch me ’til my ribs become piano keys.
+ - You can have a cold war with yourself, even in the summertime.
+ - I would kiss you in the middle of the ocean during a lightning storm cuz I’d rather be left for? dead than wondering what thunder sounds like.
+ - I’m never gonna wait that extra twenty minutes to text you back and I’m never gonna play hard to get when I know your life has been hard enough already.
+ - You can find me on the moon waxing and waning. My heart full of petals, every single one begging ‘Love me, love me, love me. Whoever I am. Whoever I become.’
+ - That night when you kissed me, I left a poem in your mouth, and you can hear some of the lines every time you breathe out.
+ - But whatever However Whenever this ends I want you to know That right now I love you forever.
+ - I’ve written this poem before but always through a window, never through an open door.
+ - Do you know they found land mines in woman’s souls.
+ - In your arms I forget what the yarn knows of sweaters. I forget how to hold myself together. So if I unfold now like a love letter tell me you’ll write back soon. Tell me you’ll still come untethered.
+ - Yesterday i carved your name into the surface of an ice cube then held it against my chest til it melted into my aching pores today i cried so hard the neighbors knocked on my door and asked if I wanted to borrow some sugar.
+
+75 quotes

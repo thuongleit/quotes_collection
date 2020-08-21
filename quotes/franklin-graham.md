@@ -1,0 +1,37 @@
+ - Jesus is Lord! That is not negotiable.
+ - Prayer is our essential lifeline to God’s throne and heart.
+ - Islam is an evil and wicked religion.
+ - No matter what storm you face, you need to know God loves you. He has not abandoned you.
+ - It was Christ who willingly went to the cross, and it was our sins that took him there.
+ - We must not forget that it wasn’t the Jews that put him on the cross, and it wasn’t the Romans. It was my sins, it was your sins, the sins of this world.
+ - Every life is precious to God. God created every one of us. He gave us a soul, and that soul will live as long as God lives.
+ - We often become mentally and spiritually barren because we’re so busy.
+ - There is not a single thing that Jesus cannot change, control, and conquer because he is the living Lord.
+ - This search for happiness can knock us out of sync with God. As the life of Jesus makes clear, keeping in sync with God is about obedience. Any other pursuit will get in the way.
+ - And in eternity, faith is the only currency that counts.
+ - At a time when our country is waging two wars, approval ratings for Congress are at historic lows, unemployment is at a 70-year high and financial institutions have collapsed around us, I can’t imagine anyone seriously opposing a National Day of Prayer.
+ - When we realize and embrace the Lord’s will for us, we will love to do it. We won’t want to do anything else. It’s a passion.
+ - Prayer is the most powerful resource we have in this life; yet, many only turn to it as a last resort. When unbelievers pray for repentance of sin and ask for God’s forgiveness, prayer is the spiritual dynamite that obliterates the darkness and despair of a sin-soaked soul.
+ - God’s word is the same, yesterday and today and a million years from now.
+ - I don’t believe our country will last the way we know it much longer unless there’s a change. And we just continue this moral decline going down, and the only hope, I believe, is God. We just hope and pray that maybe he’ll hear our prayers and give us some godly leadership.
+ - Every shoebox offers an opportunity to share the Good News of the Savior with a hurting child.
+ - I don’t want people to think that I’m standing on the steps of the capitals.
+ - Christians can trust God to redeem even the greatest of tragedies and the most desperate of situations.
+ - As we enter this election year, let’s not forget the most important decision anyone can make-choosing Christ.
+ - No judge can stop us from praying for our country and I pray that on May 6, millions of Americans will join me in praying for our President, all of our elected leaders, and even for this unjust judge and all those who rule from the bench – that God would guide them and give them wisdom.
+ - Well, I’ve never really been one to try to be politically correct. I just feel truth is truth, and sometimes I probably offend some people.
+ - We certainly love the Muslim people. But that is not the faith of this country. And that is not the religion that built this nation. The people of the Christian faith and the Jewish faith are the ones who built America, and it is not Islam.
+ - True followers of Christ emulate Christ – true followers of Mohammed emulate Mohammed.
+ - Abortion continues to be a scourge against this country.
+ - I don’t want people to think that I’m there politicking for this person or that person. We’re not doing that. This is a campaign for God. We need to get godly men and women to run for office, and we need to get the godly men and women out to vote.
+ - I’ve been called to the slums of the streets and the ditches of the world.
+ - We can all humbly say in the sincerity of faith, “I am loved; I am called; I am secure.”
+ - Just being the son of Billy Graham won’t get me into heaven.
+ - Evangelistic preaching is what Daddy does, I never thought I would.
+ - He came to give His life for the sins of mankind, not to take life. Mohammad on the contrary was a warrior and killed many innocent people. True followers of Christ emulate Christ-true followers of Mohammed emulate Mohammed.
+ - I just believe as a Christian, we are to show love; we are to show compassion to people, not to point the finger, not to do this, but to do this – to love them, to welcome them, to embrace them.
+ - There was one thing I was never going to do – no way: preach at a crusade!
+ - You have to look at what a person does with his life. Anyone can say that hes a Christian, but you look at how they live.
+ - Most Christians would not recognize Mormonism as part of the Christian faith.
+
+35 quotes

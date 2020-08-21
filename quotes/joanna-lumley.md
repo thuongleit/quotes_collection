@@ -1,0 +1,30 @@
+ - Death is nothing at all. I have only slipped away into the next room.
+ - My mother early on taught us to respect all animals, and I mean all animals – not just cats and dogs but rats and snakes and spiders and fish and wildlife, so I really grew up believing they are just like us and just as deserving of consideration.
+ - Learn from nature. Stuff lives and stuff dies all the time, you know. Animals and birds and flowers. Trees come and go, and we come and go. Thats it. So we should all seize life and make the most of what we have while we can.
+ - I’ve been given this blessing, which is my granddaughter. You’re no longer just you. You suddenly fit into the chest of drawers of life.
+ - I am blessed beyond the realms of blessedness, and easily the greatest pleasure is giving it away.
+ - I think handbags, not so much clothes anymore, but I think you can tell a fashion victim by their handbag.
+ - Sure, good things can go badly wrong. Nevertheless, there’s always another day.
+ - I am now an old lioness, if I see my young ones getting out of order, I’ve got to be able to say to them this is not how lions behave. This is not right.
+ - I’ve got lots of good friends. I could have affairs. I can read a book all night, put the cat on the end of the bed. I can pick up my passport and go to France. I don’t have to ask anybody.
+ - I’ve looked forward to being older because you will have that many more miles covered. We mustn’t be led into thinking getting old is bad. Growing old is good.
+ - I find it a great antidote lipstick and mirrors and hairspray.
+ - I never mind scrubbing floors, vacuuming or bending and carrying stuff. Each time I do it I think, this is instead of going to the gym.
+ - Film work is hard work. It’s long days, and quite often quite dismaying locations you have to be in.
+ - I’ve never felt the constraints of social acceptability.
+ - I have a toy giraffe on my bed. I’ve got photographs over my desk as well as a mask of a giraffe in my kitchen. I am totally hooked.
+ - NASA space scientists have been studying giraffe skin so they can apply what they learn from it to the construction of spacesuits.
+ - Hundreds of political prisoners still suffer in Tibetan prisons. Freedom of speech is not allowed in any sense. It is illegal to possess a photo of the Dalai Lama.
+ - I prefer not to eat food that has a face.
+ - If you’re an enthusiast and you love the world like I do, it comes naturally. But I think charity must become more fun to give, more interactive and imaginative.
+ - In Kenya you’ve got the great birds and monkeys leaping through the trees overhead. It’s a chance to remember what the world is really like.
+ - My grandmother is a famous atlas.
+ - I don’t feel like I am 66 at all. I feel more like I am 35. But I have a bus pass so it must be true.
+ - The Treorchy Male Choir’s version of “Myfanwy” is one of the most glorious things I’ve ever heard in all my long life. Love and congratulations to you all.
+ - I would do anything to keep looking the job. I think you make an extra effort if you’re on show.
+ - To be a judge you don’t have to know about books, you have to be skilled at picking shrapnel out of your head.
+ - I was once kissed on the lips by a giraffe, and I don’t think I’ve ever got over it.
+ - It’s an incredibly difficult thing to bring a giraffe down. They can kill a lion with a single blow from their feet.
+ - We transported eight giraffes, and there are now nine because one gave birth to a male shortly afterwards. They carry their pregnancies very well-they all looked the same.
+
+28 quotes

@@ -1,0 +1,22 @@
+ - Stay up and really burn the midnight oil. There are no compromises.
+ - Accomplishments have no color.
+ - Be black, shine, aim high.
+ - For a long time the only time I felt beautiful-in the sense of being complete as a woman, as a human being, and even female-was when I was singing.
+ - I am here and you will know that I am the best and will hear me. The color of my skin or the kink of my hair or the spread of my mouth has nothing to do with what you are listening to.
+ - If you’re not feeling good about you, what you’re wearing outside doesn’t mean a thing.
+ - The ultimate of being successful is the luxury of giving yourself the time to do what you want to do.
+ - I have never given all of myself, even vocally, to anyone. I was taught to sing on your interest, not your capital.
+ - You should always know when you’re shifting gears in life. You should leave your era; it should never leave you.
+ - All token Blacks have the same experience. I have been pointed at as a solution to things that have not yet begun to be solved, because pointing at us token Blacks eases consciences of millions, and this is dreadfully wrong.
+ - Who I am is the best I can be.
+ - If you are going to think black, think positive about it. Don’t think down on it, or think it is something in your way. And this way, when you really do want to stretch out and express how beautiful black is, everybody will hear you.
+ - Art is the only thing you cannot punch a button for. You must do it the old-fashioned way. Stay up and really burn the midnight oil. There are no compromises.
+ - The way I was taught, being black was a plus, always. Being a human being, being in America, and being black, all three were the greatest things that could happen to you. The combination was unbeatable.
+ - I am here and you will know that I am the best and will hear me.
+ - Momma was home. She was the most totally human, human being that I have ever known, and so very beautiful. Within our home, she was an abundance of love, discipline, fun, affection, strength, tenderness, encouragement, understanding, inspiration, support.
+ - We should not have a tin cup out for something as important as the arts in this country, the richest in the world. Creative artists are always begging, but always being used when it’s time to show us at our best.
+ - Once you get on stage, everything is right. I feel the most beautiful, complete, fulfilled. I think that’s why, in the case of noncompromising career women, parts of our personal lives don’t work out. One person can’t give you the feeling that thousands of people give you.
+ - I prefer to leave standing up, like a well-mannered guest at a party.
+ - If I do have some success, I’d like to enjoy it, for heaven’s sake! What is the point of having it otherwise?
+
+20 quotes

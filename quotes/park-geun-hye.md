@@ -1,0 +1,24 @@
+ - In the 21st century, culture is power.
+ - South Korea’s economy is still difficult. I will create a country where nobody worries about putting food on the table.
+ - I will open an era of grand national unity.
+ - I have no child to inherit my properties. You, the people, are my only family, and to make you happy is the reason I do politics.
+ - I will end the history of division and conflict through reconciliation and fairness.
+ - Different times need different types of leadership.
+ - I will be the president of the nation who keeps pledges.
+ - I have no family to take care of.
+ - I couldn’t stand back and watch the strong economy that my father envisioned go to ruins.
+ - I believe that it is an unchanging value of democracy that ends cannot justify the means in politics.
+ - In human life, economics precedes politics or culture.
+ - My father’s biggest achievement was to motivate the South Korean people, to show them we could become prosperous if we worked hard. He taught me to love my country, and serve my country.
+ - I will keep the promise I made to you to open a new era on the Korean peninsula, based on strong security and trust-based diplomacy.
+ - All facts prove that the Saenuri Party is a group of traitors who stoop to any infamy to realize its ambition to seize power.
+ - National partition is a sorrow that touches all Koreans, but for me it is brought to the fore by unimaginable personal suffering.
+ - I will try to work for greater reconciliation, cooperation and peace in North East Asia based on correct perception of history.
+ - I know more than anyone the divergent views about my father. I want to be judged on my own merits.
+ - Big businesses aren’t the only ones in the economic ecosystem. Nobody should fall behind because of an unfair structure.
+ - I will never forget the will of the people who believed in me wherever I went during the election campaign.
+ - I understand that the end does not justify the means. And this should be a lasting value for democracy.
+ - Various channels of dialogue must be kept open to build trust. I will meet North Korea’s leader if it is needed to develop relations between the two Koreas.
+ - We need fundamental change. In the past, national development led to people’s happiness but now the link between national growth and improvement in people’s lives has been severed.
+
+22 quotes

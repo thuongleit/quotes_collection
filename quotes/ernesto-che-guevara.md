@@ -1,0 +1,100 @@
+ - The revolution is not an apple that falls when it is ripe. You have to make it fall.
+ - Better to die standing, than to live on your knees.
+ - Be realistic, demand the impossible!
+ - The first duty of a revolutionary is to be educated.
+ - If you have the capacity to tremble with indignation every time that an injustice is committed in the world, then we are comrades.
+ - Let the world change you and you can change the world.
+ - Live your life not celebrating victories, but overcoming defeats.
+ - Every day People straighten up the hair, why not the heart?
+ - To accomplish much you must first lose everything.
+ - The true revolutionary is guided by great feelings of love.
+ - It’s not my fault if reality is Marxist.
+ - I am not a liberator. Liberators do not exist. The people liberate themselves.
+ - We travel just to travel.
+ - Above all, try always to be able to feel deeply any injustice committed against any person in any part of the world. It is the most beautiful quality of a revolutionary.
+ - It’s a sad thing not to have friends, but it is even sadder not to have enemies.
+ - Silence is argument carried out by other means.
+ - There is no other definition of socialism valid for us than that of the abolition of the exploitation of man by man.
+ - It is an illusion to think that the matter cannot be resolved through words.
+ - The walls of the educational system must come down. Education should not be a privilege, so the children of those who have money can study.
+ - One has to grow hard but without ever losing tenderness.
+ - I don’t care if I fall as long as someone else picks up my gun and keeps on shooting.
+ - To execute a man we don’t need proof of his guilt. We only need proof that it’s necessary to execute him. It’s that simple.
+ - The best form of saying is being.
+ - Words that do not match deeds are not important.
+ - We must do away with all newspapers. A revolution cannot be accomplished with freedom of the press.
+ - At the risk of seeming ridiculous, let me say that the true revolutionary is guided by a great feeling of love. It is impossible to think of a genuine revolutionary lacking this quality.
+ - We must strive everyday so that love of living humanity will be transformed into actual deeds, into acts that serve as examples, as a moving force.
+ - There are no borders in this fight to the death; we cannot be indifferent to what is happening in any part of the world.
+ - Cruel leaders are replaced only to have new leaders turn cruel.
+ - Youth should learn to think and act as a mass. It is criminal to think as individuals!
+ - I now know, by an almost fatalistic conformity with the facts, that my destiny is to travel...
+ - Democracy cannot consist solely of elections that are nearly always fictitious and managed by rich landowners and professional politicians.
+ - Chess is an effective means to educate and train the human intellect.
+ - The desire to sacrifice an entire lifetime to the noblest of ideals serves no purpose if one works alone.
+ - How is it possible to feel nostalgia for a world I never knew?
+ - Democracy is not compatible with financial oligarchy.
+ - As long as imperialism exists it will, by definition, exert its domination over other countries. Today that domination is called neocolonialism.
+ - You know, comrade Pachman, I don’t enjoy being a Minister, I would rather play chess like you, or make a revolution in Venezuela.
+ - I know you are here to kill me. Shoot, coward, you are only going to kill a man.
+ - One does not necessarily have to wait for a revolutionary situation: it can be created.
+ - While envisaging the destruction of imperialism, it is necessary to identify its head, which is no other than the United States of America.
+ - A smoke in times of rest is a great companion to the solitary soldier.
+ - We cannot be sure of having something to live for unless we are willing to die for it.
+ - A country that does not know how to read and write is easy to deceive.
+ - When forces of oppression come to maintain themselves in power against established law, peace is considered already broken.
+ - I knew that the moment the great governing spirit strikes the blow to divide all humanity into just two opposing factions, I would be on the side of the common people.
+ - A revolutionary must become a cold killing machine motivated by pure hate. We must create the pedagogy of the The Wall!
+ - Guerrilla warfare is used by the side which is supported by a majority but which possesses a much smaller number of arms for use in defense against oppression.
+ - The revolution is made through human beings, but individuals must forge their revolutionary spirit day by day.
+ - The victory of Socialism is well worth millions of atomic victims!
+ - We have no right to believe that freedom can be won without struggle.
+ - If any person has a good word for the previous government that is good enough for me to have him shot.
+ - The world must not only be interpreted, it must be transformed. Man ceases to be the slave and tool of his environment and converts himself into the architect of his own destiny.
+ - I am not Christ or a philanthropist, old lady, I am all the contrary of a Christ I fight for the things I believe in, with all the weapons at my disposal and try to leave the other man dead so that I don’t get nailed to a cross or any other place.
+ - In a revolution, one triumphs or dies.
+ - What do we leave behind when we cross each frontier? Each moment seems split in two: melancholy for what was left behind and the excitement of entering a new land.
+ - It is not a matter of wishing success to the victim of aggression, but of sharing his fate; one must accompany him to his death or to victory.
+ - I have sworn before a picture of the old and mourned comrade Stalin that I won’t rest until I see these capitalist octopuses annihilated.
+ - I will fight with all the weapons within my reach rather than let myself be nailed to a cross or whatever.
+ - Real revolutionaries adorn themselves on the inside, not on the surface.
+ - This is not a story of heroic feats, or merely the narrative of a cynic; at least I do not mean it to be. It is a glimpse of two lives running parallel for a time, with similar hopes and convergent dreams.
+ - A new era will dawn in Africa, when the impoverished masses of a nation rise up to rescue their right to a decent life from the hands of the ruling oligarchies.
+ - The question is one of fighting the causes and not just being satisfied with getting rid of the effects.
+ - I finally felt myself lifted definitively away on the winds of adventure toward worlds I envisaged would be stranger than they were, into situations I imagined would be much more normal than they turned out to be.
+ - We are overcome by anguish at this illogical moment of humanity.
+ - How can it be “mutually beneficial” to sell at world market prices the raw materials that cost the underdeveloped countries immeasurable sweat and suffering.
+ - The ultimate and most important revolutionary aspiration: to see human beings liberated from their alienation.
+ - We must not return to the practice of hiding our defects so they may not be seen. That would be neither honest nor revolutionary.
+ - It is not just a simple game, it is a weapon of the revolution.
+ - Whenever death may surprise us, let it be welcome if our battle cry has reached even one receptive ear and another hand reaches out to take up our arms.
+ - Youth must refrain from ungrateful questioning of governmental mandates. Instead they must dedicate themselves to study, work and military service. The very spirit of rebellion is reprehensible.
+ - Man truly achieves his full human condition when he produces without being compelled by the physical necessity of selling himself as a commodity.
+ - Peaceful coexistence cannot be limited to the powerful countries if we want to ensure world peace.
+ - The final hour of colonialism has struck, and millions of inhabitants of Africa, Asia and Latin America rise to meet a new life and demand their unrestricted right to self-determination.
+ - Our youth must always be free, discussing and exchanging ideas concerned with what is happening throughout the entire world.
+ - Many will call me an adventurer – and that I am, only one of a different sort: one of those who risks his skin to prove his platitudes.
+ - Justice remains the tool of a few powerful interests; legal interpretations will continue to be made to suit the convenience of the oppressor powers.
+ - In fact, if Christ himself stood in my way, I, like Nietzsche, would not hesitate to squish him like a worm.
+ - Blind hate against the enemy creates a forceful impulse that cracks the boundaries of natural human limitations, transforming the soldier in an effective, selective and cold killing machine. A people without hate cannot triumph against the adversary.
+ - Perhaps one day tired of circling the world I’ll return to Argentina and settle in the Andean lakes if not indefinitely then at least for a pause while I shift from one understanding of the world to another.
+ - Wrapped in a police blanket, I watched the rain and smoked one black cigarette after another...
+ - Revolution cleanses men, improving them as the experimental farmer corrects the defects of his plants.
+ - Direct aggression against Cuba would mean nuclear war. The Americans speak about such aggression as if they did not know or did not want to accept this fact. I have no doubt they would lose such a war.
+ - Americans are given the sole option of electing their jailer for four years and sometimes do him the honour of re-electing him.
+ - Arms cannot be regarded as merchandise in our world. They should be delivered to the peoples asking for them for use against the common enemy without any charge at all, and in quantities determined by the need and their availability.
+ - The word that most perfectly describes the city of Cuzco is evocative. Intangible dust of another era settles on its streets, rising like the disturbed sediment of a muddy lake when you touch its bottom.
+ - I wanted to take part in the liberation of even a small piece of enslaved Latin America.
+ - The myth of the self-made man, has to be profoundly hypocritical: it is the self-serving demonstration that a lie is the truth.
+ - I am not Christ or a philanthropist, old lady, I am all the contrary of a Christ...
+ - Once again I feel beneath my heels the ribs of Rocinante. Once more, I’m on the road with my shield on my arm.
+ - To send men to the firing squad, judicial proof is unnecessary. These procedures are an archaic bourgeois detail. This is a revolution! And a revolutionary must become a cold killing machine motivated by pure hate.
+ - Imperialism has been defeated in many partial battles. But it remains a considerable force in the world, and we cannot expect its final defeat save through effort and sacrifice on the part of all of us.
+ - The socialist countries have the moral duty of liquidating their tacit complicity with the exploiting countries of the West.
+ - The fundamental principle is that no battle, combat, or skirmish is to be fought unless it will be won.
+ - It is a revolution that came to power with its own army and on the ruins of the army of oppression.
+ - There are no boundaries in this struggle to the death. We cannot be indifferent to what happens anywhere in the world, for a victory by any country over imperialism is our victory; just as any country’s defeat is a defeat for all of us.
+ - War is always a struggle in which each contender tries to annihilate the other. Besides using force, they will have recourse to all possible tricks and stratagems to achieve the goal.
+ - The guerrilla band is not to be considered inferior to the army against which it fights simply because it is inferior in fire power.
+
+98 quotes

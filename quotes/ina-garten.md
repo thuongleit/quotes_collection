@@ -1,0 +1,47 @@
+ - Anyone who tries to make brownies without butter should be arrested.
+ - You can be miserable before you have a cookie and you can be miserable after you eat a cookie but you can’t be miserable while you are eating a cookie.
+ - Creme Brulee is the ultimate ‘guy’ dessert. Make it and he’ll follow you anywhere.
+ - Food is not about impressing people. It’s about making them feel comfortable.
+ - In the summer you want fresh, light and sort of quick things; in winter you want things that are comforting, so your body really tells you you want to go towards potatoes, apples, fennel, things that are warm and comforting. And loin of pork.
+ - Never let ’em see you sweat. Guests feel guilty if they think you’ve worked too hard to make dinner for them – which of course you have!
+ - I always like to have flowers on the table. I think they make it look special.
+ - The most overrated tool: a pasta maker. Why make it when you can buy it? It’s a lot of work!
+ - Grilled cheese and tomato soup is the ultimate comfort meal.
+ - All my life I dreamed of an apartment in Paris where I could cook, and now I have one, on the Left Bank.
+ - If it’s a cocktail party, I generally make five or six different things, and I try to choose recipes that feel like a meal: a chicken thing, a fish or shrimp thing, maybe two vegetable things, and I think it’s fun to end the cocktail party with a sweet thing.
+ - Instead of going out to dinner, buy good food. Cooking at home shows such affection. In a bad economy, it’s more important to make yourself feel good.
+ - My favorite fall or winter lunch is big steaming bowls of soup. I usually invite people for around 12:30 and have two hearty soups like shrimp corn chowder and lentil sausage soup, which can be made a day or two ahead.
+ - I try to greet my friends with a drink in my hand, a warm smile on my face, and great music in the background, because that’s what gets a dinner party off to a fun start.
+ - The most important thing for having a party is that the hostess is having fun. I’m very organized. I make a plan for absolutely everything. I never have anything that has to be cooked while the guests are there. The only thing I might have to do is take something out of the oven and carve it.
+ - I’ve taught myself how to use good, fresh ingredients and to prepare them as simply as possible by cooking only to enhance their intrinsic flavors.
+ - I always have music. I love it to be very upbeat. When you’re having drinks, I like something like Cesaria Evora. During dinner, I like the much more traditional – old Frank Sinatra and things like that.
+ - When I thought my professional career was over, it hadn’t even started yet.
+ - I like almonds as a snack – keeps your energy up but doesn’t fill you up.
+ - One of the great gifts that you can give people is to cook for them.
+ - I love to take something ordinary and make it really special.
+ - I absolutely adore Thanksgiving. It’s the only holiday I insist on making myself.
+ - The thing about all my food is that everything is a remembered flavor. Maybe it’s something I had as a child or maybe it’s something I had in Milan, but I want it to taste better than you ever thought.
+ - Take one flower that you like and get lots of them. And don’t try to ‘arrange’ them. It’s surprisingly hard to do a flower arrangement the way a florist does one. Instead, bunch them all together or put them in a series of small vases all down the table.
+ - I’ve lived in the Hamptons since 1978, when I first bought my store Barefoot Contessa.
+ - You don’t have to do everything from scratch. Nobody wants to make puff pastry!
+ - I love Alton Brown’s show ‘Good Eats,’ about the chemistry of food. It’s really thoughtful.
+ - They say that gardens look better when they are created by loving gardeners rather than by landscapers, because the garden is more tended to and cared for. The same thing goes for cooking. I only cook for people I love.
+ - I think the best shortcut is to choose really simple recipes. Because I think you can make simple recipes that are as delicious as complicated ones.
+ - I time everything. I’m a scientist at heart.
+ - My extravagance is my garden – it’s the first thing I look at every morning when I wake up. It gives me so much pleasure.
+ - My mother would never let me in the kitchen. I always wanted to cook, but I was never allowed to. Her view of the world was, ‘Cooking is my job, and studying is your job.’ I think, in retrospect, she didn’t like the chaos. She was very orderly. It had to be her way.
+ - I measure everything, because I always think that if I’ve spent so much time making sure this recipe was exactly the way I want it, why would I want to throw things into a pot?
+ - Every once in a while, a cookbook comes along that simply knocks me out.
+ - I’m really a scientist. I follow recipes exactly – until I decide not to. And then I’ll follow something else exactly. I may decide I could turn this peach tart into a plum tart, but if I’m following a recipe, I follow it exactly.
+ - I get up every day, do the best that I can do, and go home and have a good time.
+ - I don’t like sitting at a table that’s too large, where everyone is too far apart. That’s a party killer.
+ - The dirty little secret is that I grew up in a household where there were no carbohydrates allowed, ever. No cookies, no bread, no potatoes, no rice. My mother was very extreme in terms of what she served. Since I left home more than 40 years ago, I’ve been making it right for myself.
+ - It’s so important that you don’t put the stuffing in the bird, where in order for the stuffing to get cooked you have to overcook the turkey. It’s better to do it on the side.
+ - I use other cookbooks for inspiration. I must say I tend to cook from my own cookbooks for parties.
+ - Fun is the most important. If you do stuff for money, it never works out.
+ - When I wrote ‘Barefoot in Paris,’ I wanted to make simple recipes that you could make at home that tasted like French classics.
+ - The planning is everything. Deciding which dishes you’re going to prepare can turn into the make-or-break decision five days later, when you actually serve the meal.
+ - If you think about a Thanksgiving dinner, it’s really like making a large chicken.
+ - People have more fun if they don’t eat so much they have to be taken home in an ambulance.
+
+45 quotes

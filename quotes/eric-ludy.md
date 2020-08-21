@@ -1,0 +1,30 @@
+ - The fire to pursue God, the zeal to know God, and the humility to allow God to do whatever He pleases with our lives.
+ - When we pray in the name of Jesus, we carry the authority of heaven.
+ - When you crash into the living God, the encounter is certain to renovate every square inch of your life’s boat.
+ - Heroes are made because they are moved. Not in their head, but in their heart.
+ - The Word of God is a treasure map. That treasure map is the most valuable thing you have until you get to that treasure.
+ - You don’t have to be a pastor to let your passion be felt and your voice heard. You just need to be willing to be the first one willing to die.
+ - God is not interested in you doing this for Him, He is interested in doing things THROUGH you.
+ - Everything that originates from God will endure the test of time. Therefore, it is good to check out the origins of everything to make sure they were started by God.
+ - We’ve been so concerned about being cool, relevant, and fun that we have forgotten to be bread, light, and life to a hungry, dark, and dying world.
+ - My problem with the Emergent Church is not the questions they are bringing up, but the answers they are giving. They are making Christianity milky. They are making it so you can no longer define anything. There is no sound judgment allowed.
+ - Everything in this world is designed to oppose your forward movement!
+ - But I, for one, am not interested in a harmless truth or a harmless God. Give me a truth that works, and a God who makes me tremble.
+ - But the commission is now. The time to speak is when the Spirit of God boils the message so hot within you that it must come out. The time to write is when God Almighty presses his thumb against your heart and forces the words out like a steaming geyser.
+ - Fact is fact. Truth is Truth. It does not matter how you feel. We do not listen to our feelings. We believe the truth of God’s word.
+ - Humility is measured by how quickly you can admit that you are wrong.
+ - The holy, all-loving, all-powerful, all-mighty, perfectly peaceful and joyful Life of God is waiting to be ours. It is a priceless gift that comes with only one condition: His Life can only be had in exchange for our own.
+ - The principle is this: We must not allow anything into our life that feeds our point of weakness. A soldier doesn’t dance through a mind field any more than we should play with a hand grenade. When the enemy’s entry points are boarded up, it frees us to hear clearly the voice of our Commander.
+ - For a life to be fully yielded, it must wrestle the impossible and win.
+ - Job 29 is about Job reflecting on his past before the calamity hit him to say this is the type of man I was. So, you want to know what God calls perfect and upright? Read Job 29, and you will understand what kind of man God esteems.
+ - Jesus didn’t just give hugs; He also gave a hammer. Paul didn’t just pass on holy kisses; he also tirelessly dealt out swift and holy kicks to the rear end of the ancient church. The Bible has the manly stuff intact, and that is why it is such a great mystery how it got lost in the modern church.
+ - I had a God who knew my every desire. He also knew how I would fall. And yet he was waiting on the other side of my failure and my shattered dreams with some dreams of his own...
+ - If you want to live the Christian life, you will have to realize that Someone Else has to be in control.
+ - Jesus says if you want to have me, you must give up that other thing that has you.
+ - You’re looking for counselors, there are 66 in the Bible.
+ - Jesus was restrained by the Father to do only what the Father was doing, and You are to be restrained by the Spirit to do only what Jesus is doing!
+ - I’m glad that our God is not the guy with a pony-tail who wants to toss a frisbee with His saints.
+ - Selfishness at the core is to think you have a special problem- a problem that God cannot deal with, that God didn’t deal with at the cross. You do not have anything special that has been dealt out to you.
+ - Purity is the gatekeeper for everything precious and blissful in God’s kingdom.
+
+28 quotes

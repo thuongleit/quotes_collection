@@ -1,0 +1,191 @@
+ - When all think alike, then no one is thinking.
+ - It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.
+ - The devil is merely a fallen angel, and when God lost Satan he lost one of his best lieutenants.
+ - There can be no higher law in journalism than to tell the truth and to shame the devil.
+ - The function of news is to signalize an event, the function of truth is to bring to light the hidden facts, to set them in relation with each other, and make a picture of reality on which men can act.
+ - The thinker dies, but his thoughts are beyond the reach of destruction. Men are mortal; but ideas are immortal.
+ - There can be no liberty for a community which lacks the means by which to detect lies.
+ - The common interests very largely elude public opinion entirely, and can be managed only by a specialised class.
+ - Private property was the original source of freedom. It still is its main bulwark.
+ - Creative ideas come to the intuitive person who can face up to the insecurity of looking beyond the obvious.
+ - We are told about the world before we see it. We imagine most things before we experience them. And those preconceptions, unless education has made us acutely aware, govern deeply the whole process of perception.
+ - But what is propaganda, if not the effort to alter the picture to which men respond, to substitute one social pattern for another?
+ - There are at least two distinct selves, the public and regal self, the private and human.
+ - You cannot endow even the best machine with initiative; the jolliest steamroller will not plant flowers.
+ - To create a minimum standard of life below which no human being can fall is the most elementary duty of the democratic state.
+ - We are all captives of the picture in our head – our belief that the world we have experienced is the world that really exists.
+ - The final test of a leader is that he leaves behind him in other men the conviction and the will to carry on.
+ - We are concerned in public affairs, but immersed in our private ones.
+ - Only the very rarest of princes can endure even a little criticism, and few of them can put up with even a pause in the adulation.
+ - In a place where everybody thinks alike, nobody thinks very much.
+ - For the newspaper is in all literalness the bible of democracy, the book out of which a people determines its conduct. It is the only serious book most people read. It is the only book they read every day.
+ - A really good diplomat does not go in for victories, even when he wins them.
+ - In a free society the state does not administer the affairs of men. It administers justice among men who conduct their own affairs.
+ - Ours is a problem in which deception has become organized and strong; where truth is poisoned at its source; one in which the skill of the shrewdest brains is devoted to misleading a bewildered people.
+ - Run against the grain of a nation’s genius and see where you get with your laws.
+ - The public must be put in its place, so that it may exercise its own powers, but no less and perhaps even more, so that each of us may live free of the trampling and the roar of a bewildered herd.
+ - The news and the truth are not the same thing.
+ - The public interest may be presumed to be what men would choose if they saw clearly, thought rationally, acted disinterestedly and benevolently.
+ - Between ourselves and our real natures we interpose that wax figure of idealizations and selections which we call our character.
+ - There is nothing disastrous in the temporary nature of our ideas. They are always that. But there may very easily be a train of evil in the self-deception which regards them as final. I think God will forgive us our skepticism sooner than our Inquisitions.
+ - Without some form of censorship, propaganda in the strict sense of the word is impossible. In order to conduct propaganda there must be some barrier between the public and the event.
+ - Democracy is much too important to be left to public opinion.
+ - In a democracy, the opposition is not only tolerated as constitutional, but must be maintained because it is indispensable.
+ - When men are brought face to face with their opponents, forced to listen and learn and mend their ideas, they cease to be children and savages and begin to live like civilized men. Then only is freedom a reality, when men may voice their opinions because they must examine their opinions.
+ - The facts we see depend on where we are placed and the habits of our eyes.
+ - The news is not a mirror of social conditions, but the report of an aspect that has obtruded itself.
+ - We must remember that in time of war what is said on the enemy’s side of the front is always propaganda and what is said on our side of the front is truth and righteousness, the cause of humanity and a crusade for peace.
+ - Yet this corporate being, though so insubstantial to our senses, binds, in Burkes words, a man to his country with ties which though light as air, are as strong as links of iron. That is why young men die in battle for their countrys sake and why old men plant trees they will never sit under.
+ - When distant and unfamiliar and complex things are communicated to great masses of people, the truth suffers a considerable and often a radical distortion. The complex is made over into the simple, the hypothetical into the dogmatic, and the relative into an absolute.
+ - The present crisis of Western democracy is a crisis in journalism.
+ - Whatever truth you contribute to the world will be one lucky shot in a thousand misses. You cannot be right by holding your breath and taking precautions.
+ - The mass of the reading public is not interested in learning and assimilating the results of accurate investigation.
+ - The press does not tell us what to think, it tells us what to think about.
+ - A large plural society cannot be governed without recognizing that, transcending its plural interests, there is a rational order with a superior common law.
+ - The unions are the first feeble effort to conquer the industrial jungle for democratic life. They may not succeed, but if they don’t their failure will be a tragedy for civilization, a loss of cooperative effort, a baulking of energy, and the fixing in American life of a class-structure.
+ - Where love exists with self-respect and joy, where a fine environment is provided for the child, where the parents live under conditions that neither stunt the imagination nor let it run to uncontrolled fantasy, there you have the family that modern men are seeking to create.
+ - There is but one bond of peace that is both permanent and enriching: The increasing knowledge of the world in which experiment occurs.
+ - Men are mortal, but ideas are immortal.
+ - True opinions can prevail only if the facts to which they refer are known; if they are not known, false ideas are just as effective as true ones, if not a little more effective.
+ - Social movements are at once the symptoms and the instruments of progress. Ignore them and statesmanship is irrelevant; fail to use them and it is weak.
+ - The unexamined life, said Socrates, is unfit to be lived by man. This is the virtue of liberty, and the ground on which we may justify our belief in it, that it tolerates error in order to serve truth.
+ - Our conscience is not the vessel of eternal verities. It grows with our social life, and a new social condition means a radical change in conscience.
+ - Our life is managed from behind the scenes: we are actors in dramas that we cannot interpret. Of almost no decisive event can we say: this was our own choosing. We happen upon careers, necessity pushing, blind inclination pulling. If we stop to think we are amazed that we should be what we are.
+ - The wiser a man is, it seems to me, the more vividly he can see the future as part of the evolving present. He doesn’t break the flow of life, he directs it, hastens it, but preserves its continuity.
+ - Inevitably our opinions cover a bigger space, a longer reach of time, a greater number of things, than we can directly observe. They have, therefore, to be pieced together out of what others have reported and what we can imagine.
+ - Robinson Crusoe, the self-sufficient man, could not have lived in New York city.
+ - The genius of a good leader is to leave behind him a situation which common sense, without the grace of genius, can deal with successfully.
+ - The prophecy of a world moving toward political unity is the light which guides all that is best, most vigorous, most truly alive in the work of our time.
+ - Without criticism and reliable and intelligent reporting, the government cannot govern.
+ - Only the consciousness of a purpose that is mightier than any man and worthy of all men can fortify and inspirit and compose the souls of men.
+ - One might point to the great illumination that has resulted from Freud’s analysis of the abracadabra of our dreams. No one can any longer dismiss the fantasy because it is logically inconsistent, superficially absurd, or objectively untrue.
+ - The first principle of a civilized state is that the power is legitimate only when it is under contract.
+ - He has honor if he holds himself to an ideal of conduct though it is inconvenient, unprofitable, or dangerous to do so.
+ - There is no arguing with the pretenders to a divine knowledge and to a divine mission. They are possessed with the sin of pride, they have yielded to the perennial temptation.
+ - Here lay the political genius of Franklin Roosevelt: that in his own time he knew what were the questions that had to be answered, even though he himself did not always find the full answer.
+ - The principles of the good society call for a concern with an order of being – which cannot be proved existentially to the sense organs – where it matters supremely that the human person is inviolable, that reason shall regulate the will, that truth shall prevail over error.
+ - Men command fewer words than they have ideas to express, and language, as Jean Paul said, is a dictionary of faded metaphors.
+ - No amount of charters, direct primaries, or short ballots will make a democracy out of an illiterate people.
+ - We know that it is possible to harness desire to many interests, that evil is one form of a desire, and not the nature of it.
+ - There is only one purpose to which a whole society can be directed by a deliberate plan. That purpose is war, and there is no other.
+ - The time has come to stop beating our heads against stone walls under the illusion that we have been appointed policeman to the human race.
+ - To keep a faith pure, man had better retire to a monastery.
+ - You and I are forever at the mercy of the census-taker and the census-maker. That impertinent fellow who goes from house to house is one of the real masters of the statistical situation. The other is the man who organizes the results.
+ - Unless our ideas are questioned, they become part of the furniture of eternity.
+ - The host of men who stand between a great thinker and the average man are not automatic transmitters. They work on the ideas; perhaps that is why a genius usually hates his disciples.
+ - Every man whose business it is to think knows that he must for part of the day create about himself a pool of silence.
+ - In the end, advertising rests upon the fact that consumers are a fickle and superstitious mob, incapable of any real judgment as to what it wants or how it is to get what it thinks it likes.
+ - Many a time I have wanted to stop talking and find out what I really believed.
+ - A man cannot be a good doctor and keep telephoning his broker between patients nor a good lawyer with his eye on the ticker.
+ - It is better to catch the idol-maker than to smash each idol.
+ - The Bill of Rights does not come from the people and is not subject to change by majorities. It comes from the nature of things. It declares the inalienable rights of man not only against all government but also against the people collectively.
+ - In making the great experiment of governing people by consent rather than by coercion, it is not sufficient that the party in power should have a majority. It is just as necessary that the party in power should never outrage the minority.
+ - Certainly he is not of the generation that regards honesty as the best policy. However, he does regard it as a policy.
+ - The search for moral guidance which shall not depend upon external authority has invariably ended in the acknowledgment of some new authority.
+ - Life is an irreversible process and for that reason its future can never be a repetition of the past.
+ - We say that the truth will make us free. Yes, but that truth is a thousand truths which grow and change.
+ - We forge gradually our greatest instrument for understanding the world – introspection. We discover that humanity may resemble us very considerably – that the best way of knowing the inwardness of our neighbors is to know ourselves.
+ - The best servants of the people, like the best valets, must whisper unpleasant truths in the master’s ear. It is the court fool, not the foolish courtier, whom the king can least afford to lose.
+ - The great social adventure of America is no longer the conquest of the wilderness but the absorption of fifty different peoples.
+ - The self-evident truth which makes men invincible is that inalienably they are inviolable persons.
+ - A democracy which fails to concentrate authority in an emergency inevitably falls into such confusion that the ground is prepared for the rise of a dictator.
+ - The balancing of present wants against the future is really the central problem of ethics.
+ - Most men, after a little freedom, have preferred authority with the consoling assurances and the economy of effort it brings.
+ - The emancipated woman has to fight something worse than the crusted prejudices of her uncles; she has to fight the bewilderment in her own soul.
+ - Nobody has yet found a way of bombing that can prevent foot soldiers from walking.
+ - The private citizen, beset by partisan appeals for the loan of his Public Opinion, will soon see, perhaps, that these appeals are not a compliment to his intelligence, but an imposition on his good nature and an insult to his sense of evidence.
+ - You don’t have to preach honesty to men with creative purpose. Let a human being throw the engines of his soul into the making of something, and the instinct of workmanship will take care of his honesty.
+ - A long life in journalism convinced me many presidents ago that there should be a large air space between a journalist and the head of a state.
+ - People who are tremendously concerned about their identification, their individuality, their self-expression, or their sense of humor, always seem to be missing the very things they pursue.
+ - Football strategy does not originate in a scrimmage: it is useless to expect solutions in a political campaign.
+ - Modern men are afraid of the past. It is a record of human achievement, but its other face is human defeat.
+ - Leaders are the custodians of a nation’s ideals, of the beliefs it cherishes, of its permanent hopes, of the faith which makes a nation out of a mere aggregation of individuals.
+ - The true speech of man is idiomatic, if not of the earth and sky, then at least of the saloon and the bleachers.
+ - A useful definition of liberty is obtained only by seeking the principle of liberty in the main business of human life, that is to say, in the process by which men educate their responses and learn to control their environment.
+ - It is impossible to abolish either with a law or an axe the desires of men.
+ - It is so much easier to talk of poverty than to think of the poor, to argue the rights of capital than to see its results. Pretty soon we come to think of the theories and abstract ideas as things in themselves.
+ - The essential discovery of maturity has little if anything to do with information about the names, the locations, and the sequence of facts; it is the acquiring of a different sense of life, a different kind of intuition about the nature of things.
+ - The simple opposition between the people and big business has disappeared because the people themselves have become so deeply involved in big business.
+ - It was in the recognition that there is in each man a final essence, that is to say an immortal soul which only God can judge, that a limit was set upon the dominion of men over men.
+ - Every fairly intelligent person is aware that the price of respectability is a muffled soul bent on the trivial and the mediocre.
+ - Whereas each man claims his freedom as a matter of right, the freedom he accords to other men is a matter of toleration.
+ - Men who are orthodox when they are young are in danger of being middle-aged all their lives.
+ - In the blood of the martyrs to intolerance are the seeds of unbelief.
+ - What a myth never contains is the critical power to separate its truth from its errors.
+ - There is nothing so bad but it can masquerade as moral.
+ - The size of a man’s income has considerable effect on his access to the world beyond his neighborhood. With money he can overcome almost every tangible obstacle of communication, he can travel, buy books and periodicals, and bring within the range of his attention almost any known fact of the world.
+ - Franklin D. Roosevelt is no crusader. He is no tribune of the people. He is no enemy of entrenched privilege. He is a pleasant man who, without any important qualifications for the office, would very much like to be President.
+ - It is easier to develop great power than it is to know how to use it wisely.
+ - It is in time of peace that the value of life is fixed. The test of war reveals it.
+ - No mariner ever enters upon a more uncharted sea than does the average human being born in the 20th century. Our ancestors know their way from birth through eternity; we are puzzled about the day after tomorrow.
+ - Behind innocence there gathers a clotted mass of superstition, of twisted and misdirected impulse; clandestine flirtation, fads, and ragtime fill the unventilated mind.
+ - There comes a time when even the reformer is compelled to face the fairly widespread suspicion of the average man that politics is an exhibition in which there is much ado about nothing.
+ - Unless democracy is to commit suicide by consenting to its own destruction, it will have to find some formidable answer to those who come to it saying: I demand from you in the name of your principles the rights which I shall deny to you later in the name of my principles.
+ - The justification of majority rule in politics is not to be found in its ethical superiority.
+ - Popular government has not yet been proved to guarantee, always and everywhere, good government.
+ - Whenever we accept an idea as authority instead of as instrument, an idol is set up. We worship the plough, and not the fruit.
+ - The disesteem into which moralists have fallen is due at bottom to their failure to see that in an age like this one the function of the moralist is not to exhort men to be good but to elucidate what the good is. The problem of sanctions is secondary.
+ - It is so much easier to talk of poverty than to think of the poor.
+ - A man cannot sleep in his cradle: whatever is useful must in the nature of life become useless.
+ - This is one of the paradoxes of the democratic movement – that it loves a crowd and fears the individuals who compose it – that the religion of humanity should have no faith in human beings.
+ - Men fall into a routine when they are tired and slack: it has all the appearance of activity with few of its burdens.
+ - It is perfectly true that that government is best which governs least. It is equally true that that government is best which provides most.
+ - The whole speculation about morality is an effort to find a way of living which men who live it will instinctively feel is good.
+ - Politicians tend to live “in character” and many a public figure has come to imitate the journalism that describes him.
+ - A more conscious life is one in which a man is conscious not only of what he sees, but of the prejudices with which he sees it.
+ - A regime, an established order, is rarely overthrown by a revolutionary movement; usually a regime collapses of its own weakness and corruption and then a revolutionary movement enters among the ruins and takes over the powers that have become vacant.
+ - A man who has humility will have acquired in the last reaches of his beliefs the saving doubt of his own certainty.
+ - To understand is not only to pardon, but in the end to love.
+ - Ideals are an imaginative understanding of that which is desirable in that which is possible.
+ - We are quite rich enough to defend ourselves, whatever the cost. We must now learn that we are quite rich enough to educate ourselves as we need to be educated.
+ - There is nothing so good for the human soul as the discovery that there are ancient and flourishing civilized societies which have somehow managed to exist for many centuries and are still in being though they have had no help from the traveler in solving their problems.
+ - A rational man acting in the real world may be defined as one who decides where he will strike a balance between what he desires and what can be done.
+ - The writers who have nothing to say, are the ones you can buy, the others have too high a price.
+ - Once you touch the biographies of human beings, the notion that political beliefs are logically determined collapses like a pricked balloon.
+ - Where two factions see vividly each its own aspect, and contrive their own explanations of what they see, it is almost impossible for them to credit each other with honesty.
+ - Brains, you know, are suspect in the Republican Party.
+ - Nothing is easier than to simplify life and them make a philosophy about it. The trouble is that the resulting philosophy is true only of that simplified life.
+ - What we call a democratic society might be defined for certain purposes as one in which the majority is always prepared to put down a revolutionary minority.
+ - The tendency of the casual mind is to pick out or stumble upon a sample which supports or defies its prejudices, and then to make it the representative of a whole class.
+ - It is not the idea as such which the censor attacks, whether it be heresy or radicalism or obscenity. He attacks the circulation of the idea among the classes which in his judgment are not to be trusted with the idea.
+ - The smashing of idols is in itself such a preoccupation that it is almost impossible for the iconoclast to look clearly into a future when there will not be many idols left to smash.
+ - Almost always tradition is nothing but a record and a machine-made imitation of the habits that our ancestors created.
+ - Unless the reformer can invent something which substitutes attractive virtues for attractive vices, he will fail.
+ - In government offices which are sensitive to the vehemence and passion of mass sentiment public men have no sure tenure. They are in effect perpetual office seekers, always on trial for their political lives, always required to court their restless constituents.
+ - Newspapers necessarilyand inevitably reflect, and therefore, in greater or lesser measure, intensify, the defective organization of public opinion.
+ - The man who raises new issues has always been distasteful to politicians. He musses up what had been so tidily arranged.
+ - It is at the cross-roads that skepticism is born, not in a hermitage.
+ - When philosophers try to be politicians they generally cease to be philosophers.
+ - The opposition is indispensable. A good statesman, like any other sensible human being, always learns more from his opposition than from his fervent supporters.
+ - Happiness cannot be the reward of virtue; it must be the intelligible consequence of it.
+ - The people who really matter in social affairs are neither those who wish to stop short like a mule, or leap from crag to crag like a mountain goat.
+ - If the estimate of the House Committee on Foreign Affairs is correct, then Russia has lost the cold war in western Europe.
+ - The American’s conviction that he must be able to look any man in the eye and tell him to go to hell is the very essence of the free man’s way of life.
+ - Lovers who have nothing to do but love each other are not really to be envied; love and nothing else very soon is nothing else.
+ - Before you can begin to think about politics at all, you have to abandon the notion that there is a war between good men and bad men.
+ - Genius sees the dynamic purpose first, find reasons afterward.
+ - So far as I am concerned I have no doctrinaire belief in free speech. In the interest of the war it is necessary to sacrifice some of it.
+ - All men desire their own perfect adjustment, but they desire it, being finite men, on their own terms.
+ - The effort to calculate exactly what the voters want at each particular moment leaves out of account the fact that when they are troubled the thing the voters most want is to be told what to want.
+ - The study of error is not only in the highest degree prophylactic, but it serves as a stimulating introduction to the study of truth.
+ - Ages when custom is unsettled are necessarily ages of prophecy. The moralist cannot teach what is revealed; he must reveal what can be taught. He has to seek insight rather than to preach.
+ - The central drama of our age is how the Western nations and the Asian peoples are to find a tolerable basis of co-existence.
+ - Ignore what a man desires and you ignore the very source of his power.
+ - Great men, even during their lifetime, are usually known to the public only through a fictitious personality.
+ - Success makes men rigid and they tend to exalt stability over all the other virtues; tired of the effort of willing they become fanatics about conservatism.
+ - In places where men are used to differences they inevitably become tolerant.
+ - You don’t have to preach honesty to men with a creative purpose. A genuine craftsman will not adulterate this product. The reason isn’t because duty says he shouldn’t, but because passion says he couldn’t.
+ - Whether or not birth control is eugenic, hygienic, and economic, it is the most revolutionary practice in the history of sexual morals.
+ - It seems like topsy-turvyland to make reason serve the irrational. Yet that is just what it has always done, and ought always to do.
+ - When men can no longer be theists, they must, if they are civilized, become humanists.
+ - Art enlarges experience by admitting us to the inner life of others.
+ - We must protect the right of our opponents to speak because we must hear what they have to say.
+ - Even God has been defended with nonsense.
+ - All achievement should be measured in human happiness.
+ - It is all very well to talk about being the captain of your soul. It is hard, and only a few heroes, saints, and geniuses have been the captains of their souls for any extended period of their lives.
+ - Men have been barbarians much longer than they have been civilized. They are only precariously civilized, and within us there is the propensity, persistent as the force of gravity, to revert under stress and strain, under neglect or temptation, to our first natures.
+ - While the right to talk may be the beginning of freedom, the necessity of listening is what makes that right important.
+ - We must abandon the notion that the people govern. Instead, we must adopt the theory that, by their occasional mobilisations as a majority, people support or oppose the individuals who actually govern.
+ - Usually it is the stereotyped shape assumed by an event at an obvious place that uncovers the run of the news.
+
+189 quotes

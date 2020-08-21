@@ -1,0 +1,29 @@
+ - Eat less, move more, eat lots of fruits and vegetables, go easy on junk foods.
+ - The problem with nutrient-by-nutrient nutrition science is that it takes the nutrient out the context of the food, the food out of the context of the diet, and the diet out of the context of the lifestyle.
+ - We don’t have a farm-to-table food safety system. I keep saying this. It came as a big surprise to the FDA that tomatoes were being grown in the United States, sent to Mexico for packing, and then sent back. I mean, they had no idea that our food chain worked like this.
+ - The trans fat label has been an enormous incentive for food companies to take trans fat out of their products.
+ - Here we have the great irony of modern nutrition: at a time when hundreds of millions of people do not have enough to eat, hundreds of millions more are eating too much and are overweight or obese.
+ - The real reason for health claims is well established: health claims sell food products.
+ - There are loopholes big enough to drive trucks through. And Congress needs to take a look at those laws and make sure that they’re much more rigorous.
+ - Many countries have food safety systems from farm to table. Everybody involved in the food supply is required to follow standard food safety procedures. You would think that everyone involved with food would not want people to get sick from it.
+ - The standard four food groups are based on American agricultural lobbies. Why do we have a milk group? Because we have a National Dairy Council. Why do we have a meat group? Because we have an extremely powerful meat lobby.
+ - Meat is produced under HACCP plans. Meat and poultry are required to be produced under standard food safety plans and they have been since the mid-’90s, and there are now fewer problems with meat than there used to be. That’s on the USDA’s side.
+ - There’s no question that largely vegetarian diets are as healthy as you can get. The evidence is so strong and overwhelming and produced over such a long period of time that it’s no longer debatable.
+ - What we know about diets hasn’t changed. It still makes sense to eat lots of fruits and vegetables, balance calories from other foods, and keep calories under control. That, however, does not make front-page news.
+ - Restaurants that have health-conscious consumers will pay attention to this.
+ - I live in the United States, and I’m not moving. But from the standpoint of food safety, the countries in Scandinavia do it better than we do. It’s not that they don’t have food-poisoning incidents; it’s that there are many fewer in proportion to the population.
+ - The Centers for Disease Control says that there are 76 million cases of food poisoning in the United States every year, 350,000 hospitalizations, and 5,000 deaths. Is that a lot or a little? Well, it depends on how you look at it.
+ - If we have a food supply that we can’t trust, that has enormous implications for the way we view government, for the way we trust business, and for our international trade relations.
+ - One can only be in awe of the creativity of chocolate marketers. My take is that if there is a health benefit, it is small.
+ - It’s a completely reasonable diet – heavy on fruits and vegetables and fresh, seasonal foods. I’m totally for it. It’s common sense in a nice package.
+ - These days the biggest issue is how many calories you consume. So all of this stuff distracts people from thinking about calories.
+ - Fat is mainstream, which is why everyone has become complacent. What used to be considered pudgy before isn’t even worthy of a comment today.
+ - Unbelievable as it may seem, one-third of all vegetables consumed in the United States come from just three sources: french fries, potato chips, and iceberg lettuce.
+ - We don’t really have any that protect the food supply from farm to table. We have a food safety system that’s piecemeal, largely divided between two agencies that don’t talk to each other very much. Neither agency can enforce regulations from the farm to the table.
+ - Consumers have to understand that the purpose of these claims is to get them to buy the product.
+ - If you’re sick, first you have to associate your sickness with a food. Then you have to report it to your doctor. Then the doctor reports it to some state authority. The state authority reports it to the federal authority. By the time all that happens, two weeks have gone by.
+ - It’s a tremendous way of getting people to buy more at lower cost to the producer. There’s no question that that’s an incentive to buy. Everybody loves a bargain.
+ - The chef has kids complaining to their parents the food they get in school is better than what they get at home. He’s turned this group of kids into curious, adventurous eaters.
+ - What it requires is that first of all you identify the hazards: Where in your production chain can contamination occur? This could be a simple matter of cooking a product to kill bacteria and making sure that the product is actually brought to that temperature.
+
+27 quotes

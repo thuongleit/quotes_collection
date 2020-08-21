@@ -1,0 +1,161 @@
+ - Believe in your dreams and dream big. And then after you’ve done that, dream bigger.
+ - When you’re surrounded by people who share a passionate commitment around a common purpose, anything is possible.
+ - Success is not an entitlement. It has to be earned.
+ - In times of adversity and change, we really discover who we are and what we’re made of.
+ - In anything we do, any endeavor, it’s not what you do; it’s why you do it.
+ - We are not in the coffee business serving people, we are in the people business serving coffee.
+ - Starbucks represents something beyond a cup of coffee.
+ - Always challenge the old ways.
+ - I think the currency of leadership is transparency. You’ve got to be truthful. I don’t think you should be vulnerable every day, but there are moments where you’ve got to share your soul and conscience with people and show them who you are, and not be afraid of it.
+ - Hiring people is an art, not a science, and resumes can’t tell you whether someone will fit into a company’s culture.
+ - At its core, I believe leadership is about instilling confidence in others.
+ - Mass advertising can help build brands, but authenticity is what makes them last. If people believe they share values with a company, they will stay loyal to the brand.
+ - Whatever you do, don’t play it safe. Don’t do things the way they’ve always been done. Don’t try to fit the system. If you do what’s expected of you, you’ll never accomplish more than others expect.
+ - Success is empty if you arrive at the finish line alone.
+ - While we are a coffee company at heart, Starbucks provides much more than the best cup of coffee – we offer a community gathering place where people come together to connect and discover new things.
+ - In this ever-changing society, the most powerful and enduring brands are built from the heart.
+ - Everyone starts strong. Success comes to those with unwavering commitment to be at the end.
+ - Social and digital media is a bullet train, and that bullet train is not coming home.
+ - I think if you’re an entrepreneur, you’ve got to dream big and then dream bigger.
+ - Effective leaders share two intertwined attributes: an unbridled level of confidence about where their organizations are headed, and the ability to bring people along.
+ - In life, you can blame a lot of people and you can wallow in self-pity, or you can pick yourself up and say, ‘Listen, I have to be responsible for myself.’
+ - I believe life is a series of near misses. A lot of what we ascribe to luck is not luck at all. It’s seizing the day and accepting responsibility for your future. It’s seeing what other people don’t see And pursuing that vision.
+ - Certainly the caffeine in coffee, whether it’s Starbucks or generic coffee, is somewhat of a stimulant. But if you drink it in moderation, which I think four or five cups a day is, you’re fine.
+ - We have no patent on anything we do and anything we do can be copied by anyone else. But you can’t copy the heart and the soul and the conscience of the company.
+ - Authentic brands don’t emerge from marketing cubicles or advertising agencies. They emanate from everything the company does...
+ - Customers must recognize that you stand for something.
+ - When companies fail, or fail to grow, it’s almost always because they don’t invest in the people, the systems, and the processes they need.
+ - People want to be part of something larger than themselves. They want to be part of something they’re really proud of, that they’ll fight for, sacrifice for, that they trust.
+ - The hardest thing about being a leader is demonstrating or showing vulnerability. And that has a lot to do with trust.
+ - Any business today that embraces the status quo as an operating principle is going to be on a death march.
+ - Every step of the way, I made a point to underpromise and overdeliver. In the long run, that’s the only way to ensure security in any job.
+ - Success is the by-product when you work toward the target.
+ - Starbucks has a role and a meaningful relationship with people that is not only about the coffee.
+ - Grow with discipline. Balance intuition with rigor. Innovate around the core. Don’t embrace the status quo.
+ - I can’t imagine a day without coffee. I can’t imagine!
+ - But when you really believe-in yourself, in your dream-you just have to do everything you possibly can to take control and make your vision a reality. No great achievement happens by luck.
+ - Sometimes you have to create the thing you want to be part of.
+ - I was taken by the power that savoring a simple cup of coffee can have to connect people and create community.
+ - Managing a business, small or large, today requires an extremely disciplined, thoughtful approach with regard to the pressure that people are under.
+ - I don’t have any secret sauce and I’m no smarter than anyone else. I will say I have surrounded myself with unbelievable talent that has made my job easier.
+ - This may sound a bit naive, but I got here by believing in big dreams.
+ - I was working probably at the age of 10, when I had my first paper route. I had every different kind of job you could possibly imagine as a young kid.
+ - The evolving social and digital media platforms and highly innovative and relevant payment capabilities are causing seismic changes in consumer behavior and creating equally disruptive opportunities for business.
+ - I think growth covers up mistakes.
+ - With a population of more than 600 million people, an emerging middle class that is driving strong consumption, and a robust and resilient economy, Southeast Asia presents a compelling growth opportunity for Starbucks.
+ - Starbucks is not an advertiser; people think we are a great marketing company, but in fact we spend very little money on marketing and more money on training our people than advertising.
+ - I am concerned about any attrition in customer traffic at Starbucks, but I don’t want to use the economy, commodity prices or consumer confidence as an excuse.
+ - My kids probably started drinking coffee in their late teens.
+ - Don’t be threatened by people smarter than you.
+ - And with the right mentor, don’t be afraid to expose your vulnerabilities. Admit you don’t know what you don’t know. When you acknowledge your weaknesses and ask for advice, you’ll be surprised how much others will help.
+ - My passion. My commitment. This is the most important thing in my life other than my family.
+ - We are witnessing a seismic change in consumer behavior. That change is being brought about by technology and the access people have to information.
+ - When we began Starbucks, what I wanted to try to do was to create a set of values, guiding principles, and culture.
+ - It’s one thing to dream, but when the moment is right, you’ve got to be willing to leave what’s familiar and go out to find your own sound.
+ - It’s ironic that no matter where I go, I meet people from Brooklyn. I’m proud of that heritage. It’s where I’m from, who I am.
+ - You walk into a retail store, whatever it is, and if there’s a sense of entertainment and excitement and electricity, you wanna be there.
+ - People around the world, they want the authentic Starbucks experience.
+ - Sports was a great equalizer. It didn’t have color. It didn’t matter whether you were rich or poor, black or white. It really shaped me in many ways to be able to deal with a lot of different personalities and different cultures. Sports were the common thread.
+ - We will never-and I mean never-turn our backs on our employees.
+ - We think of Starbucks not as a coffee company but a media company.
+ - While their service is ending, our responsibility is just beginning!
+ - Entrepreneurs must love what they do to such a degree that doing it is worth sacrifice and, at times, pain. But doing anything else, we think, would be unimaginable.
+ - Risk more than others think safe.
+ - The leaders in Washington have got to come together in a bipartisan way and do the right thing for the people who are being left behind. We cannot have an America that is only based on the wealthy.
+ - My parents really wanted me to get out of New York, be exposed to other people, other ways of life.
+ - In the 1960s, if you were a blue collar worker or uneducated, and you had an injury on the job, the company basically dismissed you.
+ - Starbucks is committed to evolving and enhancing our customer experience with innovative and wholesome food offerings.
+ - Growing up I always felt like I was living on the other side of the tracks. I knew the people on the other side had more resources, more money, happier families.
+ - The issue of managing through a crisis is you have to be decisive even if you don’t have perfect information.
+ - We would take something old and tired and common – coffee – and weave a sense of romance and community around it. We would rediscover the mystique and charm that had swirled around coffee throughout the centuries.
+ - The Starbucks customer and the Teavana customer are two very different customers, two different need states that are highly complimentary.
+ - I grew up in a working class family where there was no health insurance. I saw first hand the fracturing of the American dream and the bitterness that comes when there is no hope and a lot of despair. So I wanted to build the company, in a sense, that my father never got a chance to work for.
+ - We woke up one day, and all the sudden Starbucks was in the middle of this political crossfire between the people who want to bring a gun into Starbucks and the people who want to prevent it. It is a very difficult, fragile situation.
+ - I never wanted to be on any billionaires list. I never define myself by net worth. I always try to define myself by my values.
+ - Even though people are under economic pressure, they still want to support those brands with values that are compatible with their own.
+ - Starbucks is in my blood. It is such a part of me that letting it unravel simply was not an option.
+ - Work should be personal. For all of us. Not just for the artist and entrepreneur. Work should have meaning for the accountant, the construction worker, the technologist, the manager and the clerk.
+ - If it Captures Your Imagination, it will captivate others.
+ - I’ve traveled around the world, and what’s so revealing is that, despite the differences in culture, politics, language, how people dress, there is a universal feeling that we all want the same thing. We deeply want to be respected and appreciated for our differences.
+ - I conduct my life with an expectation that people will do the right thing. Yet even with all my experience, I am still surprised when they do not.
+ - Cutting prices or putting things on sale is not sustainable business strategy.
+ - Who wants a dream that’s near-fetched?
+ - Our history is based on extending the brand to categories within the guardrails of Starbucks.
+ - I think people will walk into the Starbucks store and overnight recognize the significant difference between what Starbucks represents day-in and day-out and all the other coffee companies that have been serving coffee in India for so many years.
+ - Be bold, but be fair. Don’t give in. If others around you have integrity, too, you can prevail.
+ - Many companies today are reducing hours of full-time people to get under the minimum so they don’t have to pay health care costs. I just shake my head because that’s not going to build long-term value and trust with your people.
+ - There’s an energy and excitement when you’re building a company. You have so much tail wind. You’re planting new seeds. But it’s also scary, because there’s no safety net.
+ - I do feel, in a sense, the rules of engagement for citizenship has changed, and we must encourage other people to speak up and to take action.
+ - Don’t buy preground coffee.
+ - The companies that are lasting are those that are authentic.
+ - I think we are living in a time where the consumer has lots of choices, whether it’s coffee, newspapers or whatever it is. And there is parity in the market place, and as a result of that, the consumer is beginning to make decisions, not just on what things cost and the convenience of it.
+ - There’s this myth that has been exacerbated by others that Starbucks means a $4 cup of coffee, which is not true.
+ - Success in the United States is not an entitlement in China. You have to go there and earn it, and earn it the right way.
+ - We can’t wait for Washington. Business leaders are going to have to galvanize their own constituencies and do everything they can to demonstrate confidence in the economy, and I think that can be contagious.
+ - Europe has always represented a major strategic opportunity to achieve our goal of creating and building an enduring global brand.
+ - Anybody can leverage celebrity for profit.
+ - My biggest concern is that America is drifting towards mediocrity and that people don’t recognize – and by people I’m meaning Washington – don’t recognize the sense of urgency and the fact that I don’t think this is a crisis anymore. I think it’s an emergency.
+ - I’m much more concerned about America than the Democratic Party.
+ - When it comes to Starbucks, I take every threat very personally.
+ - I never took classic business classes in college, so I don’t have the background that any of the people running large companies have.
+ - I probably have about four or five cups of coffee a day. I make myself an espresso macchiato when I wake, which is a shot of espresso and just a dollop of steamed milk. Then, if I’m going to do some work at home, I would make myself a French press. It’s the best way to make conventional coffee.
+ - I think there is probably no better person to aspire to emulate than Steve Jobs and what he has done at Apple in terms of his leadership, his innovation, not settling for mediocrity.
+ - People want guidance, not rhetoric. They need to know what the plan of action is, and how it will be implemented. They want to be given responsibility to help solve the problem and authority to act on it.
+ - One of the fundamental aspects of leadership, I realized more and more, is the ability to instill confidence in others when you yourself are feeling insecure.
+ - People in Washington need to put their feet in the shoes of working Americans.
+ - I think the most important thing that I think everyone in America must have is belief that wherever they live, whatever station they have in life, that the American dream is alive and well. I think the fracturing of trust and confidence is in the American dream.
+ - Starbucks trying to build a different kind of company around the balance of profitably and benevolence. A social conscience. And that isn’t a program it has to be a way of life.
+ - To stay vigorous, a company needs to provide a stimulating and challenging environment for all these types: the dreamer, the entrepreneur, the professional manager, and the leader. If it doesn’t, it risks becoming yet another mediocre corporation.
+ - In this ever-changing society, the most powerful and enduring brands are built from the heart. They are real and sustainable. Their foundations are stronger because they are built with the strength of the human spirit, not an ad campaign. The companies that are lasting are those that are authentic.
+ - I do think – as self-serving as it sounds – that I was the right person, given the very, very strong headwind we had from the economy and our own issues, to come back and rewrite the future of the company.
+ - Overnight the digital age had changed the course of history for our company. Everything that we thought was in our control no longer was. But within a year we had invested in social media and digital experts. Now Starbucks is the number one brand on Facebook.
+ - If you want to achieve widespread impact and lasting value, be bold.
+ - Great companies are defined by their discipline and their understanding of who they are and who they are not.
+ - To be an enduring, great company, you have to build a mechanism for preventing or solving problems that will long outlast any one individual leader.
+ - At an early age, my mother gave me this feeling that anything is possible, and I believe that.
+ - Business leaders cannot be bystanders.
+ - Sometimes the difference between winning and losing is will. The will to make it happen.
+ - The premium single-cup segment is the fastest-growing business within the global coffee industry.
+ - The response to the Starbucks brand has been phenomenal in our international markets.
+ - Starbucks being an extension of peoples home and work. The sense of community, human connection. That appears to be as relevant in Turkey, China, Japan and Spain as it is here in America. And Starbucks I think is creating something for people all over the world that has not existed before.
+ - It’s ironic that retailers and restaurants live or die on customer service, yet their employees have some of the lowest pay and worst benefits of any industry. That’s one reason so many retail experiences are mediocre for the public.
+ - Beverages have to be created. And they’re created by looking at what trend is in, say, the fashion industry – what color’s hot right now.
+ - Everyone must have a shot at the American Dream.
+ - Customers have different need states and life experiences.
+ - If Vancouver did not succeed as Starbucks from ’87 on, our entire international business, which is now thousands of stores and a significant amount of growth and profit, may not have existed.
+ - The lifeblood of job creation in America is small business, but they can’t get access to credit.
+ - When you start a company, it’s a singular focus. You have the wind at your back.
+ - At Starbucks 0 as in any business, in any life – there are so many hectic moments during the day when we are simply trying to do the job, trying to put out the fires, trying to solve any number of small problems, that we often lose sight of what it is we’re really here to do.
+ - I think Starbucks created a platform and, ultimately, a runway for many other companies to emulate. I suspect if we had not achieved what we have, there would have been many regional brands that would have succeeded. But I’m not sure there would have been a national brand of the scope of Starbucks.
+ - The future of America is not an entitlement. We have been given a treasure chest of gifts and opportunities, but some people are being left behind, and success is not sustainable unless it is shared.
+ - Victory is much more meaningful when it comes not just from one person, but from the joint achievements of many.
+ - If you look at coffee, tea, food and juice, we think there are inherent opportunities. If you look at health bars or grab-and-go products that are in our stores, we think we can significantly enhance them and make them more widely available.
+ - The entrepreneurial opportunity in America is alive and well.
+ - My son is trying to be a sports writer, and my daughter is a college student. She wants to be a comedy writer, and she’s at film school. I discouraged both of them early on from getting involved in Starbucks. I didn’t think it would be fair; plus, they didn’t have any interest anyway.
+ - We need to reinvent food at Starbucks. Less could be more.
+ - I honestly never dreamed at the time that I would one day own the Starbucks and or be in a position where we would have more than 10,000 stores around the world. It has just been an incredible journey for all of us.
+ - If you pour your heart into your work, or into any worthy enterprise, you can achieve dreams others may think impossible.
+ - If you don’t love what you’re doing with unbridled passion and enthusiasm, you’re not going to succeed when you hit obstacles.
+ - When you’re building a business or joining a company, you have to be transparent; you can’t have two sets of information for two sets of people.
+ - I could’ve just walked away but I never could have forgiven myself to allow Starbucks to drift into mediocrity or not be relevant. I just couldn’t be a bystander.
+ - We need to put ourselves in the shoes of our customers. That is my new battle cry. Live and breathe Starbucks the way our customers do.
+ - Starbucks is rekindling America’s love affair with coffee, bringing romance and fresh flavor back to the brew.
+ - Most business people today are not going to invest in the uncertainty that exists in America.
+ - Starbucks has changed the rules of engagement for the music industry.
+ - Americans reading the paper, listening to the news every single day, and all you hear is things are getting worse and worse. And that has a psychological effect on consumer confidence. That’s what consumer confidence is.
+ - A great business has to have a conscience. You have to know who you are and who you are not.
+ - Do I take criticism of Starbucks personally? Of course I do.
+ - On balance, I am a supporter of the minimum wage going up. We’ve got to be very careful what we wish for because some employers – and there could be a lot of them – will be scared away from hiring new people or creating incremental hours for part-time people as a result of that wage going up.
+ - We have a big opportunity in China. We think the number of stores here can rival the number in North America.
+ - You cant build any kind of organization if youre not going to surround yourself with people who have experience and skill base beyond your own.
+ - Success is best when it is shared.
+ - Often, organizations need bold, grand gestures to galvanize people towards a new mission or refocus their attention.
+ - China traditionally has been a tea-drinking country but we turned them into coffee drinkers.
+ - Managing and navigating through a financial crisis is no fun at all.
+ - I’m optimistic about the country; I’m optimistic about the American people.
+ - I really believe that you cannot use the stock market as a proxy for the economy.
+ - Starbucks has stores in America in many, many communities that are governed by many, many different municipalities. Starbucks cannot dictate to a municipality in Cincinnati or Kansas City or Sacramento how or why or when there should be a recycling program.
+ - The challenge of the retail business is the human condition.
+ - The success of the Starbucks has been based on this balance between profitability and a social conscience. Everywhere we’re doing business, were trying to manage the business through the lens of humanity.
+
+159 quotes

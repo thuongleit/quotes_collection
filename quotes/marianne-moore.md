@@ -1,0 +1,84 @@
+ - The heart that gives, gathers.
+ - The enslaver is enslaved, the hater, harmed.
+ - I believe verbal felicity is the fruit of ardor, of diligence, and of refusing to be false.
+ - Your thorns are the best part of you.
+ - To wear the arctic fox you have to kill it.
+ - Impatience is the mark of independence, not of bondage.
+ - Revision is its own reward.
+ - Fanaticism? No. Writing is exciting and baseball is like writing. You can never tell with either how it will go...
+ - The mind is an enchanting thing.
+ - They fought the enemy, we fight fat living and self-pity. Shine, o shine, unfalsifying sun, on this sick scene.
+ - The mind is an enchanting thing is an enchanted thing, like the glaze on a katydid-wing subdivided by sun till the nettings are legion.
+ - One writes because one has a burning desire to objectify what it is indispensable to one’s happiness to express...
+ - The deepest feeling always shows itself in silence.
+ - Any writer overwhelmingly honest about pleasing himself is almost sure to please others.
+ - If you will tell me why the fen appears impassable, I then will tell you why I think that I can cross it if I try.
+ - Conscious writing can be the death of poetry.
+ - It is human nature to stand in the middle of a thing.
+ - When one is frank, one’s very presence is a compliment.
+ - The passion for setting people right is in itself an afflictive disease.
+ - Poetry is the art of creating imaginary gardens with real toads.
+ - Omissions are not accidents.
+ - We are what we were at birth, and each trait has remained in conformity with earth’s and with heaven’s logic: Be the devil’s tool, resort to black magic, None can diverge from the ends which Heaven foreordained.
+ - Everything I have written is the result of reading or of interest in people.
+ - Excess is the common substitute for energy.
+ - One detects creative power by its capacity to conquer one’s detachment.
+ - If technique is of no interest to a writer, I doubt that the writer is an artist.
+ - A man is a writer if all his words are strung in definite sentence sounds.
+ - Superior people never make long visits.
+ - I see no reason for calling my work poetry except that there is no other category in which to put it.
+ - The self does not realize itself most fully when self-realization is its most constant aim.
+ - When one cannot appraise out of one’s own experience, the temptation to blunder is minimized, but even when one can, appraisal seems chiefly useful as appraisal of the appraiser.
+ - Yule – Yul log for the Christmas-fire tale-spinner – of fairy tales that can come true: Yul Brynner.
+ - You’re not free until you’ve been made captive by supreme belief.
+ - There is a great amount of poetry in unconscious fastidiousness.
+ - O to be a dragon, a symbol of the power of Heaven-of silk-worm size or immense; at times invisible. Felicitous phenomenon!
+ - Egotism is usually subversive of sagacity.
+ - We don’t like flowers that do not wilt; they must die, and nine she-camel hairs aid memory.
+ - What is our innocence, What is our guilt? All are naked, none is safe.
+ - The power of the visible is the invisible.
+ - War is pillage versus resistance and if illusions of magnitude could be transmuted into ideals of magnanimity, peace might be realized.
+ - In a poem the words should be as pleasing to the ear as the meaning is to the mind.
+ - The Irish say your trouble is their trouble and your joy their joy? I wish I could believe it; I am troubled, I’m dissatisfied, I’m Irish.
+ - So wary as to disappear for centuries and reappear but never caught, the unicorn has been preserved by an unmatched device wrought like the work of expert blacksmiths...
+ - Among animals, one has a sense of humor. Humor saves a few steps, it saves years.
+ - When you take my time, you take something I had meant to use...
+ - There never was a war that was not inward; I must fight till I have conquered in myself what causes war.
+ - My father used to say, “Superior people never make long visits, have to be shown Longfellows grave, or the glass flowers at Harvard.”
+ - The sweet air coming into your house on a fine day, from water etched with waves as formal as the scales on a fish.
+ - I never ‘plan’ a stanza. Words cluster like chromosomes, determining the procedure.
+ - Assign Yogi Berra to Cape Canaveral; he could handle any missile.
+ - We are suffering from too much sarcasm.
+ - Truly as the sun can rot or mend, love can make one bestial or make a beast a man.
+ - Poetry is all nouns and verbs.
+ - Maine should be pleased that its animal is not a waverer, and rather than fight, lets the primed quill fall. Shallow oppressor, intruder, insister, you have found a resister.
+ - I wonder what Adam and Eve think of it by this time.
+ - Not till the poets among us can be “literalists of the imagination”-above insolence and triviality and can present for inspection, “imaginary gardens with real toads in them.” shall we have it.
+ - One must be as clear as one’s natural reticence allows one to be.
+ - Poetry, that is to say the poetic, is a primal necessity.
+ - In a poem the excitement has to maintain itself. I am governed by the pull of the sentence as the pull of a fabric is governed by gravity.
+ - The hands are the heart’s messengers.
+ - As contagion of sickness makes sickness, contagion of trust can make trust.
+ - The cynics in life are the people who are always trying to do things for people who don’t want things done for them.
+ - Life is energy, and energy is creativity. And even when individuals pass on, the energy is retained in the work of art, locked in it and awaiting release if only someone will take the time and the care to unlock it.
+ - I am hard to disgust, but a pretentious poet can do it.
+ - As for butterflies, I can hardly conceive of one’s attending upon you; but to question the congruence of the complement is vain, if it exists.
+ - There is no pleasure subtler than the sensation of being a good workman; and in work there is the sense of consanguinity-unconscious as a rule but sometimes conscious.
+ - Beauty is everlasting And dust is for a time.
+ - We Call Them the Brave who likely were reluctant to be brave.
+ - Poetry is a peerless proficiency of the imagination.
+ - Men are monopolists of “stars, garters, buttons and other shining baubles”- unfit to be the guardians of another person’s happiness.
+ - You are not male nor female, but a plan deep-set within the heart of man.
+ - Only imagination that towers can reproduce evanescence and render rigidity flexible.
+ - The prey of fear, he, always curtailed, extinguished, thwarted by the dusk, work partly done, says to the alternating blaze, “Again the sun! anew each day; and new and new and new, that comes into and steadies my soul.”
+ - Honesty – however dangerous – should be as valuable as radium it seems to me...
+ - Which of us has not been stunned by the beauty of an animal’s skin or its flexibility in motion?
+ - A writer is unfair to himself when he is unable to be hard on himself.
+ - A symbol from the first, of mastery, experiments such as Hippocrates made and substituted for vague speculation stayed the ravages of plague.
+ - There never was a war that was not inward.
+ - When we think we don’t like art it is because it is artificial art.
+ - Writing is an undertaking for the modest.
+ - It is in general true that in order to create works of art one has to have leisure. On the other hand I think that one needs to experience resistance in a practical sense, and even that which is poignant to bring out what makes easy reading for others. Too much deprivation of course, means death.
+ - I, too, dislike it. Reading it, however, with a perfect contempt for it, one discovers in it, after all, a place for the genuine.
+
+82 quotes

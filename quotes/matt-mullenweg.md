@@ -1,0 +1,40 @@
+ - Technology is best when it brings people together.
+ - If you’re not embarrassed when you ship your first version, you waited too long.
+ - I am the unhappiest WordPress user in the world, I think it sucks.
+ - Do what you love and don’t focus on money – life’s too short.
+ - It’s good to work for someone else. Because then you appreciate it more when you are an entrepreneur.
+ - As the web becomes more and more of a part of our every day lives, it would be a horrible tragedy if it was locked up inside of companies and proprietary software.
+ - If I were to wish for two things, they would be as much bandwidth as possible and ridiculously fast browser engines.
+ - My own personal dream is that the majority of the web runs on open source software.
+ - From the first time I held an iPhone, the space has evolved quickly, and people have shifted from reading content on their desktops to smartphones and iPads, even long-form stuff.
+ - I don’t care how someone lives or how good their spoken English is. I do all of my interviews on Skype text chat – all that matters is their work.
+ - The biggest motivation is not the money but the impact.
+ - Technology is closing the gap between what one can imagine and what one can do and as a result the equality of opportunity is unmatched in human history.
+ - 130 of Automattic’s 150 employees work outside of our San Francisco headquarters. Why are so many companies stuck in this factory model of working?
+ - If I’m on the titanic I want to be steering.
+ - Usage is like oxygen for ideas.
+ - You can’t build everything and there is no more a killer feature. Everyone has a different killer feature.
+ - As an entrepreneur making decisions for your company, always go back to your first principles of what’s important to you and why you started in the first place.
+ - I drive a Prius and drink $10k bottles of wine. The wine isnt on Instagram. The Prius is.
+ - I don’t have big ideas. I sometimes have small ideas, which seem to work out.
+ - I don’t have a Wikiquotes page.
+ - For me, it always comes back to the blogger, the author, the designer, the developer. You build software for that core individual person, and then smart organisations adopt it and dumb organisations die.
+ - Simplicity not simplistic.
+ - I was raised Catholic, and I can get incredibly guilty about mistakes.
+ - Much of the lifeblood of blogs is search engines – more than half the traffic for most blogs.
+ - The biggest challenge for open source is that as it enters the consumer market, as projects like WordPress and Firefox have done, you have to create a user experience that is on par or better than the proprietary alternatives.
+ - Twitter is the ultimate service for the mobile age. Its simplification and constraint of the publishing medium to 140 characters is perfectly complementary to a mobile experience. People still need longer stuff, but they see the headline on Twitter or Facebook.
+ - Usage is like oxygen for ideas. That means every moment you’re working on something without it being in the public it’s actually dying, deprived of the oxygen of the real world.
+ - The rise of broadband and growing ubiquity of Internet access excites me the most. The world changes a lot when, no matter where you are – in the middle of a deserted highway or in a bustling city – you can get high speed broadband access.
+ - I believe that software, and in fact entire companies, should be run in a way that assumes that the sum of the talent of people outside your walls is greater than the sum of the few you have inside. None of us are as smart as all of us.
+ - You can learn practically anything you want in the world online.
+ - Historically, WordPress has been purely focused on the writing side. However, were thinking about mobile completely differently, and I think theres a big opportunity to take the community of creators that loves WordPress and deliver an audience to the amazing things theyre making.
+ - Usage is like oxygen for ideas. You can never fully anticipate how an audience is going to react to something you’ve created until it’s out there.
+ - In my home office, I have two large, 30-inch computer monitors – a Mac and a PC. They share the same mouse and keyboard, so I can type or copy and paste between them. I’ll typically do Web stuff on the Mac and e-mail and chat stuff on the PC.
+ - If you’re building a startup or any sort of organization, take a few moments to reflect on the qualities that the people you most enjoy working with embody and the user experience of new people joining your organization, from the offer letter to their first day.
+ - A common quality I see of people who are successful is that they are voracious readers.
+ - There’s no financial aspect to stats.
+ - People might start with LiveJournal or Blogger, but if they get serious, they’ll graduate to WordPress. We try to cater to the more powerful users.
+ - If you make the Internet, live on the internet.
+
+38 quotes

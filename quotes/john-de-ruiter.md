@@ -1,0 +1,145 @@
+ - Sunny is what you are. Everything else is what you think.
+ - The formless cannot be based on the form. The form needs to be based on the formless.
+ - When your heart is open and soft, it isn’t actually vulnerable: it can withstand anything.
+ - Your real strength within isn’t the strength that you experience in your self. Your real strength within is in what you are as a being, deeper than what your self is. Your real strength is within your weakest weakness.
+ - Love is not an experience. Love is what you are.
+ - Realization is more important than understanding.
+ - Your past determines your future unless you’re clearly moving past your self and responding to what you know in your heart.
+ - As soon as there’s pain, you know the gold is just beneath.
+ - Embodying your being is you earning your own being, earning your being in your body.
+ - Without your entrance to greater reality in this life, greater reality has no entrance to this life. The meaning of all of this lifeisn’t as it appears. The meaning of this life is for greater reality to manifest through all the forms of this life.
+ - With your reorientation as awareness, difficulty calls upon your resources – not first the resources that you’re familiar with, but the resources of your own being.
+ - Surrender to the deepest level within that you’re aware of.
+ - There’s no mystery to integrity. There’s no mystery to oneness. When there is a core-splitting honesty, right there, awareness knows.
+ - It doesn’t matter how powerfully sexuality, one with your being, moves; it’s all profound goodness. You’re safe in it. What you know in it, of its depth and its quality, is what you’re saying yes to, what you’re resting in, what you’re warmed in.
+ - Your being is real and it gets to have everything. It gets to have your preferences, your person, and all of your plans.
+ - When you are on your deathbed, and you look back into your life, it won’t matter to you what you have done with your life. What will matter to you is what you have done all of your life with your heart.
+ - Prayer doesn’t work in the way that you think. If you pray for good health and it is genuine, you might be coming into sickness. The essence of good health has to do with a most delicate well-being.
+ - Your sexuality is the engine of your humanness. Freed of your self, it is an engine of movement. It isn’t there to move your experience, but to move your being into your experience, bringing your being into the physicality of your self.
+ - Depth of feeling and clarity of thought isn’t the same as knowing.
+ - There’s a depth of meaning all on its own in awareness being gentled. From within the subtlety of being gentled, the level of perception changes. Instead of perceiving the obviousness of experience, you’re able as awareness to perceive most subtle meaning.
+ - When a drop of water touches a drop of water there is no holding back – it joins. Water responds to water. Your being responds to what is the same, outside of you, as your own being.
+ - What touches your heart is meaning.
+ - Awareness returning home is awareness being enfolded by what it knows.
+ - The place of connection or separation in relationship to your own being, the place in your self where this occurs, is in your heart.
+ - When you lay down your life for what you are after you’ve died, you’re clean.
+ - What moves you, you move. That brings your sexuality into your being, through your heart, and that movement brings your being, through your heart, into your self.
+ - When you really love, that makes you feel unsure in your self, even though it is love that reaches your heart.
+ - Whatever your orientation is, it is working on everything around you.
+ - The more that you’re knowing, the more you will be feeling and seeing, the more that you will hurt in your heart, and in your self. Deep heart understanding replaces your need and your holding of personal truths.
+ - Let everything that comes your way, help you be new.
+ - Truth is not a mystery – its greatest secrets are yours to know through simple honesty and surrender to what that honesty reveals.
+ - When you are relaxed and you hear what you know is the truth, regardless of your experience, you love. You love the truth. You love hearing, knowing, responding to the truth, because all of that is really you.
+ - You’re not limited to your body as you’ve known your body. In the deepest levels of you being in your deepest body, there is nowhere that your body is not, and with that body you’re able to think.
+ - When you are gentled and quieted in your heart, you are incapable of relating to disappointment, incapable of feeling sorry for your self.
+ - If you set something free and it comes back to you, that’s the beginning of it being yours.
+ - The more that you are being your ideas, the less human you are. The deeper your realization, being in your heart, the more of your humanness you come into.
+ - Your real home isn’t your patterned self. It isn’t your thinking. It isn’t your feeling. Your real home is the deepest within that you know the truth of. Your real home, your only home, is direct knowledge.
+ - The softer your heart is the less that your past is forming your present and your future. When there is openness and softness of heart, what forms the present and the future is not your past but the reality of your own being.
+ - When a city is inundated with water, the water will move in all of the streets. Every pathway that has been made will be used. It doesn’t matter the reason of its making.
+ - When you love what’s deeper, your response is direct. There won’t be a fear in dropping directly into the deeper.
+ - Openness and softness of heart loves what it knows.
+ - When you rest in the weakness of your heart, your being moves and your self becomes quieted.
+ - In all of its vulnerability, profound sincerity does, in its relationship to knowledge, find its way.
+ - Let your sexuality move in whichever way it does. Do nothing to guide it or control it. What brings it into balance is you being in your heart in the midst of it.
+ - Give others their dignity by opening and softening in your heart to them.
+ - Everyone starts out with a little self, and it costs everything to move past that little self. It costs the life of the little self to be the life within that’s deeper than that little self.
+ - If you don’t abdicate or misuse your power, pressure takes you into realization.
+ - The heart that is at rest grows and develops from anything.
+ - Everything needs to touch your heart. Everything that touches your heart brings out the deep in you.
+ - When you, awareness, are mastered by the deepest that you know the truth of, then you are no longer awareness. You are oneness aware mastering your self and your life.
+ - When you move as openness and softness of heart you’re moving in this life within your self in the same way that your being is. When you move as openness and softness of heart, you are all the way into the surface moving and growing, developing as oneness.
+ - When your self and your life belong to your being, your self opens, your life opens, your being comes in, and it will have everything. It is the single greatest turning point in your life.
+ - As what you first are moves in the context of form, you have real reflection within that form, real reflection of what you are, what you are being and what you are doing. The movement in form enables you to comprehend what you are.
+ - In a real relationship the two of you are together, meeting without your histories.
+ - Start out identifying what you know are delicacies of being within, tiny little touches of knowledge that has beingness in it, special soft spots of heart. As soon as you identify them, you need to believe them.
+ - Your self doesn’t represent the truth in you, your being does. Give your ease only to what you know represents the truth in you.
+ - Once you’re facing the direction of the deep within, awareness enters without a thought.
+ - There is only one real comfort and it’s not a feeling. It is the comfort of oneness.
+ - Well-being is like water moving down hill. When you block the water, the water turns into a reservoir, reservoir of well-being instead of a flow of well-being. To well-being it doesn’t make a difference.
+ - The cure to your self is that you are not yours.
+ - In this there are no options, just response, awareness responding to knowing. All the way in and all the way out. This isn’t of the earth – this is of the everything.
+ - When you’re all in, you will know sweet vulnerability.
+ - Be warmed in your heart in the midst of your sexuality. Your response to your own sexuality is that you are warmly in it, not exploiting it, not moving away from it, that you are completely present in it, warmed.
+ - You cannot dwell in your being while your self inhabits your heart.
+ - What is deeper is warmer. When you’re looking for what is deeper, add warmth.
+ - High level womanness occurs and is freed when the filters and the boundaries in your womanness are no longer of use to you. As a woman you then move as your own Being.
+ - When resistance no longer serves you, you’ll no longer have it.
+ - When you are unconditionally open and soft in your heart while your self empties and while your self fills, you live fulfilling the law of containment.
+ - Relationship means you give all of your heart.
+ - The known unseen within becomes structural in what is seen: a being functioning as a self, in person, in this world.
+ - It isn’t the kind of profession that you have that makes you flourish; it’s what you are coming from, within, that makes you flourish. Then everything that you step into turns into your garden.
+ - When you are in the mundane from what is deeper than your self, you realize the mundane to be more than your self, and your self opens. It opens in its structuring and in its form, enabling you as the form of your self to move in the deeper levels of the mundane.
+ - Awareness, one with knowing, is love.
+ - Looking and seeing do not originate in your self. You are able to look in your self because looking and seeing are before your self.
+ - Relate to the little instead of relating to the big. The little is indomitable.
+ - This life is a stellar opportunity to realize what you are, to bring what you first are into manifestation.
+ - The more that you need a relationship, the less you are able to be in a relationship. The more that something on the surface can answer you, the less that you will be really answered when you’re in it.
+ - Your deeper sense isn’t a springboard; it’s a landing place. If you draw conclusions too quickly or too slowly, you’ll establish your self where it doesn’t belong. The fine line between the two is in your own deeper sense. It is in your actual knowing within that deeper sense.
+ - Everyone is giving something. Everyone is giving what has their heart. What I’m giving you is what has my heart.
+ - You simply cannot trust or refer to your experience of your self to tell you what you are, to tell you the truth within.
+ - The evolution in each of us isn’t separate from each other.
+ - You cannot have a perfect mind. You can have a perfect heart.
+ - When you are being what you really are you absolutely flourish in the midst of absolutely everything.
+ - Where there’s self importance, there’s only a very little bit of you and that little bit is distorted. It’s in a holding pattern that is false to what it knows. That holding pattern forbids you, in that little bit of you, from being the rest of you.
+ - In being meaning, you naturally find meaning in everything.
+ - Your self is yours to integrate. To integrate your self you need to be, in the midst of your experience, a little bit like your own being.
+ - To really evolve as awareness, be just like your own being in a self like yours and on a planet like this one.
+ - When you move the deeper levels in you and the deeper levels in your body, you’ll be relating to that mystery in her. You’ll relate to it directly and you’ll lay hold of it through the deeper levels in you and in your body.
+ - Whatever you have awakened to, you belong to.
+ - When you come from your heart in the midst of your self and in your life, you’ll be like a salmon turning and going upstream. You’ll be going against the stream. You’ll be going against what your self is like. In that way, you are training your self, your conditioning and the streams of your self.
+ - The deeper within that you are coming from, the higher the perspective you’ll be able to have.
+ - Oneness means that as awareness, your relationship with knowing is clean. Then for you to know is for you to be.
+ - Your whole life is really only all about that dear place in you where you know you’ve realized, you love, and you are reached.
+ - The more open you are within, the more capacity you will have to know, to see, and to love.
+ - When you respond to your heart you are responding to love.
+ - The movement of you brought forward is love.
+ - Your mind is like a servant to you. Whatever you are being in the midst of your mind, your mind is going to be the same to you.
+ - Your life has little purpose if you are separate from your own knowledge within.
+ - You can fulfill your whole life in one hour of inner seeing.
+ - As much as everything can seem to be about patterns in your self and others, within the drama of all that, it’s really all about knowing.
+ - The truth within moves as intimacy of being.
+ - When your heart softens and opens, your being becomes matter in your self. That is the change of matter and what matters to you in your self will change.
+ - Love doesn’t need to be answered, It just quietly and freely gives.
+ - Live finding each other in what you haven’t yet found, seeing each other in a way that you haven’t yet seen, reaching within to find the more. In the more you find the more of each other.
+ - The more that you bypass of your own mechanisms, the more in your self that will come apart.
+ - For you to be free of your thinking mind, that will cost you the way that you’ve put your self together. It will cost you your patterned self.
+ - The new ground that you form in your living is a new self, a new self that isn’t at all of the middle ground, a lived-in self that has no need of middle ground. That new self makes unseen reality within seen.
+ - If you move as a being in every experience of your self, your being replaces your self.
+ - Let your heart believe only what nurtures you.
+ - For you to access your own innermost as awareness is for you to surrender form after form after form, enabling you as awareness to recede to what you first are, for you to be meaning.
+ - Surrender to what you know and you’ll know more.
+ - Integrate the unseen of what you first are in the midst of all things seen.
+ - If you die of cancer with only openness and softness in your heart, you will live and die integrating your self.
+ - The more honest you are, the more quieted you are within.
+ - For your self to become pure, give everything to what is already pure in you.
+ - What you are is the most subtle delicacy of being.
+ - The source of love isn’t in your self. It isn’t in your experience. It’s in you.
+ - You are able to come from openness and softness in an instant.
+ - Where there is humility, there is no story.
+ - Find the most delicate qualities within; then treat these qualities as tiny little seeds that you would plant in your heart, with you being the gardener.
+ - Where there is movement, there is reach. Reach engenders communion.
+ - The let-go of the last little bit is the biggest because, in that, there is no return.
+ - For you to have real love, you need to be able to move past your self.
+ - Where your life ends, your being doesn’t. Where your being ends, you don’t. That is what is able to have and move your forms.
+ - The best that you can do for your mind is to have no in-between state in your heart.
+ - If you are all open in your heart, you are clean. If you are all open in your self, you are naive.
+ - When you believe what you know, you love.
+ - When you are being true to what you know in your heart, your whole heart becomes clean.
+ - When awareness believes what it knows is true, the truth of what awareness really is, moves. That movement is love.
+ - The more clean you are in awakening to your own being, the more you’ll be able to move your own being toward others. Your evolution as awareness is in the purity of thatit’s in the cleanness.
+ - While sincerity is to carry the weight of knowledge in the self, it is also to be the lightness of being clean.
+ - It’s true for you to soften within, to let your heart open, to let your heart soften.
+ - As soon as you give your heart to something new you will immediately be able to think in a way that is new.
+ - Whatever you know in your heart, live at the expense of anything else.
+ - With real relationship within, you are as delicateness really listening.
+ - What you really are isn’t loyal to your self. It won’t favor your self. It will turn your self into what you really are.
+ - Put together every little bit of goodness that you have known and you have your being.
+ - As awareness recedes into the deep, as when it falls asleep, everything seemingly ends. All that it takes is a gentle touch to your body; meaning has moved and meaning is again aware, knowing, seeing, and if it is home, meeting and communing.
+ - Live only for what you know in your heart is worth dying for.
+ - You don’t come into the more without responding to what you already know.
+ - When you are known, what you are is activated.
+ - The unfolding code of what you really are occurs every time you go to sleep.
+ - You need to bring your awakening into city life. Bring it into fast-paced complexity where it thrives.
+
+143 quotes

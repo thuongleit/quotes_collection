@@ -1,0 +1,81 @@
+ - If you haven't confidence in self, you are twice defeated in the race of life. With confidence, you have won even before you have started. 
+ - A people without the knowledge of their past history, origin and culture is like a tree without roots.
+ - We are going to emancipate ourselves from mental slavery because whilst others might free the body, none but ourselves can free the mind. Mind is your only ruler, sovereign. The man who is not able to develop and use his mind is bound to be the slave of the other man who uses his mind.
+ - Take advantage of every opportunity; where there is none, make it for yourself.
+ - We must give up the silly idea of folding our hands and waiting on God to do everything for us. If God had intended for that, then he would not have given us a mind. Whatever you want in life, you must make up your mind to do it for yourself.
+ - The Black skin is not a badge of shame, but rather a glorious symbol of national greatness.
+ - The man who is not able to develop and use his mind is bound to be the slave of the other man who uses his mind.
+ - Do not remove the kinks from your hair – remove them from your brain.
+ - Let us not try to be the best or worst of others, but let us make the effort to be the best of ourselves.
+ - Look for me in the whirlwind or the storm.
+ - The pen is mightier than the sword, but the tongue is mightier than them both put together.
+ - Be Black, buy Black, think Black, and all else will take care of itself.
+ - Let the sky and God be our limit and Eternity our measurement.
+ - Lift up yourselves, men, take yourselves out of the mire and hitch your hopes to the very stars themselves. Let no man pull you down, let no man destroy your ambition, because man is but your companion, your equal; man is your brother; he is not your Lord, he is not your sovereign master.
+ - What you do to-day that is worthwhile, inspires others to act at some future time.
+ - Look to Africa, when a black king shall be crowned for the day of deliverance is at hand!
+ - Intelligence rules the world, ignorance carries the burden...
+ - Up, you mighty race, accomplish what you will.
+ - I have no desire to take all black people back to Africa; there are blacks who are no good here and will likewise be no good there.
+ - Fascism is the cult of organised murder, invented by the arch-enemies of society. It tends to destroy civilization and revert man to his most barbarous state. Mussolini and Hitler might well be called the devils of an age, for they are playing hell with civilization.
+ - With confidence, you have won before you have started.
+ - When all else fails to organize the people, conditions will.
+ - I like honesty and fair play.
+ - Liberate the minds of men and ultimately you will liberate the bodies of men.
+ - If we as a people realized the greatness from which we came we would be less likely to disrespect ourselves.
+ - No two persons think alike, even if they outwardly profess the same faith, so we have as many religions in Christianity as we have believers.
+ - Take the kinks out your mind, not your hair.
+ - Chance has never yet satisfied the hope of a suffering people. Action, self-reliance, the vision of self and the future have been the only means by which the oppressed have seen and realized the light of their own freedom.
+ - Whatsoever things common to man, that man has done, man can do.
+ - Men who are in earnest are not afraid of consequences.
+ - The thing to do is to get organized; keep separated and you will be exploited, you will be robbed, you will be killed. Get organized and you will compel the world to respect you.
+ - You must not mistake lip-service and noise for bravery and service.
+ - To see your enemy and know him is a part of the complete education of man.
+ - There can be no peace among men and nations, so long as the strong continues to oppress the weak, so long as injustice is done to other peoples, just so long we will have cause for war, and make a lasting peace an impossibility.
+ - Black men of Carthage, Ethiopia, of Timbuktu and Alexandria gave the likes of civilization to this world.
+ - Look to Africa, for there a king will be crowned.
+ - Great principles, great ideals know no nationality.
+ - Be as proud of your race today as our as our fathers were in days of yore. We have beautiful history, and we shall create another in the future that will astonish the world.
+ - The greatest possesion of man is character.
+ - Present day statesmen are making the biggest blunder of the age if they believe that there can be any peace without equity and justice to all mankind.
+ - The value of knowledge is to use it. It is not humanly possible that a person can retain all knowledge of the world, but if a person knows how to search for all the knowledge of the world, he will find it when he wants it.
+ - LIFE is that existence that is given to man to live for a purpose, to live to his own satisfaction and pleasure, providing he forgets not the God who created him and who expects a spiritual obedience and observation of the moral laws that He has inspired.
+ - The whole world is run on bluff.
+ - Progress is the attraction that moves humanity.
+ - Black men, you were once great; you shall be great again. Lose not courage or faith, go forward.
+ - Death is the end of all life in the individual or the thing; if physical, the crumbling of the body into dust from whence it came. He who lives not uprightly, dies completely in the crumbling of the physical body, but he who lives well, transforms himself from that which is mortal, to immortal.
+ - The ends you serve that are selfish will take you no further than yourself but the ends you serve that are for all, in common, will take you into eternity.
+ - Hungry men have no respect for law, authority or human life.
+ - We were the first Fascists, when we had 100,000 disciplined men, and were training children, Mussolini was still an unknown. Mussolini copied our Fascism.
+ - Never forget that intelligence rules the world and ignorance carries the burden. Therefore, remove yourself as far as possible from ignorance and seek as far as possible to be intelligent.
+ - Wake up Ethiopia! Wake up Africa! Let us work towards the one glorious end of a free, redeemed and mighty nation. Let Africa be a bright star among the constellation of nations.
+ - Every man has a right to his own opinion. Every race has a right to its own action; therefore let no man persuade you against your will, let no other race influence you against your own.
+ - A reading man and woman is a ready man and woman, but a writing man and woman is exact.
+ - Chance has never yet satisfied the hope of a suffering people.
+ - Always try to associate with people from whom you can learn something. All the knowledge that you want is in the world, and all you have to do is go and seek it.
+ - God and Nature first made us what we are, and then out of our own created genius we make ourselves what we want to be. Follow always that great law. Let the sky and God be our limit and Eternity our measurement.
+ - Lose not courage, lose not faith, go forward.
+ - I pray God that we shall never use our physical prowess to oppress the human race, but we will use our strength, physically, morally and otherwise to preserve humanity and civilization.
+ - I trust that you will so live today as to realize that you are masters of your own destiny, masters of your fate; if there is anything you want in this world, it is for you to strike out with confidence and faith in self and reach for it.
+ - She makes one happy, then miserable. You are to her kind, then unkind. Constant yet inconstant. Thus we have WOMAN. No real man can do without her.
+ - We are not engaged in domestic politics, in church building or in social uplift work, but we are engaged in nation building.
+ - There is no force like success, and that is why the individual makes all effort to surround himself throughout life with the evidence of it; as of the individual, so should it be of the nation.
+ - A man’s bread and butter is only insured when he works for it.
+ - The whole world is run on bluff. No race, no nation, no man has any divine right to take advantage of others. Why allow the other fellow to bluff you?
+ - Unite all people of African ancestry of the world to one great body to establish a country and absolute government of their own.
+ - The history of a movement, the history of a nation, the history of a race is the guide-post of that movement’s destiny, that nation’s destiny, that race’s destiny.
+ - I do not speak carelessly or recklessly but with a definite object of helping the people, especially those of my race, to know, to understand, and to realize themselves.
+ - If I die in Atlanta my work shall then only begin, but I shall live, in the physical or spiritual to see the day of Africa’s glory.
+ - History is the land-mark by which we are directed into the true course of life.
+ - It is only the belief and the confidence we have in a God why man is able to understand his own social institutions, and move and live like a rational human being.
+ - There shall be no solution to this race problem until you, yourselves, strike the blow for liberty.
+ - Slavery is a condition imposed upon individuals or races not sufficiently able to protect or defend themselves, and so long as a race or people expose themselves to the danger of being weak, no one can tell when they will be reduced to slavery.
+ - There is no humanity before that which starts with yourself.
+ - God Almighty created each and every one of use for a place in the world, and for the least of us to think that we were created only to be what we are and not what we can make ourselves, is to impute an improper motive to the Creator for creating is.
+ - American suffragist, speech “Is Woman Suffrage Progressing?” at Stockholm, Sweden Radicalism is a label that is always applied to people who are endeavoring to get freedom.
+ - A people without the knowledge of...
+ - Our success educationally, industrially and politically is based upon the protection of a nation founded by ourselves. And the nation can be nowhere else but in Africa.
+ - I read “Up From Slavery” and then my dream – if I may so call it – of being a race leader dawned.
+ - The power that holds Africa is human, and it is recognized that whatsoever man has done, man can do.
+
+79 quotes

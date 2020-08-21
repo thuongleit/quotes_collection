@@ -1,0 +1,296 @@
+ - Why do bad things happen to good people? That only happened once and He volunteered.
+ - A god who is all love, all grace, all mercy, no sovereignty, no justice, no holiness, and no wrath is an idol.
+ - To live coram Deo is to live one’s entire life in the presence of God, under the authority of God, to the glory of God.
+ - Right now counts forever.
+ - There is nothing in this universe you need more desperately than Christ.
+ - We are secure, not because we hold tightly to Jesus, but because He holds tightly to us.
+ - Reformed theology so far transcends the mere five points of Calvinism that it is an entire worldview.
+ - God wants your life. Not one hour a week, not 10% of your income, He wants you.
+ - Give me the biblical Christ or give me nothing.
+ - I don’t always feel His presence. But God’s promises do not depend upon my feelings; they rest upon His integrity.
+ - To know that God knows everything about me and yet loves me is indeed my ultimate consolation.
+ - Every sin is an act of cosmic treason, a futile attempt to dethrone God in His sovereign authority.
+ - Mindless Christianity is no Christianity at all. You can’t love what you don’t know.
+ - The gospel is only good news when we understand the bad news.
+ - The question is not, “Why is there only one way to God?” but “Why is there even one way?”
+ - Hope is called the anchor of the soul because it gives stability to the Christian life. But hope is not simply a ‘wish’ I wish that such-and-such would take place rather, it is that which latches on to the certainty of the promises of the future that God has made.
+ - We are not sinners because we sin. We sin because we are sinners.
+ - The irony of New Testament lordship is that only in slavery to Christ can a man discover authentic freedom.
+ - If there is one maverick molecule in all the universe, then God is not sovereign. And if God is not sovereign, He is not God.
+ - What we celebrate at Christmas is not so much the birth of a baby, but the incarnation of God Himself.
+ - I can’t make the Bible come alive for anyone. The Bible is already alive. It makes me come alive.
+ - To be known by God is the highest goal of human existence.
+ - God is serious about how we worship Him, and we must be serious about it, too.
+ - The Word of God can be in the mind without being in the heart; but it cannot be in the heart without first being in the mind.
+ - In Christian marriage, love is not an option. It is a duty.
+ - The holiness of God is traumatic to unholy people.
+ - The worst sin against stewardship is to waste your life.
+ - Doctrine divides, but doctrine also unites. It binds together the hearts of God’s people who celebrate the truth of God together.
+ - At the final judgment, everyone will stand before God alone.
+ - The presumptuous sin of Uzzah was that He assumed his hands were less polluted than the dirt.
+ - Truth is too important to kill it in the streets for the sake of peace.
+ - Sin is not simply making bad choices or mistakes. Sin is having the desire in our hearts to do the will of the enemy of God.
+ - At its root, this is what faith is. It is not believing in God. It’s believing God.
+ - To honor God as God, we must worship Him as He and He alone decrees.
+ - When God writes our names in the ‘Lamb’s Book of Life’ He doesn’t do it with an eraser handy. He does it for eternity.
+ - To say that God’s sovereignty is limited by man’s freedom is to make man sovereign.
+ - God just doesn’t throw a life preserver to a drowning person. He goes to the bottom of the sea, and pulls a corpse from the bottom of the sea, takes him up on the bank, breathes into him the breath of life and makes him alive.
+ - Scripture does not say that God is ‘love, love, love’ or that He is ‘wrath, wrath, wrath,’ but that He is ‘holy, holy, holy.’
+ - The fundamental deception of Satan is the lie that obedience can never bring happiness.
+ - God doesn’t want us to just feel gratitude, but for us to show it by giving thanks to God with our lives.
+ - We cannot change God. God is unchangeable. If changes are to be made, they must be made in us.
+ - It is one thing to believe in God; it is quite another to believe God.
+ - There is not one piece of cosmic dust that is outside the scope of God’s sovereign providence.
+ - If there is one single molecule in this universe running around loose, totally free of God’s sovereignty, then we have no guarantee that a single promise of God will ever be fulfilled.
+ - We are cosmic traitors. We must recognize this problem within ourselves if we are to grasp the necessity of the cross.
+ - Christ is still in Christmas, and for one brief season the secular world broadcasts the message of Christ over every radio station and television channel in the land. Never does the church get as much free air time as during the Christmas season.
+ - Satan can do only what the sovereign God allows him to do.
+ - A holy God is both just and merciful. He is never unjust.
+ - In every age the church is threatened by heresy, and heresy is bound up in false doctrine. It is the desire of all heretics to minimize the importance of doctrine. When doctrine is minimized, heresy can exercise itself without restraint.
+ - Not until we take God seriously will we ever take sin seriously.
+ - Prayer is to the Christian what breath is to life, yet no duty of the Christian is so neglected.
+ - The fundamental loss of a desire for God is the heart of original sin.
+ - Isn’t is amazing that almost everyone has an opinion to offer about the Bible, and yet so few have studied it?
+ - All that God had to do to harden Pharaoh’s heart, or to harden your heart, is to withhold His own grace.
+ - When we behold the face of God, all memories of pain and suffering will vanish. Our souls shall be totally healed.
+ - Men are never duly touched and impressed with a conviction of their insignificance, until they have contrasted themselves with the majesty of God.
+ - We do not segment our lives, giving some time to God, some to our business or schooling, while keeping parts to ourselves. The idea is to live all of our lives in the presence of God, under the authority of God, and for the honor and glory of God. That is what the Christian life is all about.
+ - Without God man has no reference point to define himself. 20th century philosophy manifests the chaos of man seeking to understand himself as a creature with dignity while having no reference point for that dignity.
+ - If God says, ‘I forgive you,’ you are forgiven no matter how you feel, and to refuse that forgiveness is an act of arrogance.
+ - If you are of the truth, if you have learned the truth, if you see the sanctity of the truth, then speak truth. We are not called to be deceivers or liars. God is a God of truth, and His people are called to have an enormously high standard of truth.
+ - I rest solely in His righteousness and in His atonement because I know there is nothing I can do to make up for my own iniquity.
+ - When you enter the voting booth, don’t leave your Christianity in the parking lot.
+ - Natural man’s sin is precisely this: He wants the benefits of God without God Himself.
+ - The modern movement of worship is designed to break down barriers between man and God, to remove the veil, as it were, from the fearsome holiness of God, which might cause us to tremble. It is designed to make us feel comfortable.
+ - The gospel of Jesus Christ must be defended in every generation. It is always the center of attack by the forces of evil.
+ - To focus our mind on the task at hand-with fierce concentration-m akes for a productive use of time.
+ - Once we are reconciled to God, the estrangement is over, the hostilities have ended, and the peace is sealed for eternity.
+ - It’s dangerous to assume that because a man is drawn to holiness in his study that he is thereby a holy man. I am sure that the reason that I have a deep hunger to learn of the holiness of God is precisely because I am not holy.
+ - Sin is cosmic treason.
+ - Grace, by definition, is something that God is not required to grant. He owes a fallen world no mercy.
+ - God Himself supplies the necessary condition to come to Jesus, that’s why it is ‘sola gratia,’ by grace alone, that we are saved.
+ - For the Arminian, salvation is possible for all but certain for none. In the Calvinist position, salvation is sure for God’s elect.
+ - I’ll retire when they pry my cold, dead fingers off of my Bible.
+ - For the Christian, every tragedy is ultimately a blessing, or God is a liar.
+ - In salvation we are not only saved from sin and damnation; we are saved unto holiness. The goal of redemption is holiness.
+ - We break our promises to one another. We break our promises to God. But God never breaks His promises to us.
+ - We have a tendency to think of GOD being glorified only in the manifestation of his mercy – – He is just as glorified by His justice.
+ - Scratching people where they itch and addressing their ‘felt needs’ is a stratagem of the poor steward of the oracles of God. This was the recipe for success for the false prophets of the Old Testament.
+ - The Christian should be able to say with the psalmist, ‘Oh, how I love your law.’
+ - The God of popular religion is not holy.
+ - What about putting Christ back into Christmas? It is simply not necessary. Christ has never left Christmas.
+ - Whenever I read the psalms, I feel like I am eavesdropping on a saint having a personal conversation with God.
+ - The only freedom that man ever has is when he becomes a slave to Jesus Christ.
+ - Sin can bring pleasure, but never happiness.
+ - It is the Holy Spirit who inspired the Bible. It is the Holy Spirit who illumines the Bible.
+ - The sin of fallen man is this: Man seeks the benefits of God while at the same time fleeing from God Himself.
+ - Touching His human nature, Jesus is no longer present with us. Touching his Divine nature, He is never absent from us.
+ - True faith always produces real conformity to Christ.
+ - Change marriage and you change the world. Convince people that government, not God, lays down the rules for marriage, and they will believe more strongly that they determine right and wrong, that not even the world’s rulers are subject to a higher authority.
+ - The human dilemma is this: God is Holy and we are not. God is Righteous and we are not.
+ - If God is the Creator of the entire universe, then it must follow that He is the Lord of the whole universe. No part of the world is outside of His lordship. That means that no part of my life must be outside of His lordship.
+ - The grand difference between a human being and a Supreme being is precisely this: Apart from God I cannot exist; apart from me God does exist. God does not need me in order for Him to be. I do need God in order for me to be. We are dependent. We are fragile. This is how we differ from God.
+ - Burning hearts are not nourished by empty heads.
+ - The cross was a glorious outworking of the grace of God, by which the Father commissioned the Son to make full satisfaction so that sinners might be saved with no sacrifice of God’s justice.
+ - Sometimes we emulate the Pharisees more than we imitate Christ.
+ - If ever there were a time there was nothing, there would be nothing now.
+ - Any conception of a god that is less than sovereign is an idol and no god at all.
+ - Satan could make an “A” in my Systematic Theology course. He knows the information and knows that the information is true.
+ - No Christian can avoid theology. Every Christian is a theologian. Perhaps not a theologian in the technical or professional sense, but a theologian nevertheless. The issue for Christians is not whether we are going to be theologians but whether we are going to be good theologians or bad ones.
+ - The greatest weakness in the church today is that the servants of God keep looking over their shoulder for the approval of men.
+ - The neutral view of free will is impossible. It involves choice without desire.
+ - Genuine love for Jesus manifests itself in obedience to His commandments.
+ - The whole basis for our relationship with God is rooted and grounded in grace, in that which is not earned.
+ - We live in a culture where the truth claims of Christianity are not only rejected, they are ridiculed.
+ - Confession should be a daily activity for the Christian, whose entire pilgrimage is characterized by the spirit of repentance.
+ - Modern man has lost any sense of God’s nearness, but Christianity teaches that God reveals himself through every single thing he has ever brought into being, whether a created object or historical event.
+ - If you don’t know you’re in a state of grace, then you’re vulnerable to the paralysis of the accusations of the enemy.
+ - If it were left to us, we would all fall away from the faith and perish.
+ - God is not blind; neither is He capricious. For Him there are no accidents. With God there are no cases of chance events.
+ - Nothing could be more irrational than the idea that something comes from nothing.
+ - In His tender mercies, God has an incredible capacity to love the unlovely.
+ - The problem in the church today is not the profession of faith, but it’s possession.
+ - I think Arminianism is death to Christianity!
+ - Humanism was not invented by man, but by a snake who suggested that the quest for autonomy might be a good idea.
+ - We talk about predestination because the Bible talks about predestination. If we desire to build our theology on the Bible, we run head on into this concept. We soon discover that John Calvin did not invent it.
+ - To be spiritually dead is to be diabolically alive.
+ - The grounds of your justification are the perfect works of Jesus Christ. We’re saved by works, but they’re not our own.
+ - The complaint that church is boring is never made by people in awe.
+ - There are only two ways that God’s justice can be satisfied with respect to your sin. Either you satisfy it or Christ satisfies it. You can satisfy it by being banished from God’s presence forever. Or you can accept the satisfaction that Jesus Christ has made.
+ - Men and women who refuse to acknowledge God’s existence do so, in the final analysis, because it is contrary to their manner of living. They do not want to bow to the moral claims of a holy God on their lives.
+ - If Christ could make a complaint, it would be, “My bride never talks to me”.
+ - We live in what may be the most anti-intellectual period in the history of Western civilization.
+ - Unbelief is judged by Jesus not as an intellectual error but as a hostile act of prejudice against God himself.
+ - The sweetest fragrance, the most beautiful aroma that God has ever detected emanating from this planet, was the aroma of the perfect sacrifice of Jesus that was offered once and for all on the cross.
+ - The Christian life is to live all of your life in the presence of God.
+ - But the blessing Christ promised, the blessing of great reward, is a reward of grace. The blessing is promised even though it is not earned. Augustine said it this way: Our rewards in heaven are a result of God’s crowning His own gifts.
+ - God’s grace is not infinite. God is infinite, and God is gracious. We experience the grace of an infinite God, but grace is not infinite. God sets limits to His patience and forbearance. He warns us over and over again that someday the ax will fall and His judgment will be poured out.
+ - God’s grace is so powerful that it has the capacity to overcome our natural resistance to it.
+ - The most obscene symbol in human history is the Cross; yet in its ugliness it remains the most eloquent testimony to human dignity.
+ - When God’s justice falls, we are offended because we think God owes perpetual mercy. We must not take His grace for granted. We must never lose our capacity to be amazed by grace.
+ - A Christian is not a skeptic. A Christian is a person with a burning heart, a heart set aflame with certainty of the resurrection.
+ - Repentance is something that is brought about in the human heart by the work of God the Holy Spirit.
+ - When there’s something in the Word of God that I don’t like, the problem is not with the Word of God, it’s with me.
+ - People only have true understanding when they look at everything from God’s perspective. Authentic wisdom begins when we understand that God is to be the object of our devotion, our adoration, and our reverence.
+ - The failure of modern evangelicalism is the failure to understand the holiness of God.
+ - Regeneration is a work of the omnipotent power of God, power that nothing can overcome or resist.
+ - Most Christians salute the sovereignty of God but believe in the sovereignty of man.
+ - Man’s will is free to follow his inclinations, but fallen man’s inclinations are always and invariably away from God.
+ - Your task, O preacher, is to make sure that you are faithful to the text, that you are faithful to the proclamation of that gospel, that you are faithful to set forth the whole counsel of God, and then step back and let it happen.
+ - The principle rule of interpreting Scripture is that Scripture interprets Scripture.
+ - God did not die. The God who took on Himself a human nature died in His humanity, but the deity did not perish on the cross.
+ - Your personal testimony, however meaningful it is to you, is not the gospel.
+ - Disciples of Christ abide in His Word. Those who abide in His Word know the truth and are free.
+ - It is one thing to fall victim to the flood or to fall prey to cancer; it is another thing to fall into the hands of the living God.
+ - When God says something, the argument is over.
+ - It is by virtue of the atonement that God can maintain His justice and yet demonstrate His mercy...
+ - We take comfort, however, that mystery is not a synonym for contradiction.
+ - Doctrine does matter.
+ - We prefer the shadows where we feel safe over the light which exposes us and causes us to say ‘woe is me!’
+ - It’s not the wickedness of the pagan that breaks my heart. It’s the compromise of the Christian that grieves my soul.
+ - Preachers must always fight the temptation to preach anything but Christ and Him crucified.
+ - The gospel is the proclamation of the person and work of Jesus Christ and how those benefits can be applied to us by faith alone.
+ - Dead men do not cooperate with grace. Unless regeneration takes place first, there is no possibility of faith.
+ - It is important that when we are engaged in admonition or exhortation or confrontation with a brother who is overcome in sin, we call attention to the truth in an extraordinarily compassionate and tender and loving spirit.
+ - I cannot have God in my heart if he is not in my head. Before I can believe in, I must believe that.
+ - When one encounters truth, one encounters the God whose truth it is.
+ - To be a Christian is to be a theologian-a student of God and his will. The contemporary disdain for theological content and emphasis on self-image and emotions were not shared by the apostolic church.
+ - No one was ever called by God to greater suffering than God’s only begotten Son.
+ - It is imperative that the Christian, at the beginning of his pursuit to understand what true worship is, gets it clear that the object of our worship is to be God and God alone.
+ - The more I expose myself to the Word of God, the greater my faith will be.
+ - There is no time in human history when you were more perfectly represented than in the Garden of Eden...
+ - The Bible alone is the only authority that can bind the conscience of a person absolutely because it is the only authority that carries with it the intrinsic authority of God Himself.
+ - Without God man has no reference point to define himself.
+ - No unborn baby has ever had the right to choose or deny its own destruction.
+ - Evil may mar the divine image and cloud its brilliance, but it cannot destroy it.
+ - Was Luther crazy? Perhaps. But if he was, our prayer is that God would send to this earth an epidemic of such insanity that we too may taste of the righteousness that is by faith alone.
+ - We have to determine our theology from the Word of God, not from what we feel.
+ - It’s a sin to bore people.
+ - At the moment I sin, I desire the sin more than I desire to please God.
+ - We have a generation of people who think they can stand before the judgment seat of God despite their sins.
+ - For a Christian to be a Christian, he must first be a sinner. Being a sinner is a prerequisite for being a church member. The Christian church is one of the few organizations in the world that requires a public acknowledgement of sin as a condition for membership.
+ - The more sanctified a person is the more heavily weighted his prayer time is in adoration.
+ - God is the foundation of all authority, He exercises that foundation because He is the author and the owner of His creation. He is the foundation upon which all other authority stands or falls.
+ - I’ve often wondered where Jesus would apply His hastily made whip if He were to visit our culture. My guess is that it would not be money-changing tables in the temple that would feel His wrath, but the display racks in Christian bookstores.
+ - Though sin often brings immediate pleasure, it gives no lasting joy.
+ - One might pray and not be a Christian, but one cannot be a Christian and not pray.
+ - For a work to be considered good it must not only conform outwardly to the law of God, but it must be motivated inwardly by a sincere love for God.
+ - The more I learn about God, the more aware I become of what I don’t know about him.
+ - The Arminian view makes the final decision of our salvation rest upon a human choice, not upon a divine action.
+ - We live in age of compromise, but if we stand on the bedrock of God’s truth, we will not bend with the winds of relativism and faithlessness.
+ - You have to stop thinking logically to argue that the universe came into being by itself, out of nothing.
+ - I believe it to be one of the most important discipleship resources we have produced at Ligonier.
+ - Unbelievers can tolerate Christ only as long as He is stripped of His real identity.
+ - Dr. Boice’s commentary series is a treasure for the church and for her pastors. No expository preacher can afford to be without it.
+ - We fall privately before we ever fall publicly.
+ - There’s probably no concept in theology more repugnant to modern America than the idea of divine wrath.
+ - Anyone who takes his faith seriously and speaks in behalf of Christ and His kingdom will be accused of fanaticism at some point.
+ - To despise doctrine is to despise the Word of God.
+ - God’s grace is not infinite. God is infinite, and God is gracious.
+ - To call a Christian a theist is roughly equivalent to calling the space shuttle Atlantis a glider.
+ - We do not determine right or wrong based on what everybody else is doing.
+ - God’s graciousness is not totally removed from any individual during this lifetime. In hell, it is.
+ - Why would the disciples invent a God whose holiness was more terrifying than the forces of nature that provoked them to invent a god in the first place?
+ - We experience the grace of an infinite God, but grace is not infinite.
+ - Only a true faith that applies God’s Word to everything-incl uding economics-will lead to the revival and reformation our culture needs so badly.
+ - The house that is built upon the sand will crumble at the first sign of a windstorm.
+ - When people ask me to name the Ligonier teaching material they should use to help them grow; I tell them, ‘You should start with The Holiness of God.’
+ - Without God upholding the universe from moment to moment, nothing could continue to be.
+ - God doesn’t need our consent in order to govern us; He made us.
+ - We persevere because we are preserved by our High Priest’s intercession.
+ - What better evidence could there be of a man’s salvation than that he offers to others the grace he himself has received?
+ - We’ve replaced the proclamation of Christ with an easy-listening legalism of do more and try harder.
+ - There’s a long and sacred history of the use of X to symbolize the name of Christ, and from its origin, it has meant no disrespect.
+ - Just as the normative standard for the good and for the true is God, so the ultimate standard of beauty is God.
+ - The only reason why I’m a Christian is because I’m a gift of the Father to the Son, not because of anything I’ve ever done.
+ - The Spirit always communicates that He’s for you when He convicts you of your sin.
+ - This little expression, ‘It doesn’t matter what you believe as long as you’re sincere,’ is a monstrous lie.
+ - Apostasy occurs when a church leaves its historic moorings, abandons its historic confessional position, and degenerates into a state where either essential Christian truths are blatantly denied or the denial of such truths is widely tolerated.
+ - When the gospel is at stake, everything is at stake.
+ - I do not want to drive across a bridge designed by an engineer who believed the numbers in structural stress models are relative truths.
+ - By definition, the big difference between mercy and justice is that mercy is never ever obligatory.
+ - If the being of God ceased for one second, the universe would disappear.
+ - I get irritated when I hear preachers say, “Come to Jesus and all your problems will be over.” That’s just simply a lie.
+ - The more seriously we understand the radical nature of sin, the more it exercises a restraint upon us.
+ - The only works of righteousness that serve to justify a sinner are the works of Christ.
+ - We need the church as urgently as a starving baby needs his mother’s milk.
+ - If you truly have it, you never lose it; and if you lose it, you never truly had it.
+ - If God is not sovereign, God is not God.
+ - The world is filled with God’s glory. You can’t turn without bumping into it.
+ - People need a consistent explanation of the cross of Christ and what it accomplished. Christ’s atoning work is the centerpiece of the gospel and the only solution for humanity’s estrangement from our Creator.
+ - The moment we think we deserve mercy a little alarm bell should go off in our head because we are not talking about mercy anymore but justice.
+ - A faithful person is revealed by those who hate him or her. Are you hated for your faith or ethics? If nobody hates you, maybe you have not displayed Christ openly enough.
+ - Worship is not simply a feeling that is experienced; it must also involve understanding and the mind.
+ - It is superstitious to equate our feelings and inclinations with the leading of the Holy Spirit.
+ - One can have knowledge without having wisdom, but one cannot have wisdom without having knowledge.
+ - If you care about the slaughter of the innocent, then for God’s sake, speak up.
+ - Even the slightest sin is an act of cosmic treason.
+ - Prayer is not optional for the Christian; it is required.
+ - What higher approval could a person enjoy than to know that what he or she has done is pleasing to God?
+ - God is not interested in our public displays of piety. He’s not interested in religion in terms of the outward show. He’s interested in godliness.
+ - Without the gospel, a gathering of people, though they claim otherwise, cannot be an authentic church.
+ - Advice to aspiring ministers: Get in the Word. Stay in the Word. Master the Word. And for heaven’s sake, preach the Word!
+ - By His life, death, and resurrection, our Savior has conquered our enemies, and by His Spirit He has granted us to share in the victory.
+ - We are all servants. The only question is whom we will serve.
+ - A loving God who has no wrath is no God. He is an idol of our own making as much as if we carved Him out of stone.
+ - The promises of God for tomorrow are the anchor for believers today.
+ - The one place where the Christian can be naked without fear is in the presence of Christ.
+ - Our natural inclination is to hide ourselves from God.
+ - It’s because Jesus spoke so frequently about hell that the church should take the concept seriously.
+ - Faith never requires us to crucify our minds or deny our senses.
+ - Christ exposed Himself not only to the unbridled hostility of angry men, but, more significantly, to the unmitigated wrath of God.
+ - Christ told his disciples not to be anxious about tomorrow, but he never said not to consider tomorrow. Intelligent problem solving demands careful consideration of the future effects of present solutions.
+ - As the fear of God is the beginning of wisdom, so the denial of God is the height of foolishness.
+ - If God did not act first, no one would be saved.
+ - Sometimes we behave and perform with our lives, not for God, but for an audience.
+ - Prayer does change things, all kinds of things. But the most important thing it changes is us.
+ - Our prayers cannot force God to do anything, but He uses them as His own instruments to bring about His will.
+ - If the God you believe in is not a sovereign God, then you really don’t believe in God.
+ - The only thing that we have earned at the hands of perfect justice is perfect punishment.
+ - The supreme form of cursedness is for the Lord to turn His back on you and bring judgment on you.
+ - In Reformed theology, if God is not sovereign over the entire created order, then he is not sovereign at all. The term sovereignty too easily becomes a chimera. If God is not sovereign, then he is not God.
+ - The very heart of worship, as the Bible makes clear, is the business of expressing, from the depths of our spirits, the highest possible honor we can offer before God.
+ - The glory of the gospel is this: The one from whom we need to be saved is the one who has saved us.
+ - Wealth is not wisdom’s goal, but is often wisdom’s reward.
+ - Tabletalk Magazine exists to help establish us in the Word to deepen our understanding of God and apply this knowledge to our daily living.
+ - Why do those who keep insisting Jesus hung out with sinners also keep insisting there’s no such thing as sin?
+ - Heaven is a place where God will personally wipe away our tears.
+ - You are required to believe, to preach, and to teach what the Bible says is true, not what you want the Bible to say is true.
+ - If there ever was a time when absolutely nothing existed, all there could possibly be now is nothing.
+ - We are not doomed to an ultimate conflict with no hope of resolution. The message of the Scripture is one of victory – full, final and ultimate victory. It is not our doom that is certain, but Satan’s. His head has been crushed by the heel of Christ, who is the Alpha and Omega.
+ - The whole concept of providence is that God knows everything about what we do.
+ - No sinner has the right to say with impunity, ‘God you owe me grace.’ If grace is owed, it is not grace. The very essence of grace is its voluntary character. God reserves to himself the sovereign, absolute right to give grace to some and withhold that grace from others.
+ - Jesus came to seek and to save the lost. He is the Seeker; we are the ones who are running.
+ - The atonement is a multifaceted event-Jesus is shown providing surety for our debt to God, mediating the enmity between us and God, and offering Himself as a substitute to suffer God’s judgment in our place.
+ - As soon as a baby enters the world, the baby is immediately introduced to pain. It is somewhat symbolic that life begins with a cry.
+ - The resurrection was God the Father’s way of authenticating all of the truths that were declared by Jesus.
+ - He is intangible and invisible. But His work is more powerful than the most ferocious wind. The Spirit brings order out of chaos and beauty out of ugliness. He can transform a sin-blistered man into a paragon of virtue. The Spirit changes people. The Author of life is also the Transformer of life.
+ - The Bible’s truth does not depend in any way on whether or not a person believes the truth.
+ - We live in a time of crisis in the secular culture and in the church with regard to the beautiful.
+ - Look to the Bible and not your feelings as the basis of the Christian life.
+ - The only way the kingdom of God is going to be manifest in this world before Christ comes is if we manifest it by the way we live as citizens of heaven and subjects of the King.
+ - God not only initiated my salvation, He not only sowed the seed, but He made sure that that seed germinated in my heart by regenerating me by the power of the Holy Ghost.
+ - If the final decision for the salvation of fallen sinners were left in the hands of fallen sinners, we would despair all hope that anyone would be saved.
+ - The only cure for anxiety is to get down on our knees.
+ - To be conformed to this world is to risk the loss of one’s eternal soul.
+ - Faith is the means by which the righteousness of Christ is given to us.
+ - The truth of Scripture is meant not only to be studied-it’s meant also to be sung.
+ - When people ask me how old the Earth is, I tell them I don’t know because I don’t.
+ - We may live in a culture that believes everyone will be saved, that we are ‘justified by death’ and all you need to do to go to heaven is die, but God’s Word certainly doesn’t give us the luxury of believing that.
+ - If you take away the cross as an atoning act, you take away Christianity.
+ - The only righteousness that meets the requirements of the Law is the righteousness of Christ.
+ - Grace and mercy are never deserved.
+ - In the psalms, we have a collection of 150 prayers that were inspired originally by the Holy Ghost. If you want to know how God is pleased and honored in prayer, why not immerse yourself in the prayers that he himself has inspired?
+ - We are puzzled and bewildered whenever we see suffering in this world because we have become accustomed to the mercy and the long-suffering of God. Amazing grace is no longer amazing to us.
+ - We have to find in Christ, not a mask that conceals our face, but an entire wardrobe of clothing, which is His righteousness.
+ - I had actually gone to a church-related college, but I went on a football scholarship, not because of any interest in the church.
+ - Only God can provide us with an eternal perspective and speak to us with absolute and final authority.
+ - We have no right to come before God at all, apart from the finished work of Christ.
+ - The great triad of enemies for Christian growth contain the world, the flesh, and the devil.
+ - God does not rule by the consent of His subjects but by His sovereign authority. His reign extends over me whether I vote for Him or not.
+ - God’s sovereign will is not at the whim and mercy of our person and individual responses to it.
+ - If you’re not accountable in life that means ultimately that your life doesn’t count.
+ - The higher purpose of the cross was that the Father would be glorified by the satisfaction of His justice.
+ - If grace is obligated it is no longer grace. The very essence of grace is that it is undeserved.
+
+294 quotes

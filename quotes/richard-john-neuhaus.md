@@ -1,0 +1,21 @@
+ - In the absence of truth, power is the only game in town.
+ - Where orthodoxy is optional, orthodoxy will sooner or later be proscribed.
+ - We shall not weary, we shall not rest, as we stand guard at the entrance gates and the exit gates of life, and at every step along way of life, bearing witness in word and deed to the dignity of the human person-of every human person...
+ - Genuine tolerance does not mean ignoring differences as if differences made no difference. Genuine tolerance means engaging differences within a bond of civility and respect.
+ - Progress without the reasoned freedom to think and act is regression to slavery.
+ - If the cause of poverty is marginalization, the cure is inclusion.
+ - Socialism is the religion people get when they lose their religion.
+ - One must never underestimate the profound bigotry and anti-intellectualism and intolerance and illiberality of liberalism.
+ - Respect for the dignity of others includes treating them as rational creatures capable of being persuadad by rational argument, even in the face of frequent evidence to the contrary.
+ - The first thing to say about politics is that politics is not the first thing.
+ - Politics is chiefly a function of culture, at the heart of culture is morality, and at the heart of morality is religion.
+ - All my life I have prayed to God that I should remain religiously orthodox, culturally conservative, politically liberal and economically pragmatic.
+ - My eyes are wide open to the conflicts within the Church, but I don’t think you can call it schism.
+ - If a church offers no truth that is not available in the general culture – in, for instance, the editorials of the New York Times or, for that matter, of National Review – there is not much reason to pay it attention.
+ - I do believe that those who compare the religious Right to the Nazis have fallen victim to polemical heat prostration.
+ - Every day of the year is a good day to think more deeply about Good Friday, for Good Friday is the drama of the love by which our every day is sustained.
+ - My hope that the Church will emerge as a strong leader in society is just that a hope. What I described in The Catholic Moment is not a prophecy but the outline of a possibility. There are no guarantees that my hopes expressed in The Catholic Moment will ever be realised.
+ - Religion as a human phenomenon is as riddled through with potential for both good and evil as any other phenomenon.
+ - One would like to believe that people who think of themselves as devout Christians would also behave in a manner that is in according with Christian ethics. But pastorally and existentially, I know that this is not the case, and never has been.
+
+19 quotes

@@ -1,0 +1,78 @@
+ - The sets were fantastic. The Harry Potter sets are brilliant. You do get transported for a second.
+ - Success is all about being able to extend love to people. The people I consider successful are so because of how they handle their responsibilities to other people, how they approach the future, people who have a full sense of the value of their life and what they want to do with it.
+ - Unicef wants to encourage a sense of stability for a child.
+ - We’d all like to believe that perhaps people could stop killing each other.
+ - I guess I’d love to be surprised by something I had never thought of.
+ - He’s really sort of the devil. He’s completely emotionally detached. He has no empathy. You find that in psychopaths. It’s about power with Voldemort. It’s an aphrodisiac for him. Power makes him feel alive.
+ - God is not anything human. God is a force, God is chaos, God is unknown. God is terror and enlightenment at the same time.
+ - I went out to Mount Kilimanjaro, which I thought was very beautiful, but there were a lot of people there.
+ - When you meet women, don’t pretend to be anything that you’re not.
+ - I’m not very good at being domesticated. I’ve tried. The domestic life I find claustrophobic – the rituals and habits and patterns.
+ - Ridicule is also a weapon against forces of evil. Really clever, intelligent ridicule.
+ - There are those moments when you shake someone’s hand, have a conversation with someone, and suddenly your all bound together because you share your humanity in one simple moment.
+ - You have to just dive over the edge. You haven’t got time to mess about.
+ - In Shakespeare, keep it simple. Don’t over-inflect. The speech needs to be naturalistic and simple and accessible as much as possible.
+ - One of the things that binds us as a family is a shared sense of humor.
+ - I admire the world of the books and the characters that she’s created, but I’m not an addict of Harry Potter. I don’t feel possessive about it.
+ - I have grown up loving Shakespeare.
+ - Voldemort? That might be real.
+ - Education, awareness and prevention are the key, but stigmatisation and exclusion from family is what makes people suffer most.
+ - When she was younger, my mother was quite committed to Roman Catholicism. But she got disillusioned with it and moved closer to something like Buddhist beliefs near the end of her life.
+ - And although I’ve been very fortunate in the film work that’s come my way, I need to get back to the stage. If I’m away for a maximum of two years, I feel something’s wrong.
+ - Within the process of filming, unexpected situations occur.
+ - The actor shouldn’t edit themselves or be anxious. And the actors that I admire are always the ones who are inventive and their imaginative life in free-willing. It’s a director’s job to go, “No here, don’t do that, go there.”
+ - Gardeners are good at nurturing, and they have a great quality of patience, they’re tender. They have to be persistent.
+ - I was only interested in my scene, and I had to go through thousands and thousands of other scenes. I got my scene and I read it many, many, many, many, many times. That was my research.
+ - I’ve never felt fallow in the sense that there’s been no work.
+ - I’m interested in the spirits of people. In the theatre, there’s the acting part of acting – and I’m not saying that can’t be great – and there’s the essence. To explore that essence, you need a key, a look, a gesture, an insight that unlocks the person’s soul.
+ - I certainly gained a lot by reading about Shanghai.
+ - Little moments can have a feeling and a texture that is very real.
+ - When you get into the edit you’ll understand what making a film is. You’ll see all the things you missed and all the possibilities you have from what you shot.
+ - As an actor, there’s a bit of you that’s decided you want to be looked at and watched, but there’s a paradoxical bit that wants to run away.
+ - I loved doing Harry Potter. I had a great time on that. And I think it’s good to have a mix. I think you’re learning all the time.
+ - I veer away from trying to understand why I act. I just know I need to do it.
+ - I was grateful to have two weeks to shoot this one scene in Harry Potter. It’s a big, big scene, but they have to deliver. And they have high expectations.
+ - I have a lot of stuff I want to talk about and offer up. It would be odd not to have ideas about something.
+ - I learned a lot about acting – watching not just myself but other actors and learning how to distinguish between two great takes. It’s also about one’s own taste in performance.
+ - I’m sure acting is a deeply neurotic thing to do.
+ - I don’t plan a career. That doesn’t work for me. I just have to go with my gut.
+ - Most films are rooted in a book or a comic strip, but I don’t go out there saying I want to do adaptations.
+ - There is a tension in relationships between wanting to return to the womb, but also wanting to be free. Because sometimes the woman’s attentions can be overly maternal, and you want to go, ‘Ahhhh!’
+ - Being an actor means asking people to look at you. I guess I accept that. But it’s a profession in which the job is to show another world and other people. You may access it through bits of yourself, and your imagination and experience, but actually, in the end, you’re not playing yourself.
+ - It’s great to be on a set where there’s time and there’s focus and there’s also a kind of adrenaline thrill on a set where people are saying: “We have to get this shot, we’ve have to go, we’ve got to move on!”
+ - I couldn’t get as big as a bodybuilder. I tried to put on as much weight in the right places as I could. My weightlifting was impressive for me, but not for some of the guys I see down at the gym.
+ - You feel yourself working to show something. I’ve learned to distrust that feeling.
+ - I think Shakespeare is like a dialect. If I heard a broad Scots accent, I’d probably struggle at first but then I’d start to look for words I recognise and I’d get the gist. I think Shakespeare is like that.
+ - Awards are like applause, and every actor likes to hear applause.
+ - Kenya doesn’t have much of an infrastructure for hosting a film.
+ - There’s a challenge to playing these fantasy figures because they are fantasy figures. You have to enter into this sort of imaginative world of the writer.
+ - I don’t feel I’m playing villains all the time.
+ - You’re meant to be playing the distillation of evil, which can be anything.
+ - So much of movie acting is in the lighting. And in loving your characters. I try to know them, and with that intimacy comes love. And now, I love Voldemort.
+ - It’s thrilling to have the opportunity to work in different areas, whether it’s on a project that has all the resources behind it like Harry Potter or James Bond and then to go somewhere there’s very few resources.
+ - The film depends on the audience’s belief in this relationship.
+ - If I had a gun to my head and I had to choose between theater and film I’d choose theater.
+ - I like to keep fit, but I never lift very heavy weights.
+ - Going to the movies was a big event in my youth. My father would be the initiator – he’d have me put on a jacket to see a film.
+ - In the studio system, things are expected of a film. By the first, second, third act, there’s a generic language that comes out of the more commercial system.
+ - I respond to a part just intuitively when I read a script.
+ - What moves me in art is how we question who we are as people.
+ - People fear they won’t get what they want.
+ - In the best material, you always should be able to somehow make a case for a story to be transposed to any other time.
+ - Unicef’s education initiative does not seek to impose, but to initiate and integrate. It does, however, aim to address the huge bias towards education for boys at the expense of girls in so many cultures.
+ - There is a humanitarian impulse that one aspires to and there are days when one doesn’t do it very well.
+ - Actors use who they are to be someone else, but I would hate to ever think I’m playing myself. It’s imagining being someone else that is the key motivating thing for me. So when people want to know about me, it makes me a bit unnerved.
+ - I got to read some writings by serial killers, and they got inside my head. They were quite disturbing. I read disturbing stuff about that very detached way of manipulating people to do things.
+ - Having gone through editing process, I can see that in actor’s faces there’s point where they’re not managing their performance and that’s, I think, the best place to be. You’ve done the homework, you’ve learned the lines, at that point you just sort of let it out.
+ - I never studied anything about film technique in school. Eventually, I realized that cinema and theater are not so different: from the gut to the heart to the head of a character is the same journey for both.
+ - I’m more relaxed about how the editing process will create a performance and that, in a way, gives me a sense of freedom.
+ - There’s a lot of people who feel there’s a tabloid journalist who had it coming.
+ - The tensions between authority and the people need to be heard, especially when they are suffering and they can’t eat.
+ - Kenya doesn’t have much of an infrastructure for hosting a film of this scale. Our producer decided that for the film to really work it had to be in Kenya.
+ - News reports can overwhelm us. We can be appalled, we can sympathise. But what is hard to grasp is the sense that, at this moment, people are working, organising...
+ - You dread that there will be real problems during filming.
+ - I think I feel more like you’re an actor for hire and you take the jobs you want to take, obviously, and some pay well and some don’t pay well at all but you go on a gut feeling and it’s all a big adventure.
+ - I don’t feel particularly comfortable about actors using whatever power they may have to push their beliefs, unless they’re extremely well informed.
+ - When I first filmed things, they were always slightly awkward.
+
+76 quotes

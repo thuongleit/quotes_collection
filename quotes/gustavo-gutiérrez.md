@@ -1,0 +1,25 @@
+ - So you say you love the poor? Name them.
+ - The building of a just society means overcoming every obstacle to the creation of authentic peace.
+ - In the Bible poverty is a scandalous condition inimical to human dignity and therefore contrary to the will of God.
+ - The poverty of the poor is not a call to generous relief action, but a demand that we go and build a different social order.
+ - If I define my neighbor as the one I must go out to look for, on the highways and byways, in the factories and slums, on the farms and in the mines, then my world changes.
+ - Faith is not limited to affirming the existence of God. No, faith tells us that God loves us and demands a loving response. This response is given through love for human beings, and that is what we mean by a commitment to God and to our neighbor.
+ - Theology is reflection, a critical attitude. The commitment of love, of service, comes first. Theology follows; it is the second step.
+ - The future of history belongs to the poor and exploited.
+ - To hope does not mean to know the future, but rather to be open, in an attitude of spiritual childhood, to accepting it as a gift.
+ - Liberation from every form of exploitation, the possibility of a more human and dignified life, the creation of a new humankind – all pass through this struggle.
+ - Once causes are determined, then there is talk of “social injustice” and the privileged begin to resist.
+ - The imbalance between developed and underdeveloped countries – caused by the relationships of dependence – becomes more acute if the cultural point of view is taken into consideration.
+ - The denunciation of injustice implies the rejection of the use of Christianity to legitimize the established order.
+ - Is the Church fulfilling a purely religious role when by its silence or friendly relationships it lends legitimacy to dictatorial and oppressive government?
+ - The world today is experiencing a profound and rapid socio-cultural transformation. But the changes do not occur at a uniform pace, and the discrepancies in the change process have differentiated the various countries and regions of our planet.
+ - Reason has, especially today, many other manifestations than philosophical ones.
+ - Human history is in truth nothing but the history of the slow, uncertain, and surprising fulfillment of the Promise.
+ - The God of Exodus is the God of history and of political liberation more than he is the God of nature.
+ - As we progress, various shades of meaning and deeper levels of understanding will complement this initial effort.
+ - Christendom is not primarily a mental construct. It is above all a fact, indeed the longest historical experience the Church has had. Hence the deep impact it has made on its life and thought.
+ - The complete encounter with the Lord will mark an end to history, but it will take place in history.
+ - Through the persons who explicitly accept his Word, the Lord reveals the world to itself.
+ - There are not two histories, one profane and one sacred, ‘juxtaposed’ or ‘closely linked.’ Rather there is only one human destiny.
+
+23 quotes

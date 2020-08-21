@@ -1,0 +1,93 @@
+ - The road to success is always under construction.
+ - The trouble with being in the rat race is that even if you win, you’re still a rat.
+ - Forgiveness means giving up all hope for a better past.
+ - I always wondered why somebody doesn’t do something about that. Then I realized I was somebody.
+ - The start to a better world is the belief that it is possible.
+ - For fast-acting relief try slowing down.
+ - When I was growing up I always wanted to be someone. Now I realize I should have been more specific.
+ - Don’t be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed.
+ - I like a teacher who gives you something to take home to think about besides homework.
+ - The best mind-altering drug is the truth.
+ - If truth is beauty, how come no one has their hair done in the library?
+ - Maybe if people started to listen, history would stop repeating itself.
+ - If love is the answer, could you please rephrase the question?
+ - Success is a ladder that cannot be climbed with your hands in your pocket – The road to success is always under construction.
+ - What goes up must come down. But don’t expect it to come down where you can find it.
+ - If you read a lot of books you are considered well read. But if you watch a lot of TV, you’re not considered well viewed.
+ - When I am happy I feel like crying, but when I am sad I don’t feel like laughing. I think it is better to be happy; then you get two feelings for the price of one.
+ - Man invented language to satisfy his deep need to complain.
+ - Reality is nothing but a collective hunch.
+ - If I had known what it would be like to have it all – I might have been willing to settle for less.
+ - When I’ve had a meltdown, people will say to me, “Well, you failed to keep your sense of humor.”
+ - Did you know, in the entire universe, we are the only intelligent life forms thought to have a Miss Universe contest?
+ - If trying harder doesn’t work, try softer.
+ - No matter how cynical you become, it’s never enough to keep up.
+ - Even when I’m being funny, I’m deadly serious.
+ - Every day I read the newspapers, and no matter how cynical I get, it’s imposssible to keep up.
+ - After all, in private, we’re all misfits.
+ - We are all in this together, by ourselves.
+ - I think life is perverse. It can be beautiful, but it won’t.
+ - Things are going to get a lot worse before they get worse.
+ - We are people with lives, not consumers with lifestyles.
+ - In the depths of the night, fear grips my heart. It paralyzes my mind. But most of all, I feel very, very alone.
+ - There will be sex after death, we just won’t be able to feel it.
+ - Reality is a crutch for people who can’t cope with drugs.
+ - Infinity is just time on an ego trip.
+ - I worry that the person who thought up Muzak may be thinking up something else.
+ - If beauty is truth, why don’t women go to the library to have their hair done?
+ - Lady, I do not make up things. That is lies. Lies are not true. But the truth could be made up if yo know how. And that’s the truth.
+ - I can handle reality in small doses, but as a lifestyle, it’s much too confining.
+ - Reality is the leading cause of stress among those in touch with it.
+ - Truth is, I’ve always been selling out. The difference is that in the past, I looked like I had integrity because there were no buyers.
+ - What if it’s boring – or if it’s not boring, it might be too revealing, or worse, it might be too revealing and still be boring.
+ - What I appreciate is acknowledging to the audience that I think they have brains.
+ - You know being relevant or coming up with something interesting, funny to say about what’s current is just as hard as it might ever be depending on the serendipity of it all.
+ - Sometimes I worry about being a success in a mediocre world.
+ - Instead of working for the survival of the fittest, we should be working for the survival of the wittiest – then we can all die laughing.
+ - Does your mind feel more and more like teflon? Nothing sticks to it?
+ - When we speak to God, we call it prayer; when God speaks back, we call it psychosis!
+ - Sometimes I feel like a figment of my own imagination.
+ - Ninety eight percent of the adults in this country are decent, hardworking, honest Americans. It’s the other lousy two percent that get all the publicity. But then, we elected them.
+ - We don’t care. We don’t have to. We’re the phone company.
+ - You can’t expect insights, even the big ones, to make you suddenly understand everything. But I figure: Hey it’s a step in the right direction if they leave you confused in a deeper way.
+ - To me, “sexual freedom” means freedom from having to have sex.
+ - I wonder what it would be like if we all became what we wanted to be when we grew up? I mean, imagine a world filled with nothing but firemen, cowboys, nurses and ballerinas.
+ - Wouldn’t it be great if we all grew up to be what we wanted to be? The world would be full of nurses, firemen, and ballerinas.
+ - 9 to 5 made people aware of equal pay for equal work. It hasn’t really happened, but it has come closer.
+ - If evolution was worth its salt, it should’ve evolved something better than ‘survival of the fittest.’ I think a better idea would be ‘survival of the wittiest.’ At least, that way, creatures that didn’t survive could’ve died laughing.
+ - I still believe that sex is dirty. It’s just that now I wouldn’t have it any other way.
+ - If you have a dog or a cat, you know how developed they can be. How sensitive, how aware. They suffer. We all do.
+ - The formula for water is H2O. Is the formula for an ice cube H2O squared?
+ - If life is so meaningless, then why are we always bringing it up?
+ - We’re giving jobs to people who would otherwise be out of work if we weren’t exploiting cheap labor.
+ - I worry about kids today – because of the sexual revolution, they’re going to grow up and never know what “dirty” means.
+ - Did you know, throughout the cosmos they found intelligent life forms that play to play? We are the only ones that play to win. Explains why we have more than our share of losers.
+ - The phone company handles 84 billion calls a year-everything from kings, queens, and presidents to the scum of the earth.
+ - Remember we’re all in this alone.
+ - My politics are just inclined to be empathetic and humanistic. I grew up with so many different kinds of people with different politics, different religion, no religion, no politics, education, no education, and I was infatuated with all of them.
+ - The whole idea of being in captivity in such limited space, especially in a zoo, causes elephants to suffer. They develop all kinds of foot diseases. They die. They get cysts. Not only is it painful, it eventually kills them.
+ - Well, if I can be of any help at all, you are in worse trouble than I thought.
+ - I was always empathetic with animals. It’s a terrible and self-involved point of view that we do something because someone else is exploitable.
+ - And yet humanity is so not evolved that how can you expect anything absolutely major to happen? Look how long, we move ahead in technology, how much do we move ahead in morality or emotion? We move ahead so minimally, minimally, minimally.
+ - It’s a more ridiculing, divisive humor today.
+ - Thank God kids never mean well.
+ - I especially love ‘Web Therapy’ and I did ‘Eastbound and Down’ too. I had a lot of fun doing that.
+ - People hire me to create some kind of archetype or some culture type, or something. I guess they accept whatever I come up with.
+ - Having a real public outlet is how you imprint something for yourself. It’s just a matter of timing. It’s like you’ve marked your territory.
+ - I was always drawn to more the social-expression-of-culture types.
+ - I mean yes to act out something or take chances in the performance is one thing. But in terms of a camera, whatever’s captured is captured so that’s a little more daunting.
+ - I guess that’s one of the reasons that you do it – work all the time – because it’s sort of a high to find something that really works.
+ - But there are too many people that make so much money at the cost of lives of other humans and for no reason but to make the money.
+ - I feel some part of me can wake up and be very existential and the next day wake up and be sort of in love with the universe.
+ - Creating characters is just another way to express a type and put that type to use.
+ - Being a New Yorker is never having to say you are sorry.
+ - I bought a box of animal crackers, but there was nothing inside. They’d eaten each other.
+ - Exercise is for people who can’t handle drugs or alcohol.
+ - I guess if people couldn’t profit from war I don’t think there would be war.
+ - If you can’t be direct, why be?
+ - Why isn’t there a special name for the tops of your feet?
+ - I wanted to be a stage actress. I wanted to be a New York actress and have a community with other actors. I didn’t want to get famous; I always thought getting famous was a drag on you.
+ - There’s so much plastic in this culture that vinyl leopard skin is becoming an endangered synthetic.
+ - The larger picture is really to swing people’s awareness of what really is moral.
+
+91 quotes

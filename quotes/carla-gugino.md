@@ -1,0 +1,45 @@
+ - Sexuality is one of the biggest parts of who we are.
+ - I’m a huge Wong Kar-Wai fan.
+ - I’m fiercely protective of my privacy.
+ - I think I’m always trying to subvert conventions, and sometimes it’s more successful than others.
+ - My favorite thing is to have a big dinner with friends and talk about life.
+ - My father and my mother separated when I was two.
+ - I’ll always take an artistic endeavor over a career move.
+ - You can’t not be happy around penguins. You’re unfortunately happy and cold but the happiness makes up for the coldness.
+ - I have a very strong work ethic, and I’m very grateful for that. But I think there was a moment when I realized, “Oh, I can play a little as well.”
+ - I feel that’s the richest gift that’s ever been given to me: I get to do what I love. And it’s a really brutal business, and no matter how successful you are you hear “No” more than “Yes.”
+ - You know, I used to be made fun of as a kid for being really articulate; it was sort of like a strange thing.
+ - I’m much more of a kid now than I was when I was a kid. I was the kind of kid who was valedictorian, a straight-A student. My mom used to say, “Please stop studying and get outside.”
+ - As an actor, you’re naked emotionally; you’re revealing yourself emotionally.
+ - It is odd there are many movies with many men. But generally movies have one woman, or maybe the older woman and the younger girl.
+ - I was the person who did academics until the middle of the day, then went on auditions. I think there was a moment later in my life where I was like, “What am I doing? Why am I so serious?” .
+ - My tendency as an actor is, when there’s a certain energy, I feel a challenge to match it, to come up to that plate and play on the same level.
+ - I’m intrigued by films that have a singular vision behind them. A lot of studio movies have ten writers by the time they’re done. You have a movie testing 200 times, making adjustments according to various people’s opinions. It’s difficult to have an undistilled vision.
+ - I don’t have a favorite genre. I mean, I always sort of base it on instinct. And it does seem to be that after I finish something that is very dramatic, I end up inevitably wanting to do a comedy or something like that.
+ - I always had challenges when I was younger, because I looked so young but sounded older.
+ - I think that once somebody sees something, or feels it in the consciousness of society, it starts to allow change for other people.
+ - I started acting when I was 13, so acting has been, with great fortune, my job since I could get a job.
+ - I’ve joked that I would have either become schizophrenic or an actress, but as an actress you can do both.
+ - I think maybe because I moved a lot in my childhood, I’m a little bit of a gypsy by nature.
+ - The interesting thing with acting, actually, is that you get to be so many different people that you get to do so much research on so many different things that I’ve learned so much about brain surgery and about astrophysicist-type of things and traveling to amazing parts of the world.
+ - I kind of knew it wasn’t going to be until my 30s that I really hit my stride as an actor.
+ - It’s interesting how when you walk into a room in LA there’s a sense of what you walk in, as is sort of what you can do. So I spent a lot of time choosing different things to hopefully show people that maybe that’s not the case.
+ - Personally, just as an actor, I love accents; they’re fun.
+ - I always wanted to be one of those people who were good at many, many things, but from a very early age, I fell in love with acting.
+ - One of the most important things for an actor is to observe humanity.
+ - I think the scariest thing to me is to think that somebody would only associate me with one character and that that’s all that I would get to play.
+ - Unfortunately, ‘chick flick’ has become a term to describe most movies that I don’t even like. They’re these movies that, yes, have women in them but they really don’t reflect who women are, and there’s something kind of silly or shallow or gossipy about them.
+ - When a sports movie really works, it gets you on all levels, because the stakes are high. It’s black and white. It’s win or lose.
+ - I always think a good sports movie is emblematic in the same way that a great Greek tragedy really has a certain kind of structure, or a Shakespearean play if you’re looking at a comedy or a tragedy, is that these are the heights and depths of human emotion.
+ - For me, I never, never, from the moment I started acting, had a desire to be famous.
+ - I think you always have to go as an artist with instinct, I really do.
+ - I’m a sensualist. My two main indulgences are dark chocolate and massages.
+ - I love doing serious movies for adults.
+ - I always feel like I want to work with people who raise my game, and I can do the same for them, and we can jump off the cliff together.
+ - As a creative person, you need to sort of spread your wings and try different things out because each one really does inform the other.
+ - I can pretty much take care of myself; I don’t walk around with much fear.
+ - I generally make a sort of playlist for my iPod for whatever project I’m doing.
+ - When my friends have a health concern, they call me. Ive always been a vitamin taker. I also take digestive enzymes and antioxidants, and supplements that help with the thyroid and adrenals for my time-zone changes.
+ - It’s not often that the idea of continuing something for a potentially long period of time sounds exciting to me, because I really am a gypsy by nature.
+
+43 quotes

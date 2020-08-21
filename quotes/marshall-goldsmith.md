@@ -1,0 +1,28 @@
+ - What got you here won’t get you there.
+ - Those who lead by example and demonstrate passion for what they do make it much easier for their followers to do the same.
+ - Great leaders encourage leadership development. By openly developing themselves.
+ - To help others develop, start with yourself.
+ - To help others develop, start with yourself! When the boss acts like a little god and tells everyone else they need to improve, that behavior can be copied at every level of management. Every level then points out how the level below it needs to change. The end result: No one gets much better.
+ - The best knowledge workers are working for more than money.
+ - Leadership is providing inspiration and vision, then developing and empowering others to achieve this vision.
+ - When we do what we have to do we are compliant. When we do what we choose to do we are committed.
+ - Successful people become great leaders when they learn to shift the focus from themselves to others.
+ - Anybody can change, but they have to want to change.
+ - After living with their dysfunctional behavior for so many years, people become invested in defending their dysfunctions rather than changing them.
+ - The major challenge of most executives is not understanding the practice of leadership – it is practicing their understanding of leadership.
+ - The only way to find happiness is to understand that happiness is not out there. It’s in here. And happiness is not next week. It’s now.
+ - Every decision that affects our lives will be made by the person who has the power to make that decision, not the ‘right’ person or the ‘smartest’ person or the ‘best’ person. Make peace with this fact.
+ - Never confuse acquiring degrees with wisdom.
+ - Change is not a one-way street- it involves two parties: the person who is changing and the people who notice it.
+ - The best way that we can begin to produce positive change is to make peace with what is in ourselves and others, and then work to move forward and make life even better.
+ - Almost everyone I meet is successful because of doing a lot of things right, and almost everyone I meet is successful in spite of some behavior that defies common sense.
+ - People will do something – including changing their behavior – only if it can be demonstrated that doing so is in their own best interests as defined by their own values.
+ - The extraordinary power of influence is now within everyone’s reach. Recent graduates, executive assistants, project managers, and business leaders can all benefit from Monarth’s simple steps for ‘getting everyone to follow your lead.’
+ - The only way to cure the disease is to find happiness and meaning now.
+ - If you aren’t opening doors for people, you are closing them!
+ - Research indicates that the desire to achieve the skills associated with success is more highly correlated with achievement than the desire for success itself.
+ - It is a whole lot easier to see our problems in others than it is to see them in ourselves.
+ - With problems and issues groups face- there is an enormous disconnect between understanding and doing.
+ - The more we are committed to believing that something is true, the less likely we are to believe that its opposite is true, even in the face of clear evidence that shows we are wrong.
+
+26 quotes

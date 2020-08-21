@@ -1,0 +1,45 @@
+ - A summary of every Jewish holiday: They tried to kill us, we won, let’s eat!
+ - I made it, Ma – Carnegie Hall. And I didn’t have to practice.
+ - My mother kept the house clean and we ate good. I didn’t know we were poor until I started giving interviews.
+ - My father was a dreamer – my hero. He was a smart, tough guy from Poland, a cutter of lady’s handbags, an old socialist-unionist who always considered himself a failure. His big line was: ‘Don’t end up like me.’
+ - I had a sympathetic role in ‘thirtysomething,’ and in two weeks I’m going to do the role again. But in the movies, I just love the heavies. It’s much more fun. Villains are a ball. People have been laughing at me for 50 years, so I love to sit in the back of the theater and listen to them hate me.
+ - Comedy is a reflection. We create nothing. We set no styles, no standards. We’re reflections. It’s a distorted mirror in the fun house. We watch society. As society behaves, then we have the ability to make fun of it.
+ - It’s not easy being a father, but I’ve been allowed a comeback.
+ - That’s the great thing about New Year’s, you get to be a year older. For me, that wasn’t such a joke, because my birthday was always around this time. When I was a kid, my father used to tell me that everybody was celebrating my birthday. That’s what the trees are all about.
+ - Modesty is not one of my virtues.
+ - My brother is the youngest member of the College of Physicians and Surgeons. And I wouldn’t let him cut my nails.
+ - Ed Sullivan brought me to TV first in 1952, then Garry Moore’s program gave me a lot of confidence and freedom.
+ - If you want to read about love and marriage, you’ve got to buy two separate books.
+ - There’s nobody to believe in anymore, nobody to trust.
+ - The other day my house caught fire. My lawyer said, “Shouldn’t be a problem. What kind of coverage do you have?” I said, “Fire and theft.” The lawyer frowned. “Uh oh. Wrong kind. Should be fire OR theft.”
+ - My mother’s sister was killed in a trolley car accident, so I was raised as one of eight with my sister and six male cousins.
+ - If you keep yourself alive and current, funny is funny.
+ - Banks have a new image. Now you have ‘a friend,’ your friendly banker. If the banks are so friendly, how come they chain down the pens?
+ - My favorite way to spend Saturday is in and out of bed, watching sports on TV and eating.
+ - The world is full of little dictators trying to run your life.
+ - As a parent, I’d – I’d be a better father.
+ - And humor has always been a weapon. You want to get even on somebody? You want to attack somebody? Make fun of them.
+ - You know you are getting old when people tell you how good you look.
+ - Milton took vaudeville, which, if you look up ‘vaudeville’ in the dictionary, right alongside of it, it says ‘Milton Berle’ – and he made it just a tremendous party.
+ - Larry David finds a way to make jokes about the Holocaust. It would never have occurred to me. And it was funny.
+ - When I read Dickens for the first time, I thought he was Jewish, because he wrote about oppression and bigotry, all the things that my father talked about.
+ - I won’t eat in a place that has suits of armor.
+ - I just never saw my mother in any other room but the kitchen. There were always pots going.
+ - I always plan dinner first thing in the morning. That’s the only way I can get through the day, having a specific meal to look forward to at night.
+ - One thing I’ve never said in my whole life is, ‘Let’s have dinner at a Japanese restaurant.’
+ - Marriage is nature’s way of keeping us from fighting with strangers.
+ - My father helped me leave. He said, ‘It’s all out there, it’s not here.’
+ - My son says I never tell stories about anyone who’s living.
+ - Comedy is an amazing calling. Once you get that first laugh, it’s hard to turn away. Then, of course, you’re hooked and you have to learn how to survive in the business.
+ - Let’s face it: It’s difficult enough to be funny without worrying about what is going to offend whom.
+ - If you stop and think about it, nearly all great humor is at the expense of someone or something.
+ - There’s a charm, there’s a rhythm, there’s a soul to Jewish humor. When I first saw Richard Pryor perform, I told him, ‘You’re doing a Jewish act.’
+ - I think one of the big things about comedy is the ability for the audience to identify.
+ - I don’t mind being 65, but nobody is gonna tell me to come in at 5:30 to have the early bird special.
+ - When I get up in the morning, I have to decide what I’m going to have for dinner or I can’t get through the day.
+ - I was a high school throw-out.
+ - Everything my mother made had to cook for 80 hours, and when she made matzoh balls she didn’t know fluffy. Everything sank.
+ - You do live longer with bran, but you spend the last fifteen years on the toilet.
+ - The ability to absorb a book and make someone else’s words and story your own was exactly was I was doing on stage.
+
+43 quotes

@@ -1,0 +1,147 @@
+ - To be a spiritual warrior, one must have a broken heart; without a broken heart and the sense of tenderness and vulnerability, your warriorship is untrustworthy.
+ - The bad news is you’re falling through the air, nothing to hang on to, no parachute. The good news is, there’s no ground.
+ - Enlightenment is ego’s ultimate disappointment.
+ - The problem is that ego can convert anything to its own use, even spirituality.
+ - To be a warrior is to learn to be genuine in every moment of your life.
+ - We are always in transition. If you can just relax with that, you’ll have no problem.
+ - The attainment of enlightenment from ego’s point of view is extreme death.
+ - Becoming “awake” involves seeing our confusion more clearly.
+ - You must personally accept the responsibility of improving your own life.
+ - The basic work of health professionals in general, and of psychotherapist s in particular, is to become full human beings and to inspire full human-beingness in other people who feel starved about their lives.
+ - Good and bad, happy and sad, all thoughts vanish into emptiness like the imprint of a bird in the sky.
+ - There is no such thing as talent, only awareness.
+ - Things get very clear when you’re cornered.
+ - Fearlessness is extending ourselves beyond our limited view.
+ - Fearlessness comes from working with the softness of the human heart.
+ - Disappointment results from the removal of illusion.
+ - Buddhism doesn’t tell you what is false and what is true but it encourages you to find out for yourself.
+ - The point is that whatever one is trying to learn, it is necessary to have firsthand experience, rather than learning from books or from teachers or by merely conforming to an already established pattern.
+ - In order to develop love – universal love, cosmic love, whatever you would like to call it one must accept the whole situation of life as it is, both the light and the dark, the good and the bad. One must open oneself to life, communicate with it.
+ - Nowness or the magic of the present moment is what joins the wisdom of the past with the present.
+ - Hold the sadness and pain of samsara in your heart and at the same time the power and vision of the Great Eastern Sun. Then the warrior can make a proper cup of tea.
+ - Helping others is a question of being genuine and projecting that genuineness to others. This way of being doesn’t have to have a title or a name particularly. It is just being ultimately decent.
+ - Chaos should be regarded as extremely good news!
+ - Warriorship does not refer to making war on others. Aggression is the source of our problems, not the solution. Warriorship is the tradition of human bravery, or the tradition of fearlessness.
+ - The strongest of us are those that are spiritually strong, and a spiritual warrior is one of vulnerability.
+ - The challenge of warriorship is to step out of the cocoon, to step out into space, by being brave and at the same time gentle.
+ - Artistic vision is having the clarity to fall in love with what you see.
+ - For the warrior, every moment is a challenge to be genuine, and each challenge is delightful. When you let go properly, you can relax and enjoy the challenge.
+ - We cannot change the way the world is, but by opening ourselves to the world as it is, we may find that gentleness, decency and bravery are available – not only to us, but to all human beings.
+ - If kindness doesn’t work, try more kindness.
+ - The ideal of helping is to make others independent of you. You help them to become more independent rather than making them addicted to you.
+ - When we clean up after ourselves, we have nothing to blame. When we begin to live our lives in that way, cleaning up after ourselves, what is left is further vision and further openness, which leads to cleaning up the rest of the world.
+ - Too often, people think that solving the world’s problems is based on conquering the earth, rather than touching the earth, touching ground.
+ - The ideal of warriorship is that the warrior should be sad and tender, and because of that, the warrior can be very brave as well.
+ - You are sitting on the earth and you realize that this earth deserves you and you deserve this earth. You are there – fully, personally, genuinely.
+ - Compassion is not having any hesitation to reflect your light on things.
+ - Ultimately, the definition of bravery is not being afraid of yourself.
+ - Sanity is permanent, neurosis is temporary.
+ - If you are telling the truth, then you can speak gently, and your words will have power.
+ - Generosity is self-existing openness, complete openness. You are no longer subject to cultivating your own scheme or project. And the best way to open yourself up is to make friends with yourself and with others.
+ - Ego is constantly attempting to acquire and apply the teachings of spirituality for its own benefit.
+ - I would like to say, ladies and gentlemen, that you shouldn’t be afraid of who you are. That’s the first key idea. You shouldn’t be afraid of who you are. You should NOT be afraid of who you are. It’s very important for you to realize that.
+ - Warriorship is so tender, without skin, without tissue, naked and raw. It is soft and gentle. You have renounced putting on a new suit of armor. You have renounced growing a thick, hard skin. You are willing to expose naked flesh, bone and marrow to the world.
+ - Life is a straight drink – straight pleasure, straight pain, straightforward, one hundred percent.
+ - The challenge of warriorship is to live fully in the world as it is and to find within this world, with all its paradoxes, the essence of nowness. If we open our eyes, if we open our minds, if we open our hearts, we will find that this world is a magical place.
+ - You do not have to force yourself to do anything at all. There is a continual exchange, a continual dance. It is similar to the sun shining and plants growing. The sun has no desire to create the vegetation; plants simply react to sunlight and the situation develops naturally.
+ - What is needed is the constant unmasking of ego’s strategy.
+ - Our life is an endless journey; it is like a broad highway that extends infinitely into the distance. The practice of meditation provides a vehicle to travel on that road. Our journey consists of constant ups and downs...
+ - A great deal of chaos in the world occurs because people don’t appreciate themselves. Having never developed sympathy or gentleness toward themselves, they cannot experience harmony or peace within themselves, and therefore, what they project to others is also inharmonious and confused.
+ - Tantra is the hot blood of spiritual practice. It smashes the taboo against unreasonable happiness; a thunderbolt path, swift, joyful, and fierce. There is no authentic Tantra without profound commitment, discipline, courage, and a sense of wild, foolhardy, fearless abandon.
+ - The warrior is not afraid of space.
+ - The charnel ground is that great graveyard in which the complexities of samsara and nirvana lie buried.
+ - A genuine sense of humor is having a light touch: not beating reality into the ground but appreciating reality with a light touch. The basis of Shambhala vision is rediscovering that perfect and real sense of humor, that light touch of appreciation.
+ - Sanity lies somewhere between the inhibitions of conventional morality and the looseness of the extreme impulse.
+ - The emphasis on practice is because it is the only time in your life you can steer your karmic situation.
+ - What the warrior renounces is anything in his experience that is a barrier between himself and others. In other words, renunciation is making yourself more available, more gentle and open to others.
+ - Gentle day’s flower – The hummingbird competes With the stillness of the air.
+ - You can almost convince yourself that you’ve accomplished things just by thinking about them. The alternative is to be more realistic. You don’t necessarily regard the dreaming process as bad or an obstacle, but it’s not realistic enough.
+ - The trouble with Westerners is that they want to witness their own enlightenment.
+ - Facing yourself is a question of honesty rather than condemning yourself. Good or bad the idea is simply to face the facts. Just see the simple, straightforward truth about yourself without cutting yourself down.
+ - Even fear itself is frightened by the bodhisattva’s fearlessness.
+ - Luxury is experiencing reality.
+ - Spirituality doesn’t exist on another level different from ordinary life.
+ - The discovery of magic can happen only when we transcend our embarrassment about being alive, when we have the bravery to proclaim the goodness and dignity of human life, without either hesitation or arrogance. Then magic can descend onto our existence.
+ - Developing confidence is like watching the sun rise. First it seems very feeble and one wonders whether it will make it. Then it shines and shines.
+ - Whatever shakes you should without delay, right away, be incorporated into the path.
+ - If you are involved with the intensity of crescendo situations, with the intensity of tragedy, you might begin to see the humor of these situations as well. As in music, when we hear the crescendo building, suddenly if the music stops, we begin to hear the silence as part of the music.
+ - The epitome of the human realm is to be stuck in a huge traffic jam of discursive thought.
+ - If we open our eyes, if we open our minds, if we open our hearts, we will find that this world is a magical place. It is magical not because it tricks us or changes unexpectedly into something else, but because it can be so vividly and brilliantly.
+ - Elegance means appreciating things as they are. There is a sense of delight and of fearlessness. You are not fearful of dark corners...
+ - We say that the sun is behind the clouds, but actually it is not the sun but the city from which we view it that is behind the clouds. If we realized that the sun is never behind the clouds we might have a different attitude toward the whole thing.
+ - When one is able to overcome the romantic and emotional attitude, one discovers truth even in the kitchen sink.
+ - Right mindfulness does not simply mean being aware; it is like creating a work of art. You can therefore trust what you are doing; you are not threatened by anything. You have room to dance in the space, and this makes it a creative situation. The space is open to you.
+ - It’s all Ati. Now, let’s be practical.
+ - As well as making friends with yourself, fundamentally one should be cynical and critical. This doesn’t mean that you should punish yourself, but you just attack the areas of ego’s indulgence. At the same time, you continue the friendship with yourself.
+ - In the cocoon, there is no idea of light at all, until we experience some longing for openness, some longing for something other than the smell of our own sweat. When we examine that comfortable darkness – look at it, smell it, feel it – we find it is claustrophobic.
+ - There is something suspect about our inability to enjoy anything.
+ - Compassion automatically invites you to relate with people because you no longer regard people as a drain on your energy.
+ - Disappointment is a good sign of basic intelligence. It cannot be compared to anything else: it is so sharp, precise, obvious, and direct. If we can open, then we suddenly begin to see that our expectations are irrelevant compared with the reality of the situations we are facing.
+ - Sit and do nothing. Every once in a while a golden fish swims by and lays her golden eggs. You’ll know.
+ - Hope and fear cannot alter the seasons.
+ - People’s creativity is very much alive, but when they get paid for their creativity, they often experience that as rather meaningless. Money as the reward for their creative process is very one-dimensional, a tremendous comedown.
+ - Meditation practice is a way of making friends with ourselves. Whether we are worthy or unworthy, that’s not the point. It’s developing a friendly attitude to ourselves, accepting the hidden neurosis coming through.
+ - The artist has tremendous power to change the world.
+ - The point of meditation is not merely to be an honest or good person in the conventional sense, trying only to maintain our security. We must begin to become compassionate and wise in the fundamental sense, open and relating to the world as it is.
+ - Then, we realize that the degraded cocoon we have been hiding in is revolting, and we want to turn up the lights as far as we can. In fact, we are not turning up the lights, but we are simply opening our eyes wider. We catch a certain kind of fever.
+ - Begin to build up confidence and joy in your own richness. That richness is the essence of generosity. It is the essence of resourcefulness ; that you can deal with whatever is available around you and not feel poverty stricken.
+ - The point is not to convert anyone to our view, but rather to help people wake to their own view, their own sanity.
+ - If we really prefer basic sanity or enlightenment, it’s irritatingly possible to get into it.
+ - We are threatened by the now so we jump to the past or the future.
+ - Mindfulness is like a microscope; it is neither an offensive nor defensive weapon in relation to the germs we observe through it. The function of the microscope is just to clearly present what is there.
+ - If you must begin then go all the way, because if you begin and quit, the unfinished business you have left behind begins to haunt you all the time.
+ - When you have a brilliant sun, which is a source of vision, the light from the sun shines through every window of the house, and the brightness of its light inspires you to open all the curtains. In the vision of the Great Eastern Sun, no human being is a lost cause.
+ - The practice of meditation is a way of continuing one’s confusion, chaos, aggression, and passion – but working with it, seeing it from the enlightened point of view.
+ - The visual impact of the stupa on the observer brings a direct experience of inherent wakefulness and dignity. Stupas continue to be built because of their ability to liberate one simply upon seeing their structure.
+ - We do not have to be ashamed of what we are. As sentient beings we have wonderful backgrounds. These backgrounds may not be particularly enlightened or peaceful or intelligent. Nevertheless, we have soil good enough to cultivate; we can plant anything in it.
+ - There seems to be a hypnotic quality to ambition and speed, so that you feel that you are standing still just because you want to go so fast. You might actually be getting close to your goal.
+ - Just fully being skillful involves total lack of inhibition. We are not afraid to be. We are not afraid to live. We must accept ourselves as being warriors. If we acknowledge ourselves as warriors, then there is a way in, because a warrior dares to be, like a tiger in the jungle.
+ - We must begin our practice by walking the narrow path of simplicity, the hinayana path, before we can walk upon the open highway of compassionate action, the mahayana path.
+ - The basic wisdom of Shambhala is that in this world, as it is, we can find a good and meaningful human life that will also serve others. That is our true richness.
+ - Watchfulness is experiencing a sudden glimpse of something without any qualifications – just the sudden glimpse itself.
+ - Sometimes one touches on a very painful spot where one is almost too shy to look into it, but somehow one still has to go through it. And by going into it, one finally achieves a real command of oneself. One gains a thorough knowledge of oneself for the first time.
+ - The complexities of life situations are really not as complicated as we tend to experience them.
+ - Delight in itself is the approach of sanity. Delight is to open our eyes to the reality of the situation rather than siding with this or that point of view.
+ - The courage to work with ourselves comes as basic trust in ourselves, as a sort of fundamental optimism.
+ - The essence of warriorship, or the essence of human bravery, is refusing to give up on anyone or anything.
+ - The simplicity of meditation means just experiencing the ape instinct of ego.
+ - One day passes and another day comes along, and everything happens the same. But basically, we are so afraid of the brilliance coming at us, and the sharp experience of our life, that we can’t even focus our eyes.
+ - In fact, a person always finds when he begins to practice meditation that all sorts of problems are brought out. Any hidden aspects of your personality are brought out into the open, for the simple reason that for the first time you are allowing yourself to see your state of mind as it is.
+ - Take a friendly attitude toward your thoughts.
+ - When you experience your wisdom and the power of things as they are, together, as one, then you have access to tremendous vision and power in the world. You find that you are inherently connected to your own being. That is discovering magic.
+ - In the practice of sitting meditation you relate to your daily life all the time. Meditation practice brings our neuroses to the surface rather than hiding them at the bottom of our minds. It enables us to relate to our lives as something workable.
+ - Why don’t we just expand ourselves into our perfect form, our perfect being?
+ - Because there is something difficult and destructive involved, there must be something creative involved as well. Relating to that creative aspect is the point.
+ - There is no need to struggle to be free; the absence of struggle is in itself freedom.
+ - Opening to oneself fully is opening to the world.
+ - We must see with our own eyes and not accept any laid-down tradition as if it had some magical power in it.
+ - When we speak of God or achieving union with God, we are often merely trying to put that great thing into a small container. One cannot drive a camel through the eye of a needle.
+ - Meditation practice is regarded as a good and in fact excellent way to overcome warfare in the world; our own warfare as well as greater warfare.
+ - If we go somewhere on foot, we know the way perfectly, whereas if we go by car or airplane, we are hardly there at all. It becomes merely a dream.
+ - As long as we relate with our underlying primordial intelligence and as long as we push ourselves a little, by jumping into the middle of situations, then intelligence arises automatically.
+ - For the very reason that we expect things to be good and beautiful, they won’t be. In genuine spirituality, we don’t look for bliss.
+ - Anything that is created must sooner or later die. Enlightenment is permanent because we have not produced it; we have merely discovered it.
+ - Synchronizing mind and body is not a concept or a random technique someone thought up for self-improvement. Rather, it is a basic principle of how to be a human being.
+ - As long as a person is involved with warfare, trying to defend or attack, then his action is not sacred; it is mundane, dualistic, a battlefield situation.
+ - Mindfulness does not mean pushing oneself toward something or hanging on to something. It means allowing oneself to be there in the very moment of what is happening in the living process – and then letting go.
+ - Faith is the readiness to reveal whatever is concealed. You don’t have to conceal doubts by putting on patches of self-confirmation. The readiness to be exposed seems to make the difference between ego’s approach to spirituality and an enlightened one.
+ - Our bodies demand our attention; our bodies demand that we actually pay attention to what is going on with our lives.
+ - Real fearlessness is the product of tenderness. It comes from letting the world tickle your heart, your raw and beautiful heart. You are willing to open up, without resistance or shyness, and face the world. You are willing to share your heart with others.
+ - When we hide from the world in this way, we feel secure. We may think we have quieted our fear, but we are actually making ourselves numb with fear. We surround ourselves with our own familiar thoughts, so that nothing sharp or painful can touch us.
+ - It’s no use trying to be different than you are.
+ - You are actually doing something. You are getting into this process without making sure that what you’re doing is okay. Things are actually taking place, almost of their own accord, very simply and directly. That is meditation.
+ - The way of cowardice is to embed ourselves in a cocoon, in which we perpetuate our habitual patterns. When we are constantly recreating our basic patterns of habits and thought, we never have to leap into fresh air or onto fresh ground.
+ - We should see money in terms of the expenditure of energy and how we are going to transmute that energy into a proper use.
+ - Any perception can connect us to reality, properly and fully. What we see doesn’t have to be pretty, particularly; we can appreciate anything that exists. There is some principle of magic in everything, some living quality. Something living, something real, is taking place in everything.
+ - If there is some profound method that offers a quick way, we would rather follow that than undertake arduous journeys and difficult practices. But some manual work and physical effort is necessary.
+ - This whole world is mind’s world, the product of the mind.
+ - Humans are the only animals that try to dwell in the future. You don’t have to purely live in the present situation without a plan, but the future plans you make can only be based on the aspects of the future that manifest within the present situation.
+ - You can’t feel the earth if you can’t feel the space.
+ - That is the basic pattern of this kind of meditation, which is based on three fundamental factors: first, not centralizing inward; second, not having any longing to become higher; and third, becoming completely identified with here and now.
+ - It’s easier to put on a pair of shoes than to wrap the earth in leather.
+ - One has to taste an experience for oneself and find out if the thing is genuine or helpful. Then, before discarding something, one has to go further, so that one gets firsthand experience.
+ - A great deal of the chaos in the world occurs because people don’t appreciate themselves.
+ - We could say that compassion is the ultimate attitude of wealth: an anti-poverty attitude, a war on want. It contains all sorts of heroic, juicy, positive, visionary, expansive qualities. And it implies larger scale thinking, a freer and more expansive way of relating to yourself and the world.
+ - We can deceive ourselves into thinking we are developing spirituality when instead we are strengthening our egocentricity through spiritual techniques.
+
+145 quotes

@@ -1,0 +1,31 @@
+ - Being made in the image of God, man was the crown of creation.
+ - Following the creation concept that creation processes differed from preservation processes, it is suggested that God endowed each created kind, at the time of its creation, with potential for vast variety.
+ - Essentially this promise before curse, this superiority of God’s love in Christ, must come from the Bible.
+ - Time was God’s first creation.
+ - Some people turn from God because they cannot understand how a good God can permit evil in the world.
+ - Language expresses people’s thinking and it was by a Word that God created the world and preserves it.
+ - In Christ the original image of God is restored, by faith in this world and by sight in the world to come.
+ - Thus, races arose from an original coding which God pulled out as needed for adaptation to the environment.
+ - Time is not eternal but was created by God at the beginning.
+ - Essential to the theory of evolution is the premise that everything has come into being by itself.
+ - There are also scientific problems with the concept that each of the creation days was a long period of time.
+ - If we knew exactly what animal life was like before the fall into sin and knew what nature was like before the law of entropy invaded it, we would already be living in heaven.
+ - Science is defined in various ways, but today it is generally restricted to something which is experimental, which is repeatable, which can be predicted, and which is falsifiable.
+ - If leaders in the space program had at its beginning in the 1940s, pointed out the benefits to people on earth rather than emphasizing the search for proof of evolution in space, the program would have saved $100 billion in tax money and achieved greater results.
+ - Scripture suggests that the elements in space were created for the benefit of earth, while evolution suggests that earth is an insignificant speck in vast space.
+ - The Moon and Mars were the two most likely candidates for life in the solar system; what exists beyond our solar system is mere guesswork.
+ - God has stated in clear and concise language how He created the universe and we ought not to doubt His Word.
+ - A creationist can embarrass an evolutionist by asking for a definition of species.
+ - Any concept of one person being superior to another can lead to racism.
+ - There is always a pressure to separate the Bible from science and to separate the Christian religion from things material.
+ - Neither does man have gills for living in a water environment; yet it is not sinful to explore the depths of the oceans in search of food or other blessings.
+ - But, when Scripture makes a clear distinction between the act of creation and the process of preservation, we cannot accept the idea of a progressive creation process.
+ - No writer of a portion of the Bible was perfect. It was the direct and miraculous operation of the Holy Spirit that what they wrote is without mistake.
+ - We agree that man was not created to survive in space.
+ - With our knowledge of modern-day genetics, we realize that it was possible for God to place the potential for all people throughout history into the genes of Adam and Eve when He created them.
+ - Accordingly, one race is neither superior nor inferior to another.
+ - This solution may not appeal to our human pride, but the problem is that our human pride in itself is sinful.
+ - In the beginning of the human race there was no genetic load which would cause undesirable traits such as appear in offspring of marriages between relatives today.
+ - Angels possess greater powers than do human beings.
+
+29 quotes

@@ -1,0 +1,67 @@
+ - Be content with nothing less than perfection.
+ - Aerial perspective has nothing to do with line, but concerns tones and colours, by the delicate manipulation of which an artist can suggest infinite distance.
+ - Difficulties will assail you only when you lack in concentration and persistence.
+ - The student’s ambition should be to become a painter’s painter, rather than a popular painter. The approbation of fellow artists based on sympathy and understanding is manifestly better than the fickle or fast homage of the greater public.
+ - Water is the most expressive element in nature. It responds to every mood from tranquility to turbulence.
+ - Beauty, pleasure, and the good things of life are intensified, and perhaps only exist, by reason of contrast.
+ - Many of the old masters of watercolour painted from notes, with enthusiasm either unabated or renewed. It is hard to assume the same degree of concentration in the studio, but not impossible.
+ - The syllogism art for art’s sake refers to that kind of painting which disregards, or is contrary to, public taste.
+ - A landscape painting is essentially emotional in origin. It exists as a record of an effect in nature whose splendour has moved a human heart, and according as it is well or ill done it moves the hearts of others.
+ - It is not in the nature of lenses to tell the whole truth. They are instruments of exaggeration and belittlement.
+ - Appreciation is the breath of life to the creative artist, and in spite of modern conditions, there is enough abroad to sustain him. But his name is now legion; he competes with the dead as well as the living; and the rewards and honours seem attenuated by division.
+ - When spring is here the sketcher begins to look over his equipment and relishes in anticipation the soothing hours he will spend in the open, warmed by the sun, fanned by the breeze, charmed by the manifold delights of nature.
+ - Rhythm is as necessary in a picture as pigment; it is as much a part of painting as of music.
+ - Colour is as variable and evanescent in the form of pigment as in visible nature.
+ - The artist reserves the right to remove a blot on the landscape, to change positions of things, to suit his composition, providing only that he does not transgress the laws of probability.
+ - In most natural scenes there is a prevailing colour, which the landscape painter must learn to identify, and which must prevail also in a slightly exaggerated form, in his painting, for the sake of truth, harmony and unity.
+ - Watercolour painting is notoriously difficult – so much depends on directness and speed, and certainty of intention. Tentative or fumbling touches are disastrous, for they cannot be obliterated easily.
+ - The play of sunlight is amusement enough for a lazy man...
+ - Since art exists for humanity it is not unreasonable to assume that humanity has some rights in the matter. Who pays the piper calls the tune. An artist cannot be at once a rebel and a comfortable citizen.
+ - Every successful painter has worked hard. He cannot rest after having gained a certain degree of facility in drawing, and expect to retain it. He must advance or fall behind. Without practice he will forget; his eye will fail him; and his hand will deny its master.
+ - It is the incompetent and the neglected artist who charges the public with ignorance, stupidity, and indifference. He raves loudly, but he is incomprehensible, even inarticulate, in his work.
+ - When technique is obtrusive it becomes mere mannerism, a conscious striving for effect. It is only a means to an end – the manner of putting paint to paper. It hardly embraces the expressive side of painting.
+ - Luminosity is a quality dependent as much on technique as on the physical properties of individual pigments.
+ - Take away a painter’s vanity, said a famous landscape painter, and he will never touch a pencil again.
+ - I don’t like to think that I am a slave to technique, or so inept that I have to restrict myself to one method.
+ - Submit your work to interested societies for exhibition where the critics in the light of their physical well-being and according to the extent of their knowledge, may appraise them conveniently.
+ - Drawing is the representation of form – the graphic expression of a visual experience.
+ - The deserving are not always blest. That peculiar attribute known as personality is as potent a factor as genius.
+ - Not only does a lens distort forms, but the ordinary plate makes an unholy mess of colour in its tone relations. Yellow becomes black, and blue white. Black sunflowers against a white sky – what a travesty!
+ - A landscape painting in which composition is ignored is like a line taken from a poem at random: it lacks context, and may or may not make sense.
+ - Etching will suggest subtle variations of tone, the most delicate shadings, all with black lines, which, as far as lines go, are unsurpassed for sheer beauty.
+ - There is the process of enlarging a watercolour, which actually amounts to copying its good points and improving its bad ones, and is interesting proportionately as the latter increase.
+ - Realism is condemned by those artists whose poverty of technique does not permit them to express it.
+ - A horizontal or vertical line lacks energy, compared with one that deviates from either. The difference between these graphic expressions is the difference between movement and repose.
+ - Annoyance arises from the feared implication that we are copyists in subject or treatment, or both, whereas the common qualities that establish the relationship result merely from a similarity of method.
+ - A painter may be an abandoned mimic; at school he copies his teachers, which is only right, but he copies in turn every artist in town, which is not. He may do you that honour.
+ - The beauties of conception are always superior to those of expression.
+ - A mistake in drawing becomes difficult to detect when the eye is familiar with it.
+ - It is remarkable how very individual technique becomes in watercolour. Every man of personality finally arrives at a method peculiarly his own, as unique as his own fingerprint.
+ - The rewards of art are not always commensurate with its quality. It affords a precarious living.
+ - Any subject is suitable provided it is of sufficient interest, but the design must be very carefully considered, and plenty of time and thought given to its construction.
+ - Beauty may be perceived in any scene by one with sympathy and understanding. Beauty is in the mind.
+ - However exquisite the contours or the colours of clouds, trees, rivers or hills, may be in themselves, they must be sacrificed if they do not conform with the general plan.
+ - While it is emotion that gives an impulse to the landscape painter, it is his style that inspires the critic’s praise, and his subject that inveigles the untutored beholder.
+ - Tradition is a prop for social security.
+ - The most admirable method is that by which each wash of colour, large or small, is never disturbed. It admits of practically no overpainting, sponging or scrubbing. The colour stays where it is put.
+ - Let it not be assumed that the artist is so smug as to dislike true criticism. No sincere artist was ever completely satisfied with his labour.
+ - The true artist and the sane collector never will tolerate insincerity and impudence.
+ - The beauty and wonders of nature are as alluring as the pursuit of Art, and made of me a landscape painter.
+ - Many cherish the idea that a photograph is an exact presentment of nature, and accept without question the paradox that a photograph cannot lie. Actually there never was a more unmitigated liar.
+ - While sincerity and over-anxiety can spoil a picture, through superfluous elaboration and unnecessary correction, the carelessness that would leave it in an unfinished state is even more reprehensible.
+ - There must be a judicious arrangement of all the parts. Considered conversely, the artist’s task is to fill his panel with a design that conforms to its shape and is beautiful in itself.
+ - The character of the subject must influence the choice of the method of its representation.
+ - Style is instinctive and few achieve it in a notable degree. Its development is not hastened by instruction. It comes or it doesn’t. It will take care of itself.
+ - Many a painter has lived in affluence, in high esteem, who lacked the divine spark, and who is utterly forgotten to-day.
+ - It is the sense of unfamiliar envelopment that is impressive, whether in the living grays of hoarfrost, the crimson of the heavens at sunset, or the golden suffusions of autumn.
+ - For an intelligent estimate of your technique go to another artist working in the same medium.
+ - Pseudo-critics prefer to direct their remarks to the artist – Heaven forgive them – but one due rather to a common impression that such an attitude is the correct one, that all paintings should be figuratively mutilated, and that all artists are fair game, or really grateful perhaps for a few tips.
+ - Artists are perennially implored to consider ‘the limitations of the medium.’ Whoever invented this expression exaggerated the limitations of the English language. We are not concerned with what effects cannot be produced with our materials.
+ - The public is the tribunal before which all art is judged – not the critics or the academies. The public is the artist’s only patron, and has certain fundamental rights. It will submit to education, and will respond to suggestion, but it will not be bullied.
+ - The importance of colour is as nothing compared with that of form, chiaroscuro and arrangement. They are the true and enduring bases of pictorial art.
+ - Many rules for the creation of colour schemes have been published in recent years, but, while they are popular in commercial studies, I know of no creative artist who employs them. They are, per se, restrictive; their use precludes any chance of adventuring in this interesting field.
+ - Humility counts for much, but it may be that vanity does not dispossess that admirable quality.
+ - Subject has the variety of life.
+ - It is evident that no derivative laws can teach the young student to see and apprehend colour in nature. His perception needs development as urgently as his muscles.
+
+65 quotes

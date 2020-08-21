@@ -1,0 +1,244 @@
+ - I love editing. It’s one of my favorite parts about filmmaking.
+ - The delicate balance of mentoring someone is not creating them in your own image, but giving them the opportunity to create themselves.
+ - Failure is inevitable. Success is elusive.
+ - All good ideas start out as bad ideas, that’s why it takes so long.
+ - I don’t dream at night, I dream at day, I dream all day; I’m dreaming for living.
+ - You shouldn’t dream your film, you should make it!
+ - I dream for a living.
+ - Every time I go to a movie, it’s magic, no matter what the movie’s about.
+ - You’re not alone, are you? Because I’m here.
+ - You can be great just by being yourself.
+ - I always like to think of the audience when I am directing. Because I am the audience.
+ - The public has an appetite for anything about imagination – anything that is as far away from reality as is creatively possible.
+ - Well, luckily with animation, fantasy is your friend.
+ - Humans are the only hunters who kill when not hungry.
+ - All of us every single year, we’re a different person. I don’t think we’re the same person all our lives.
+ - Only a generation of readers will span a generation of writers.
+ - Everybody loves a winner, but nobody loves a winner.
+ - The turning point in my career was Jaws. It was a turning point because I was a director-for-hire before Jaws and because it was such a big hit I could do any movie I wanted and Hollywood just wrote me a cheque.
+ - People have forgotten how to tell a story. Stories don’t have a middle or an end any more. They usually have a beginning that never stops beginning.
+ - Making a movie and not directing the little moments is like drinking a soda and leaving the little slurp puddle for someone else.
+ - You can’t intellectually purge yourself of who you are. Whatever that is, it’s going to come out in the wash, the film wash. What you are is going to be relevant, if not to yourself, to the movies you make.
+ - My problem is that my imagination won’t turn off. I wake up so excited I can’t eat breakfast. I’ve never run out of energy. It’s not like OPEC oil; I don’t worry about a premium going on my energy. It’s just always been there. I got it from my mom.
+ - There is no such thing as science fiction, there is only science eventuality.
+ - All presidents swear an oath to the Constitution to keep this country united, and when the country fell apart, Lincoln had to put it back together again, with a lot of help. But he bore total responsibility.
+ - If the world ran the way a crew runs a set, we’d have a better, more progressive world.
+ - I think that is the secret of great acting. You have to bring your imagination to the party. You’ve got to have a great imagination.
+ - You have many years ahead of you to create the dreams that we can’t even imagine dreaming. You have done more for the collective unconscious of this planet than you will ever know.
+ - The thing that I’m just scared to death of is that someday I’m going to wake up and bore somebody with a film.
+ - When I don’t have a movie, I don’t take a job just for the sake of working. I just sit it out until I find something I’m passionate about.
+ - It is not my job to compare my movies. I don’t like to compare my films with other movies because I don’t really have that perspective. It is an intellectual exercise, but it doesn’t intuitively come to me.
+ - I usually do about five cuts as a director. I haven’t ever directed a film where I haven’t made five passes through the movie, and that takes a long time.
+ - I hate that people think it’s wrong to say you’re inspired by Jaws or by Raiders Of The Lost Ark. You’re allowed to be.
+ - My dad took me to my first movie. It was ‘The Greatest Show on Earth’ in 1952, a movie of such scale it was actually a traumatic experience.
+ - There’s no better way to test a person than to put them in the middle of a war. That’s clearly going to show what kind of a character you’re telling a story about.
+ - All through my career I’ve done what I can to discover new talent and give them a start.
+ - I think producers are more interested in backing concepts than directors and writers. I don’t think that’s the right way of making a decision about whether you’re going to back a film or not.
+ - The world would be a poorer place without Doctor Who.
+ - The Japanese had a very strong belief in Bushido, death before dishonour. They were fighting for their country; they were the aggressors in World War II.
+ - One of the gratuities about being a director is that you can volunteer yourself out of difficult details.
+ - There is a fine line between censorship and good taste and moral responsibility.
+ - The older I get, the more I look at movies as a moving miracle.
+ - I’m not really interested in making money. That’s always come as the result of success, but it’s not been my goal.
+ - It is important to know who your friends are and to stay, remain loyal to your friends, despite what you hear, despite the mistakes that are made in friendships and misunderstandings that commonly occur, to be able to forgive and to move on, you have to be able to remember the values of friendship.
+ - Steve Jobs was the greatest inventor since Thomas Edison. He put the world at our fingertips.
+ - Casting sometimes is fate and destiny more than skill and talent, from a director’s point of view.
+ - I love history. It was the only thing I did well at in school. I’m not ashamed to admit that I was not a good student but I was great at history.
+ - I committed to directing ‘Catch Me If You Can’ not because of the divorce component, but principally because Frank Abagnale did things that were the most astonishing scams I had ever heard.
+ - I just had a crazy, wild imagination all my life, and science fiction is the greatest outlet for me.
+ - I had to get over my fear of running through the world naked and learn to say ‘take me or leave me.’
+ - When I was very young, I remember my mother telling me about a friend of hers in Germany, a pianist who played a symphony that wasn’t permitted, and the Germans came up on stage and broke every finger on her hands. I grew up with stories of Nazis breaking the fingers of Jews.
+ - I turned down ‘Harry Potter’ and ‘Spider-Man,’ two movies that I knew would be phenomenally successful, because I had already made movies like that before and they offered no challenge to me. I don’t need my ego to be reminded.
+ - Lincoln’s leadership is based on a number of precepts, but my favorite one is that he acted in the name, and for the good, of the people.
+ - She wanted to go over and hug his tears away, but she was too frightened.
+ - All those horrible, traumatic years I spent as a kid became what I draw from creatively today.
+ - Television has a different biorhythm than movies. I love the biorhythm of TV.
+ - I thought film was more important than life itself for many years. But I was naive to the world until my first child was born in 1985.
+ - Even though I get older, what I do never gets old, and that’s what I think keeps me hungry.
+ - Cell phones tend to bring us more inside of our lives whereas movies offer a chance to escape, so there are two competing forces.
+ - I felt like an alien. I always felt like I never belonged to any group that I wanted to belong to.
+ - Like, I took no poetic license with ‘Schindler’s List’ because that was historical, factual documents.
+ - The only time I have a good hunch the audience is going to be there is when I make the sequel to ‘Jurassic Park’ or I make another Indiana Jones movie. I know I’ve got a good shot at getting an audience on opening night. Everything else that is striking out into new territory is a crap shoot.
+ - I always think if it’s a good story, the audience can’t wait to run out of the theater and go tweet somebody with the gist of a story, in a nutshell, almost, because it was that interesting.
+ - I dream for a living. Once a month the sky falls on my head, I come to, and I see another movie I want to make.
+ - I basically went into business for myself. But it never amounted to anything. I learned a lot about editing and dubbing by watching all the professionals do it, but I never got a job out of my imposition.
+ - I love history, so I do a lot of movies about history.
+ - I get that same queasy, nervous, thrilling feeling every time I go to work. That’s never worn off since I was 12 years-old with my dad’s 8-millimeter movie camera.
+ - When I grow up, I still want to be a director.
+ - Kurosawa is the pictorial Shakespeare of our time.
+ - History is so fleeting and we are so busy consuming media and the contemporary culture, voraciously gobbling it up, that we have no room to look back ever, and our young people have a tough time looking back.
+ - Godzilla was the most masterful of all dinosaur movies because it made you believe it was really happening.
+ - I can’t describe it, what I’m feeling and what I’m thinking. This means something. This is important.
+ - I made ‘Empire of the Sun’ in Shanghai in the 1980s and want to come back one day to make a movie in China.
+ - I have never before, in my long and eclectic career, been gifted with such an abundance of natural beauty as I experienced filming ‘War Horse’ on Dartmoor.
+ - I think documentaries are the greatest way to educate an entire generation that doesn’t often look back to learn anything about the history that provided a safe haven for so many of us today.
+ - I love my kids as individuals, not as a herd, and I do have a herd of children: I have seven kids.
+ - The baby boomers owe a big debt of gratitude to the parents and grandparents – who we haven’t given enough credit to anyway – for giving us another generation.
+ - Audience members are only concerned about the story, the concept, the bells and whistles and the noise that a popular film starts to make even before it’s popular. So audiences will not be drawn to the technology; they’ll be drawn to the story. And I hope it always remains that way.
+ - My filmmaking really began with technology. It began through technology, not through telling stories, because my 8mm movie camera was the way into whatever I decided to do.
+ - The essence of what it is to be American is the deep moral urge to be free, to freely express yourself and have the right to do so, and to look at all people as equals.
+ - I want to be the Cecil B. DeMille of science fiction.
+ - I feel there is no substitute for going out to the movies. There is nothing like it.
+ - The Internet has been this miraculous conduit to the undeniable truth to the Holocaust.
+ - The most expensive habit in the world is celluloid, not heroin, and I need a fix every few years.
+ - There are so many rumours about so many of us in the public eye. Sometimes it’s too hard to deny what is not true.
+ - I don’t play online games. ‘Warcraft,’ I’ve played that, but I mainly play action games.
+ - I’ve always sort of time-locked and mind-blocked myself in my 30s, and that’s always the age I feel.
+ - I believe in 3D for certain kinds of films. I certainly believe in using 3D for all things in animation because animation has such clarity and so much depth of focus. It worked great with ‘Avatar’ because 70 percent of that film is animated.
+ - When I was younger, all I cared about was what people thought of me and my films. Now I care less about catering, hand-serving, hand-feeding the audience. I’ve gotten to the point now in my life where I’m serving myself.
+ - I think in terms of chapters. Every time I finish a movie, it’s a chapter. When one of my kids graduates from school, that’s a chapter.
+ - I’m always in favor of Israel responding strongly when it’s threatened.
+ - When war comes, two things happen – profits go way, way up and all perishables go way, way down. There becomes a market for them.
+ - The machinery of the democratic process is really no different today from what it was 150 years ago.
+ - Lincoln believed in the American people.
+ - Naturally, it is a terrible, despicable crime when, as in Munich, people are taken hostage, people are killed. But probing the motives of those responsible and showing that they are also individuals with families and have their own story does not excuse what they did.
+ - Because of how much movies cost, it’s dangerous to be experimental on one film after the other. But we can experiment with television. We can do things that are fringe and bring ideas to the table that are offbeat and original.
+ - I have a choice – I can either watch all the dailies, or I can follow the social media. I can’t do both.
+ - I’m not really interested in making money.
+ - You never really know how good of a leader you are until there is something there is lead us to, toward or through or to overcome.
+ - The person I enjoy working for more than anyone else is George Lucas. He’s the best boss I ever had because he’s the most talented boss I ever had.
+ - One of my daughters is a competitive jumper, we live with horses, we have stables on our property. But I don’t ride. I observe, and I worry.
+ - There’s nothing self-serving about what motivated me to bring ‘Schindler’s List’ to the screen.
+ - When my children were born, I made the choice I wanted them to be raised as Jews and to have a Jewish education.
+ - I was afraid of small spaces and I was afraid of the tree outside my window, and I had all these phobias. I think many kids have those phobias, but I probably had more than most.
+ - My early exposure to all the leviathans of the Saturday matinee creature features inspired me, when I grew up, to make ‘Jurassic Park.’
+ - Before I go off and direct a movie, I always look at four films. They tend to be The Seven Samurai, Lawrence Of Arabia, It’s A Wonderful Life and The Searchers.
+ - Because television doesn’t offer the kind of budget that a movie offers, you’ve got to be a little more careful where you spend the money to put the fiction in science.
+ - I guess my first digital movie was ‘Tintin’ because ‘Tintin’ has no film step. There is no intermediate film step. It’s 100% digital animation, but as far as a live-action film, I’m still planning to shoot everything on film.
+ - Actors just need each other to act together.
+ - Not every movie, in my opinion, should be in 3D. There are a lot of stories I wouldn’t shoot in 3D. But, you know, there are movies that are perfect in 3D.
+ - I’m very collaborative with everybody on the set.
+ - I’ve always been interested in UFOs.
+ - The work that I’m proudest of is the work that I’m most afraid of.
+ - In ’83, not only was there no such thing as performance motion capture technology, there was no such thing as digital animation. This was the analog era.
+ - It starts with the writer-it’s a familiar dictum, but somehow it keeps getting forgotten along the way. No film-maker, irrespective of his electronic bag of tricks, can ever afford to forget his commitment to the written word.
+ - When I felt like an outsider, movies made me feel inside my own skill set.
+ - If I weren’t a director, I would want to be a film composer.
+ - I just think that the qualities of leadership are unknown even to the leader until he’s tested and given a challenge.
+ - The greatest films ever made in our history were cut on film, and I’m tenaciously hanging on to the process. I just love going into an editing room and smelling the photochemistry and seeing my editor wearing mini-strands of film around his neck.
+ - Our one goal is to give the world a taste of peace, friendship and understanding. Through the visual arts, the art of celebration of life.
+ - I have made almost as many films in England as I have in America. I will come back to England again and again.
+ - Most of my presumptions about a production are usually wrong.
+ - Whatever affect any of my films have on audiences, I just kind of stop at the door. I make them and I just don’t go outside after they’re over.
+ - In the re-creation of combat situations, and this is coming from a director who’s never been in one, being mindful of what these veterans have actually gone through, you find that the biggest concern is that you don’t look at war as a geopolitical endeavor.
+ - Am I allowed to say I really wanted this? This is fantastic.
+ - I had a great time creating the future on ‘Minority Report,’ and it’s a future that is coming true faster than any of us thought it would.
+ - I once said that CGI makes you less inventive. At the time I was bemoaning the loss of the practical stunt. If a stunt can be done practically and safely, I’d rather do it old-style.
+ - It’s still a mystery to me, but even though my mother was like an older sister to me, I kind of put her up on a pedestal.
+ - He never gave up. And he does that for us.
+ - People can relate to horses. Horses, I think, are basically in our genetic history. Horses were part of our culture, part of our collective society, for hundreds of years, and so, the horse is one of the most familiar animals to people of any race or culture or country.
+ - Oh, torture. Torture. My pubic hairs went gray.
+ - Tracking action without cutting is the least jarring method of placing the audience into a real-time experience where they are the ones making the subtle choices of where and when to look.
+ - I’ve always wanted to tell a story about Lincoln. I saw a paternal father figure; I saw someone who was completely, stubbornly committed to his ideals, to his vision.
+ - I’m not in a race with anybody to make the biggest hit movie anymore. I am just trying to tell stories that I can stay interested in for the two years it takes me to supervise the writing and to direct them.
+ - Social media has taken over in America to such an extreme that to get my own kids to look back a week in their history is a miracle, let alone 100 years.
+ - I quit college so fast I didn’t even clean out my locker.
+ - We all feel that if we have a crazy idea that might get laughed at, there’s nothing wrong with seeing if there’s a crazy writer out there who agrees with us and can take it to a crazy network and somehow bring something that’s a little bit daft and edgy to life.
+ - I’m always in favor of Israel responding strongly when it’s threatened. At the same time, a response to a response doesn’t really solve anything. It just creates a perpetual-motion machine.
+ - You look at war as something that is putting your best friend in jeopardy. You are responsible for the person in front of you and the person behind you, and the person to the left of you and the person to the right of you.
+ - In the whole history of movies, there has been nothing like Kubrick’s vision. It was a vision of hope and wonder, of grace and of mystery, of humour and contradictions. It was a gift to us, and now it’s a legacy.
+ - I’ve always been interested in how we survive and how resourceful we are as Americans.
+ - I think Lincoln had a unique parenting style. He let his kids run free and wild.
+ - When I don’t have a story to tell, I’m a terror to live with.
+ - I like that the best about DVD: how small it is.
+ - I don’t drink coffee. I’ve never had a cup of coffee in my entire life. That’s something you probably don’t know about me. I’ve hated the taste since I was a kid.
+ - I am a very impatient director.
+ - I like the smell of film. I just like knowing there’s film going through the camera.
+ - My head’s not in the clouds, but I think I’ve gotten too much credit for being an astute businessman.
+ - There were so many odd, strange things about Abraham Lincoln that I think nobody knew how to pigeonhole him.
+ - I even get inspired by movies that aren’t very good, because there’s always something good in movies that are collectively thought of as a failure. There’s good in everything, I find.
+ - Audiences are harder to please if you’re just giving them effects, but they’re easy to please if it’s a good story.
+ - I did 50 takes on Robert Shaw assembling the Greener Gun on ‘Jaws.’ The shark wasn’t working, so I just kept shooting to make the production report look like we were accomplishing something and to keep cast and crew from going crazy from boredom. It was a strategic indulgence.
+ - I’m not a great man to my children. I’m just ‘Pop.’ The more involved I am with my kids, it keeps my head flat on top.
+ - Fathering is a major job, but I need both things in my life: my job to be a director, and my kids to direct me.
+ - I’m 62 years old. Am I old enough to win a lifetime achievement award? Yes, I am. Thank you very much.
+ - You know, I don’t really do that much looking inside me when I’m working on a project. Whatever I am becomes what that film is. But I change; you change.
+ - I think the key divide between the interactive media and the narrative media is the difficulty in opening up an empathic pathway between the gamer and the character, as differentiated from the audience and the characters in a movie or a television show.
+ - I missed my dad a lot growing up, even though we were together as a family. My dad was really a workaholic. And he was always working.
+ - This whole thing about reality television to me is really indicative of America saying we’re not satisfied just watching television, we want to star in our own TV shows. We want you to discover us and put us in your own TV show, and we want television to be about us, finally.
+ - I basically took something that was extremely erotic and very intentional, and I reduced it to a simple kiss. I got a lot of criticism for that.
+ - Money to me is not a factor in my life.
+ - 3D is not a fire and forget tool. It takes a lot of very careful consideration and it will change your approach to where you put the camera so 3D isn’t for everybody.
+ - The only movie that I would ever even consider retrofitting is the first ‘Jurassic Park,’ which I think would look pretty spectacular in 3D. That’s the only one of my films that I would consider doing in 3D.
+ - I don’t think that anybody in any war thinks of themselves as a hero. The minute anybody presumes that they are heroes, they get their boots taken away from them and buried in the sand.
+ - Why pay a dollar for a bookmark? Why not use the dollar for a bookmark?
+ - I don’t really have a schedule of when I want to show my children my movies.
+ - Every movie you’re going to forget that it’s 3D whether it’s widescreen or whatever it is, you’re going to forget everything if the movie is working. If the movie doesn’t work or if the movie generically doesn’t work then immediately you start to pick apart whatever has contributed to that.
+ - I’m certainly hoping that 3D gets to the point where people do not notice it because once they stop noticing it, it just becomes another tool and an aid to help tell a story.
+ - I still have pretty much the same fears I had as a kid. I’m not sure I’d want to give them up; a lot of these insecurities fuel the movies I make.
+ - The only thing that gets me back to directing is good scripts.
+ - I don’t make unconventional stories; I don’t make non-linear stories. I like linear storytelling a lot.
+ - I simply adore ‘The Simpsons.’ I go to bed in a ‘Simpsons’ T-shirt.
+ - People often tell me how much they love the digital skies that we obviously painted for ‘War Horse.’ Well, there’s not a single sky that we put in through special effects. The skies you see in the movie are the skies that we experienced – but it was definitely challenging at times.
+ - When you listen, you learn. You absorb like a sponge and your life becomes so much better than when you are just trying to be listened to all the time.
+ - This is a time when we need to smile more and Hollywood movies are supposed to do that for people in difficult times...
+ - I always like to play with my kids. I always have the time to do that. That’s my priority, always has been, so just interacting with my kids, and being with them is great.
+ - A lot of the films I’ve made probably could have worked just as well 50 years ago, and that’s just because I have a lot of old-fashion values.
+ - You can’t start a movie by having the attitude that the script is finished, because if you think the script is finished, your movie is finished before the first day of shooting.
+ - I’d love to build a company that will continue to make movies well beyond me someday. And I’d like to help start something great, even investing in it myself.
+ - All I have to do is pose for a picture and I’m getting married to the person standing next to me.
+ - If Bush, as I believe, has reliable information on the fact that Saddam Hussein is making weapons of mass destruction, I cannot not support the policies of his government.
+ - I think we need to take responsibility for the things we put on this planet, and also take responsibility for the things we take off the planet. We need to have limiters on how far we allow ourselves to go – ethical, moral limiters.
+ - I love to go to a regular movie theater, especially when the movie is a big crowd-pleaser. It’s much better watching a movie with 500 people making noise than with just a dozen.
+ - And I may often question choices I make as a producer. But I’ve never questioned the choices I make as a director.
+ - For one thing, I don’t think that anybody in any war thinks of themselves as a hero.
+ - I get very, very anxious on the set. I have a thousand ideas and I don’t censor myself. I wind up cutting some of them out in the editing room. I shoot needless footage and then don’t use it later on in the process.
+ - I feel like Ive been engaged to the British Empire since 1980 and tonight you have given me the ring knighthood.
+ - Everybody who works for Amblin Television has to do five jobs.
+ - My dad’s been responsible for a lot of my issues.
+ - The bones of the story of ‘War Horse’ is a love story. That’s what makes it universal.
+ - I am an American Jew and aware of the sensitivities involved in the Israeli-Palestinian conflict.
+ - It all starts with the script: it’s not worth taking myself away from my family if I don’t have something I’m really passionate about.
+ - I think the greatest thing about DVD is the quality of sound and picture; the real estate to put more extras on; and, my favorite point is it stores quietly in very subtle places in your home .
+ - People have forgotten how to tell a story.
+ - An animal has no intellectual capacity to justify or to find reasons to exist. An animal just exists because it’s the natural thing to do.
+ - History opens up new worlds to film-makers all the time.
+ - My father had many, many veterans over to the house, and the older I got the more I appreciated their sacrifice.
+ - I had no choice. It was just something that happened. I was always looking for ways to act out, and I got a camera and it acted out for me.
+ - Once scouting fully opens its doors to all who desire the same experience that so fully enriched me as a young person, I will be happy to reconsider a role on the advisory board.
+ - There is something about killing people at close range that is excruciating. It’s bound to try a man’s soul.
+ - Bloated budgets are ruining Hollywood – these pictures are squeezing all the other types of movies out of Hollywood. It’s disastrous.
+ - Even if I’d had a really happy relationship with my father and there was no emotional hiatus for a decade and a half, I probably would still have made some of the same choices for movies that I’ve made.
+ - I love creating partnerships; I love not having to bear the entire burden of the creative storytelling, and when I have unions like with George Lucas and Peter Jackson, it’s really great; not only do I benefit, but the project is better for it.
+ - From the day I started to think politically and to develop my own moral values, from my earliest youth, I have been an ardent defender of Israel.
+ - I think the secret of great acting is that you have to bring your imagination to the party. You have to have a great imagination and you have to bring it every day when you’re working. Your imagination and your skills as an actor are what see you through, not what you’re wearing or where you are.
+ - I feel I’m all over my movies. I know my movies are all over me.
+ - Some movies I make for myself. I just sort of make them for myself. I do that sometimes when the subject matter is very sensitive and very personal and I really can’t imagine I’m an audience.
+ - When I was a kid, there was no collaboration; it’s you with a camera bossing your friends around. But as an adult, filmmaking is all about appreciating the talents of the people you surround yourself with and knowing you could never have made any of these films by yourself.
+ - The only time I’m totally happy is when I’m watching films or making them.
+ - I didn’t read reviews earlier in my career, but I read them now as I’m older. I read them all.
+ - I don’t do the running commentary as the movie’s playing. I think you should be able to watch the movie without listening to me talk while the movies playing.
+ - I’ll probably never win an Oscar, but I’ll sure have a lot of fun! I really believe that movies are the great escape.
+ - I love Rambo but I think it’s potentially a very dangerous movie. It changes history in a frightening way.
+ - Whether in success or in failure, I’m proud of every single movie I’ve ever directed.
+ - For the most part, everybody who fights in war fights to survive.
+ - I think one of the worst things that happened to me was, you know, my voluntary fallout with my father. And then the greatest thing that happened to me was when I saw the light, and realized I needed to love him in a way that he could love me back.
+ - If movies generically don’t work, you immediately start to pick apart what ingredients contributed to that. If any movie is working, hopefully how it was made will be the least of your concern. You’ll only want to have a god time.
+ - I don’t think any movie or any book or any work of art can solve the stalemate in the Middle East today. But it’s certainly worth a try.
+ - I compose the frame literally with the camera. Unless it makes a story point.
+ - Audrey gave more than she ever got. The whole world is going to miss her.
+ - I think that the perceived downs in my own career come from just managing my time and not feeling that I have enough time for my family or my friends. You could put that in the personal life category but it’s all one category because I’ve got to balance my family.
+ - Movies are always in a state of locomotion. You start with a general idea of how it should feel and then you find you’ve got a runaway train. You have to race to catch up: the movie is telling you what it wants to become, and when that happens there’s no greater feeling.
+ - I would love to do a musical. I would love that. I would have to find the right book, the right story, but some day I’m going to make one. I would really like to go off and direct a musical. That’s what I would really like to do when I grow up.
+ - Before statehood was achieved, Syria and Egypt had their tanks and military equipment lined up to invade Tel Aviv and destroy it; but the Israelis scrambled together an air force, some of it from old Second World War Messerschmidts, and the invasion was halted.
+ - I interviewed survivors, I went to Poland, saw the cities and spent time with the people and spoke to the Jews who had come back to Poland after the war and talked about why they had come back.
+ - I’ve discovered I’ve got this preoccupation with ordinary people pursued by large forces.
+ - I’d rather direct than produce. Any day. And twice on Sunday.
+ - I was making a lot of 8mm home movies, since I was twelve, making little dramas and comedies with the neighborhood kids.
+ - I think every film I make that puts characters in jeopardy is me purging my own fears, sadly only to re-engage with them shortly after the release of the picture. I’ll never make enough films to purge them all.
+ - Twenty years from now, there will still be a square screen, maybe even larger, and people will be sitting in a large, dark space, and they won’t know each other unless they bring friends along.
+ - The Israeli-Palestinian conflict and Jihadism have nothing to do with each other.
+ - So I try to re-invent my own eye every time I tackle a new subject. But it’s hard, because everybody has style. You can’t help it.
+ - I think that a movie can only be an adjunct or only a supplement to books, to different points of view, to scholars, historians and your own teachers.
+ - I go out and look for a good story to tell and if I like it enough and I decide to direct it, I become dangerously involved in becoming a part of that story.
+ - I think all directors should be animators...
+ - As a Jew I am aware of how important the existence of Israel is for the survival of us all. And because I am proud of being Jewish, I am worried by the growing anti-Semitism and anti-Zionism in the world.
+ - In high school, I got smacked and kicked around. Two bloody noses. It was horrible.
+ - The love we do not show here on Earth is the only thing that hurts us in the after-life.
+ - I would lose myself too much if I thought of myself as the audience.
+ - I wouldn’t have filmed The Color Purple if the book had been a big fat novel. The reason I read it is because it is thin.
+ - My dad took me to my first movie.
+ - I made ‘Saving Private Ryan’ for my father. He’s the one who filled my head with war stories when I was growing up.
+ - Wherever you are, I will find you and I will bring you home.
+
+242 quotes

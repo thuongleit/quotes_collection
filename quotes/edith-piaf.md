@@ -1,0 +1,33 @@
+ - When you reach the top, you should remember to send the elevator back down for the others.
+ - Death does not exist.
+ - When he takes me in his arms, and speaks to me softly, I see the world through rose-colored glasses.
+ - Use your faults, use your defects; then you’re going to be a star.
+ - All I’ve done all my life is disobey.
+ - For me, sleeping is a waste of time. I’m afraid to sleep. It’s a form of death.
+ - Don’t care what people say. Don’t give a damn about their laws.
+ - Every damn fool thing you do in this life you pay for.
+ - I want to make people cry even when they don’t understand my words.
+ - Singing is a way of escaping. It’s another world. I’m no longer on earth.
+ - To sing is to bring to life; impossible if the words are mediocre, however good the music.
+ - Death is the beginning of something.
+ - As far as I’m concerned, love means fighting, big fat lies, and a couple of slaps across the face.
+ - Money? How did I lose it? I never did lose it. I just never knew where it went.
+ - I think you have to pay for love with bitter tears.
+ - Americans want beauties, not me. I’m not the Parisian bombshell they expected. Can you see me as a chorus girl? Where’s my feather up the ass? They think I’m sad, they’re dumb. I don’t connect to them.
+ - I don’t lie; I improve on my life.
+ - I’ve always wanted to sing, just as I’ve always known that one day I would have my own niche in the annals of song. It was a feeling I had.
+ - To be successful in my native France, where people speak the same language and understand me, is nothing.
+ - Drugs are a carnival in hell.
+ - I wouldn’t mind at all coming back to earth after my death.
+ - Performers and their public should never meet. Once the curtain comes down, the performer should fly away like a magician’s dove.
+ - I’d like to see one person – just one – who would own up to having been a coward.
+ - I’ve been thinking about Jesus. Don’t you find it a bit strange that, since He was living with His family and all, He up and left them just when they needed him most?
+ - I’m sure that I’ve already been dead.
+ - I can die now. I’ve lived twice.
+ - If God has allowed me to earn so much money, it is because He knows I give it all away.
+ - People say that I could sing the phone book and make it sound good.
+ - I’m the only one who still believes in Santa Claus!
+ - I don’t want to die an old lady.
+ - I want to die young. I think it’s awful to get old, and sickness is ugly...
+
+31 quotes

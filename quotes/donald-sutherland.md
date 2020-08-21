@@ -1,0 +1,30 @@
+ - It’s the things we love most that destroy us.
+ - One measurement is worth a thousand expert opinions.
+ - I have no idea. I get involved because I think there’s value in the project and because I love the character that is presented to me. I love the opportunity to examine a character, and to have him examine me, live inside me and move my hands. I love that. It’s irresistible. It’s a drug.
+ - Vietnam was a lie but at least there was a political agenda. It was the domino theory. Iraq is about nothing but George Bush’s ego laced with imperialist ambitions. And it was helped by your government.
+ - He doesn’t translate well into our generation.
+ - Everything was my fault. I was so dumb. But if I hadn’t made the mistakes I made, I wouldn’t have met the wonderful woman I’ve been married to for over 30 years, so I guess that makes the mistakes OK.
+ - We don’t have that much time left to do it. I’m 80. I wanted to be Walter Huston to his John Huston. I wanted him to direct me, not in The Treasure of the Sierra Madre, but something. We’ll see. We can’t predict anything.
+ - I never think of this business as fun. I don’t know why. I think I’ve actually said something about it being fun, but I don’t think of it that way. It’s not fun, doing it. It’s joyful, it’s passionate, it’s rewarding, it’s a pursuit of truth, but I don’t think of it as fun. It’s not a game.
+ - Fundamentally, people are suckers for the truth.
+ - If Heaven exists, what would you like to hear God say when you arrive at the pearly gates? Oh, you know something? I’m so far away from believing that it exists, and the only thing I know are jokes about it.
+ - I am so glad my wife tolerates me. And we have three wonderful sons.
+ - I love grabbing my wife and going to a distant location to film.
+ - I have never planned anything. I have been doing this job for over 50 years. I have been paid to work with some wonderful people and it has been a huge gift, to me.
+ - I would look a little silly playing Casanova now.
+ - I don’t think I have one iota of cynicism about acting.
+ - The only thing I feel passionate about is my wife.
+ - No, I’m not rich. I had a tax problem in this country, curiously enough, and my accountant said the British government was patently wrong in taxing me, and they were, but we couldn’t persuade them and it cost me everything I had.
+ - When the camera starts to roll, there is something of death about it.
+ - When you look in the eyes of someone and that’s what you look into, I knew him with my blood. It’s not something you can actually ever get to, I don’t think, without that. It was a huge gift, as an actor.
+ - What the nation’s built on is discussion, contradiction and growth, and at the moment you can’t discuss anything. If you do start to discuss it, you get criticized. If people hate us, you have to find out why and try to solve that problem.
+ - I had a kind of meandering little career, and then I was given a chance to play one of the bottom six in The Dirty Dozen.
+ - You’re always working in the movie. Never was I me, and never have I been me, nor was he him. We were the two characters. But the character that I was playing was informed by my DNA, looking at him informed by his.
+ - But even with no money you could still go to places like the Scotch Club and, you know, John Lennon might be sitting right over there, but I was certainly not a part of any of that circle. I was truly peripheral.
+ - I have been able to play a lot of guys and they have kept me working.
+ - To them though, not to us, we were just a catalyst for their imagination.
+ - At my age, you sort of fart your way into a role.
+ - Not too much, though there’s a certain amount of rancour and bitterness when someone tries to fire you.
+ - Well, I was always cast as an artistic homicidal maniac. But at least I was artistic!
+
+28 quotes

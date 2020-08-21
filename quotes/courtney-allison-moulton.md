@@ -1,0 +1,25 @@
+ - The brave may not live forever, but the cautious never live at all.
+ - I’ll wait for you forever.
+ - And I am your guardian, your bodyguard, sworn to protect and defend you. And you are making my job excruciatingly difficult.
+ - Why don’t you study for me, too, so I don’t have to?
+ - You’re so sweet, you’re going to give me a cavity.
+ - You know, for someone who believes in me so much, you really have no faith in me at all.
+ - Another growl came, and then very heavy footsteps – like T-rex-shaking-the-water-cup-jurassic-park-style heavy foot steps.
+ - I knew he was your boyfriend. Ellie Marie, I can’t believe you lied to me, you hooker!
+ - I don’t want to die and come back and not remember your face, Will. I don’t want to spend another lifetime not knowing who you are!
+ - A demonic reaper asked to be my valentine and then killed his crazy ex-girlfriend to save my life. Tomorrow I was starting up antipsychotic meds.
+ - The next morning, my head and every muscle in my body hurt as if I’d run a marathon through six feet of snow in stilettos.
+ - I have a ninja sitting shotgun. Of course, I’m tense.
+ - If I kiss you now, I won’t be able to stop. We’ll miss the party.
+ - And everytime you die, a little piece of me dies with you.
+ - There are four things you need to know about war. One, every action requires careful tactics. Two, never lose hope and fight only for what is right. Three, be brave but you don’t have to be fearless. And four, be willing to sacrifice.
+ - It’s easier to love you than to pretend I don’t.
+ - I know you don’t have access to that memory yet, but I don’t think it’s something I can just tell you. It means too much to me, I guess.
+ - I am Ragnuk, and I am going to eat you now.
+ - Kate’s Daddy had bought her a red BMW for her birthday. I found it to be an absolute miracle of God that Kate hadn’t pancaked it yet. She drove like a blind person going into diabetic shock.
+ - No, I haven’t heard that, but I’ll keep it in mind. Thanks for the proverbial insight, my stalker friend.
+ - That’s the point of believing in something. There’s so much doubt and tribulation during your journey that you’ve got to hang on to something, or else you’ll fall.
+ - My kind of fun just doesn’t include making fun of vertically challanged people.
+ - I wondered, for a moment, if he was cuddly. Probably not.
+
+23 quotes

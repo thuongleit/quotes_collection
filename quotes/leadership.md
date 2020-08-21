@@ -1,0 +1,102 @@
+ - Management is doing things right; leadership is doing the right things. ~~Peter F. Drucker
+ - Leadership is not about titles, positions or flowcharts. It is about one life influencing another. ~~John C. Maxwell
+ - The key to successful leadership is influence, not authority. ~~Kenneth H. Blanchard
+ - Not all readers are leaders, but all leaders are readers. ~~Harry S. Truman
+ - He who cannot be a good follower cannot be a good leader. ~~Aristotle
+ - The greatest leader is not necessarily the one who does the greatest things. He is the one that gets the people to do the greatest things. ~~Ronald Reagan
+ - When the leader lacks confidence, the followers lack commitment. ~~John C. Maxwell
+ - A successful person finds the right place for himself. But a successful leader finds the right place for others.  ~~John C. Maxwell
+ - If your actions create a legacy that inspires others to dream more, learn more, do more and become more, then, you are an excellent leader. ~~Dolly Parton
+ - Leaders are made, they are not born. They are made by hard effort, which is the price which all of us must pay to achieve any goal that is worthwhile. ~~Vince Lombardi
+ - A leader is a dealer in hope. ~~Napoleon
+ - A person, who no matter how desperate the situation, gives others hope, is a true leader. ~~Daisaku Ikeda
+ - There is a difference between being a leader and being a boss. Both are based on authority. A boss demands blind obedience; a leader earns his authority through understanding and trust. ~~Klaus Balkenhol
+ - A person who is quietly confident makes the best leader. ~~Fred Wilson
+ - The task of the leader is to get people from where they are to where they have not been.  ~~Henry Kissinger
+ - Leaders must be close enough to relate to others, but far enough ahead to motivate them. ~~John C. Maxwell
+ - A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. ~~Lao Tzu
+ - Leadership is the challenge to be something more than average. ~~Jim Rohn
+ - As we look ahead into the next century, leaders will be those who empower others. ~~Bill Gates
+ - The day the soldiers stop bringing you their problems is the day you stopped leading them. They have either lost confidence that you can help them or concluded that you do not care. Either case is a failure of leadership. ~~Colin Powell
+ - It is better to lead from behind and to put others in front, especially when you celebrate victory when nice things occur. You take the front line when there is danger. Then people will appreciate your leadership. ~~Nelson Mandela
+ - Real leadership is being the person others will gladly and confidently follow. ~~John C. Maxwell
+ - A leader who produces other leaders multiples their influences. ~~John C. Maxwell
+ - You do not lead by hitting people over the head – that’s assault, not leadership. ~~Dwight D. Eisenhower
+ - Be with a leader when he is right, stay with him when he is still right, but, leave him when he is wrong. ~~Abraham Lincoln
+ - Leadership is an action, not a position ~~Donald McGannon
+ - Be the leader you wish you had. ~~Simon Sinek
+ - Find the right people, not the best people. ~~Jack Ma
+ - What you do has far greater impact than what you say. ~~Stephen R. Covey
+ - When you were made a leader you weren’t given a crown, you were given the responsibility to bring out the best in others. ~~Jack Welch
+ - Leaders think and talk about the solutions. Followers think and talk about the problems. ~~Brian Tracy
+ - The true value of a leader is not measured by the work they do. A leader’s true value is measured by the work they inspire others to do. ~~Simon Sinek
+ - It is amazing what you can accomplish if you do not care who gets the credit. ~~Harry S. Truman
+ - The boss inspires fear; the leader inspires enthusiasm. ~~John C. Maxwell
+ - Before you are a leader, success is all about growing yourself. When you become a leader, success is all about growing others. ~~Jack Welch
+ - Become the kind of leader that people would follow voluntarily; even if you had no title or position. ~~Brian Tracy
+ - Leaders become great, not because of their power, but because of their ability to empower others. ~~John C. Maxwell
+ - A true leader has the confidence to stand alone, the courage to make tough decisions, and the compassion to listen to the needs of others. He does not set out to be a leader, but becomes one by the equality of his actions and the integrity of his intent. ~~Douglas MacArthur
+ - The challenge of leadership is to be strong, but not rude; be kind, but not weak; be bold, but not bully; be thoughtful, but not lazy; be humble, but not timid; be proud, but not arrogant; have humor, but without folly. ~~Jim Rohn
+ - Bosses push, Leaders pull. Real leadership is servant leadership. ~~Dave Ramsey
+ - The function of leadership is to produce more leaders, not more followers. ~~Ralph Nader
+ - A leader is one who knows the way, goes the way, and shows the way. ~~John C. Maxwell
+ - One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. ~~Arnold H. Glasow
+ - A good leader is a person who takes a little more than his share of the blame and a little less than his share of the credit. ~~John C. Maxwell
+ - I cannot give you a formula for success, but I can give you the formula for failure, which is: try to please everybody. ~~Herbert Bayard Swope
+ - Don’t speak unless you can improve on the silence. ~~Spanish proverb
+ - Leadership is influence. ~~John C. Maxwell
+ - The ultimate measure of a man is not where he stands in moments of comfort and convenience, but where he stands at times of challenge and controversy. ~~Martin Luther King Jr.
+ - To give real service you must add something which cannot be bought or measured with money, and that is sincerity and integrity. ~~Douglas Adams
+ - Earn your leadership every day. ~~Michael Jordan
+ - If you are working on something exciting that you really care about, you don’t have to be pushed. The vision pulls you. ~~Steve Jobs
+ - When we do more than we are paid to do, eventually we will be paid more for what we do. ~~Zig Ziglar
+ - Effective leadership is not about making speeches or being liked; leadership is defined by results not attributes. ~~Peter F. Drucker
+ - Great leaders hire outstanding people, train them well, inspire them, and then get out of their way. ~~Frank Sonnenberg
+ - Average leaders raise the bar on themselves; good leaders raise the bar for others; great leaders inspire others to raise their own bar. ~~Orrin Woodward
+ - My job is not to be easy on people. My job is to take these great people we have and to push them and make them even better. ~~Steve Jobs
+ - Outstanding leaders go out of their way to boost the self-esteem of their personnel. If people believe in themselves, it’s amazing what they can accomplish. ~~Sam Walton
+ - When a manager openly expresses his faith in an employee’s skill, he doesn’t just improve mood and motivation; he actually improves their likelihood of succeeding. ~~Shawn Achor
+ - Anyone can hold the helm when the sea is calm. ~~Publilius Syrus
+ - The more intentional you are about your leadership growth, the greater your potential for becoming the leader you’re capable of being. Never stop learning. ~~John C. Maxwell
+ - Example is not the main thing in influencing others. It is the only thing. ~~Albert Schweitzer
+ - Great leaders are not defined by the absence of weakness, but rather by the presence of clear strengths. ~~John Peter Zenger
+ - The quality of a leader is reflected in the standards they set for themselves. ~~Ray Kroc
+ - Great leaders are almost always great simplifiers who can cut through the argument debate and doubt to offer a solution everybody can understand. ~~Colin Powell
+ - Whenever you see a successful business, someone once made a courageous decision. ~~Peter F. Drucker
+ - The first responsibility of a leader is to define reality. The last is to say thank you. In between, the leader is a servant. ~~Max De Pree
+ - Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity. ~~George S. Patton Jr.
+ - Individual commitment to a group effort – that is what makes a team work, a company work, a society work, a civilization work. ~~Vince Lombardi
+ - While a good leader sustains momentum, a great leader increases it. ~~John C. Maxwell
+ - True leadership lies in guiding others to success. In ensuring that everyone is performing at their best, doing the work they are pledged to do and doing it well. ~~Bill Owens
+ - People buy into the leader before they buy into the vision. ~~John C. Maxwell
+ - Don’t blow off another’s candle for it won’t make yours shine brighter. ~~Jaachynma N.E. Agu
+ - The mind is not a vessel to be filled but a fire to be kindled. ~~Plutarch
+ - The leader has to be practical and a realist, yet must talk the language of the visionary and the idealist. ~~Eric Hoffer
+ - Lead and inspire people. Don’t try to manage and manipulate people. Inventories can be managed but people must be lead. ~~H. Ross Perot
+ - A cowardly leader is the most dangerous of men. ~~Stephen King
+ - A leader takes people where they want to go. A great leader takes people where they don’t necessarily want to go, but ought to be. ~~Rosalynn Carter
+ - He who has learned how to obey will know how to command. ~~Solon
+ - Lead me, follow me, or get out of my way. ~~George S. Patton Jr.
+ - Coming together is a beginning; keeping together is progress; working together is success. ~~Edward Everett Hale
+ - Leadership is lifting a person’s vision to high sights, the raising of a person’s performance to a higher standard, the building of a personality beyond its normal limitations. ~~Peter F. Drucker
+ - Management is efficiency in climbing the ladder of success; leadership determines whether the ladder is leaning against the right wall. ~~Stephen R. Covey
+ - A great leader’s courage to fulfill his vision comes from passion, not position. ~~John C. Maxwell
+ - To command is to serve, nothing more and nothing less. ~~André Malraux
+ - Most of what we call management consists of making it difficult for people to get their work done. ~~Peter F. Drucker
+ - A ruler should be slow to punish and swift to reward. ~~Ovid
+ - Do what you feel in your heart to be right – for you’ll be criticized anyway. You’ll be “damned if you do, and damned if you don’t.” ~~Eleanor Roosevelt
+ - You don’t lead by pointing and telling people some place to go. You lead by going to that place and making a case. ~~Ken Kesey
+ - A great person attracts great people and knows how to hold them together. ~~Johann Wolfgang von Goethe
+ - Never doubt that a small group of thoughtful, committed, citizens can change the world. Indeed, it is the only thing that ever has. ~~Margaret Mead
+ - The very essence of leadership is that you have to have vision. You can’t blow an uncertain trumpet. ~~Theodore Hesburgh
+ - Be a yardstick of quality. Some people aren’t used to an environment where excellence is expected. ~~Steve Jobs
+ - When you put together deep knowledge about a subject that intensely matters to you, charisma happens. You gain courage to share your passion, and when you do that, folks follow. ~~Jerry I. Porras
+ - The best leaders are the ones who show their true colors not during the banner years but during times of struggle. ~~Shawn Achor
+ - The most dangerous leadership myth is that leaders are born - that there is a genetic factor to leadership. That’s nonsense; in fact, the opposite is true. Leaders are made rather than born. ~~Warren G. Bennis
+ - Most people can bear adversity. But if you wish to know what a man really is, give him power. ~~Robert G. Ingersoll
+ - My own definition of leadership is this: The capacity and the will to rally men and women to a common purpose and the character which inspires confidence. ~~Bernard Law Montgomery
+ - If one is lucky, a solitary fantasy can totally transform one million realities. ~~Maya Angelou
+ - Affirmation without discipline is the beginning of delusion. ~~Jim Rohn
+ - A good general not only sees the way to victory; he also knows when victory is impossible. ~~Polybius
+
+100 quotes

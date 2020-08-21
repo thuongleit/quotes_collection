@@ -1,0 +1,37 @@
+ - You only live once, so live a good life!
+ - My wife is my best friend. The thought that people are afraid to go home to their partners for fear of being abused physically or emotionally makes me feel sick. It’s not easy but you need to get help and get out.
+ - When you realise that money doesn’t actually make you happy, it’s a quick fix to have things you’ve always wanted, but then when you have it, you realise that’s not what actually makes you happy. It’s more about having a great marriage and happy children; that’s what life’s all about.
+ - I love Ireland. I’ll always be 100pc Irish. I get really excited when I go to Sligo; it’s my home.
+ - It’s a big deal to bring your family on the road, you know? I’d love to do it sometime, but you have to work out schools and all that.
+ - For me, it’s never been about being famous. I just want to be a successful singer. I wanna work hard If I’m in the papers, grace, but I want to be there for the right reasons – for my music.
+ - When your child is looking up at you, and you are putting them to bed at night, and they are just lying there, you have to remind yourself that’s what it’s all about.
+ - You’re only as good as your last album.
+ - I think that lyrically, ‘Safe’ is a very positive song: it’s very strong; it’s about keeping somebody safe and protecting people. I think everybody anywhere in the world can relate to it. I think everybody wants to feel safe; everybody wants to feel protected.
+ - Together with a team of financial and legal experts I have spent months exploring all possible alternatives to bankruptcy but to no avail.
+ - For Westlife, the music will never stop as long as our fans are around inspiring us to keep on making beautiful music together.
+ - I think Westlife is very unique: we have a certain sound; we do our thing our way, and we don’t try to change too much. I think that’s what the fans love about us. We keep giving the fans what they want every year. The style of music never really changes too much.
+ - You shouldn’t end a band like Westlife and not be financially secure to some extent, but I wasn’t at all – it was the complete opposite. But you look at stuff then, ‘Well, what do I have? I don’t have money but I have a great marriage, three healthy kids, and I have my voice. I’ll just start again.’
+ - The adrenaline of performing on stage to a crowd – there’s nothing like it.
+ - The couple of years before I was declared bankrupt were the roughest. The bank letters, the pressure, the stress was awful. You’re in this twilight zone of not knowing where your life is going, and yet you’re in Westlife. Everything was great with the band. I was earning money, and it looked good.
+ - I’d like to keep singing – whether that’s small or big. To stop singing for a living would break my heart.
+ - I will definitely start in small venues, as I want to find my feet as a performer; the first shows that Westlife did was ten dates at Wembley, which was just crazy. We didn’t have a clue what we were doing because it was so big.
+ - You know One Direction do a lot of up tempo songs, but when they did that Ed Sheeran song ‘Little Things,’ that was probably their biggest song off their last album, so it shows you that a ballad never goes out of fashion.
+ - It’s amazing how lucky Westlife were and what we achieved. It’s very rare to have seven number ones in a row. Ridiculous in fact.
+ - I didn’t want to be a solo Westlife – covers and ballads – and the reason I signed with Capitol Records was because they wanted me to write songs myself. It was pretty scary, but they put me in a studio in Nashville with some new songwriters, and the results were pretty good.
+ - When I finished Westlife, we had – Louie Walsh is still managing me – I was lucky to have options from different labels such as Sony and Universal. When we met Capitol and Nick Raphael, I just believed in them the most, and it looked like they believed in me the most.
+ - Everybody, every tradesman that worked for Shafin or built my house got fully paid, well paid. Everybody got paid. I would like that to be said if I could because I haven’t said it before, and it’s important. People kind of think we left all these plumbers or electricians without getting paid.
+ - I have three children to take care; I have a wife. My job is to take care of them, and I can say it’s a pretty cool job to have.
+ - You’ve got to go down the road you naturally go down, and for me it was pop, folk country, just feel-good music. I suppose most of my songs are very up-tempo.
+ - Yes, it’s true, I have bought a helicopter. I really like it. I can’t fly it, but I plan to get a licence one day.
+ - After Westlife, I was in a scared place, you know; you’ve three children, and I worry about providing for them, and I had no guarantees going forward about the future.
+ - I worry about putting food on the table, paying for my kids needs, their college fees in years to come. It’s about earning enough to have a living to be able to look after your children.
+ - My kids are Irish; I want them to grow up playing Gaelic football and learning Irish.
+ - When you look at bands like Take That, who have come back bigger than ever, you can see there will always be a market for good pop bands.
+ - I have worked long and hard to try to reduce my debts, and I am devastated that it came to this conclusion. I now intend to focus on the remaining dates of the Westlife tour and my commitments to the band before looking to rebuild a future for my wife, my three children and myself.
+ - I don’t think about success to be famous, because I’ve done that at the highest level, but it’s all about my children.
+ - Capitol Records were very keen for me to write and see how I got on; I think that is what defined my sound. The first session I had was with two young up-and-coming writers, Nick Atkinson and Tom Wilding, and I went into a session a bit nervous because I hadn’t written that many songs before.
+ - When I had money, I felt pressure, whether it was to invest it or do good with it, and I couldn’t let it fizzle out. It was like I needed to prove to myself that I could look after it, only I did the opposite, but you have to take a chance in life.
+ - I put all my eggs in one basket and invested in property. I didn’t do anything internationally – it was all in Ireland.
+ - Working on solo material is something I had always dreamed of doing, and I’m incredibly happy with the results. ‘Everything To Me’ is a very personal song to me lyrically; it is such an upbeat and optimistic record, perfect for the summer. I can’t wait for people to hear it!
+
+35 quotes

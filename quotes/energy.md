@@ -1,0 +1,42 @@
+ - Everything is Energy and that is all there is to it. Match the frequency of the reality you want and you can not help but get that reality. It can be no other way. This is not philosophy. This is physics. ~~Albert Einstein
+ - Hoping drains your energy. Action creates energy. ~~Robert T. Kiyosaki
+ - Where focus goes, energy flows. ~~Tony Robbins
+ - A person should set his goals as early as he can and devote all his energy and talent to getting there. ~~Walt Disney
+ - Every thought has a frequency. Thoughts send out a magnetic energy. ~~Rhonda Byrne
+ - It is only when we become aware that our time is limited that we can channel our energy into truly living. ~~Ludovico Einaudi
+ - The only way to permanently install a new habit is to direct so much energy toward it that the old one slips away like an unwelcome house guest. ~~Robin S. Sharma
+ - An eagle uses the negative energy of a storm to fly even higher. ~~Eric Thomas
+ - The law of conservation of energy tells us we can’t get something for nothing, but we refuse to believe it. ~~Isaac Asimov
+ - Where attention goes, energy flows and results show. ~~T. Harv Eker
+ - To be energetic, act energetic. ~~W. Clement Stone
+ - Don’t use your energy to worry. Use your energy to believe. ~~Joel Osteen
+ - The first requisite of success is the ability to apply your physical and mental energies to one problem without growing weary. ~~Thomas A. Edison
+ - Purity, perseverance, and energy - these three I want. ~~Swami Vivekananda
+ - We become what we think about. Energy flows where attention goes. ~~Rhonda Byrne
+ - True learning takes energy, passion and a burning desire. ~~Robert T. Kiyosaki
+ - Throughout the infinite, the forces are in a perfect balance, and hence the energy of a single thought may determine the motion of a universe. ~~Nikola Tesla
+ - When all your energy gone! When you have nothing left! That’s when it’s show time! ~~Eric Thomas
+ - Personal development is the belief that you are worth the effort, time, and energy needed to develop yourself. ~~Denis Waitley
+ - Electric power is everywhere present in unlimited quantities and can drive the world’s machinery without the need of coal, oil, gas, or any other of the common fuels. ~~Nikola Tesla
+ - Atoms are driven by consciousness. In proximity to love, they move in harmonious collaboration with other atoms. When in proximity to fear, they become disharmonious and chaotic. We choose each moment the energy that surrounds us. ~~Marianne Williamson
+ - Forgive and call back the energy wasted on past events. ~~Caroline Myss
+ - Light attracts light. But sometimes your light attracts moths and your warmth attracts parasites. Protect your space and energy. ~~Warsan Shire
+ - You are energy, and energy cannot be created or destroyed. Energy just changes form. And that means You! The true essence of You, the pure energy of You, has always been and always will be. You can never not be. ~~Rhonda Byrne
+ - Whatever life may send your way – make the best of it. Don’t waste your time and energy worrying about it. Instead, find a way to do something about it. Learn from it, adjust to it, be strong, be flexible and be your best in every situation. ~~Les Brown
+ - No free energy device will ever be allowed to reach the market. ~~Nikola Tesla
+ - There is no energy in matter other than that received from the environment. ~~Nikola Tesla
+ - Anger may bring extra energy, but it eclipses the best part of our brain: its rationality. The energy of anger is almost always unreliable. ~~Dalai Lama XIV
+ - There can be no greater gift than that of giving one’s time and energy to help others without expecting anything in return. ~~Nelson Mandela
+ - Charisma is a sparkle in people that money can’t buy. It’s an invisible energy with visible effects. ~~Marianne Williamson
+ - Aliens might be surprised to learn that in a cosmos with limitless starlight, humans kill for energy sources buried in the sand. ~~Neil deGrasse Tyson
+ - When you exercise your will power you release the power of life energy – not when you merely wish passively to be able to obtain an objective. ~~Paramahansa Yogananda
+ - Money is life energy that we exchange and use as a result of the service we provide to the universe. ~~Deepak Chopra
+ - The lamps are different, but the Light is the same. One matter, one energy, one Light, one Light-mind, endlessly emanating all things. ~~Rumi
+ - Grace equals ability. God gives us grace to match our call. When we do our own thing, we do it on our own. When we follow His leading, He always supplies the grace and the energy to do what He’s calling us to do. ~~Joyce Meyer
+ - The union of feminine and masculine energies within the individual is the basis of all creation. ~~Shakti Gawain
+ - It takes all the time and all the energy we have to conquer the idiocy in us. ~~Carlos Castaneda
+ - Climate change is severely impacting the health of our planet and all of its inhabitants, and we must transition to a clean energy economy that does not rely on fossil fuels. ~~Leonardo DiCaprio
+ - Should you find yourself in a chronically leaking boat, energy devoted to changing vessels is likely to be more productive than energy devoted to patching leaks. ~~Warren Buffett
+ - The energy in the daytime is so different because everyone is so unhappy and depressed and you can pick up on that energy psychokinetically. So I like to come out at night. Everything’s settled, you can see more. ~~Kevin Gates
+
+40 quotes

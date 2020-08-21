@@ -1,0 +1,202 @@
+ - Whatever the problem – be part of the solution.
+ - Just say yes and you’ll figure it out afterwards.
+ - In most cases being a good boss means hiring talented people and then getting out of their way.
+ - Whatever the problem, be part of the solution. Don’t just sit around raising questions and pointing out obstacles.
+ - Do your thing and don’t care if they like it.
+ - Life is improvisation.
+ - Confidence is 10 percent hard work and 90 percent delusion.
+ - Don’t waste your energy trying to educate or change opinions; go over, under, through, and opinions will change organically when you’re the boss. Or they won’t. Who cares? Do your thing, and don’t care if they like it.
+ - You can tell how smart people are by what they laugh at.
+ - You can’t be that kid standing at the top of the waterslide, overthinking it. You have to go down the chute.
+ - My work is my work. I take my work seriously but I don’t take myself too seriously.
+ - As an improviser, I always find it jarring when I meet someone in real life whose first answer is no. “No, we can’t do that.” “No, that’s not in the budget.” “No, I will not hold your hand for a dollar.” What kind of way is that to live?
+ - A Harvard Medical School study has determined that rectal thermometers are still the best way to tell a baby’s temperature. Plus, it really teaches the baby who’s boss.
+ - Sometimes you want to have a very productive Saturday to feel that you are in control of your life, which of course you are not.
+ - Tracy: Stop eating people’s old french fries, little pigeon. Have some self-respect. Don’t you know you can fly?
+ - Some people say, “Never let them see you cry.” I say, if you’re so mad you could just cry, then cry. It terrifies everyone.
+ - I’m married, you know. I love my husband and I have a child.
+ - Don’t be too precious or attached to anything you write. Let things be malleable.
+ - You have to try your hardest to be at the top of your game and improve every joke you can until the last possible second, and then you have to let it go.
+ - Politics and prostitution have to be the only jobs where inexperience is considered a virtue.
+ - I don’t want to be somebody else.
+ - When hiring, mix Harvard Nerds with Chicago Improvisers and stir.
+ - You’ve got to experience failure to understand that you can survive it.
+ - You must not look in that mirror at your doughy legs and flat feet, for today is about dreams and illusions, and unfiltered natural daylight is the enemy of dreams.
+ - In Into the Woods, Cinderella runs from her prince, Rapunzel is thrown from a tower for her prince, and Sleeping Beauty just thought she was getting coffee with Bill Cosby.
+ - I want to thank my parents for somehow raising me to have confidence that is disproportionate with my looks and abilities.
+ - I want to spend time with Oprah, and I don’t know what I need to do to make that happen.
+ - If you retain nothing else, always remember the most important rule of beauty, which is: who cares?
+ - I believe in process. I believe that having a really difficult process is more valuable than a good outcome.
+ - I want every day to be the most boring news day ever. I want every day to be about spelling bee champions and baby basketball. It’s better to have no comedy material than a horrific news day.
+ - Why are my arms so weak? It’s like I did that push-up last year for nothing!
+ - If these two are tired of having sex with each other, what hope is there for the rest of us?
+ - It will never be perfect, but perfect is overrated. Perfect is boring on live TV.
+ - Being a mom has made me so tired. And so happy.
+ - I think women dress for other women to let them know what their deal is. Because if women were only dressing for men, there would be nothing but Victoria’s Secret. There would be no Dior.
+ - Yeah, it’s tough being smart and sexy, too. I have to say, I’m really not that attractive. Until I met my husband, I could not get a date. I promise you it’s true. My husband Jeff Richmond saw a diamond in the rough and took me in.
+ - When choosing sexual partners, remember: Talent is not sexually transmittable.
+ - Obviously, as an adult I realize this girl-on-girl sabotage is the third worst kind of female behavior, right behind saying “like” all the time and leaving your baby in a dumpster.
+ - A new poll showed that 66% of Americans think President Bush is doing a poor job handling the war in Iraq and the remaining 34% think that Adam and Eve rode dinosaurs to church.
+ - Quentin Tarantino is here, star of all my sexual nightmares.
+ - Gay people don’t actually try to convert people. That’s Jehovah’s Witnesses you’re thinking of.
+ - Al Gore announced Tuesday that he plans to launch a 24-hour cable news network for young adults. Gore claims he’s been wanting to do this since he invented cable TV in the 1990s.
+ - It’s not vanity, because if you look weird, it will distract from what your trying to do. If you look as good as you can, people will be able to pay attention to what your actually saying.
+ - Never tell a crazy person he’s crazy.
+ - And I can see Russia from my house.
+ - If you are capable people are happy to play with you.
+ - Ah, babies! They’re more than just adorable little creatures on whom you can blame your farts.
+ - We writers dream of a future where actors are mostly computer generated and their performances can be adjusted, by us, on a laptop, alone.
+ - It is an impressively arrogant move to conclude that just because you don’t like something, it is empirically not good. I don’t like Chinese food, but I don’t write articles trying to prove it doesn’t exist.
+ - Whitney Houston’s cover of “I Will Always Love You” was constantly on my FM Walkman radio around that time. I think that made me cry because I associated it with absolutely no one.
+ - Saudi Arabian police arrested seven teenage boys for leering at women. In accordance with Saudi law, the boys will be whipped and the women will be stoned to death.
+ - I don’t like my feet. I’m not crazy about anybody’s feet. But I have flat feet.
+ - Sleep when your baby sleeps. Everyone knows this classic tip, but I say why stop there? Scream when your baby screams. Take Benadryl when your baby takes Benadryl. And walk around pantless when your baby walks around pantless.
+ - It has been said that to write is to live forever. The man who said that is dead.
+ - I’m not a fan of purposely farting in front of other people. If you have to fart, leave the room.
+ - Many of the world’s greatest discoveries have been by accident. I mean, look at the Reese’s Peanut Butter Cup, or Botox.
+ - Thomas Jefferson – another gorgeous white boy who would not have been interested in me. This was my problem in a nutshell. To get some play in Charlottesville, you had to be either a Martha Jefferson or a Sally Hemings.
+ - My parents are very well-behaved. If anything, if my Mom were here right now, she would hug and kiss every one of you hello, and then she would feed you.
+ - I think people fetishize glasses in general. You could put glasses on a rotting pumpkin and people would think it was sexy.
+ - At the request of the Catholic Church, a three-day sex orgy to be held near Rio de Janeiro was cancelled last Friday. So instead I spent the weekend cleaning my apartment.
+ - I keep my eyes on the sea, waiting to be rocketed into it on a wave of fire. I’ll be ready for it to happen and that way it won’t happen. It’s a burden, being able to control situations with my hyper-vigilance, but its my lot in life.
+ - It’s the same reason I don’t get Hooters. Why do we need to enjoy chicken wings and boobies at the same time? Yes, they are a natural and beautiful part of the human experience. And so are boobies. But why at the same time?
+ - It’s like being a little kid again, parading around in a nightgown tucked into your underpants, believing it looks terrific.
+ - In an interview, Paris Hilton said that of her and her sister, “People love to hate us. But when you know us, you love us. And if you really get to know us, you get gonorrhea.”
+ - You know who DOES have a funny bone in her body? Your Mom every night for a dollar!
+ - I still want Oprah to play my best friend. I want to spend time with Oprah.
+ - The first time I went to see a Second City show, I was in awe of everything. I just wanted to touch the same stage that Gilda Radner had walked on. It was sacred ground.
+ - Lesson learned? When people say, “You really, really must” do something, it means you don’t really have to. No one ever says, “You really, really must deliver the baby during labor.” When it’s true, it doesn’t need to be said.
+ - Either way, everything will be fine. But if you have an opinion, please feel free to offer it to me through the gap in the door of a public restroom. Everyone else does.
+ - When I first set out to ruin SNL, I didn’t think anyone would notice, but i persevered because like you trying to a do a nine- piece jigsaw puzzle, it was a labor of love.
+ - If a bout of “creepy face” sets in, the trick is to look away from the camera between shots and turn back only when necessary. This also limits how much of your soul the camera can steal.
+ - If you want to make an audience laugh, you dress a man up like an old lady and push her down the stairs. If you want to make comedy writers laugh, you push an actual old lady down the stairs.
+ - To say I’m an overrated troll, when you have never even seen me guard a bridge, is patently unfair.
+ - At the upcoming Grammy Awards, Jennifer Lopez and Marc Anthony will perform together as the first time, as man and wife. Hopefully music.
+ - A wise friend once told me, ‘Don’t wear what fashion designers tell you to wear. Wear what they wear.’
+ - There are so many quiet times you spend as a mother that aren’t glorified but are a foundation for your kids. No matter what, there was always a thick safety net under this trapeze.
+ - You don’t just decide to destroy a person by making up stuff, and no one at ‘SNL’ is writing to go after someone.
+ - It was reported that Guy Ritchie has cast his wife Madonna in a small walk-on role in his new movie, Revolver. Madonna will play the part of the woman who ruins the film.
+ - In order to feel safer on his private jet, actor John Travolta has purchased a bomb-sniffing dog. Unfortunately for the actor, the dog came six movies too late.
+ - Not only is my wardrobe totally average, my body’s totally average. I love all the candy-fantasy fulfillment of Sex and the City.
+ - When a man plays a woman in a dress, you’re halfway there. It’s inherently funny. When a woman plays a man, for whatever reason, it’s not that instant kind of funny.
+ - Instead of trying to fit an impossible ideal, I took a personal inventory of all my healthy body parts for which I am grateful: Straight Greek eyebrows. They start at the hairline at my temple and, left unchecked, will grow straight across my face and onto yours.
+ - Seriously, I’ve just realized that almost everyone is a fraud, so I try not to feel too bad about it.
+ - Mary Tyler Moore was a working woman whose story lines were not always about dating and men. They were about work friendships and relationships, which is what I feel my adult life has mostly been about.
+ - In Afghanistan this week, outnumbered Northern Alliance rebels on horseback defeated Taliban forces armed with tanks. Experts say the victory is just like the story of David and Goliath and David’s friend, the Stealth Bomber.
+ - Ladies gotta say no to their husbands at the movies. They gotta say: “No, we are watching back-to-back cancer movies. And then this movie about a cat.”
+ - Whenever you see me, I’m on antique quaaludes.
+ - I don’t enjoy any kind of danger or volatility. I don’t have that kind of ‘I love the bad guys’ thing. No, no thank you. I like nice people.
+ - One of the great things about doing animated movies is that you don’t have to dress up or put on make-up.
+ - The upsides of acting in things is mostly getting your hair done and having people give you clothes. So as long as you can have a little bit of that in your life, then it’s just as delightful to be behind camera.
+ - I don’t really have a nemesis, but I have a series of hundreds of small enemies that fuel me. Everyone I meet I assume is out to get me and that fuels my fire on a daily basis.
+ - When I was going to school in, like, ’84 to ’88, you didn’t have cell phones. There was no e-mail, if you can wrap your brain around that.
+ - I got a fan letter on the back of a prison menu. And I remember thinking, ‘Well, they get pie. It’s not so bad. They get pie on the weekends.’ I want to say blueberry and also a Boston cream pie. Not so bad.
+ - Sometimes if you have a difficult decisin to make, just stall until the answer presents itself.
+ - I like to crack the jokes now and again, but it’s only because I struggle with math.
+ - Most of my work is done before we start shooting, preparation work, so my normal day begins when I start writing, it might even be the night before.
+ - Will Ferrell is a dangerous man. If he thinks you’re in his way in show business, he will crack your head open. He’s the Jeff Gillooly of comedy.
+ - If you’re an actor and you don’t get cast in stuff a lot, then put together a show or hold play-reading nights at your apartment. Make your own opportunities.
+ - My problem with the traditional acting method was that I never understood what you were supposed to be thinking about when you’re onstage.
+ - A recent study announced that 52 per cent of all teens who sign virginity pledges recant them within twelve months. If I’m on my game.
+ - Then she took out a speculum the size of a milk shake machine. Even Michelle Duggar would have flinched at this thing, but I had never seen one before.
+ - Don’t be too precious or attached to anything you write. Let things be malleable. For sketch writers, remember they’re called sketches for a reason. They’re not called oil paintings. Some of them are going to stink. You have to let them stink.
+ - I love to play strippers and to imitate them. I love using that idea for comedy, but the idea of actually going there? I feel like we all need to be better than that. That industry needs to die, by all of us being a little bit better than that.
+ - I think if you ask any of us here, we all dreamed of ending up on Saturday Night Live. I remember thinking, ‘I’ll just keep doing this as long as I can get away with it.’
+ - I do like to start on time; I like to set the bar high for people.
+ - President Bush gave a rousing speech to the United Nations General Assembly. Afterward, in a touching show of support, every foreign dignitary shook hands with the president and smiled warmly as he mispronounced their names.
+ - It was reported that the New York Knicks have won all 12 of the home games attended by magician David Blaine. A spokesman for the Knicks said, ‘if this is what it takes to win, it’s not worth it.’
+ - I never get to go to movies, because I’m a mom.
+ - I never dreamed I would receive the Mark Twain Prize for American Humor, mostly because my style is so typically Austrian.
+ - It’s harder to make something good when you can’t curse all the time.
+ - You transition as a mother from literally just pulling a booger out of that person’s nose whenever you see one until at some point they assert: “No, I’m a person. You can’t fix my underpants on the subway.”
+ - This made no sense to me, probably because I speak English and have never had a head injury.
+ - It doesn’t matter if it’s a school play or a dumb TV show. It’s your work. You should care about it so much that people get annoyed with you.
+ - The topic of working moms is a tap-dance recital in a minefield.
+ - What Turning Forty Means to Me I need to take my pants off as soon as I get home. I didn’t used to have to do that. But now I do.
+ - I really like John McCain. He’s an awesome dude and was a lot of fun when he hosted “SNL.” I’d love to see a McCain-Giuliani “rage” ticket.
+ - We’re gonna promote freedom. Usher in democratic values and ideals. And fight terror-loving terrorists.
+ - You mostly know that you want to be funny, know that you have the desire. It’s not like people who grow up beautiful and can look in the mirror and be like, I’m beautiful! Funny is more of a journey. And a desperate attempt.
+ - You have to remember that actors are human beings. Which is hard sometimes because they look so much better than human beings.
+ - No other formula gives your baby a better start in life except that stuff that comes out of you for free.
+ - This January, Kevin Costner will be honored by the Palm Springs International Film Festival for his contribution to film. This gives Costner just two months to make a contribution to film.
+ - There is no one of-woman-born who does not like Red Lobster cheddar biscuits. Anyone who claims otherwise is a liar and a Socialist.
+ - Anyone who knows me will tell you that I am all about money. I mean, just look how well my line of zodiac-inspired toe rings and homeopathic children’s medications are selling on Home Shopping Network.
+ - It’s no more dangerous to society than a radio broadcast of The War of the Worlds.
+ - I went to the University of Virginia and I came from, I grew up in suburban Philadelphia.
+ - I had my hair in a ponytail and looked my trademark exhausted.
+ - I was the editor of the school newspaper and in drama club and choir, so I was not a popular girl in the traditional sense, but I think I was known for being relatively scathing.
+ - In Washington, officials from the National Rifle Association met with a group of high school students. There were no survivors.
+ - I really admire stand-up, and I think I would have loved to learn how to do it. I think it’s terrifying and thrilling. A really cool thing to do. It’s a dying art, in a way.
+ - Every kid has something they’re good at, that you hope they find and gravitate toward.
+ - I think someone should design exercise machines that reward people with sex at the end of their workouts, because people will perform superhuman feats for even the faint hope of that.
+ - I have two daughters, and we live here in Manhattan, and having gone through the Manhattan kindergarten application process, nothing will ever rival the stress of that.
+ - To me YES, AND means don’t be afraid to contribute. Always make sure you’re adding something to the discussion. Your initiations are worthwhile.
+ - I think my level of fame will drop back down. I think it’ll recede. In fact, I know it will. That’s life on Planet Earth. And I’m okay with that. Besides getting tables at restaurants and special treatment at the airport, what else is there?
+ - If everyone had a dad like mine, no one would have sex tapes.
+ - This week, penny collector Gene Sukie went to the bank and cashed in 10,000 pounds of pennies he had collected over 34 years, which were worth over 14,000 dollars. And, of course, I was in line behind him.
+ - In my limited experience, shows are like children. You can teach them manners and dress them in little sailor suits, but in the end, they’re going to be who they’re going to be.
+ - Somewhere around the fifth or seventh grade I figured out that I could ingratiate myself to people by making them laugh. Essentially, I was just trying to make them like me. But after a while it became part of my identity.
+ - According to a new study, women in satisfying marriages are less likely to develop cardiovascular diseases than unmarried women. So don’t worry, lonely women, you’ll be dead soon.
+ - I think for women especially, you need to have a plan. I need to have some other ways to generate income, so I don’t have to stretch my face or lift the top of my head with surgery or something.
+ - I was a very confident little kid.
+ - The person closest to actually achieving this look is Kim Kardashian, who, as we know, was made by Russian scientists to sabotage our athletes. Everyone else is struggling.
+ - Only in comedy, by the way, does an obedient white girl from the suburbs count as diversity.
+ - For most women, the success of conservative women is good for all of us, unless you believe in evolution. Actually, I take it back. The whole thing is a disaster.
+ - I had a gentleman in college tell me, during a date, that I could be really pretty if I lost some weight. On a date!
+ - The same ten minutes that magazines urge me to use for sit-ups and triceps dips, I used for sobbing.
+ - Researches reported that they developed a self-healing plastic that repairs itself if cracked. The plastic will change the way airplanes are built and medicine is practiced. In a related story, Joan Rivers will never die.
+ - I prefer the retro chic of spending Christmas just like Joseph and Mary did – Traveling arduously back to the place of your birth to be counted, with no guarantee of a bed when you get there.
+ - My ability to turn good news into anxiety is rivaled only by my ability to turn anxiety into chin acne.
+ - That turned-up collar. The jacket that zipped all the way down the front into a nice fitted shape. The white denim that made my untanned skin look like a color.
+ - I don’t live the single life and never really did.
+ - Growing up as a girl is always traumatizing, especially when you have the deadly combination of greasy skin and getting your boobs at ten. But I think it’s good to grow up that way. It builds character.
+ - I have to say, I’m really not that attractive. Until I met my husband, I could not get a date.
+ - I had to get back to work. NBC has me under contract. The baby and I only have a verbal agreement.
+ - I went through a phase where I was sick of acting, I didn’t want to do it anymore, I was bored with it and then I tried directing a movie and I was like: “Shoot, get back over there!” It made me appreciate acting more.
+ - I like to write about women, not so much about the way they relate to men, but about the way they relate to each other.
+ - My favorite day at ‘30 Rock’ is Thursday when the show airs. At lunch, we screen the episodes. For everyone to watch together, to see the stuff we all worked on, to hear the crew laugh – it’s great fun.
+ - This worked out perfectly for me in college, because what nineteen-year-old Virginia boy doesn’t want a wide-hipped, sarcastic Greek girl with short hair that’s permed on top? What’s that you say? None of them want that? You are correct.
+ - Boyhood proves that there’s still good roles for women over 40, as long as you get hired when you’re under 40.
+ - I think part of picking where you live in New York is accepting who you are. Really looking at yourself and going, ‘Yeah, I’m not cool enough for the West Village.’
+ - Amy Poehler and I have been friends for so long, we’re like Oprah and Gale. Only we’re not denying anything.
+ - I am constantly amazed by Tina Fey. And I am Tina Fey.
+ - If you want to be a screenwriter, take an acting class to get a sense of what you’re asking actors to do. Learning other skills will help you communicate with people and respect what they do.
+ - My mom wanted me to apply to Princeton, cause she just I guess since I was a kid had this dream that I would apply to Princeton, and it was not happening.
+ - I really love cursing a lot. But as I get older, I realize it’s a little unseemly for women of a certain age.
+ - I was wearing my best Gap turtleneck and my dates were two adult lesbians, so yea, I was pretty cool.
+ - When you have a set of characters, you have to fall in love with them and care about them as each individual character.
+ - The Supreme Court is expected to rule this week whether banning cross burning by groups like the Klu Klux Klan violates the first amendment. The outcome could affect the entertainment at Trent Lott’s Christmas party.
+ - When I turned 50, I looked in the mirror and I thought: “Hey, this isn’t the dress rehearsal, this is life and I don’t know how much longer I’m going to have!”
+ - An interim government was set up in Afghanistan. It included two women, one of whom was Minister of Women’s Affairs. Man, who’d she have to show here ankles to to get that job?
+ - When I started on ‘Saturday Night Live,’ I had the choice of wearing contact lenses, which I had never worn before, or glasses, in order to be able to read the cue cards.
+ - When humor works, it works because it’s clarifying what people already feel. It has to come from someplace real.
+ - A new study suggests that middle-aged adults who go on periodic drinking binges may face a heightened risk of dementia later on in life. The study is entitled, ‘National Strategy for Victory in Iraq.’
+ - Acting is really about showing up that day and telling the writers what you feel like saying.
+ - Your initiations are worthwhile.
+ - You’re in competition with everyone.
+ - North Korea threatened to attack if Sony Pictures released The Interview, forcing us all to pretend that we wanted to see it.
+ - I don’t like a tremendous amount of conflict. I don’t think that fighting and passion are the same thing.
+ - I found the recording sessions very freeing because you can really try things. When you’re filming something, if you’re improvising a film and you’re wasting film and wasting a cameraman’s time.
+ - North Korea referred to The Interview as absolutely intolerable and a wanton act of terror. Even more amazing? Not the worst review the movie got.
+ - Your characters should be as smart as you are, if not smarter.
+ - I didn’t get on TV until I was 30, which is really fortunate because you are who you are at that point.
+ - I think the Web is, you know, things like YouTube and stuff are absolutely where a lot of younger people are watching their TV on iTunes in the Web and YouTube, whatever. So, I think it’s an important place to have a presence.
+ - The thing that always fascinated me about improv is that it’s basically a happy accident that you think you’re initiating.
+ - Everybody kind of gets to be the person they didn’t get to be.
+ - The barrier between TV and movies has come down and film actors are willing to do TV and vice versa, because they just want to follow what’s interesting.
+ - When you go into something where you can really trust that everyone has thought about it, more than you have even, then that’s like a gift.
+ - Even when I was at ‘SNL,’ I didn’t do impersonations. I always wanted to be the kind of person who could do them – I always thought they were the coolest thing on the show – but I didn’t have any experience.
+ - Every day I wrote in my journal: “How am I going to win today?” So that when the guys are talking about water-boarding I’m telling them they haven’t even got the right towels.
+ - The eyes are the window to where the soul is supposed to be.
+ - I am extremely square and obedient in nature!
+ - Finally the world would see my full range of comedy characters – from grouchy librarian to Russian librarian.
+ - The ladies of comedy now are comfortable dressing up. It’s not forbidden anymore.
+ - I’m more of a writer than an actor, and I used to say that I’m mostly an improviser, though I haven’t improvised in awhile.
+ - Sometimes when you’re doing a comedy, the director will yell out “alts” and then the director gets the first laugh.
+ - Am I just chasing it because it’s the hardest thing for me to get and I want to prove I can do it?
+ - I feel like I represent normalcy in some way.
+ - I want to go to there.
+ - In my experience, the hardest thing about having someone “come out” to you is the “pretending to be surprised” part.
+ - I was a little excited but mostly blorft. “Blorft” is an adjective I just made up that means ‘Completely overwhelmed but proceeding as if everything is fine and reacting to the stress with the torpor of a possum.’ I have been blorft every day for the past seven years.
+
+200 quotes

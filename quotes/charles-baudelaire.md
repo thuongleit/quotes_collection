@@ -1,0 +1,270 @@
+ - With wine, poetry, or virtue as you choose. But get drunk.
+ - Extract the eternal from the ephemeral.
+ - Always be a poet, even in prose.
+ - It is time to get drunk! So as not to be the martyred slaves of Time, get drunk; get drunk without stopping! On wine, on poetry, or on virtue, as you wish.
+ - Inspiration comes of working every day.
+ - What is love? The need of coming out of one’s self.
+ - My soul travels on the smell of perfume like the souls of other men on music.
+ - An oasis of horror in a desert of boredom.
+ - La’, tout n’est qu’ordre et beaute, Luxe, calme et volupte. There where all is order and beauty. Lush, calm and voluptuous.
+ - Nothing can be done except little by little.
+ - Genius is nothing more nor less than childhood recaptured at will.
+ - The insatiable thirst for everything which lies beyond, and which life reveals, is the most living proof of our immortality.
+ - I can barely conceive of a type of beauty in which there is no Melancholy.
+ - Music fathoms the sky.
+ - The devil’s finest trick is to persuade you that he does not exist.
+ - Strangeness is a necessary ingredient in beauty.
+ - Through the Unknown, we’ll find the New.
+ - Evil comes up softly like a flower.
+ - A man who drinks only water has a secret to hide from his fellow men.
+ - There exist only three beings worthy of respect: the priest, the soldier, the poet. To know, to kill, to create.
+ - My heart is lost; the beasts have eaten it.
+ - It is the greatest art of the devil to convince us he does not exist.
+ - There is no sweeter pleasure than to surprise a man by giving him more than he hopes for.
+ - The will to work must dominate, for art is long and time is brief.
+ - Drink wine, drink poetry, drink virtue.
+ - Today I had a strange warning. I felt the wind of insanity brush my mind.
+ - Genius is nothing more or less than childhood recovered by will, a childhood how equipped for self-expression with an adult’s capacities.
+ - One can only forget about time by making use of it.
+ - I am the vampire at my own veins.
+ - Love is a taste for prostitution. In fact, there is no noble pleasure that cannot be reduced to Prostitution.
+ - Romanticism is precisely situated neither in choice of subject, nor exact truth, but in the way of feeling.
+ - The beautiful is always bizarre.
+ - A sweetheart is a bottle of wine, a wife is a wine bottle.
+ - Le mal se fait sans effort, naturellement, par fatalite ; le bien est toujours le produit d’un art. Evil is done without effort, naturally, it’s destiny; good is always a product of art.
+ - God is the only being who, in order to reign, doesn’t even need to exist.
+ - Any man who does not accept the conditions of life sells his soul.
+ - All the visible universe is nothing but a shop of images and signs.
+ - A study of the Great Malady; horror of home.
+ - We are all born marked for evil.
+ - It always seems to me that I should feel well in the place where I am not.
+ - From that moment onwards, our loathsome society rushed, like Narcissus, to contemplate its trivial image on a metallic plate. A form of lunacy, an extraordinary fanaticism took hold of these new sun-worshippers.
+ - How little remains of the man I once was, save the memory of him! But remembering is only a new form of suffering.
+ - There are moments of existence when time and space are more profound, and the awareness of existence is immensely heightened.
+ - A child sees everything in a sense of newness – he is always drunk. Genius is nothing but childhood re-attained at will.
+ - What do I care if you are good? Be beautiful! and be sad!
+ - A book is a garden, an orchard, a storehouse, a party, a company by the way, a counselor, a multitude of counselors.
+ - It is this admirable and immortal instinct for beauty which causes us to regard the earth and its spectacles as a glimpse, a correspondence of the beyond.
+ - A work of art should be like a well-planned crime.
+ - I set out to discover the why of it, and to transform my pleasure into knowledge.
+ - Art is an infinitely precious good, a draught both refreshing and cheering which restores the stomach and the mind to the natural equilibrium of the ideal.
+ - I am the wound and the knife! I am the slap and the cheek! I am the limbs and the rack, And the victim and the executioner! I am the vampire of my own heart.
+ - Today I felt pass over me A breath of wind from the wings of madness.
+ - Where ever I am not is the place where I am myself.
+ - What is irritating about love is that it is a crime that requires an accomplice.
+ - From Satan or from God, what matter? Angel or Siren, What matter, if you make – fairy with velvet eyes, Rhythm, perfume, light, o my only queen – The universe less hideous, each moment less strained?
+ - Life swarms with innocent monsters.
+ - What can an eternity of damnation matter to someone who has felt, if only for a second, the infinity of delight?
+ - A multitude of small delights constitute happiness.
+ - What is it that brings on these moods of yours? Nothing mysterious: the ordinary pain of being alive.
+ - He who looks through an open window sees fewer things than he who looks through a closed window.
+ - Be always drunken. Nothing else matters: that is the only question. If you would not feel the horrible burden of time weighing on your shoulders and crushing you to the earth, be drunken continually.
+ - How many years of fatigue and punishment it takes to learn the simple truth that work, that disagreeable thing, is the only way of not suffering in life, or at all events, of suffering less.
+ - Imagination is the queen of truth, and possibility is one of the regions of truth. She is positively akin to infinity.
+ - Poetry and progress are like two ambitious men who hate one another with an instinctive hatred, and when they meet upon the same road, one of them has to give place.
+ - The dance can reveal everything mysterious that is hidden in music, and it has the additional merit of being human and palpable. Dancing is poetry with arms and legs.
+ - Life has but one true charm: the charm of the game. But what if we’re indifferent to whether we win or lose?
+ - Hashish will be, indeed, for the impressions and familiar thoughts of the man, a mirror which magnifies, yet no more than a mirror.
+ - Beauty is the sole ambition, the exclusive goal of Taste.
+ - Genius is simply childhood, rediscovered by an act of will.
+ - Whether you come from heaven or hell, what does it matter, O Beauty!
+ - Remembering is only a new form of suffering.
+ - This life is a hospital in which every patient is possessed with a desire to change his bed.
+ - The act of love strongly resembles torture or surgery.
+ - How bittersweet it is, on winter’s night, To listen, by the sputtering, smoking fire, As distant memories, through the fog-dimmed light, Rise, to the muffled chime of churchbell choir.
+ - Doubt, or the absence of faith and naivete, is a vice peculiar to this age, for no one is obedient nowadays; and naivete, which means the dominance of temperament in the manner, is a gift from God, possessed by very few.
+ - I am a cemetery abhorred by the moon, In which long worms crawl like remorse.
+ - As a small child, I felt in my heart two contradictory feelings, the horror of life and the ecstasy of life.
+ - J’ai plus de souvenirs que si j’avais mille ans. IhavemorememoriesthanifIwereonethousandyearsold.
+ - I think I would be happy in that place I happen not to be, and this question of moving house is the subject of a perpetual dialogue I have with my soul.
+ - Photographers, you will never become artists. All you are is mere copiers.
+ - The Poet is a kinsman in the clouds Who scoffs at archers, loves a stormy day; But on the ground, among the hooting crowds, He cannot walk, his wings are in the way.
+ - The world only goes round by misunderstanding.
+ - Any healthy man can go without food for two days – but not without poetry.
+ - In order not to feel time’s horrid fardel bruise your shoulders, grinding you into the earth, get drunk and stay that way. On what? On wine, poetry, virtue, whatever. But get drunk!
+ - Perfumes, colours and sounds echo one another.
+ - The dandy should aspire to be uninterruptedly sublime. He should live and sleep in front of a mirror.
+ - In our corruption we perceive beauties unrevealed to ancient times.
+ - But a dandy can never be a vulgar man.
+ - Let us beware of common folk, of common sense, of sentiment, of inspiration, and of the obvious.
+ - In literature as in ethics, there is danger, as well as glory, in being subtle. Aristocracy isolates us.
+ - What strange phenomena we find in a great city, all we need do is stroll about with our eyes open. Life swarms with innocent monsters.
+ - Quand notre coeur a fait une fois sa vendange, Vivre est un mal. Once our heart has been harvested once, Life becomes miserable.
+ - What could be more simple and more complex, more obvious and more profound than a portrait.
+ - I have more memories than if I were a thousand years old.
+ - My dear brothers, never forget, when you hear the progress of enlightenment vaunted, that the devil’s best trick is to persuade you that he doesn’t exist!
+ - Even when she walks one would believe that she dances.
+ - I have cultivated my hysteria with delight and terror. Now I suffer continually from vertigo, and today, 23rd of January, 1862, I have received a singular warning, I have felt the wind of the wing of madness pass over me.
+ - The poet is like the prince of clouds Who haunts the tempest and laughs at the archer; Exiled on the ground in the midst of jeers, His giant wings prevent him from walking.
+ - Unable to suppress love, the Church wanted at least to disinfect it, and it created marriage.
+ - Nothing in a portrait is a matter of indifference. Gesture, grimace, clothing, decor even – all must combine to realize a character.
+ - If photography is allowed to supplement art in some of its functions, it will soon have supplanted or corrupted it altogether, thanks to the stupidity of the multitude which is its natural ally.
+ - To the solemn graves, near a lonely cemetery, my heart like a muffled drum is beating funeral marches.
+ - There are women who inspire you with the desire to conquer them and to take your pleasure of them; but this one fills you only with the desire to die slowly beneath her gaze.
+ - Dance can reveal everything mysterious that is hidden in music.
+ - Soon we will plunge ourselves into cold shadows, and all of summer’s stunning afternoons will be gone. I already hear the dead thuds of logs below falling on the cobblestones and the lawn.
+ - Here comes the time when, vibrating on its stem, every flower fumes like a censer; noises and perfumes circle in the evening air.
+ - Passion I hate, and spirit does me wrong. Let us love gently.
+ - On the vaporization and the centralization of the Self. All is there.
+ - Sexuality is the lyricism of the masses.
+ - I sit in the sky like a sphinx misunderstood; My heart of snow is wed to the whiteness of swans; I hate the movement that displaces the rigid lines, With lips untaught neither tears nor laughter do I know.
+ - I am a cemetery by the moon unblessed.
+ - Modernity is the transient, the fleeting, the contingent; it is one half of art, the other being the eternal and the immovable.
+ - There are in every man, always, two simultaneous allegiances, one to God, the other to Satan. Invocation of God, or Spirituality, is a desire to climb higher; that of Satan, or animality, is delight in descent.
+ - It’s the devil who pulls the strings that make us dance.
+ - The Devil pulls the strings which make us dance; We find delight in the most loathsome things; Some furtherance of Hell each new day brings, And yet we feel no horror in that rank advance.
+ - What is exhilarating in bad taste is the aristocratic pleasure of giving offense.
+ - The whole visible universe is but a storehouse of images and signs to which the imagination will give a relative place and value; it is a sort of pasture which the imagination must digest and transform.
+ - To handle a language skillfully is to practice a kind of evocative sorcery.
+ - Delacroix was passionately in love with passion, but coldly determined to express passion as clearly as possible.
+ - It is easy to understand why the rabble dislike cats. A cat is beautiful; it suggests ideas of luxury, cleanliness, voluptuous pleasures.
+ - There is no more steely barb than that of the Infinite.
+ - To be away from home and yet to feel oneself everywhere at home; to see the world, to be at the centre of the world, and yet to remain hidden from the world – impartial natures which the tongue can but clumsily define. The spectator is a prince who everywhere rejoices in his incognito.
+ - To say the word Romanticism is to say modern art – that is, intimacy, spirituality, color, aspiration towards the infinite, expressed by every means available to the arts.
+ - Progress, this great heresy of decay.
+ - That which is not slightly distorted lacks sensible appeal; from which it follows that irregularity – that is to say, the unexpected, surprise and astonishment, are a essential part and characteristic of beauty.
+ - Drowsing, they take the noble attitude of a great sphinx, who, in a desert land, sleeps always, dreaming dreams that have no end.
+ - I am bored in France because everyone resembles Voltaire.
+ - Those men get along best with women who can get along best without them.
+ - I am unable to understand how a man of honor could take a newspaper in his hands without a shudder of disgust.
+ - I should like the fields tinged with red, the rivers yellow and the trees painted blue. Nature has no imagination.
+ - For me, Romanticism is the most recent and the most current expression of beauty.
+ - A silent mouth is sweet to hear.
+ - We love women in proportion to their degree of strangeness to us.
+ - A Dandy does nothing.
+ - What is art? Prostitution.
+ - Everything for me becomes allegory.
+ - Finer than any sand are dusts of gold that gleam, Vague starpoints, in the mystic iris of their eyes.
+ - We all have the republican spirit in our veins, like syphilis in our bones. We are democratized and venerealized.
+ - Amer savoir, celui qu’on tire du voyage! Bitter is the knowledge gained in travelling.
+ - Wine transforms moles into eagles.
+ - There are but three beings worthy of respect: the priest, the warrior and the poet. To know, to kill and to create. The rest of mankind may be taxed and drudged, they are born for the stable, that is to say, to practise what they call professions.
+ - The lover of life makes the whole world into his family, just as the lover of the fair sex creates his from all the lovely women he has found, from those that could be found, and those who are impossible to find.
+ - There is a word, in a verb, something sacred which forbids us from using it recklessly. To handle a language cunningly is to practice a kind of evocative sorcery.
+ - Evil is committed without effort, naturally, fatally; goodness is always the product of some art.
+ - Woman is natural, that is to say, abominable.
+ - Common sense tells us that the things of the earth exist only a little, and that true reality is only in dreams.
+ - Like those great sphinxes lounging through eternity in noble attitudes upon the desert sand, they gaze incuriously at nothing, calm and wise.
+ - The more delicate and ambitious the soul, the further do dreams estrange it from possible things.
+ - Being a useful man has always seemed to me to be something truly hideous.
+ - A precious liquid, a poison dearer than that of the Borgias – because it is made from our blood, our health, our sleep, and two-thirds of our love – we must be stingy with it.
+ - Multitude, solitude: equal and interchangeable terms for the active and prolific poet.
+ - Within the bottle’s depths, the wine’s soul sang one night. Drink wine, drink poetry, drink virtue.
+ - Where are the dogs going? you people who pay so little attention ask. They are going about their business. And they are very punctilious, without wallets, notes, and without briefcases.
+ - What a mysterious faculty is that queen of the faculties!
+ - Poetry has no goal other than itself; it can have no other, and no poem will be so great, so noble, so truly worthy of the name of poem, than one written uniquely for the pleasure of writing a poem.
+ - Hypocrite reader my fellow my brother!
+ - Nothing is as tedious as the limping days, When snowdrifts yearly cover all the ways, And ennui, sour fruit of incurious gloom, Assumes control of fate’s immortal loom.
+ - For the merchant, even honesty is a financial speculation.
+ - This life is a hospital where every patient is possessed with the desire to change beds; one man would like to suffer in front of the stove, and another believes that he would recover his health beside the window.
+ - Our squalid society rushed, Narcissus to a man, to gaze on its trivial image on a scrap of metal.
+ - The more a man cultivates the arts the less he fornicates. A more and more apparent cleavage occurs between the spirit and the brute.
+ - In this horror of solitude, this need to lose his ego in exterior flesh, which man calls grandly the need for love.
+ - I have cultivated my hysteria with pleasure and terror.
+ - Nature is a temple in which living columns sometimes emit confused words. Man approaches it through forests of symbols, which observe him with familiar glances.
+ - I consider it useless and tedious to represent what exists, because nothing that exists satisfies me. Nature is ugly, and I prefer the monsters of my fancy to what is positively trivial.
+ - Immediate work, even poor, is worth more than dreams.
+ - The unique and supreme voluptuousness of love lies in the certainty of committing evil. And men and women know from birth that in evil is found all sensual delight.
+ - Eternal superiority of the Dandy. What is the Dandy?
+ - Etre un homme utile m’a paru toujours quelque chose de bien hideux. To be useful has always seemed to me quite hideous.
+ - It is by universal misunderstanding that all agree. For if, by ill luck, people understood each other, they would never agree.
+ - All fashions are charming, or rather relatively charming, each one being a new striving, more or less well conceived, after beauty, an approximate statement of an ideal, the desire for which constantly teases the unsatisfied human mind.
+ - I lived for a long time under vast porticos That maritime suns tinted with a thousand fires, And whose great pillars, straight and majestuous In the evening made seem like basaltic caves.
+ - Forest, I fear you! In my ruined heart your roaring wakens the same agony as in cathedrals when the organ moans and from the depths I hear that I am damned.
+ - Everything that is beautiful and noble is the product of reason and calculation.
+ - We revel in the laxness of the path we take.
+ - The more one works, the better one works, and the more one wants to work. The more one produces, the more fertile one grows.
+ - Oh, Creator! Can monsters exist in the sight of him who alone knows how they were invented, how they invented themselves, and how they might not have invented themselves?
+ - Il faut e pater le bourgeois. One must astound the bourgeois.
+ - If wine were to disappear from human production, I believe it would cause an absence, a failure in health and intellect, a void much more terrifying than all the recesses and the deviations for which wine is regarded as responsible.
+ - Every idea is endowed of itself with immortal life, like a human being. All created form, even that which is created by man, is immortal. For form is independent of matter: molecules do not constitute form.
+ - True Civilization does not lie in gas, nor in steam, nor in turn-tables. It lies in the reduction of the traces of original sin.
+ - There can be no progress-real, moral prgress-except in the individual and by the individual himself.
+ - You walk on corpses, beauty, undismayed.
+ - Comme l’imagination a cre e le monde, elle le gouverne. Because imagination created the world, it governs it.
+ - On the day when a young writer corrects his first proof-sheet he is as proud as a schoolboy who has just got his first dose of pox.
+ - It is regrettable that, among the Rights of Man, the right of contradicting oneself has been forgotten.
+ - Even if it were proven that God didn’t exist, Religion would still be Saintly and Divine.
+ - If a given combination of trees, mountains, water, and houses, say a landscape, is beautiful, it is not so by itself, but because of me, of my favor, of the idea or feeling I attach to it.
+ - Imagination is an almost divine faculty which, without recourse to any philosophical method, immediately perceives everything: the secret and intimate connections between things, correspondences and analogies.
+ - Torture, as the art of discovering the truth, is barbaric nonsense; it is the application of a material means to a spiritual end.
+ - I throw fresh seeds out. Who knows what survives?
+ - The idea which man forms of beauty imprints itself throughout his attire, rumples or stiffens his garments, rounds off or aligns his gestures, and, finally, even subtly penetrates the features of his face.
+ - There is no such thing as a long piece of work, except one that you dare not start.
+ - So as not to feel the horrible burden of time that breaks your back and bends you to the earth, be endlessly drunk.
+ - A friend of mine, the most innocuous dreamer who ever lived, once set a forest on fire to see, as he said, if it would catch as easily as people said. The first ten times the experiment was a failure; but on the eleventh it succeeded all too well.
+ - It is the pleasure of astonishing others, and the proud satisfaction of never being astonished by them.
+ - If the word doesn’t exist, invent it; but first be sure it doesn’t exist.
+ - There are some temptations which are so strong that they must be virtues.
+ - The form of a town changes more swiftly alas! Than the heart of a mortal.
+ - Even in the centuries which appear to us to be the most monstrous and foolish, the immortal appetite for beauty has always found satisfaction.
+ - Genius is no more than childhood recaptured at will, childhood equipped now with man’s physical means to express itself, and with the analytical mind that enables it to bring order into the sum of experience, involuntarily amassed.
+ - There are as many kinds of beauty as there are habitual ways of seeking happiness.
+ - There is no dream of love, however ideal it may be, which does not end up with a fat, greedy baby hanging from the breast.
+ - Everything that gives pleasure has its reason. To scorn the mobs of those who go astray is not the means to bring them around.
+ - In putting off what one has to do, one runs the risk of never being able to do it.
+ - However incoherent a human existence may be, human unity is not bothered by it.
+ - A book is a garden, a party, a company by the way...
+ - The immense profundity of thought in vulgar locutions, like holes dug by generations of ants.
+ - All good and genuine draftsmen draw according to the picture inscribed in their minds, and not according to nature.
+ - I love Wagner, but the music I prefer is that of a cat hung up by its tail outside a window and trying to stick to the panes of glass with its claws.
+ - France is not poetic; she even feels, in fact, a congenital horror of poetry. Among the writers who use verse, those whom she will always prefer are the most prosaic.
+ - The habit of doing one’s duty drives away fear.
+ - For each letter received from a creditor, write fifty lines on an extraterrestrial subject and you will be saved.
+ - No task is a long one but the task on which one dare not start. It becomes a nightmare.
+ - L’imagination est la reine du vrai, et le possible est une des provinces du vrai. Imagination is the queen of the truth and the possible is one of the provinces of the truth.
+ - Two fundamental literary qualities: supernaturalism and irony.
+ - Any newspaper, from the first line to the last, is nothing but a web of horrors, I cannot understand how an innocent hand can touch a newspaper without convulsing in disgust.
+ - The man who says his evening prayer is a captain posting his sentinels. He can sleep.
+ - Nature is a word, an allegory, a mold, an embossing, if you will.
+ - Everything considered, work is less boring than amusing oneself.
+ - What I say is that the supreme and singular joy of making love resides in the certainty of doing evil.
+ - It is from the womb of art that criticism was born.
+ - It would be difficult for me not to conclude that the most perfect type of masculine beauty is Satan, as portrayed by Milton.
+ - There is a certain cowardice, a certain weakness, rather, among respectable folk. Only brigands are convinced-of what? That they must succeed. And so they do succeed.
+ - To be just, that is to say, to justify its existence, criticism should be partial, passionate and political, that is to say, written from an exclusive point of view, but a point of view that opens up the widest horizons.
+ - In certain almost supernatural states of the soul, the profundity of life reveals itself entirely in the spectacle, however ordinary it may be, before one’s eyes. It becomes its symbol.
+ - Both ardent lovers and austere scholars, when once they come to the years of discretion, love cats, so strong and gentle, the pride of the household, who like them are sensitive to the cold, and sedentary.
+ - The study of beauty is a duel in which the artist cries with terror before being defeated.
+ - Man loves man so much that when he flees the city, it is still to seek the crowd, that is, to rebuild the city in the country.
+ - An artist is only an artist on condition that he neglects no aspect of his dual nature. This dualism is the power of being oneself and someone else at one and the same time.
+ - It is unfortunately very true that, without leisure and money, love can be no more than an orgy of the common man. Instead of being a sudden impulse full of ardor and reverie, it becomes a distastefully utilitarian affair.
+ - The poet enjoys the incomparable privilege of being able to be himself and others, as he wishes.
+ - Blessed art Thou, Lord, who giveth suffering As a divine remedy for our impurities.
+ - As a remedy against all ills – poverty, sickness, and melancholy – only one thing is absolutely necessary: a liking for work.
+ - I watch the springs, the summers, the autumns; And when comes the winter snow monotonous, I shut all the doors and shutters To build in the night my fairy palace.
+ - It is good sometimes that the happy of this world should learn, were it only to humble their foolish pride for an instant, that there are higher, wider, and rarer joys than theirs.
+ - Nations, like families, have great men only in spite of themselves.
+ - Alas! Man’s vices, horrible as they are supposed to be, contain the positive proof of his taste for the infinite.
+ - When a singer puts his hand on his heart, it means usually, I will always love you!
+ - It is at despair at not being able to be noble and beautiful by natural means that we have made up our faces so strangely.
+ - In philosophical inquiry, the human spirit, imitating the movement of the stars, must follow a curve which brings it back to its point of departure. To conclude is to close a circle.
+ - To be a great man and a saint for oneself, that is the only important thing.
+ - The People adore authority.
+ - It would perhaps be nice to be alternately the victim and the executioner.
+ - Where one should see only what is beautiful, our public looks only for what is true.
+ - In my mind it strolls, as well as in my apartment. A cat, strong, sweet and delightful...
+ - Anybody, providing he knows how to be amusing, has the right to talk about himself.
+ - Nearly all our originality comes from the stamp that time impresses upon our sensibility.
+ - Pure draughtsmen are philosophers and dialecticians. Colourists are epic poets.
+ - An artist is an artist only because of his exquisite sense of beauty, a sense which shows him intoxicating pleasures, but which at the same time implies and contains an equally exquisite sense of all deformities and all disproportion.
+ - The pleasure we derive from the representation of the present is due, not only to the beauty it can be clothed in, but also to its essential quality of being the present.
+ - The priest is an immense being because he makes the crowd believe astonishing things.
+ - In order for the artist to have a world to express he must first be situated in this world, oppressed or oppressing, resigned or rebellious, a man among men.
+ - It is one of the prodigious privileges of art that the horrific, artistically expressed, becomes beauty, and that sorrow, given rhythm and cadence, fills the spirit with a calm joy.
+ - The immense appetite we have for biography comes from a deep-seated sense of equality.
+ - In art, there is one thing which does not receive sufficient attention. The element which is left to the human will is not nearly so large as people think.
+ - A frenzied passion for art is a canker that devours everything else.
+ - Who would dare assign to art the sterile function of imitating nature?
+ - The taste for pleasure attaches us to the present. The concern with our salvation leaves us hanging on the future.
+ - As for techniques and processes, as seen in the works themselves, neither public nor artists will find anything about them here. Those things are learned in the studio and the public is interested only in the results.
+ - We are weighed down, every moment, by the conception and the sensation of Time. And there are but two means of escaping and forgetting this nightmare: pleasure and work. Pleasure consumes us. Work strengthens us. Let us choose.
+ - That in all times, mediocrity has dominated, that is indubitable; but that it reigns more than ever, that it is becoming absolutely triumphant and inhibiting, this is what is as true as it is distressing.
+ - If the poet has pursued a moral objective, he has diminished his poetic force.
+ - He possessed the logic of all good intentions and a knowledge of all the tricks of his trade, and yet he never succeeded at anything, because he believed too much in the impossible. Surprising? Why so? He was forever in the act of conceiving it!
+ - The artist is today and has been for many years, despite his absence of merit, simply a spoiled child. So many honors, so much money bestowed on men without souls and without education.
+ - Love is the natural occupation of the man of leisure.
+ - Go then, a starveling girl With no perfume or pearls, Only your nudity O my beauty!
+ - The life of our city is rich in poetic and marvelous subjects. We are enveloped and steeped as though in an atmosphere of the marvelous; but we do not notice it.
+
+268 quotes

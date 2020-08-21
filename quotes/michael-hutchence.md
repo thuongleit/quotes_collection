@@ -1,0 +1,28 @@
+ - I know who I am and what I do.
+ - It’s just as difficult to live in a self-made hell of privacy as it is to live in a self-made hell of publicity.
+ - You know sometimes I just want to curl up on stage and lie there for a while – it’s weird.
+ - There is an integrity to INXS, in the music, that makes it worthwhile.
+ - I know all’s fair in love and war but when you go off and try to be by yourself and it ends up on the front page of the press it’s frightening, knowing your life is under such scrutiny.
+ - But then, you know, I’m very happy, I’ve got to this stage in my life and I’m not dead. I haven’t got married and divorced and done all that palimony business, you know all that mess.
+ - INXS never had that groupie thing. No, no we really never did. Not in a sexual way – well, alright, then, maybe years ago. I’ve done a few stupid things in my time, but you’ve got to have respect for yourself, otherwise you end up getting used.
+ - I hate it when people lose it, there’s nothing left because they’re not interesting, they’re boring, I hate it, and especially smack, people on smack are the most boring in the world.
+ - There’s something intrinsically Australian about a bunch of brothers and school friends getting together as a band at a very young age and all pulling together as a band at a very young age and all pulling together as mates to make something happen.
+ - Fame makes me feel wanted and loved, anybody wants that.
+ - I turn over a lot of money for a lot of people and I’m the smallest fish in it.
+ - We played every bar, party, pub, hotel lounge, church hall, mining town – places that made Mad Max territory look like a Japanese garden.
+ - I get pretty terrified, to be honest, when I’m on tour. You really have to muster a lot of ego to go our there, which I find rather draining.
+ - Women are incredible in groups together. Terrifying. Men have nothing on them.
+ - I think there is a certain sensibility to someone you are attracted to and when it rubs off that’s good.
+ - Actually, I find it embarrassing being a pop star. I prefer it when people just treat me like anybody else, although occasionally there is a side of me, which is indulgent and I expect certain things because of my position. It’s one of the perks.
+ - I don’t think success arrives and you’re suddenly happy. It’s not like that. If people think that they’ll be very disappointed.
+ - We always thought it strange that nobody was up on that stage playing soul stuff. Maybe people were playing it in their garages, like us, but they always reverted to pure rock when they got on stage.
+ - But we got up there and decided to stick to this mix of power chords and funk and that’s where it really started for us. In having the courage to take that decision. To take a gamble not just with our music but our lives.
+ - It’s so strange how my life’s changed; I know nothing about the people that I touch.
+ - Every actor I know wants to be a pop star.
+ - I still haven’t come to grips with our success.
+ - I look at Jagger and the like and if I see a good attitude I’ll admire it but I wouldn’t copy their style.
+ - I’ve never tried to emulate anyone. I’ve never idolized people, I prefer instead to get off on attitudes.
+ - Racism is essentially natural, it’s old fashioned it’s an evolutionary phase that we’re going through. Ultimately it wont exist.
+ - The English press, are so nosy, and the English seem to love that eavesdropping.
+
+26 quotes

@@ -1,0 +1,71 @@
+ - Learning to live is learning to let go.
+ - Tomorrow or the next life – which comes first, we never know.
+ - We may idealize freedom, but when it comes to our habits, we are completely enslaved.
+ - Light must come from inside. You cannot ask the darkness to leave; you must turn on the light.
+ - Meditation is bringing the mind home.
+ - Samsara is the mind turned outwardly, lost in its projections. Nirvana is the mind turned inwardly, recognizing its true nature.
+ - The key to finding a happy balance in modern life is simplicity.
+ - The gift of learning to meditate is the greatest gift you can give yourself in this lifetime.
+ - Our problems, all come from nothing; they are all based on a misunderstanding that does not even exist.
+ - Death is like a mirror in which the true meaning of life is reflected.
+ - The whole of meditation practice can be essentialized into these 3 crucial points: Bring your mind home. Release. And relax!
+ - Sitting like a mountain let your mind rise and fly and soar.
+ - There is no armor like perseverance.
+ - Our buddha nature is as good as any buddha’s buddha nature.
+ - We must never forget that it is through our actions, words, and thoughts that we have a choice.
+ - Although we have been made to believe that if we let go we will end up with nothing, life reveals just the opposite: that letting go is the real path to freedom.
+ - When you realize the nature of mind, layers of confusion peel away. You don’t actually “become” a buddha, you simply cease, slowly, to be deluded. And being a buddha is not being some omnipotent spiritual superman, but becoming at last a true human being.
+ - Living with the immediacy of death helps you sort out your priorities in life. It helps you to live a less trivial life.
+ - What is born will die, What has been gathered will be dispersed, What has been accumulated will be exhausted, What has been built up will collapse, And what has been high will be brought low.
+ - If the mind is not contrived, it is spontaneously blissful, just as water, when not agitated, is by nature transparent and clear.
+ - Just as the ocean has waves or the sun has rays, so the minds’s own radiance is its thoughts and emotions.
+ - When we finally know we are dying, and all other sentient beings are dying with us, we start to have a burning, almost heartbreaking sense of the fragility and preciousness of each moment and each being, and from this can grow a deep, clear, limitless compassion for all beings.
+ - Above all, be at ease, be as natural and spacious as possible. Slip quietly out of the noose of your habitual anxious self, release all grasping, and relax into your true nature.
+ - The future is very much in our hands – in our actions.
+ - The most essential thing in life is to establish an unafraid, heartfelt communication with others.
+ - In this complex world, the best way to survive is to be genuine.
+ - I can’t say it strongly enough; to integrate meditation in action is the whole ground and point and purpose of meditation.
+ - Just because we go through a difficult situation, it doesn’t mean that the future is predetermined. The future is very much in our hands, in our actions.
+ - The definition of mantra is “that which protects the mind.” That which protects the mind from negativity, or that which protects you from your own mind, is called mantra.
+ - Let the sky outside awake a sky inside your mind.
+ - Just as if you put your finger into water, it will get wet, and if you put it into fire, it will burn, so if you invest your mind in the wisdom mind of the Buddhas, it will transform into their wisdom nature.
+ - What we have to learn, in both meditation and in life, is to be free of attachment to the good experiences, and free of aversion to the negative ones.
+ - The absolute truth cannot be realized within the domain of the ordinary mind, and the path beyond the ordinary mind is the path of the heart.
+ - In the Buddhist approach, life and death are seen as one whole, where death is the beginning of another chapter of life. Death is the mirror in which the entire meaning of life is reflected.
+ - There is only one way of attaining liberation and of obtaining the omniscience of enlightenment: following an authentic spiritual master.
+ - Our task is to strike a balance, to find a middle way, to learn not to overextend ourselves with extraneous activities and preoccupations, but to simplify our lives more and more. The key to finding a happy balance in modern life is simplicity.
+ - The act of meditation is being spacious.
+ - True spirituality is to be aware that if we are interdependent with everything and everyone else, even our smallest, least significant thought, word and action have real consequences throughout the universe.
+ - It is compassion, then, that is the best protection; it is also, as the great masters of the past have always known, the source of all healing.
+ - Speak or act with a pure mind and happiness will follow.
+ - Even though the meditator may leave the meditation, the meditation will not leave the meditator.
+ - Once an old woman came to Buddha and asked him how to meditate. He told her to remain aware of every movement of her hands as she drew the water from the well, knowing that if she did, she would soon find herself in that state of alert and spacious calm that is meditation.
+ - What should we “do” with the mind in meditation? Nothing. Just leave it, simply, as it is.
+ - Real devotion is an unbroken receptivity to the truth. Real devotion is rooted in an awed and reverent gratitude, but one that is lucid, grounded, and intelligent.
+ - Two people have been living in you all your life. One is the ego, garrulous, demanding, hysterical, calculating – the other is the hidden spiritual being, whose still voice of wisdom you have only rarely heard or attended to – you have uncovered in yourself your own wise guide.
+ - Western laziness consists of cramming our lives with compulsive activity, so that there is no time at all to confront the real issues.
+ - Saints and mystics throughout history have adorned their realisations with different names and given them different faces and interpretations, but what they are all fundamentally experiencing is the essential nature of the mind.
+ - The purpose of meditation is to awaken in us the sky-like nature of mind, and to introduce us to that which we really are, our unchanging pure awareness, which underlies the whole of life and death.
+ - Theories are like patches on a coat, one day they just wear off.
+ - Why exactly are we so frightened of death that we avoid looking at it altogether? Somewhere, deep down, we know we cannot avoid facing death forever. We know, in Milarepa’s words: “This thing called ‘corpse’ we dread so much is living with us here and now.”
+ - Whatever we have done with our lives makes us what we are when we die. And everything, absolutely everything, counts.
+ - That goodness is what survives death, a fundamental goodness that is in each and every one of us. The whole of our life is a teaching of how to uncover that strong goodness, and a training toward realizing it.
+ - The masters say if you create an auspicious condition in your body and your environment then meditation and realization will automatically arise.
+ - Our lives are lived in intense and anxious struggle, in a swirl of speed and aggression, in competing, grasping, possessing and achieving, forever burdening ourselves with extraneous activities and preoccupations.
+ - Generally we waste our lives, distracted from our true selves, in endless activity. Meditation is the way to bring us back to ourselves, where we can really experience and taste our full being.
+ - More important than finding the teacher is finding and following the truth of the teaching...
+ - Let your heart go out in spontaneous and immeasurable compassion.
+ - Don’t you notice that there are particular moments when you are naturally inspired to introspection? Work with them gently, for these are the moments when you can go through a powerful experience, and your whole worldview can change quickly.
+ - Everything can be used as an invitation to meditation.
+ - What the world needs more than anything are Bodhisattvas of peace, lawyers, politicians, teachers working tirelessly for the enlightenment of themselves and others.
+ - Why, if we are as pragmatic as we claim, don’t we begin to ask ourselves seriously: Where does our real future lie?
+ - The spiritual journey is one of continuous learning and purification. When you know this, you become humble.
+ - Real devotion is an unbroken receptivity to the truth.
+ - This dying forces you to look into yourself. And in this, compassion is the only way. Love is the only way.
+ - And when you talk about realization, accomplishment for that matter enlightenment is that when you realize the fundamental essence of your mind.
+ - This world can seem marvellously convincing until death collapses the illusion and evicts us from our hiding place. What will happen to us then if we have no clue of any deeper reality?
+ - Yet is our deepest desire is truly to live and go on living, why do we blindly insist that death is the end? Why not at least try and explore the possibility that there may be a life after?
+ - Thich Nhat Hanh writes with the voice of the Buddha.
+ - When I came to the West, I realized there was much hunger for spiritual teachings, but no environment for spirituality.
+
+69 quotes

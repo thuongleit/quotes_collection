@@ -1,0 +1,52 @@
+ - Knowledge comes from learning. Wisdom comes from living.
+ - Finding an old friend is like finding a lost treasure.
+ - Earth was created for all of us, not some of us.
+ - We are here to heal, not harm. We are here to love, not hate. We are here to create, not destroy.
+ - Life is the best teacher.
+ - Each and every animal on earth has as much right to be here as you and me.
+ - Love is the secret password to every soul.
+ - Love has the power to change everything.
+ - What you can become depends upon what you can overcome.
+ - A kind heart speaks kind words.
+ - Spirituality does not come from religion. It comes from our soul.
+ - If we seek a positive outcome, we must begin with a positive attitude.
+ - Do one act of kindness each day of the year and change 365 lives.
+ - No other animal on earth has portrayed such a disregard for life than mankind.
+ - When humanity measures wealth by love, truth and wisdom we will all be rich.
+ - Love is the language all animals understand.
+ - Shine your light on love and truth and your soul will glow.
+ - Show your love wherever you go, and enjoy love’s blossoms whenever you return.
+ - There are places on earth where we can catch a glimpse of heaven.
+ - We have more to learn from animals than animals have to learn from us.
+ - Truth seeks light, lies seek shadows.
+ - Like the sun, we are attracted to people who shine with warmth and brightness.
+ - Spending time with children is more important than spending money on children.
+ - The miracle of life is enough for me to believe in miracles.
+ - Travel the road of love and you will never be lost.
+ - Life is not about giving up or giving in. Life is about giving.
+ - When humans act with cruelty we characterize them as “animals”, yet the only animal that displays cruelty is humanity.
+ - Mankind can only disappoint mother nature for so long.
+ - There are millions of animal species but, man is the only animal capable of destroying them all.
+ - We search for life on others planets and in other regions of our galaxy. Meanwhile we destroy and ignore the other life on this planet.
+ - Not a single creature on earth has more or less right to be here.
+ - The determination and conviction to succeed can only come from within.
+ - Our words reveal our heart, our actions reveal our soul.
+ - Hidden paths can’t be walked without moving obstacles.
+ - Creating new paths requires moving old obstacles.
+ - Our purpose is simple...
+ - Those that will always help a friend, will always have a friend.
+ - If a thought or an action does not feel right, it is a caution flag from the soul.
+ - The more time we spend with Mother nature the more we fall in love with her.
+ - It’s not whether animals will survive, it’s whether man has the will to save them.
+ - Kindness and love open the doors to one’s soul.
+ - The majesty of creation forms my faith in the Creator.
+ - Animals and humans come in many different sizes and colors, but we all have the same loving heart and soul.
+ - All animals are born with innocence, curiosity and love.
+ - Treat other animals as friends and they become friends. Treat other animals as family and they become family. Give other animals your love and they will love you in return.
+ - There are no limits to the amount of love and wisdom one can take to heaven.
+ - When I observe other animals, I understand their behavior. I can’t say the same for mankind.
+ - My friends come from many species.
+ - What would you think if all your thoughts reached heaven?
+ - With each person our heart loves, our soul becomes stronger.
+
+50 quotes

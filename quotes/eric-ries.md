@@ -1,0 +1,68 @@
+ - The only way to win is to learn faster than anyone else.
+ - If you cannot fail, you cannot learn.
+ - Lean thinking defines value as providing benefit to the customer; anything else is waste.
+ - A pivot is a change in strategy without a change in vision.
+ - We must learn what customers really want, not what they say they want or what we think they should want.
+ - A startup is a human institution designed to deliver a new product or service under conditions of extreme uncertainty.
+ - As you consider building your own minimum viable product, let this simple rule suffice: remove any feature, process, or effort that does not contribute directly to the learning you seek.
+ - Innovation is a bottoms-up, decentralized, and unpredictable thing, but that doesn’t mean it cannot be managed.
+ - Using the Lean Startup approach, companies can create order not chaos by providing tools to test a vision continuously.
+ - Reading is good, action is better.
+ - The lean startup method is not about cost, it is about speed.
+ - A solid process lays the foundation for a healthy culture, one where ideas are evaluated by merit and not by job title.
+ - Meritocracy is a good thing. Whenever possibly, people should be judged based on their work and results, not superficial qualities.
+ - In the old economy, it was all about having the answers. But in today’s dynamic, lean economy, it’s more about asking the right questions. A More Beautiful Question is about figuring out how to ask, and answer, the questions that can lead to new opportunities and growth.
+ - What if we found ourselves building something that nobody wanted? In that case what did it matter if we did it on time and on budget?
+ - If you don’t know who your customer is, you don’t know what quality is.
+ - In a startup, both the problem and solution are unknown.
+ - The lesson of the MVP is that any additional work beyond what was required to start learning is waste, no matter how important it might have seemed at the time.
+ - If the plan is to see what happens, a team is guaranteed to succeed – at seeing what happens – but won’t necessarily gain validated learning – If you cannot fail, you cannot learn.
+ - The way forward is to learn to see every startup in any industry as a grand experiment.
+ - Learning is the essential unit of progress for startups.
+ - Entrepreneurship is not really building a product, it’s not having an idea, it’s not being in the right place at the right time. It’s fundamentally company building.
+ - Customers don’t care how much time something takes to build. They care only if it serves their needs.
+ - As an entrepreneur, I knew that if my company failed, I could always try again. So I often felt that the only real risk of true financial ruin came from the possibility of a serious illness that either exceeded my insurance plans lifetime limits, or was not covered due to rescission.
+ - The only person who can put you out of business, in the early days, is yourself.
+ - The minimum viable product is that version of a new product which allows a team to collect the maximum amount of validated learning about customers with the least effort.
+ - Vanity metrics are the numbers you want to publish on TechCrunch to make your competitors feel bad.
+ - Sustainable growth is characterized by one simple rule: New customers come from the actions of past customers.
+ - Progress in manufacturing is measured by the production of high quality goods. The unit of progress for Lean Startups is validated learning-a rigorous method for demonstrating progress when one is embedded in the soil of extreme uncertainty.
+ - Every startup has a chance to change the world, by bringing not just a new product, but an entirely new institution into existence.
+ - All innovation begins with vision. It’s what happens next that is critical.
+ - This is one of the most important lessons of the scientific method: if you cannot fail, you cannot learn.
+ - Zero invites imagination, but small numbers invite questions about whether large numbers will ever materialize.
+ - Better to have bad news that’s true than good news we made up.
+ - Start-up success is not a consequence of good genes or being in the right place at the right time. Success can be engineered by following the right process, which means it can be learned, which means it can be taught.
+ - The Lean Startup has evolved into a movement that is having a significant impact on how companies are built, funded and scaled.
+ - If we stopped wasting people’s time, what would they do with it?
+ - It doesn’t matter if you call it a boom or a bubble. The startup business moves in cycles, and what goes up will eventually come down.
+ - What differentiates the success stories from the failures is that the successful entrepreneurs had the foresight, the ability, and the tools to discover which parts of their plans were working brilliantly and which were misguided, and adapt their strategies accordingly.
+ - A head start is rarely large enough to matter, and time spent in stealth mode-away from customers-is unlikely to provide a head start. The only way to win is to learn faster than anyone else.
+ - When Steve Jobs and Steve Wozniak created Apple computer in a garage in Palo Alto, it heralded the beginning of the PC revolution that ultimately dealt a death-blow to dozens of older companies.
+ - At IMVU, the cost of customer acquisition through our five-dollar-a-day AdWords campaign was less than twenty-five cents. Our revenue from those same customers was more than a dollar.
+ - Don’t be in a rush to get big. Be in a rush to have a great product.
+ - Leadership requires creating conditions that enable employees to do the kinds of experimentation that entrepreneurship requires.
+ - We need to reengineer companies to focus on figuring out who the customer is, what’s the market and what kind of product you should build.
+ - The hardest part is the grueling work of constantly being wrong.
+ - The biggest start-up successes – from Henry Ford to Bill Gates to Mark Zuckerberg – were pioneered by people from solidly middle-class backgrounds. These founders were not wealthy when they began. They were hungry for success, but knew they had a solid support system to fall back on if they failed.
+ - The grim reality is that most start-ups fail. Most new products are not successful. Yet the story of perseverance, creative genius, and hard work persists.
+ - When blame inevitably arises, the most senior people in the room should repeat this mantra: if a mistake happens, shame on us for making it so easy to make that mistake.
+ - Start-ups make so many mistakes that the challenge to identify the root cause of a failure is tough. But believing in your own plan is probably the worst.
+ - The big question of our time is not Can it be built? but Should it be built? This places us in an unusual historical moment: our future prosperity depends on the quality of our collective imaginations.
+ - Entrepreneurs can’t forecast accurately, because they are trying something fundamentally new. So they will often be laughably behind plan – and on the brink of success.
+ - Our educational system is not preparing people for the 21st Century. Failure is an essential part of entrepreneurship. If you work hard, you can get an ‘A’ pretty much guaranteed, but in entrepreneurship, that’s not how it works.
+ - You know how people always talk about how vision is the key to entrepreneurship and perseverance and really seeing what other people don’t see? We can actually redeem a fair amount of that folk wisdom.
+ - Most phenomenal startup teams create businesses that ultimately fail. Why? They built something that nobody wanted.
+ - Entrepreneurs always pitch their idea as ‘the X of Y,’ so this is going to be ‘the Microsoft of food.’ And yet disruptive innovations usually don’t have that character. Most of the time, if something seems like a good idea, it probably isn’t.
+ - If you can’t out iterate someone who is trying to copy you, you’re toast anyway.
+ - By the time that product is ready to be distributed widely, it will already have established customers.
+ - The United States is locked in a new arms race for that most precious resource – the future entrepreneurs upon whom economic growth depends. Substantial research shows that immigrants play a key role in American job creation.
+ - The goal of every startup experiment is to discover how to build a sustainable business around that vision.
+ - Most start-up companies fail and it is smart public policy to help entrepreneurs increase their odds of succeeding. But, the biggest loss to our economy is not all the start-ups that didn’t make it: It’s the ones that might have been created but weren’t.
+ - Except in very narrow cases, where there’s breakthrough science that needs patent production, worrying about competitors is a waste of time. If you can’t out iterate someone who is trying to copy you, you’re toast anyway.
+ - Most companies are busy making their products worse, not better. Updating is almost always a disaster.
+ - At IMVU, we opened up our board meetings to the whole company.
+ - I believe for the first time in history, entrepreneurship is now a viable career.
+ - Because startups often accidentally build something nobody wants, it doesn’t matter much if they do it on time and on budget. The goal of a startup is to figure out the right thing to build – the thing customers want and will pay for – as quickly as possible.
+
+66 quotes

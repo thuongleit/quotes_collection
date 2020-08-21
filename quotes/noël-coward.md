@@ -1,0 +1,107 @@
+ - Work is much more fun than fun.
+ - Work hard, do the best you can, don’t ever lose faith in yourself and take no notice of what other people say about you.
+ - Christmas is at our throats again.
+ - The higher the building the lower the morals.
+ - It’s discouraging to think how many people are shocked by honesty and how few by deceit.
+ - A perfect martini should be made by filling a glass with gin then waving it in the general direction of Italy.
+ - I have a memory like an elephant. In fact, elephants often consult me.
+ - If you must have motivation, think of your paycheck on Friday.
+ - I’m not a heavy drinker, I can sometimes go for hours without touching a drop.
+ - You kissed me because you were awfully nice and I was awfully nice and we both liked kissing very much. It was inevitable.
+ - But why, oh why, do the wrong people travel, when the right people stay at home?
+ - It’s never too early for a cocktail.
+ - I never cared who scored the goal, or which side won the silver cup. I never learned to bat or bowl; but I heard the curtain going up.
+ - At twelve noon, The natives swoon And no further work is doneBut mad dogs and Englishmen, Go out in the midday sun.
+ - How was your flight? Well, aeronautically it was a great success. Socially, it left quite a bit to be desired.
+ - Wit ought to be a glorious treat like caviar; never spread it about like marmalade.
+ - Familiarity breeds contempt, but without a little familiarity it’s impossible to breed anything.
+ - Good heavens, television is something you appear on; you don’t watch.
+ - Marriage is the aftermath of love.
+ - Thousands of people have talent. I might as well congratulate you for having eyes in your head. The one and only thing that counts is: Do you have staying power?
+ - Conceit is an outward manifestation of inferiority.
+ - Grab it while you can – grab every scrap of happiness while you can.
+ - Las Vegas: It was not cafe society, it was Nescafe society.
+ - I want a horse and plough, Chickens too, Just one cow, With a wistful moo.
+ - I’ll go and see anything so long as it amuses me, or moves me. If it doesn’t do either I want to go home.
+ - Star quality: I don’t know what it is, but I’ve got it.
+ - Bed is the perfect climate.
+ - I’m an enormously talented man, and there’s no use pretending that I’m not...
+ - He’s completely unspoiled by failure.
+ - Criticism and Bolshevism have one thing in common. They both seek to pull down that which they could never build.
+ - The pleasures that once were heaven look silly at sixty-seven.
+ - What I adore is supreme professionalism. I’m bored by writers who can write only when it’s raining.
+ - As one gets older, one discovers everything is going to be exactly the same with different hats on.
+ - Goodnight my darlings, I’ll see you tomorrow.
+ - For gin, in cruel sober truth, supplies the fuel for flaming youth.
+ - Fifty-four years of love and tenderness and crossness and devotion and unswerving loyalty. Without her I could have achieved a quarter of what I have achieved, not only in terms of success and career, but in terms of personal happiness.
+ - There isn’t a particle of you that I don’t know, remember, and want.
+ - Never trust a man with short legs. His brains are too near his bottom.
+ - Why do I drink Champagne for breakfast? Doesn’t everyone?
+ - Mad dogs and Englishmen go out in the mid-day sun.
+ - It’s like this, dear boy, the one in front is blind and the kind one behind is pushing him.
+ - There are dark times just around the corner. There are dark clouds travelling through the sky. And it’s no good whining about a silver lining. For we know from experience they won’t roll by.
+ - Many years ago I remember a famous actress explaining to me with perfect seriousness that before making an entrance she always stood aside to allow God to go on first. I can also remember that on that particular occasion He gave a singularly uninspired performance.
+ - Just say the lines and don’t trip over the furniture.
+ - Your motivation is your pay packet on Friday. Now get on with it.
+ - Having to read footnotes resembles having to go downstairs to answer the door while in the midst of making love.
+ - Madame Bovary is the sexiest book imaginable. The woman’s virtually a nyphomaniac but you won’t find a vulgar word in the entire thing.
+ - AMANDA: I think very few people are completely normal really, deep down in their private lives.
+ - I don’t believe in astrology. The only stars I can blame for my failures are those that walk about the stage.
+ - Hollywood is a place where some people lie on the beach and look up at the stars, whereas other people lie on the stars and look down at the beach.
+ - I love criticism just so long as it’s unqualified praise.
+ - How about slipping out of those wet things and into a dry Martini?
+ - I’ll go through life either first class or third, but never in second.
+ - The theatre should be treated with respect. The theatre is a wonderful place, a house of strange enchantment, a temple of illusion. What it most emphatically is not and never will be is a scruffy, ill-lit, fumed-oak drill hall serving as a temporary soap box for political propaganda.
+ - Let’s drink to the spirit of gallantry and courage that made a strange Heaven out of unbelievable Hell, and let’s drink to the hope that one day this country of ours, which we love so much, will find dignity and greatness and peace again.
+ - Sunburn is very becoming – but only when it is even – one must be careful not to look like a mixed grill.
+ - Labour leaders lead us all, though we know they bleed us all. Cheer our new Decline and Fall, Gibbon might have dreamed it all.
+ - A bloody good thing, but too late.
+ - It is not the eyes of others that I am wary of, but my own.
+ - You ask my advice about acting? Speak clearly, don’t bump into the furniture and if you must have motivation, think of your pay packet on Friday.
+ - I don’t much care for Hollywood, I’d rather have a nice cup of cocoa.
+ - Exercise is the most awful illusion. The secret is a lot of aspirin and marrons glaces.
+ - The Stately Homes of England, How beautiful they stand, To prove the Upper Classes, Have still the Upper Hand.
+ - Wit is like caviar – it should be served in small portions and not spread about like marmalade.
+ - Christopher Marlowe or Francis Bacon The author of Lear remains unshaken Willie Herbert or Mary Fitton What does it matter? The Sonnets were written.
+ - I see her as one great stampede of lips directed at the nearest derriere.
+ - I don’t think pornography is harmful, but it is terribly, terribly boring.
+ - Everybody worships me, it’s nauseating.
+ - To know you are among people whom you love, and who love you – that has made all the successes wonderful, much more wonderful than they’d have been anyway.
+ - It’s no good pacing up and down. It won’t make the plane arrive any faster. Just sit down and accept that we’re delayed. You’re just making a fool of yourself.
+ - I do not intend to let myself down more than I can possibly help, and I find that the fewer illusions I have about myself or the world around me, the better company I am for myself.
+ - She had much in common with Hitler, only no mustache.
+ - Trust your instincts. If you have no instincts, trust your impulses.
+ - There’s always something fishy about the French.
+ - That strange feeling we had in the war. Have you found anything in your lives since to equal it in strength? A sort of splendid carelessness it was, holding us together.
+ - I like long walks, especialy when they are taken by people who annoy me.
+ - We have no reliable guarantee that the afterlife will be any less exasperating than this one, have we?
+ - People are wrong when they say opera is not what it used to be. It is what it used to be. That is what’s wrong with it.
+ - Comedies of manners swiftly become obsolete when there are no longer any manners.
+ - Wouldn’t it be dreadful to live in a country where they didn’t have tea?
+ - He must have been an incredibly good shot.
+ - How foolish to think that one can ever slam the door in the face of age. Much wiser to be polite and gracious and ask him to lunch in advance.
+ - Mad dogs and Englishmen go out in the mid-day sun; The Japanese don’t care to, the Chinese wouldn’t dare to; Hindus and Argentines sleep firmly from twelve to one, But Englishmen detest a siesta.
+ - Squash – that’s not exercise, it’s flagellation.
+ - Television is for appearing on, not looking at.
+ - Passion in a dromedary doesn’t go so deep; a camel when it’s mating never sobs itself to sleep.
+ - I’m over-educated in the things I shouldn’t have known at all.
+ - Extraordinary how potent cheap music is.
+ - My life really has been one long extravaganza.
+ - To take a gloomy view of life is not part of my philosophy; to laugh at the idiocies of my fellow creatures is. However, at this particular moment I cannot find so much to laugh at as I would like.
+ - Consider the public. Never fear it nor despise it. Coax it, charm it, interest it, stimulate it, shock it now and then if you must, make it laugh, make it cry, but above all never, never, never bore the living hell out of it.
+ - Never mind, dear, we’re all made the same, though some more than others.
+ - Someday I suspect, when Jesus has definitely got me for a sunbeam, my works may be adequately assessed.
+ - I also avoid green vegetables. They’re grossly overrated.
+ - If by any chance a playwright wishes to express a political opinion or a moral opinion or a philosophy, he must be a good enough craftsman to do it with so much spice of entertainment in it that the public get the message without being aware of it.
+ - Though the fact that they have to be rebuilt And frequently mortgaged to the hilt Is inclined to take the gilt Off the gingerbread, And certainly damps the fun Of the eldest son.
+ - I write at high speed because boredom is bad for my health.
+ - She stopped the show – but then the show wasn’t traveling very fast.
+ - You will know you’re old when you cease to be amazed.
+ - My body has certainly wandered a good deal, but I have an uneasy suspicion that my mind has not wandered enough.
+ - Everybody was up to something, especially, of course, those who were up to nothing.
+ - I have always paid income tax. I object only when it reaches a stage when I am threatened with having nothing left for my old age – which is due to start next Tuesday or Wednesday.
+ - You always ought to have tom cats arranged, you know – it makes ’em more companionable.
+ - I can’t sing, but I know how to, which is quite different.
+ - I’ve sometimes thought of marrying – and then I’ve thought again.
+
+105 quotes

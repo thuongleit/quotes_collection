@@ -1,0 +1,59 @@
+ - If you have not chosen the Kingdom of God first, it will in the end make no difference what you have chosen instead.
+ - God smiles when we praise and thank Him continually. Few things feel better than receiving heartfelt praise and appreciation from someone else. God loves it, too. An amazing thing happens when we offer praise and thanksgiving to God. When we give God enjoyment, our own hearts are filled with joy.
+ - The greatest saint in the world is not he who prays most or fasts most; it is not he who gives alms, or is most eminent for temperance, chastity or justice. It is he who is most thankful to God.
+ - Now if you will stop here and ask yourself why you are not as pious as the primitive Christians were, your own heart will tell you that it is neither through ignorance nor inability, but purely because you never thoroughly intended it.
+ - We must alter our lives in order to alter our hearts, for it is impossible to live one way and pray another.
+ - Be intent upon the perfection of the present day.
+ - The sun meets not the springing bud that stretches towards him with half the certainty that God, the source of all good, communicates himself to the soul that longs to partake of him.
+ - This, and this alone, is Christianity, a universal holiness in every part of life, a heavenly wisdom in all our actions, not conforming to the spirit and temper of the world but turning all worldly enjoyments into means of piety and devotion to God.
+ - If anyone would tell you the shortest, surest way to all happiness and all perfection, he must tell you to make a rule to yourself to thank and praise God for everything that happens to you.
+ - Love has no errors, for all errors are the want for love.
+ - If someone is leaving you behind, and you are becoming jealous and embittered, keep praying that he may have success in the very matter where he is awakening your envy; and whether he is helped or not, one thing is sure, that your own soul will be cleansed and ennobled.
+ - Divine love is perfect peace and joy, it is a freedom from all disquiet, it is all content and happiness; and makes everything to rejoice in itself.
+ - He who has learned to pray has learned the greatest secret of a holy and happy life.
+ - When therefore the first spark of a desire after God arises in thy soul, cherish it with all thy care, give all thy heart into it; it is nothing less than a touch of the divine loadstone, that is to draw thee out of the vanity of time, into the riches of eternity.
+ - Nothing harms or destroys us but the wrong use of that liberty of choice which God has entrusted to us.
+ - All our salvation consists in the manifestation of the nature, life and spirit of Jesus Christ in our inward new man. This alone is Christian redemption, this alone delivers from the guilt and power of sin, this alone redeems and renews.
+ - If you attempt to talk with a dying man about sports or business, he is no longer interested. He now sees other things as more important. People who are dying recognize what we often forget, that we are standing on the brink of another world.
+ - All that is sweet, delightful, and amiable in this world, in the serenity of the air, the fineness of seasons, the joy of light, the melody of sounds, the beauty of colors, the fragrancy of smells, the splendor of precious stones, is nothing else but Heaven breaking through the veil of this world.
+ - If our life is not a course of humility, self-denial, renunciation of the world, poverty of spirit, and heavenly affection, we do not live the lives of Christians.
+ - Receive every day as a resurrection from death, as a new enjoyment of life.
+ - He who complains of the weather, complains of the God who ordained the weather!
+ - We may justly condemn ourselves as the greatest sinners we know because we know more of the folly of our own heart than we do of other people’s.
+ - As all types and figures in the Law were but empty shadows without the coming of Christ, so the New Testament is but a dead letter without the Holy Spirit in redeemed men as the living power of a full salvation.
+ - Ask what Time is, it is nothing else but something of eternal duration become finite, measurable and transitory.
+ - If contempt of the world and heavenly affection is a necessary temper of christians, it is necessary that this temper appear in the whole course of their lives, in their manner of using the world, because it can have no place anywhere else.
+ - Joseph has lately endeavored to seduce my wife, and has found her a virtuous woman.
+ - Until we are renewed in the spirit of our mind and illumined in every part, our very virtues are but taught practices grafted upon a corrupt bottom.
+ - You are to think of yourself as only existing in this world to do God’s will. To think that you are your own is as absurd as to think you are self-created. It is an obvious first principle that you belong completely to God.
+ - Men are not in hell because God is angry with them. They are in wrath and darkness because they have done to the light, which infinitely flows forth from God, as that man does to the light who puts out his own eyes .
+ - Love and pity and wish well to every soul in the world; dwell in love, and then you dwell in God.
+ - Feasts and business and pleasure and enjoyments seem great things to us, whilst we think of nothing else; but as soon as we add death to them they all sink into an equal littleness.
+ - A revelation is to be received as coming from God, not because of its internal excellence, or because we judge it to be worthy of God; but because God has declared it to be His in as plain and undeniable a manner as He has declared creation and providence to be His.
+ - Wherever thou goest, whatever thou dost at home, or abroad, in the field, or at church, do all in a desire of union with Christ, in imitation of His tempers and inclinations, and look upon all as nothing, but that which exercises, and increases the spirit and life of Christ in thy soul.
+ - No education can be of true advantage to young women but that which trains them up in humble industry, in great plainness of living, in exact modesty of dress.
+ - The merit of persons is to be no rule of our charity, but we are to do acts of kindness to those that least deserve it.
+ - Man needs to be Saved from his own Wisdom as much as from his own Righteousness, for they produce one and the same corruption. Nothing saves a man from his own righteousness, but that which delivers him from his own wisdom.
+ - Perhaps there cannot be a better way of judging of what manner of spirit we are of, than to see whether the actions of our life are such as we may safely commend them to God in our prayers.
+ - Self is the root, the tree, and the branches of all the evils of our fallen state.
+ - If, therefore, a man will so live as to show that he feels and believes the most fundamental doctrines of Christianity, he must live above the world.
+ - Hell is nothing else but nature departed or excluded from the beam of divine light.
+ - Reading is good, hearing is good, conversation and meditation are good; but then, they are only good at times and occasions, in a certain degree, and must be used and governed with such caution as we eat and drink and refresh ourselves, or they will bring forth in us the fruits of intemperance.
+ - The will is that which has all power; it makes heaven and it makes hell: for there is no hell but where the will of the creature is turned from God, nor any heaven but where the will of the creature worketh with God.
+ - The eyes of our souls only then begin to see when our bodily eyes are closing.
+ - He that rightly understands the reasonableness and Excellency of charity will know that it can never be excusable to waste any of our money in pride and folly.
+ - Death is not more certainly a separation of our souls from our bodies than the Christian life is a separation of our souls from worldly tempers, vain indulgences, and unnecessary cares.
+ - The more we pay for any truth, the better is our bargain.
+ - From morning to night keep Jesus in thy heart, long for nothing, desire nothing, hope for nothing but to have all that is within thee changed into the spirit and temper of the holy Jesus.
+ - All people desire what they believe will make them happy. If a person is not full of desire for God, we can only conclude that he is engaged with another happiness.
+ - Perfection does not consist in any singular state or condition of life, or in any particular set of duties, but in holy and religious conduct of ourselves in every state of Life.
+ - Faith is not a notion, but a real strong essential hunger, an attracting or magnetic desire of Christ, which as it proceeds from a seed of the divine nature in us, so it attracts and unites with its like.
+ - What could begin to deny self, if there were not something in man different from self?
+ - What can you conceive more silly and extravagant than to suppose a man racking his brains, and studying night and day how to fly?
+ - Read whatever chapter of scripture you will, and be ever so delighted with it – yet it will leave you as poor, as empty and unchanged as it found you unless it has turned you wholly and solely to the Spirit of God, and brought you into full union with and dependence upon him.
+ - God seeth different abilities and frailties of men, which may move His goodness to be merciful to their different improvements in virtue.
+ - The obedience of men is to imitate the obedience of angels, and rational beings on earth are to live unto God, as rational beings in heaven live unto Him.
+ - Whatever littleness and vanity is to be observed in the minds of women, it is, like the cruelty of butchers, a temper that is wrought into them by that life which they are taught and accustomed to lead.
+ - They, therefore, who are hasty in their devotions and think a little will do, are strangers both to the nature of devotion and the nature of man; they do not know that they are to learn to pray, and that prayer is to be learnt as they learn other things, by frequency, constancy, and perseverance.
+
+57 quotes

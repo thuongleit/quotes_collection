@@ -1,0 +1,64 @@
+ - I’ve often thought the Bible should have a disclaimer in the front saying this is fiction.
+ - Try and understand what part you have to play in the world in which you live. There’s more to life than you know and it’s all happening out there. Discover what part you can play and then go for it.
+ - I love the Broadway audiences, who relish live drama and don’t hesitate to display their enthusiasm.
+ - I think if I were asked to do as many as fifty takes, I would assume the director had no idea what he wanted, and was just hoping, eventually, to see it.
+ - A few years ago, a friend said to me: “You do realize, Ian, when X-Men and Lord of the Rings come out, your life will totally change?” I didn’t know what he was talking about, but he was right. My life has totally changed – but in a good way. Unbeknownst to me, it’s given me a lot more confidence.
+ - I’m not experienced enough, or certain enough of my acting on the screen to say to a director, “You are wrong, I am right. I will only do it this way.” I could never feel that, I wish I could be absolutely certain. But on the stage, it’s different. I know where I am on the stage.
+ - No one needs to feel sorry for me or anyone else who has fallen victim to success.
+ - It is so painful watching yourself act, particularly because you can’t do anything about it, it’s all done and dusted.
+ - I headed out to have a breather at the stage door, dressed in my tramp costume. I had my bowler hat between my feet and there were passers-by, and one of them turned back and said, ‘Do you need help, brother?’ And $1 fell into my hat!
+ - Personally, coming out was one of the most important things I’ve ever done, lifting from my shoulders the millstone of lies that I hadn’t even realized I was carrying.
+ - I have never wanted to be typecast, one of those actors who plays a variation on a one-note theme. So just as I enjoy playing a wide variety of characters, from good to bad to ugly to cute – so I have enjoyed of late working in film and television, as well as in theatres of various sizes and shapes.
+ - If you’ve got Mystique as your girlfriend the fun you could have in bed – I’ve just imagined X-Men 3 might open with me in bed with Patrick Stewart.
+ - Before acting, I wanted to become a journalist. I also toyed with the idea of being a chef – but that’s only when people asked me what I wanted to be. In fact, I always used to say I wanted to be an actor, but I didn’t ever believe that I was good enough to be come one.
+ - Some directors don’t tell you that it’s not your fault, so you get increasingly depressed that you’re not delivering what’s required, and then you discover it’s not you at all, it’s something in the background that’s out of focus.
+ - In the theatre, the actor is in total control. The director wasn’t in the house last night, the designer wasn’t there, the author’s dead. It’s just us and the audience.
+ - I’m cheaper than Anthony Hopkins.
+ - Television can take anything. It can take the most exaggerated of storytelling forms.
+ - The audience’s expectations are ever-present.
+ - Acting is no longer about lying. It’s now about revealing the truth. People are at ease with me now. Honesty is the best policy.
+ - Macbeth is a very popular play with audiences. If you want to sell out a theater, just mount a production of Macbeth. It’s a short play, it’s an exciting play, it’s easy to understand, and it attracts great acting.
+ - To know you are in the company with people who love and care for each other, as well as for whatever they are working on, is almost essential.
+ - Journalists often ask me: “Aren’t you sorry that after all the work you’ve done, you’re best known as Magneto and Gandalf?” But that’s what I’ve always wanted – not to be known as myself. I want to draw attention to the characters.
+ - Ever since the invention of the camera, people have been trying to create 3D, because we see things in 3D, and everyone’s aware that the camera doesn’t.
+ - I tend to discourage people from calling me ‘Sir Ian,’ because I don’t like being separated out from the rest of the population. Of course, it can be useful if you’re writing an official letter, like trying to get a visa or something passed through Parliament. They’re impressed by these things.
+ - When you were on stage, you could be absolutely open about your emotions and indulge them and express yourself in a way that – in real life – I wasn’t doing.
+ - When you’re on stage with an audience, the director’s nowhere to be seen. He’s onto the next job.
+ - I’m a latecomer to popular TV. This is rather new to me, being in a sitcom. It’s been an ambition of mine.
+ - As for the clarity of the 48 frames, I’ve heard people say that it looks odd, it’s too demanding, there’s too much information, you don’t know where to look.
+ - Why live outside the US? Do you want health care or safe food products or democracy or something? They’re all overrated. Stay for the excellent cable TV.
+ - If you’re sounding right, you’re probably walking right, and vice versa. If you get the footwork right – if you get even one line right in a rehearsal, the director will say, ‘do you know when you said that, it was exactly the character. You were really landed on it.’
+ - I often thought my gravestone would say, ‘Here lies Gandalf. He came out,’
+ - There are not many things in my life I can be absolutely proud of or certain I got right, but one of them is that I’ve got better as an actor. I’ve learnt how to do it. And I still have enough energy to do it.
+ - In fact, my face has shrunk in the meantime, but it won’t be particularly noticeable because it’s covered up with hair. So I hope I’m not alarmed if I ever do sit through the five movies.
+ - It is very, very, very difficult for an American actor who wants a film career to be open about his sexuality. And even more difficult for a woman if she’s lesbian. It’s very distressing to me that that should be the case. The film industry is very old fashioned in California.
+ - Most of the time when you do a job, a play or a film, you’re wondering, “Will there be an audience?”
+ - It may be my rather puritanical upbringing at odds with my inborn laziness that makes me feel guilty at the end of the day, unless I am able to point at some achievement. But this need be no more impressive than cooking a meal or going for a long walk.
+ - My memory of 3D movies is Fernando Lamas in a swashbuckling movie. And I suppose it had been the fifties, in which swords came out at you, bullets came out at you, things were thrown into the auditorium, apparently. All that sort of cheap, “Oh, look at us, we’ve got 3D” isn’t in the film.
+ - Actors are merely the medium through which a story happens.
+ - If I was on a march at the moment I would be saying to everyone: Be honest with each other. Admit there are limitless possibilities in relationships, and love as many people as you can in whatever way you want, and get rid of your inhibitions, and we’ll all be happy.
+ - You can always pick out stage actors at the Oscars: they know how to walk.
+ - Elijah looks angelic but his beauty of spirit is what makes his Frodo leap out of the screen. Unalloyed goodness is one of the most difficult attributes to act.
+ - I think I’m a bit gruffer than I used to be, and I’m certainly older.
+ - Kids are coming out earlier and earlier – some, as young as twelve now – and schools need to take that into account.
+ - It’s a joy to be up close to Derek Jacobi’s work. Alas, we haven’t worked very much, over the years, since we were at university together, but I don’t think I’ve missed many of his great shows and performances.
+ - My acting stopped being about disguise and became about truth which suits the camera, so my film career took off when I came out.
+ - My reaction to 3D is subtly. Things don’t come out at you, but rather you – The audience come into the film.
+ - I don’t make much distinction between being a stand-up comic and acting Shakespeare – in fact, unless you’re a good comedian, you’re never going to be able to play Hamlet properly.
+ - The thing you notice here after America is how refreshingly ordinary people look, because they haven’t had their chin wrapped around the back of their ears.
+ - Acting is a very personal process. It has to do with expressing your own personality, and discovering the character you’re playing through your own experience – so we’re all different.
+ - For old actors, just remember that inside you’re only 14. Acting is for kids. You poor old grown-ups, you’ve forgotten how to do what kids know automatically.
+ - I think the point to be understood is that we’re all different. I’ve never been a fan of theories of acting. I didn’t go to drama school, so I was never put through a training that was limited by someone saying, ‘This is the way you should act.’
+ - That was the big effect Lord of the Rings had on me. It was discovering New Zealand. And even more precious were the people- not at all like the Australians.
+ - The performance is created by the director. The actor is the material. And I think that has to be true.
+ - What I particularly like about Broadway is the camaraderie and the friendship of other people in other shows. Everybody knows you’re opening and cares about you. There’s a real village atmosphere.
+ - I’ve played an awful lot of people that other people would call villains, but that isn’t a very helpful attitude to have if you’re about to play them. They are just people, and they may do dreadful things and say dreadful things, but your job as an actor is to know why they do them or say them.
+ - I suspect the base that I’m working from is not particularly one of inquiry, but of memory of what I did last time.
+ - That’s the imagination that happens in the theater. That imagination is translated in film by the film magicians and all the technology.
+ - I am very lucky to be man because women have a terrible time getting older parts. It’s much more difficult.
+ - You would be surprised how many directors don’t know what they want. They might not know what they want until they see it, they might know what they want but no idea how to get it out of the actor, then you’ve both got a problem.
+ - Success in the movies has pushed me to places I didn’t know I was allowed to go.
+ - All other areas of my life, I’m hopeless. I can’t even be certain how to boil an egg.
+ - 2D looks so flat. Well, it is, of course, it’s flat. But 3D isn’t. And for an adventure story that takes you into a long-distant, fictional world, it’s ideal, I think.
+
+62 quotes

@@ -1,0 +1,95 @@
+ - I take care of myself, because I learned early on that I am the only person in life who’s responsible for me.
+ - Don’t take yourself too seriously. Know when to laugh at yourself, and find a way to laugh at obstacles that inevitably present themselves.
+ - When you have short hair, there’s just a feeling of here I am. What you see is what you get. And there’s a confidence that comes with wearing short hair and I like the way that makes me feel.
+ - I know that there is a God – the God within me that’s always present and will protect me. I’m not afraid to climb any mountain, because I know that I’m protected. Even if I fall and die, I’m still protected. My faith is on that level.
+ - In Monster’s Ball I went nude, which was scary, but I took the chance and that’s how I like to approach my career.
+ - I can’t imagine my life without animals. I have two dogs and three cats. Coming home and finding them all lined up at the door waiting for me has got to be one of the sweetest joys of my life.
+ - Sexiness is a state of mind – a comfortable state of being. It’s about loving yourself in your most unlovable moments.
+ - Any time you risk big you often risk losing big. You can win big but you can also lose big, but you have to be willing to take those risks.
+ - I’m just going to live my life and be who I am.
+ - I would say a magical thing happened on when the big 40th birthday came. I felt like a light kind of just went off, and maybe that’s because I felt like at 40 I had the right to say and be who I wanted to be, say what I wanted to say, and accept what I didn’t want to accept.
+ - Let me tell you something – being thought of as a beautiful woman has spared me nothing in life. No heartache, no trouble. Love has been difficult. Beauty is essentially meaningless and it is always transitory.
+ - This moment is so much bigger than me. It’s for every nameless, faceless woman of colour that now has a chance because this door tonight has been opened.
+ - I think my feet are my sexiest body part. People I find really sexy include Angelina Jolie, George Clooney and my mum.
+ - It’s an amazing feeling to know that life is actually growing inside your body. The first time you see the ultrasound and you see the little bones and you realise that it’s part of you and it’s in your care is life changing and this sort of protective instinct has taken over.
+ - I meditate and pray all the time. The faith and respect that I have in the power of God in my life is what I’ve used to keep myself grounded, and it has allowed me to move away from the storms that were in my life.
+ - I am my best self when I have super-short hair. That’s when I feel most like me and most confident.
+ - I always had to diet. I’m diabetic, so it’s a lifestyle for me anyway just to stay healthy and not end up in the hospital.
+ - When an opportunity comes your way, it’s about making sure you’re prepared to be the one who can walk through the door and deliver the goods. And I’ve had a lot of luck on my side and I’ve been prepared for that luck.
+ - I chose a sunflower because when darkness descends they close up to regenerate. But I really wish I’d never had the tattoo in the first place. Clean, clear skin is always better.
+ - When I was a kid, my mother told me that if you could not be a good loser, then there’s no way you could be a good winner.
+ - I realize as you age the less makeup you wear the younger you look.
+ - We’ve become obsessed with beauty and the fountain of youth and, frankly, I’m really saddened by the way women mutilate their faces today in search of that.
+ - I wish all men were like dogs.
+ - Beauty is not just physical. It’s about what you stand for, how you live your life.
+ - As beautiful as Halle is on the outside, she’s 10 times more beautiful on the inside.
+ - Facials are my biggest beauty indulgence. Looking good is about having a good base. It’s about taking care of your skin.
+ - The worst thing a man can ever do is kiss me on the first date.
+ - My pregnancy was amazing. I was happy that whole time, I felt good, I had energy, I was like Superwoman. I wish I could feel like that for the rest of my life, that’s how fantastic it was.
+ - I didn’t think it was possible at my age honestly. They call it a geriatric pregnancy.
+ - I will not marry again. There is no need.
+ - I am so ready to be a mommy. I can’t wait. I notice every little baby dress, every little baby toy, every little baby thing.
+ - During really difficult times in my life when I start questioning why I am struggling with something, I often turn to books to understand myself better.
+ - I like Doritos. I’m usually watching ‘The Biggest Loser’ eating Doritos.
+ - The day I saw my mom eating the Santa cookies on the plate was one of the most horrific days of my life.
+ - After my divorce, I was struggling to find my own voice. Through reading, I gained my power back.
+ - My daughter doesn’t want to go to school because she knows ‘the men’ are watching for her. They jump out of the bushes and from behind cars and who knows where else, besieging these children just to get a photo.
+ - Blackness is a state of mind and I identify with the black community. Mainly, because I realized, early on, when I walk into a room, people see a black woman, they don’t see a white women. So out of that reason alone, I identify more with the black community.
+ - I used to believe that if my career was going great, then I was not entitled to a great personal life. Well, I’ve stopped thinking that way. I believe I can have it all.
+ - I find when I have short hair, I feel like I have nothing to hide behind anymore.
+ - Sexuality is part of being a woman, it’s part of what empowers us when we’re smart enough to know how to use it.
+ - I also have been called that terrible “N” word straight to my face and not known what to do about it because it was just in like 1993 that someone called me that.
+ - I get offered varied parts, often super sexy roles. But I still think it’s an issue to find the good scripts. It’s a myth that you win an Oscar and you get more opportunities, and this doesn’t just go for me.
+ - There have been so many people who have said to me, ‘You can’t do that,’ but I’ve had an innate belief that they were wrong. Be unwavering and relentless in your approach.
+ - I’ve also grown as an actor as I’ve got older in life. I’ve learnt how to go to work, immerse myself 100 per cent in the character and, at the end of the day, take it all off and go back, get a nice bubble bath, have a nice massage and realise that is not my life. And that feels good.
+ - A person’s self-esteem has nothing to do with how she looks.
+ - To make lips look naturally pink, I put on red lipstick, wipe it off, and then apply clear gloss.
+ - I’ve learned my tricks. I know what I like. I do not wait around. I initiate. And I’m not all about frequency. I favor intensity.
+ - I guess you could say I have bad taste in men. But I no longer feel the need to be someone’s wife.
+ - I think I am at my best when my hair is short. It’s easier to take care of and more of who I am. Women are conditioned to think we need long hair.
+ - My mother never wanted me to focus on my physical self. She always said that beauty is what you do.
+ - First of all, I’m not pretty. I’m not a world class beauty, ladies and gentlemen. I’m just a guy. I was slow going and stuff like that. I was just never that brand of news.
+ - My partner is a Frenchman, so I have got to smell right.
+ - I’ve always liked to go down a different path. Being a woman of color, I never followed a cookie cutter way.
+ - I won’t have a traditional marriage; I don’t find the value in that anymore. But I am such a hopeless romantic and I really want love and I want a committed relationship, so I am going to reinvent marriage for myself.
+ - By the time I left school, I had a lot of tenacity.
+ - I’m not sad at all about turning 40.
+ - For me, the walk of the character is always the first part that I must define for myself.
+ - Motherhood sort of puts things into perspective, and it’s bout real life, and life is about people, what we give, what we take, what we share.
+ - It gave me strength and toughness because I had to face reality, no matter how uncomfortable or painful it was.
+ - I spent a lot of time with a crown on my head.
+ - When I got to be about 16,17 I got into a beauty pageant and I was allowed to start playing around with makeup.
+ - Most people I know of that mix have a real ability to be in a room with anyone, black or white.
+ - Women slave for their hair! It’s all about how we compare ourselves to other women, how we size ourselves up.
+ - Just to be true to myself, which is why I did this movie. I figured everyone was going to freak out and say, ‘Why would you do that after Dorothy Dandridge?’ My answer is ‘Because I can.’ And that feels really good to be comfortable saying that.
+ - Having a baby takes so much from you. It’s the most glorious thing you’ll ever do, but the aftermath is not so glorious!
+ - Being a mother is probably the most important thing in my life right now.
+ - I’ve always loved the pomp and circumstance of dressing up; the pagenatry and all of the glamour of Hollywood.
+ - I’m not the girl for superhigh fashion because I don’t have the right body. When I want to get dressed up.
+ - When a young woman tells me that she wants to become and actor, I say, ‘No, be a writer. Or go to business school and learn how to run a studio.’ The only real change will come from behind the scenes.
+ - I knew that I was a good writer in high school and won awards, and I was the editor of my school newspaper. So I knew that I was a good writer and I wanted to somehow capitalize and sort of utilize a talent that I thought I had.
+ - When I’m rested, I’m at my best.
+ - I don’t buy into that pressure to be glamorous all the time. It’s impossible, I mean, you get a pimple in the morning, you wake up with bags under your eyes, you see if you can use it in your work, maybe incorporate it into your character.
+ - I’ve become really comfortable with my sexuality and making no excuses for it anymore.
+ - I’m learning to accept the lack of privacy as the real downer in my profession.
+ - I never put myself in that box of you’re an Oscar winner so you can only do this or that. That’s one award, one night, and it does not define my career or it does not define me as an artist. I never wanted to get put in that Oscar box because that’s a lonely place to be.
+ - Growing older is not such a big deal for me, despite the fears that older actresses have in Hollywood. When I hit 40, for example, I didn’t feel 40 – or whatever that is supposed to feel like.
+ - I think a smart person today realizes that you have to be part of the art films that are done just for the sake of the art.
+ - Nature has got it all wrong: When you are younger, it should be harder to get pregnant, and as you get older it should be easier.
+ - I no longer scramble blindly through hardship. I no longer emerge from a bad time feeling relieved just to have survived. Instead of despairing, I try to find the lesson within the experience.
+ - The fact is that I like thrillers and action movies. But what really fulfills me is getting out of my comfort zone, taking chances.
+ - If you really want to be competitive in today’s market you have to be in movies that make money.
+ - Here’s the thing – you can’t be careful about what you pick because what looks like on paper is going to be a great script has often turned out to be a disaster, so there’s no way to know what’s going to work or to pick the right thing.
+ - I want to do roles that are fun and challenging and I want to try different things. I don’t want to keep doing Monster’s Ball over and over and over again. I want to keep doing my career the way that I was doing it before I won the Oscar.
+ - I have to live for me. I have to do what I need to do for me, and I have stopped concerning myself with what people say.
+ - There’s a place in me that can really relate to being the underdog. I’m always fighting to overcome the obstacle. I can really understand what’s that about.
+ - Actors always have to fight for the good parts. There are so few good roles written for women each year, and when one is written like this every actress in town covets the role.
+ - I love a character that gives me a chance to grow and do something different.
+ - I’m not afraid of portraying anything on-screen.
+ - 2007 began on a high for me because I had the honour of having my name added the Hollywood Boulevard Walk of Fame.
+ - I never even think about the physicality of roles, until honestly I get the gig and I think, ‘OK, now what do I have to do in this one?’ Like, I approach it thinking more about the character – do I respond to it? Is it something I think I can play? Does it seem like it’ll be fun?
+ - And you also have to do movies that are about commerce because that’s what is required of the industry today.
+ - I don’t see a white woman. I see a black woman, even though my mother is white. Knowing that has made my life easier, I think.
+ - I’ve never been afraid to be who I really am on screen.
+
+93 quotes

@@ -1,0 +1,23 @@
+ - To be the world’s best, you have to beat the world’s best.
+ - Our family life, before figure skating turned it upside down, seemed normal. Our town of Riverside, Connecticut, was part of Greenwich, and we had the advantage of their wonderful community, with great beaches and beautiful parks.
+ - I was a bratty little sister. I was the youngest of three, and I often felt as though I didn’t fit in.
+ - I always had the sense that nothing was never good enough – striving for perfection. My mother and I had a sort of typical mother-daughter relationship.
+ - I hated to read. My mother could not get me to read. I’m going through the same thing with my daughter now. I love to read now, but I don’t remember reading.
+ - In my teen years leading up to the Olympics, I loved having the excuse to skip out on parties because of skating. Partying wasnt my thing anyway. Mostly I hung out with other skaters. We were all buddies, so its not like I missed out on socializing. I was really enjoying myself.
+ - My mother stopped working when she had my brother. She was a full time mom until I started getting heavily into ice skating lessons, and it got to the point where they really needed my mom to earn an income.
+ - It’s different today than it was then. In those days we were strictly amateurs. If I had wanted to stay in for the ’80 Olympics, my parents couldn’t have afforded it.
+ - I wanted to learn how to skate backwards and they wouldn’t help me and they went off and left me on my own.
+ - I wouldn’t say that there’s ever been an Olympic champion that didn’t deserve to win an Olympic Gold Medal.
+ - I was just ice skating. I had no concept of that. In those days you couldn’t see the judges. I was this little person on the ice and they were just people that would stand around the boards.
+ - If you are a complete perfectionist, then the truth is that this ice skating business will drive you a little crazy!
+ - Every time you go out on the ice, there are slight flaws. You can always think of something you should have done better. These are the things you must work on.
+ - If I’m on skates, I feel at home no matter what I’m doing. If they wanted me to sing and dance I think I could do it just becauseI was on skates. When I’m not on skates, though, I feel very strange.
+ - You see the fairy tale – four minutes of glory at the Olympics. I thought my life would be cake after that.
+ - I think I dreamed about competing at the Olympics, maybe hoping to win a gold medal. Not that I ever thought that I would, but I dreamed about it.
+ - There were no competitions on television. The first skating competition I ever remember seeing on television was the 1968 Olympics when Peggy Fleming won.
+ - I was passionate. I found something that I loved. I could be all alone in a big old skating rink and nobody could get near me and I didn’t have to talk to anybody because of my shyness. It was great. I was in my fantasy world.
+ - My coach was a great politician, so he did most of the work. He was good.
+ - My parents didn’t have a lot of money, but we never knew that. They really did the best they could.
+ - In group lesson number six I think we learned how to turn backwards and then just kind of wiggle. That wasn’t really skating backward, but I guess I was going in the right direction.
+
+21 quotes

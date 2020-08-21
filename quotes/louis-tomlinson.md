@@ -1,0 +1,57 @@
+ - I’m gay. It’s pretty unfortunate.
+ - Live life for the moment, because everything else is uncertain.
+ - Always be nice to people. Whatever how bad they are to you. To show them you are not like them.
+ - Even if there’s a tiny tiny chance, isn’t that worth going for it?
+ - If you want to do something, Go for it you’ve got nothing to loose.
+ - Live fast, have fun, be a bit mischievous.
+ - Sometimes I think I’m not normal, and I get weirder and weirder everyday.
+ - And remember people: you might not be plastic, but you are fantastic!
+ - We’re not perfect, we’re not clean cut. We’re just trying to be ourselves.
+ - If you wanna go somewhere, you can do; nothing is stopping you.
+ - The Story of My Life is drinking cups of tea, eating coco pops and playing Playstation.
+ - When I’m at home alone, I run up the stairs naked. It’s quite funny.
+ - My ideas for the future? To take over the world.
+ - I can make your tears fall down like the showers that are British.
+ - Ehhhhh. I’m a song!
+ - If a guy is taking his girl for granted, he really deserves a slap, with a baseball bat.
+ - As long as we’ve got somewhere to sleep, a bowl of cereal, and a coloring book we’ll be fine.
+ - I think my mom just filled me with confidence. I just thought I was the best at everything. Like any mother really.
+ - Swag mastah from Doncastah!
+ - You know what it would just be amazing to be remembered, you know like a mum telling a daughter ‘the boyband of my time, One Direction, they just had fun and they’re just normal guys but terrible, terrible dancers.’
+ - I like someone who doesn’t take life too seriously. I hate people who are a bit uptight.
+ - Why did the mushroom go to the party? Because he’s a fungi!
+ - I love the big red bus!
+ - There are six R’s.
+ - In my first video diary I explained my love for women who have a taste in carrots. Since then, I have received plenty of carrots. Now I also have a keen interest in women who like Lamborghinis.
+ - Woah! Calm down, Curly!
+ - Yes! The Tommo is back!
+ - And as for you, stop having curly hair!
+ - I’m normally last and I’m quite a late person and that is just who I am.
+ - I wan’t a girl who is fun and loves adventure.
+ - And I’d marry you, Harry. Because it rhymes.
+ - I want my first son to be called ‘Tommy.’ It will sound great, Tommy Tomlinson.
+ - When you’re in love you’ll do anything, I’d go to the end of the world.
+ - Fans always tell me I’m beautiful, but no one will ever be as beautiful as them.
+ - I’m Louis the Tommo Tomlinson!
+ - You can’t go to sleep without a cup of tea and maybe thats the reason that you talk in your sleep...
+ - I’m a very loyal boyfriend. I’m a bit of a joker I can be romantic, but not too sickly.
+ - Oh it’s the bingo playing wizard I love you guys so much, but not as much as my bird and my bingo!
+ - In week one of the ‘X Factor,’ just to be a little bit quirky, I decided to say that I like girls who eat carrots. Ever since I’ve had lots and lots and lots of carrots.
+ - I secretly want to be a zebra. That is why I always wear stripes.
+ - There’s nothing that annoys me more than people being horrible to my mates.
+ - I once woke up at a random guy’s house and i didn’t actually know who he was.
+ - It’s incredible to have people show their support when your doing something you love.
+ - It’s important for me to treat a girlfriend with respect. My mum would be horrified if I behaved any differently – and I have sisters, and would hate for them to be treated badly by guys.
+ - I can’t really cook, but the first dish I ever made was for my girlfriend, Eleanor. I made chicken breast wrapped in ham, homemade mashed potatoes, and gravy.
+ - I don’t know if we’ll ever get used to the attention from the fans.
+ - To be honest, I don’t think I’m the best role model in the world. I’m pretty immature sometimes.
+ - I’m not great with money. I’d go crazy if I were left to my own devices. My mum and girlfriend sort it out. I’m not driven by it, but I love to be generous.
+ - I like kisses that aren’t too fast or rushed – that’s what makes a good kiss.
+ - Those sound like the three best answers I’ve ever heard on this show even though it’s the first ever of this show!
+ - When I was growing up we didn’t have a massive house and there were five women running around, so my dad and I had to stick together!
+ - I want to see the Doncaster Rovers supporters get the club the success it deserves.
+ - I will confess I am a great wingman. Since I have a girlfriend, I’ll start the night with her, but then I’ll help out the guys by making them sound like the most incredible guys in the world.
+ - I quite like American music, like The Fray – I’m a massive fan of them – and The Killers. I also like more acoustic stuff like Ed Sheeran; I like this English songwriter James Morrison and another singer called Ben Howard.
+ - All my mates are at university, and it’s a life I haven’t had a chance to enjoy, so it’s great to turn up and sample a bit of it.
+
+55 quotes

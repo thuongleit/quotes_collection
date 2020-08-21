@@ -1,0 +1,59 @@
+ - When in Rome, do as the Romans do.
+ - No one heals himself by wounding another.
+ - It is Peter himself that He says, ‘You are Peter, and upon this rock I will build my Church.’ Where Peter is, there is the Church. And where the Church, no death is there, but life eternal.
+ - Love is like a shadow, one can only catch it by falling into it.
+ - The devil’s snare does not catch you, unless you are first caught by the devil’s bait.
+ - In some causes silence is dangerous.
+ - True repentance is to cease from sin.
+ - Let your door stand open to receive Him, unlock your soul to Him, offer Him a welcome in your mind, and then you will see the riches of simplicity, the treasures of peace, the joy of grace. Throw wide the gate of your heart, stand before the sun of the everlasting light...
+ - And let them remember that prayer should accompany the reading of Sacred Scripture, so that God and man may talk together; for “we speak to Him when we pray; we hear Him when we read the divine saying.”
+ - Except a man fear the Lord, he is unable to renounce sin.
+ - When I am at Rome I fast as the Romans do; when I am at Milan I do not fast. So likewise you, whatever church you come to, observe the custom of the place, if you would neither give offence to others, nor take offence from them.
+ - Prayer is the wing wherewith the soul flies to heaven, and meditation the eye wherewith we see God.
+ - Our own evil inclinations are far more dangerous than any external enemies.
+ - The rich man who gives to the poor does not bestow alms but pays a debt.
+ - As in paradise, God walks in the Holy Scriptures, seeking man.
+ - The Lord was Baptized, not to be cleansed Himself, but to cleanse the waters, so that those waters, cleansed by the flesh of Christ which knew no sin, might have the power of Baptism.
+ - The devil tempts that he may ruin; God tests that he may crown.
+ - How far, O rich, do you extend your senseless avarice? Do you intend to be the sole inhabitants of the earth? Why do you drive out the fellow sharers of nature, and claim it all for yourselves? The earth was made for all, rich and poor, in common. Why do you rich claim it as your exclusive right?
+ - If you have two shirts in your closet, one belongs to you and the other to the man with no shirt.
+ - The Church’s foundation is unshakable and firm against the assaults of the raging sea. Waves lash at the Church but do not shatter it. Although the elements of this world constantly batter and crash against her, she offers the safest harbor of salvation for all in distress.
+ - Reverence: the spiritual attitude of a man to a god and a dog to a man.
+ - Law is twofold – natural and written. The natural law is in the heart, the written law on tables. All men are under the natural law.
+ - It is a better thing to save souls for the Lord than to save treasures. He who sent forth his apostles without gold had not need of gold to form his Church. The Church possesses gold, not to hoard, but to scatter abroad and come to the aid of the unfortunate.
+ - Accordingly, death is a harbor of peace for the just, but is believed a shipwreck for the wicked.
+ - May each one of us glorify the Lord with the soul of Mary and rejoice in God with the spirit of Mary.
+ - The prime objective of all Initiatory music in the Temples of Antiquity was to bring about physical purification and renewal, mental stimulation and alertness, spiritual exhilaration and Illumination.
+ - He who reads much and understands much, receives his fill. He who is full, refreshes others.
+ - Just as riches are an impediment to virtue in the wicked, so in the good they are an aid of virtue.
+ - God is not accustomed to refusing a good gift to those who ask for one. Since he is good, and especially to those who are faithful to him, let us hold fast to him with all our soul, our heart, our strength, and so enjoy his light and see his glory and possess the grace of supernatural joy.
+ - It is easier to look wise than to talk wisely.
+ - The rich women, to avoid dividing the inheritance among many, kill their own fetus in the womb and with murderous juices extinguish in the genital chamber their children.
+ - Dice have their laws, which the courts of justice cannot undo.
+ - A good youth ought to have a fear of God, to be subject to his parents, to give honor to his elders, to preserve his purity; he ought not to despise humility, but should love forbearance and modesty. All these are an ornament to youthful years.
+ - There is nothing evil save that which perverts the mind and shackles the conscience.
+ - It is ingrained in all living creatures, first of all, to preserve their own safety, to guard against what is harmful, to strive for what is advantageous.
+ - God drove Cain out of his presence and sent him into exile far away from his native land, so that he passed from a life of human kindness to one which was more akin to the rude existence of a wild beast.
+ - There is no time of life past learning something.
+ - Your soul must hold fast to Him, you must follow after Him in your thoughts, you must tread His ways by faith, not in outward show.
+ - When we find ouselves in some grave danger we must not lose courage but firmly trust in God, for where there is the greatest danger, there is also the greatest help from Him who wants to be called our ‘Help’ in times of peace and in times of tribulation.
+ - It was not by dialectic that it pleased God to save His people.
+ - A kindness received should be returned with a freer hand.
+ - The emperor is in the Church, not about the Church.
+ - As the print of the seal on the wax is the express image of the seal itself, so Christ is the express image – the perfect representation of God.
+ - We should pray to the angels, for they are given to us as guardians.
+ - As a servant desireth the approval of his master, and a son the approval of his father, so should we desire the approval of God and our own conscience.
+ - It is not the ambassador, it is not the messenger, but the Lord Himself that saveth His people. The Lord remaineth alone, for no man can be partner with God in forgiving sins; this office belongs solely to Christ, who taketh away the sins of the world.
+ - The Psalms are the voices of the church.
+ - To be content, to find true love, is what essentially drives us all, but if found, would it be recognized?
+ - When I go to Rome, I fast on Saturday, but in Milan I do not. Do you also follow the custom of whatever church you attend, if you do not want to give or receive scandal.
+ - The body should be bedecked naturally and without affectation, with simplicity, with neglect rather than nicety, not with costly and dazzling apparel, but with ordinary clothes, so that nothing be lacking to honesty and necessity, yet nothing be added to increase its beauty.
+ - If every time the blood is poured out it is poured out for the remission of sins, I ought to receive it always, that my sins may always be forgiven me.
+ - For how can we adopt those things which we do not find in the holy Scriptures?
+ - If you do not give the tenth part to God, he will take the nine parts.
+ - Prelate, n. A church officer having a superior degree of holiness and a fat preferment. One of Heaven’s aristocracy. A gentleman of God.
+ - What is impossible to God? Not that which is difficult to His power, but that which is contrary to His nature.
+ - But if these beings guard you, they do so because they have been summoned by your prayers.
+ - If you are at Rome live in the Roman style; if you are elsewhere live as they live elsewhere.
+
+57 quotes

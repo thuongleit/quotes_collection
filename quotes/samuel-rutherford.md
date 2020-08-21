@@ -1,0 +1,90 @@
+ - After winter comes the summer. After night comes the dawn. And after every storm, there comes clear, open skies.
+ - The secret formula of the saints: When I am in the cellar of affliction, I look for the Lord’s choicest wines.
+ - Grace grows best in winter.
+ - Praise God for the hammer, the file, and the furnace. The hammer molds us, the file sharpens us, and the fire tempers us.
+ - Why should I tremble at the plough of my Lord, that maketh deep furrows on my soul? I know He is no idle husbandman, He purposeth a crop.
+ - Our little time of suffering is not worthy of our first night’s welcome home to Heaven.
+ - I pray God that I may never find my will again. Oh, that Christ would subject my will to His, and trample it under His feet.
+ - The great Master Gardener, the Father of our Lord Jesus Christ, in a wonderful providence, with his own hand, planted me here, where by his grace, in this part of his vineyard, I grow; and here I will abide till the great Master of the vineyard think fit to transplant me.
+ - Believe God’s love and power more than you believe your own feelings and experiences. Your rock is Christ, and it is not the rock that ebbs and flows but the sea.
+ - Think it not hard if you get not your will, nor your delights in this life; God will have you to rejoice in nothing but himself.
+ - Let us be faithful and care for our own part, which is to do and suffer for Him, and lay Christ’s part on Himself, and leave it there; duties are ours, events are the Lord’s.
+ - I live no more, but Christ liveth in me!
+ - Grow as a palm-tree on God’s Mount Zion; howbeit shaken with winds, yet the root is fast.
+ - Ye have lost a child – nay, she is not lost to you, who is found to Christ; she is not sent away, but only sent before; like unto a star, which going out of our sight, doth not die and vanish, but shineth in another hemisphere.
+ - Let your children be as so many flowers, borrowed from God. If the flowers die or wither, thank God for a summer loan of them.
+ - They lose nothing who gain Christ.
+ - In our fluctuations of feelings, it is well to remember that Jesus admits no change in His affections; your heart is not the compass Jesus saileth by.
+ - No pen, no words, no image can express to you the loveliness of my only, only Lord Jesus.
+ - The cross of Christ is the sweetest burden that I ever bore; it is such a burden as wings are to a bird, or sails to a ship, to carry me forward to my harbor.
+ - O, what I owe to the file, the hammer, and the furnace of the Lord Jesus! I know that he is no idle husbandman – he purposes a crop.
+ - I have been benefited by praying for others; for by making an errand to God for them I have gotten something for myself.
+ - My faith has no bed to sleep upon but omnipotence.
+ - Your heart is not the compass that God steers by.
+ - Be not cast down. If ye saw Him who is standing on the shore, holding out His arms to welcome you to land, ye would wade, not only through a sea of wrongs, but through hell itself to be with Him.
+ - Christ has no velvet crosses.
+ - My dear brother, let God make of you what He will, He will end all with consolation, and shall make glory out of your suffering.
+ - There is no sweeter fellowship with Christ than to bring our wounds and our sores to him.
+ - Many are friends to the success of reformation, not to reformation.
+ - Christ chargeth me to believe His daylight at midnight.
+ - Jesus Christ came into my prison cell last night, and every stone flashed like a ruby.
+ - It is no small comfort that God hath written some Scriptures to you which He hath not to others. Read these, and think God is like a friend who sendeth a letter to a whole house and family, but who speaketh in His letter to some by name that are dearest to Him in the house.
+ - I find it most true that the greatest temptation outside of hell is to live without temptations; if water stands, it rots; faith is the better for the sharp winter storm in its face and grace withers without adversity. The devil is but God’s master fencer to teach us to handle our weapons.
+ - Show yourself a Christian by suffering without murmuring. In patience possess your soul – they lose nothing who gain Christ.
+ - Humility is a strange flower; it grows best in winter weather, and under storms of affliction.
+ - O my Lord Jesus Christ, if I could be in heaven without Thee, it would be hell; and if I could be in hell, and have Thee still, it would be heaven to me, for Thou are all the heaven I want.
+ - See that you buy the field where the Pearl is; sell all, and make a purchase of salvation. Think it not easy: for it is a steep ascent to eternal glory: many are lying dead by the way, slain with security.
+ - Since He looked upon me my heart is not my own. He hath runaway to heaven with it.
+ - I assure you by the Lord, your adversaries shall get no advantage against you, except you sin, and offend your Lord, in your sufferings.
+ - You must take a house beside the Physician. It will be a miracle if ye be the first sick that Christ hath put away uncured.
+ - If so be that freewill were our tutor, and we had our heaven in our own keeping, then we would lose all. But because we have Christ for our tutor, and He has our heaven in His hand, therefore the covenant it must be perpetual.
+ - To believe Christ’s cross to be a friend, as he himself is a friend, is also a special act of faith.
+ - I think it is possible on earth to build a young, new Jerusalem, a little, new heaven of this surpassing love. God, either send me more of this love, or take me quickly over the water, where I may be filled with his love.
+ - Live on Christ’s love while ye are here, and all the way.
+ - Those who can take that crabbed tree handsomely upon their back, and fasten it on cannily, shall find it such a burden as wings unto a bird, or sails to a ship.
+ - I find my Lord Jesus cometh not in the precise way that I lay wait for Him. He hath a manner of His own. Oh, how high are His ways above my ways.
+ - Heaven is a house full of miracles; yea, of spectacles and images of free grace.
+ - I see Christ’s love is so kingly, that it will not abide a marrow it must have a throne all alone in the soul.
+ - Christ and His cross are not separable in this life, howbeit Christ and His cross part at heaven’s door, for there is no house-room for crosses in heaven. One tear, one sigh, one sad heart, one fear, one loss, one thought of trouble cannot find lodging there.
+ - Faint not; the miles to heaven are but few and short.
+ - It is certain that this is not only good which the Almighty has done, but that it is best; He hath reckoned all your steps to heaven.
+ - Every day we may see some new thing in Christ. His love hath neither brim nor bottom.
+ - Consider, it is impossible that your idol sins and you can go to heaven together; and that those who will not part with these do not indeed love Christ at the bottom, but only in word and show, which will not do the business.
+ - When the race is ended, and the play is either won or lost, and ye are in the utmost circle and border of time, and shall put your foot within the march of eternity, all the good things of your short nightdream shall seem to you like ashes of a blaze of thorns or straw.
+ - My Lord Jesus has fully recompensed my sadness with his joys, my losses with his own presence. I find it a sweet and rich thing to exchange my sorrows with Christ’s joys, my afflictions with that sweet peace I have with himself.
+ - Set not your heart upon the world, since God hath not made it your portion.
+ - If ye never had a sick night and a pained soul for sin, ye have not yet lighted upon Christ.
+ - I wonder many times that ever a child of God should have a sad heart, considering what the Lord is preparing for him.
+ - We are as near to heaven as we are far from self, and far from the love of a sinful world.
+ - I had but one joy, the apple of the eye of my delights, to preach Christ my Lord.
+ - It is in some respect greater love in Jesus to sanctify than to justify, for He maketh us most like Himself, in His own essential portraiture and image in sanctifying us.
+ - When I look to my guiltiness, I see that my salvation is one of our Saviour’s greatest miracles, either in heaven or earth.
+ - Grace will ever speak for itself and be fruitful in well-doing; the sanctified, cross is a fruitful tree.
+ - Christ seeketh your help in your place; give Him your hand.
+ - The devil is but a whetstone to sharpen the faith and patience of the saints.-.
+ - You will not be carried to Heaven lying at ease upon a feather bed.
+ - Set no time to the Lord the creator of time, for His time is always best.
+ - Well’s them who are under crosses, and Christ says to them, “Half Mine.”
+ - The hope of heaven under troubles is like wind and sails to the soul.
+ - Millions of hells of sinners cannot come near to exhaust infinite grace.
+ - Grace tried is better than grace, and more than grace; it is glory in its infancy.
+ - Every man by nature is a freeman born; by nature no man cometh out of the womb under any civil subjection to king, prince, or judge.
+ - My desire is that my Lord would give me broader and deeper thoughts, to feed myself with wondering at His love.
+ - Desires going before conversion are not such as can calm a storming conscience.
+ - My dear friend, venture to take the wind on your face for Christ.
+ - He who duly esteemeth Christ, is a noble bidder, and so a noble and liberal buyer.
+ - The bloom fell off my branches and joy did cast off its flower.
+ - Make not Christ a liar in distrusting His promise.
+ - When the supreme magistrate will not execute the judgment of the Lord, those who made him supreme magistrate, under God, who have under God, sovereighn liberty to dispose of crowns and kingdoms, are to execute the judgment of the Lord, when wicked men make the law of God of none effect.
+ - Take Christ in with you under your yoke, and let patience have her perfect work.
+ - Faith’s speculations to the worst and hardest, in point of resolution, are sweet.
+ - How soon would faith freeze without a cross!
+ - Verily, we know not what an evil it is to indulge ourselves, and to make an idol of our will.
+ - I bless the Lord that all our troubles come through Christ’s fingers, and that He casteth sugar among them and casteth in some ounce withts of heaven and of the spirit of glory in our cup.
+ - There is nothing that will make you a Christian indeed, but a taste of the sweetness of Christ.
+ - It is comfort to the believer that all things are possible.
+ - There is nothing left to us but to see how we may be approved of Him, and how we may roll the weight of our weak souls in well-doing upon Him, who is God omnipotent.
+ - The weightiest end of the cross of Christ that is laid upon you, lieth upon your strong Savior.
+ - Welcome, welcome, cross of Christ, if Christ be with it.
+
+88 quotes

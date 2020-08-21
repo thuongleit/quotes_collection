@@ -1,0 +1,28 @@
+ - The beauty of life is, therefore, geometrical beauty of a type that Plato would have much appreciated.
+ - All that glitters may not be gold, but at least it contains free electrons.
+ - In fact, we will have to give up taking things for granted, even the apparently simple things. We have to learn to understand nature and not merely to observe it and endure what it imposes on us. Stupidity, from being an amiable individual defect, has become a social crime.
+ - The central industry of modern civilisation, tending, because of its control over materials, to spread into and ultimately incorporate older industries such as mining, smelting, oil- refining, textiles, rubber, building, and even agriculture in respect to fertilizers and food processing.
+ - Life is a partial, continuous, progressive, multiform and conditionally interactive self-realization of the potentialities of atomic electron states.
+ - It is characteristic of science that the full explanations are often seized in their essence by the percipient scientist long in advance of any possible proof.
+ - The only way of learning the method of science is the long and bitter way of personal experience.
+ - The present aristocracy of western culture, at the moment when it most clearly dominates the world, is being imitated rapidly and successfully in every eastern country.
+ - The human mind evolved always in the company of the human body, and of the animal body before it was human. The intricate connections of mind and body must exceed our imagination, as from our point of view we are peculiarly prevented from observing them.
+ - Published papers may omit important steps and the memory of men of science, even the greatest, is sadly fallible.
+ - The greater the man, the more he is soaked in the atmosphere of his time; only thus can he get a wide enough grasp of it to be able to change substantially the pattern of knowledge and action.
+ - Naturalism aimed at giving the primitive wishes full play but failed because these wishes are too primitive, too infantile, too inconsistent with themselves to be satisfied even by the greatest license.
+ - As the scene of life would be more the cold emptiness of space than the warm, dense atmosphere of planets, the advantage of containing no organic material at all, so as to be independent of both these conditions, would be increasingly felt.
+ - Men will not be content to manufacture life: they will want to improve on it.
+ - The recognition of the art that informs all pure science need not mean the abandonment for it of all present art, rather it will mean the completion of the transformation of art that has already begun.
+ - If science were communism, was it also not possible that communism could itself become a science?
+ - We are still too close to the birth of the universe to be certain about its death.
+ - The problem is essentially that of communications to an army in action. After a rapid advance communications become disorganized, and there is a temporary halting until they are again in working order.
+ - We will have to give up taking things for granted, even the apparently simple things.
+ - But if capitalism had built up science as a productive force, the very character of the new mode of production was serving to make capitalism itself unnecessary.
+ - A part of sexuality may go to research, and a much larger part must lead to aesthetic creation. The art of the future will, because of the very opportunities and materials it will have at its command, need an infinitely stronger formative impulse than it does now.
+ - Scientific corporations might well become almost independent states and be enabled to undertake their largest experiments without consulting the outside world – a world which would be less and less able to judge what the experiments were about.
+ - The relevance of Marxism to science is that it removes it from its imagined position of complete detachment and shows it as a part, but a critically important part, of economy and social development.
+ - The full area of ignorance is not mapped. We are at present only exploring the fringes.
+ - The region of the mysterious is rapidly shrinking.
+ - One of the questions on which clarity of thinking is now most necessary is that of the relation between the methods of science and of Marxist philosophy. Although much has already been written on the subject, yet there is still an enormous amount of confusion and contradictory statement.
+
+26 quotes

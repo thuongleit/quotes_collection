@@ -1,0 +1,62 @@
+ - The University of Google is where I got my degree from.
+ - If you ask 99.9 percent of parents who have children with autism if we’d rather have the measles versus autism, we’d sign up for the measles.
+ - I’m not as hard on myself anymore. I’m comfortable exactly where I am, though it took me until I was 34 years old! I still have things I’m really insecure about, but I’ve changed by loving me – C-section scars, stretch marks, and all.
+ - What are friends for? They are the ultimate reflection of yourself. Always surround yourself with people who inspire you and return the favor by giving them the best of you.
+ - I deserve to be happy and I think a lot of people stay in relationships for wrong reasons and instead of just looking at each other and just saying, ‘you know, it’s like sands of the hourglass, we learned our lessons, we can end in war or we can end in peace.’
+ - People are also dying from vaccinations. Evan, my son, died in front of me for two minutes. You ask any mother in the autism community if we’ll take the flu, the measles, over autism and day of the week. I think they need to wake up and stop hurting our kids.
+ - Having a child makes you realize the importance of life – narcissism goes out the window. Heaven on earth is looking at my little boy. The minute he was born, I knew if I never did anything other than being a mom, I’d be fine.
+ - I’m so scared girls look at my breast implants and think, ‘To get boys, you need big boobs.’ I tell them, ‘Don’t get it done. Those fears go away. You develop other insecurities, but breasts aren’t one of them.’ I want to get them half-size.
+ - I look at autism like a bus accident, and you don’t become cured from a bus accident, but you can recover.
+ - I’m free of stress and worries now because if I don’t like something I’m doing, I just find the fun in it instead of being miserable. Let me have fun with the people I work with, let me have fun making money – when I grew up so poor, ya know?
+ - It can be hard for the cute girl. I was blond, cute, broke. I was beat up. I was thrown inside lockers. I was burned with cigarettes. My hair was lit on fire.
+ - Waking your kids up for school the first day after a break is almost as much fun as birthing them was.
+ - Hope is the greatest thing for moms of autism. Hope is what gets us out of bed in the morning. I’m on a mission to tell parents that there is a way.
+ - My philosophy of dating is to just fart right away.
+ - I do believe sadly it’s going to take some diseases coming back to realize that we need to change and develop vaccines that are safe.
+ - You don’t need a pickup line. Just glance at a woman from across the room. Glance – don’t stare.
+ - My tricks are, I get Botox in my forehead-I just have my doctor do a little shot there. if you overdo, it looks bad. I believe in just a little bit. It allows you to keep that mobility in your face. It’s a great little secret.
+ - Without a doubt in my mind, I believe that vaccinations triggered Evan’s autism.
+ - It’s absolutely imperative for the parents and the typical kids to have time by themselves, to go out to dinner or even go on vacation while someone else cares for the autistic child.
+ - I wished to God the doctor had handed me a pamphlet that said, ‘Hey, sorry about the autism, but here’s a step-by-step list on what to do next.’ But doctors don’t do that. They say ‘sorry’ and move you along.
+ - Parents of recovered children, and I’ve met hundreds, all share the same experience of doubters and deniers telling us our child must have never even had autism or that the recovery was simply nature’s course. We all know better, and frankly we’re too busy helping other parents to really care.
+ - Information on how to heal autism and how to possibly delay vaccines or prevent autism shouldn’t come from me. It should come from the medical establishment.
+ - Just keep trying, and your dreams will come true. But you have to give it all your time, effort, and soul.
+ - For a seriously autistic kid, the best prognosis might be getting into a mainstream school without being too much of a shadow. For a moderately autistic kid the best prognosis is full recovery.
+ - Those outside of autism need to understand this is an epidemic and we need more government funding, insurance coverage and education reform.
+ - When I was a little girl, rocking my little dolls, I remember thinking I would be the world’s best mom, and so far I’ve done it.
+ - At one point, my house was a school for autistic children. I opened up my doors to about 30 kids and their families at the time. I was turning into Mary Poppins because I had to do something for these kids who have nowhere to go. So my house was the school for two years.
+ - Let me see if I can put this in scientific terms: Think of autism like a fart, and vaccines are the finger you pull to make it happen.
+ - I’m the worst person to tell anybody how to date.
+ - Almost everyone has or will experience getting dumped in their lifetime. Unless, of course, you’re a nun. Jesus can’t dump nuns.
+ - The one thing I like about ‘Playboy’ is they don’t have the anorexic look. The women are voluptuous. So I didn’t really want to diet. I just wanted to tone up.
+ - You totally value and respect your body as you get older.
+ - Why should 20-year-olds only be considered sexy? I think we get better with age.
+ - I guess now that I think back, I used to play priest and be a funny priest. I don’t know, I grew up in such a Catholic family that I kind of liked to test the boundaries a little bit and I think I had fun watching my mom laugh.
+ - Craziest thing I’ve done for love is getting married. I think it’s crazy. I think it’s crazy, crazy, crazy. I’m never going to say I wouldn’t do it again but I have to make sure it’s love and not settling for the ‘I have to do this by a certain age,’ which is kind of what I did.
+ - What is missing from today’s dialogue is the effect autism is having on families, our society and what the unknown factors are. The 300lb. gorilla in the room is that our children with autism today will soon become adults with autism.
+ - I have my once-a-month nachos, but it’s soy cheese and turkey chili on it, so it’s somewhat safe. But it’s still a big vice for me, because I have a big bowl of it.
+ - I figured out something spiritual. Billboard this: ‘Life is supposed to be fun!’
+ - I did want to acknowledge and confirm the fact that my son does, indeed, have an autism diagnosis.
+ - I love Botox, I absolutely love it. I get it minimally so I can still move my face. But I really do think it’s a savior.
+ - People don’t see this side of me. They don’t know I read, like, 800 million spiritual books. Lately I am just really getting into a lot of spirituality.
+ - I usually have my protein at lunch and my carbs at night – I don’t mix protein and carbs.
+ - If you give us a safe vaccine, we’ll use it. It shouldn’t be polio versus autism.
+ - I know children regress after vaccination because it happened to my own son. Why aren’t there any tests out there on the safety of how vaccines are administered in the real world, six at a time? Why have only two of the 36 shots our kids receive been looked at for their relationship to autism?
+ - I wanted to be in Jim Carrey comedy movies before I met him. I wanted to be a comedian on Stage 19, yukking it up.
+ - Kids will not listen to that. They’re going to experiment no matter what, so you have to be honest.
+ - When I travel, I like to take advantage of room service. I’m really into eggs Benedict in the morning.
+ - Without intervention today, the cost of care for adults with autism will be significantly greater and the burden will no longer lie with the parents, but on our entire society.
+ - So basically, I don’t know what I’m talking about. But maybe I do.
+ - I’m the comedic girl next door and a lot of fun.
+ - A talk show is difficult because the formula is always the same: there’s a host and there’s guests. Really what you can change is only so much. So, I don’t have any pre-interviews, which forces real conversation.
+ - Corner one of the hundreds of doctors who specialize in autism recovery, and they’ll tell you stories of dozens of kids in their practice who no longer have autism. Ask them to speak to the press and they’ll run for the door. They know better.
+ - We can either continue to collectively stand on the sidelines and debate what is causing autism and if it is an epidemic or we can get on the field and start addressing the real problem – a generation of children with autism. We are not focusing enough on prevention, treatments and support services.
+ - I don’t really go out much at all. But there are times when I’m like, ‘I gotta get out.’ Then we go to Vegas, and we’ll gamble.
+ - The reason why the medical community is reluctant to talk about it is because there’s such a huge business in pharmaceuticals.
+ - When I first went public with my son Evan’s story, I just planned to talk about the ‘R’ word – Recovery. But soon I was spending most my time talking about the ‘V’ word – vaccines.
+ - Obviously, I’m not a trained actress, and right now I’ll come out and say I’m glad I’m not.
+ - I didn’t have to work out before 35 but now I have to.
+ - I can’t even begin to tell you how many casting couches I was attacked on. Not just by casting people, but by stars.
+ - Google is one of the most incredible breakthroughs that we have today. Yes, it can scare a lot of patients, thinking we’re all dying because we look up something on Google. But there’s also a lot of anecdotal information from parents, firsthand accounts of what they did for their own child.
+
+60 quotes

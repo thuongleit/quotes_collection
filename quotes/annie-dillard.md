@@ -1,0 +1,215 @@
+ - How we spend our days is, of course, how we spend our lives.
+ - The way you live your days is the way you live your life.
+ - She read books as one would breathe air, to fill up and live.
+ - No one escapes the wilderness on the way to the promised land.
+ - The dedicated life is worth living. You must give with your whole heart.
+ - The answer must be, I think, that beauty and grace are performed whether or not we will or sense them. The least we can do is try to be there.
+ - An Inuit hunter asked the local missionary priest: If I did not know about God and sin, would I go to hell? No, said the priest, not if you did not know. Then why, asked the Inuit earnestly, did you tell me?
+ - Why are we reading, if not in hope of beauty laid bare, life heightened and its deepest mystery probed?
+ - You can’t test courage cautiously.
+ - A schedule defends from chaos and whim. A net for catching days.
+ - The more you read, the more you will write. The better the stuff you read, the better the stuff you will write.
+ - The sensation of writing a book is the sensation of spinning, blinded by love and daring.
+ - We are here to abet creation and to witness to it, to notice each other’s beautiful face and complex nature so that creation need not play to an empty house.
+ - One of the few things I know about writing is this: Spend it all, shoot it, play it, lose it, all, right away, every time. Do not hoard what seems good for a later place in the book, or for another book, give it, give it all, give it now.
+ - I had been my whole life a bell, and never knew it until at that moment I was lifted and struck.
+ - Whenever there is stillness there is the still small voice, God’s speaking from the whirlwind, nature’s old song, and dance...
+ - Nature’s silence is its one remark, and every flake of world is a chip off that old mute and immutable block.
+ - I am a fugitive and a vagabond, a sojourner seeking signs.
+ - According to Inuit culture in Greenland, a person possesses six or seven souls. The souls take the form of tiny people scattered throughout the body.
+ - God gave me a talent to draw. I ‘owed’ it to him to develop the talent.
+ - Caring passionately about something isn’t against nature, and it isn’t against human nature. It’s what we’re here to do.
+ - The life of sensation is the life of greed; it requires more and more. The life of the spirit requires less and less.
+ - Time is the continuous loop, the snakeskin with scales endlessly overlapping without beginning or end, or time is an ascending spiral if you will, like a child’s toy Slinky.
+ - Anything you do not give freely and abundantly becomes lost to you.
+ - The secret is not to write about what you love best, but about what you, alone, love at all.
+ - Unfortunately, nature is very much a now-you-see-it, now-you-don’t affair. A fish flashes, then dissolves in the water before my eyes like so much salt. Deer apparently ascend bodily into heaven; the brightest oriole fades into leaves.
+ - I couldn’t unpeach the peaches.
+ - Evolution loves death more than it loves you or me. This is easy to write, easy to read, and hard to believe.
+ - Experiencing the present purely is being empty and hollow; you catch grace as a man fills his cup under a waterfall.
+ - I’d seen a great many partial eclipses, but a partial eclipse has the same relation to a total eclipse as flirting with a man does to marrying him. It’s completely different.
+ - At a certain point, you say to the woods, to the sea, to the mountains, the world, Now I am ready. Now I will stop and be wholly attentive. You empty yourself and wait, listening.
+ - You can’t test courage cautiously, so I ran hard and waved my arms hard, happy.
+ - Every day is a god, each day is a god, and holiness holds forth in time.
+ - We are here to witness the creation and to abet it.
+ - There is a muscular energy in sunlight corresponding to the spiritual energy of wind.
+ - We are most deeply asleep at the switch when we fancy we control any switches at all.
+ - I know only enough of God to want to worship him, by any means ready to hand.
+ - Private life, book life, took place where words met imagination without passing through the world.
+ - He is careful of what he reads, for that is what he will write. He is careful of what he learns, for that is what he will know.
+ - Your feelings are none of your business.
+ - A schedule defends from chaos and whim. It is a net for catching days. It is a scaffolding on which a worker can stand and labor with both hands at sections of time.
+ - As a life’s work, I would remember everything – everything, against loss. I would go through life like a plankton net.
+ - Books swept me away, this way and that, one after the other; I made endless vows according to their lights for I believed them.
+ - We wake, if we ever wake at all, to mystery, rumors of death, beauty, violence...
+ - The creative process obtains in all creative acts. So if I’m painting suddenly I’ll see something that I didn’t see before.
+ - Crystals grew inside rock like arithmetic flowers. They lengthened and spread, added plane to plane in an awed and perfect obedience to an absolute geometry that even stones – maybe only the stones – understood.
+ - I would like to learn, or remember, how to live.
+ - You do not have to sit outside in the dark. If, however, you want to look at the stars, you will find that darkness is necessary. But the stars neither require nor demand it.
+ - I woke in bits, like all children, piecemeal over the years. I discovered myself and the world, and forgot them, and discovered them again.
+ - The extravagant gesture is the very stuff of creation.
+ - The interior life is often stupid.
+ - Dan Gerber is one of our finest living poets.
+ - Doing something does not require discipline. It creates its own discipline – with a little help from caffeine.
+ - I can’t dance anymore. Total knee replacements. I can’t do anything anymore.
+ - Spend the afternoon. You can’t take it with you.
+ - Push it. examine all things intensely and relentlessly.
+ - Time is the warp and matter the weft of the woven texture of beauty in space, and death is the hurling shuttle.
+ - Why do we people in churches seem like cheerful, brainless tourists on a packaged tour of the Absolute?
+ - I am a frayed and nibbled survivor in a fallen world, and I am getting along. I am aging and eaten and have done my share of eating too.
+ - An Eskimo shaman said, Life’s greatest danger lies in the fact that man’s food consists entirely of souls.
+ - Your work is to keep cranking the flywheel that turns the gears that spin the belt in the engine of belief that keeps you and your desk in midair.
+ - Hone and spread your spirit till you yourself are a sail, whetted, translucent, broadside to the merest puff.
+ - There is no whit less enlightenment under the tree by your street than there was under the Buddha’s bo tree. I invite you to go sit under that tree by your street.
+ - Painters work from the ground up. The latest version of a painting overlays earlier versions, and obliterates them. Writers, on the other hand, work from left to right. The discardable chapters are on the left.
+ - I had been chipping at the world idly, and had by accident uncovered vast and labyrinthine further worlds within it.
+ - But enough is enough. One turns at last even from glory itself with a sigh of relief. From the depths of mystery, and even from the heights of splendor, we bounce back and hurry for the latitudes of home.
+ - We teach our children one thing only, as we were taught: to wake up. We teach our children to look alive there, to join by words and activities the life of human culture on the planet.
+ - Trees have a curious relationship to the subject of the present moment. There are many created things in the universe that outlive us, that outlive the sun, even, but I can’t think about them. I live with trees.
+ - I think the dying pray at the last not “please,” but “thank you,” as a guest thanks his host at the door.
+ - Art is like an ill-trained Labrador retriever that drags you out into traffic.
+ - Every live thing is a survivor on a kind of extended emergency bivouac.
+ - I still try to keep my eyes open. I’m always on the lookout for antlion traps in sandy soil, monarch pupae near milkweed, skipper larvae in locust leaves. These things are utterly common, and I’ve not seen one.
+ - Our life is a faint tracing on the surface of mystery.
+ - Divinity is not playful. The universe was not made in jest but in solemn incomprehensibl e earnest. By a power that is unfathomably secret, and holy, and fleet. There is nothing to be done about it, but ignore it, or see.
+ - I come down to the water to cool my eyes. But everywhere I look I see fire; that which isn’t flint is tinder, and the whole world sparks and flames.
+ - I saw in a blue haze all the world poured flat and pale between the mountains.
+ - I write in my own journal when something extraordinary or funny happens. And there’s some nice imagery in there. I don’t think of what to do with it.
+ - How can people think that artists seek a name? There is no such thing as an artist – only the world, lit or unlit, as the world allows.
+ - When I first read the words ‘introvert’ and ‘extrovert’ when I was 10, I thought I was both.
+ - No one can help you if you’re stuck in a work. Only you can figure a way out, because only you can see the work’s possibilities.
+ - People who take photographs during their whole vacation won’t remember their vacation. They’ll only remember what photographs they took.
+ - The universe was not made in jest but in solemn incomprehensible earnest.
+ - Having chosen this foolishness, I was a free being. How could the world ever stop me, how could I betray myself, if I was not afraid?
+ - What a hideout: Holiness lies spread and borne over the surface of time and stuff like color.
+ - It is difficult to undo our own damage, and to recall to our presence that which we have asked to leave.
+ - Our family was on the lunatic fringe. My mother was always completely irrepressible. My father made crowd noises into a microphone.
+ - The real and proper question is: why is it beautiful?
+ - Beauty and grace are performed whether or not we sense them.
+ - I never met a man who was shaken by a field of identical blades of grass. An acre of poppies and a forest of spruce boggle no one’s mind.
+ - Adverbs are a sign that you’ve used the wrong verb.
+ - I wake up thinking: What am I reading? What will I read next? I’m terrified that I’ll run out, that I will read through all I want to, and be forced to learn wildflowers at last, to keep awake.
+ - If we were to judge nature by common sense or likelihood, we wouldn’t believe the world existed.
+ - You search, you break your heart, your back, your brain, and then-and only then-it is handed to you.
+ - The world is wider in all directions, more dangerous and bitter, more extravagant and bright. We are making hay when we should be making whoopee; we are raising tomatoes when we should be raising Cain and Lazarus.
+ - Every book has an intrinsic impossibility, which its writer discovers as soon as his first excitement dwindles.
+ - The mind of the writer does indeed do something before it dies, and so does its owner, but I would be hard put to call it living.
+ - Aim for the chopping block. If you aim for the wood, you will have nothing. Aim past the wood, aim through the wood; aim for the chopping block.
+ - For all the insularity of the old guard, Pittsburgh was always an open and democratic town.
+ - The mind wants the world to return its love, or its awareness; the mind wants to know all the world, and all eternity, and God.
+ - Fiction keeps its audience by retaining the world as its subject matter. People like the world. Many people actually prefer it to art and spend their days by choice in the thick of it.
+ - By dipping us children in the Bible so often, they hoped, I think, to give our lives a serious tint, and to provide us with quaintly magnificent snatches of prayer to produce as charms while, say, being mugged for our cash or jewels.
+ - If I actually believed that the progress of human understanding depended on our crop of contemporary novelists, I would shoot myself.
+ - I had hopes for my rough edges. I wanted to use them as a can opener, to cut myself a hole in the world’s surface and exit through it.
+ - It is ironic that the one thing that all religions recognize as separating us from our creator, our very self-consciousness, is also the one thing that divides us from our fellow creatures. It was a bitter birthday present from evolution.
+ - What could you say to a dying person that would not enrage by its triviality?
+ - Make connections; let rip; and dance where you can.
+ - It was less like seeing than like being for the first time seen, knocked breathless by a powerful glance.
+ - The Pulitzer is more useful than meaningful.
+ - I have since only rarely seen the tree with the lights in it. The vision comes and goes, mostly goes, but I live for it, for the moment when the mountains open and a new light roars in spate through the crack, and the mountains slam.
+ - We are here on the planet only once, and might as well get a feel for the place.
+ - Then why did you tell me?
+ - I alternate between thinking of the planet as home – dear and familiar stone hearth and garden – and as a hard land of exile in which we are all sojourners.
+ - I think that the dying pray at the last not please but thank you, as a guest thanks his host at the door. Falling from airplanes the people are crying thank you, thank you, all down the air; and the cold carriages draw up for them on the rocks.
+ - Silence is not our heritage but our destiny; we live where we want to live.
+ - Cruelty is a mystery, and the waste of pain. But if we describe a word to compass these things, a world that is a long, brute game, then we bump against another mystery: the inrush of power and delight, the canary that sings on the skull.
+ - It has always been a happy thought to me that the creek runs on all night, new every minute, whether I wish it or know it or care, as a closed book on a shelf continues to whisper to itself its own inexhaustible tale.
+ - Old memories are very easy to get except that once you write about something you’ve destroyed it.
+ - I think it would be well, and proper, and obedient, and pure, to grasp your one necessity and not let it go, to dangle from it limp wherever it takes you.
+ - Landscape consists in the multiple, overlapping intricacies and forms that exist in a given space at a moment in time.
+ - I cannot cause light; the most I can do is try to put myself in the path of its beam.
+ - Don’t save something good for a later place. Don’t hold back from your students, from the poor, don’t try to keep anything for yourself ’cause it’ll turn to ashes.
+ - The universe is illusion merely, not one speck of it real, and we are not only its victims, falling always into or smashed by a planet slung by the sun-but also its captives, bound by the mineral-made ropes of our senses.
+ - There were no formerly heroic times, and there was no formerly pure generation. There is no one here but us chickens, and so it has always been.
+ - We still and always want waking.
+ - We live in all we seek.
+ - The point of going somewhere like the Napo River in Ecuador is not to see the most spectacular anything. It is simply to see what is there.
+ - Write as if you are dying.
+ - Novels written with film contracts in mind have a faint but unmistakable, and ruinous, odor.
+ - We live half our waking lives and all of our sleeping lives in some private, useless, and insensible waters we never mention or recall.
+ - I wake expectant, hoping to see a new thing.
+ - When you write, you lay out a line of words. Soon you find yourself deep in new territory.
+ - These are our few live seasons. Let us live them as purely as we can, in the present.
+ - He judged the instant and let go; he flung himself loose into the stars.
+ - Nothing on earth is more gladdening than knowing we must roll up our sleeves and move back the boundaries of the humanly possible once more.
+ - What is a house but a bigger skin, and a neighborhood map but the world’s skin ever expanding?
+ - Young children have no sense of wonder. They bewilder well, but few things surprise them. All of it is new to young children, after all, and equally gratuitous.
+ - I break up through the skin of awareness a thousand times a day, as dolphins burst through seas, and dive again, and rise, and dive.
+ - Admire the world for never ending on you – as you would an opponent, without taking your eyes away from him, or walking away.
+ - No, the point is not only does time fly and do we die, but that in these reckless conditions we live at all, and are vouchsafed, for the duration of certain inexplicable moments, to know it.
+ - Our life seems cursed to be a wiggle merely, and a wandering without end.
+ - Does anything eat flowers. I couldn’t recall having seen anything eat a flower – are they nature’s privileged pets?
+ - The courage of children and beasts is a function of innocence.
+ - Self-consciousness is the curse of the city and all that sophistication implies.
+ - There are no events but thoughts and the heart’s hard turning, the heart’s slow learning where to love and whom. The rest is merely gossip, and tales for other times.
+ - I breathed the air of history all unaware, and walked oblivious through its littered layers.
+ - The irrational haunts the metaphysical.
+ - Write about winter in the summer.
+ - Buddhism notes that it is always a mistake to think your soul can go it alone.
+ - Just think: in all the clean, beautiful reaches of the solar system, our planet alone is a blot; our planet alone has death.
+ - At night I read and write, and things I have never understood become clear; I reap the harvest of the rest of the year’s planting.
+ - Like everyone in his right mind, I feared Santa Claus.
+ - The mind itself is an art object. It is a Mondrian canvas onto whose homemade grids it fits its own preselected products. Our knowledge is contextual and only contextual. Ordering and invention coincide: we call their collaboration knowledge.
+ - Wherever we go, there seems to be only one business at hand – that of finding workable compromises between the sublimity of our ideas and the absurdity of the fact of us.
+ - Similarly, the impulse to keep to yourself what you have learned is not only shameful, it is destructive. Anything you do not give freely and abundantly becomes lost to you. You open your safe and find ashes.
+ - A schedule is a mock-up of reason and order – willed, faked, and so brought into being.
+ - The sense impressions of one-celled animals are not edited for the brain. This is philosophically interesting in a rather mournful way, since it means that only the simplest animals perceive the universe as it is.
+ - The body of literature, with its limits and edges, exists outside some people and inside others. Only after the writer lets literature shape her can she perhaps shape literature.
+ - There is no such thing as an artist: there is only the world lit or unlit as the light allows. When the candle is burning, who looks at the wick? When the candle is out, who needs it?
+ - The surest sign of age is loneliness.
+ - I do not so much write a book as sit up with it, as a dying friend. I hold its hand and hope it will get better.
+ - Appealing workplaces are to be avoided. One wants a room with no view, so imagination can meet memory in the dark.
+ - At its best, the sensation of writing is that of any unmerited grace. It is handed to you, but only if you look for it.
+ - What I call innocence is the spirit’s unself-conscious state at any moment of pure devotion to any object. It is at once a receptiveness and total concentration.
+ - A shepherd on a hilltop who looks at a mess of stars and thinks, ‘There’s a hunter, a plow, a fish,’ is making mental connections that have as much real force in the universe as the very fires in those stars themselves.
+ - I feel as though I stand at the foot of an infinitely high staircase, down which some exuberant spirit is flinging tennis ball after tennis ball, eternally, and the one thing I want in the world is a tennis ball.
+ - I work mornings only. I go out to lunch. Afternoons I play with the baby, walk with my husband, or shovel mail.
+ - The sea pronounces something, over and over, in a hoarse whisper; I cannot quite make it out.
+ - Put yourself out of your misery.
+ - You do what you do out of your private love of the thing itself.
+ - I had good innings, as the British say. I wrote for 38 years at the top of my form, and I wanted to quit on a high note.
+ - I’m a housewife: I spend far more time on housework than anything else.
+ - Ecstasy, I think, is a soul’s response to the waves holiness makes as it nears.
+ - The dear, stupid body is as easily satisfied as a spaniel.
+ - About five years ago I saw a mockingbird make a straight vertical descent from the roof gutter of a four-story building. It was an act as careless and spontaneous as the curl of a stem or the kindling of a star.
+ - If even rock was interesting, if even this ugliness was worth whole shelves at the library, required sophisticated tools to study, and inspired grown men to crack mountains and saw crystals – then what wasn’t?
+ - On plenty of days the writer can write three or four pages, and on plenty of other days he concludes he must throw them away.
+ - A writer looking for subjects inquires not after what he loves best, but after what he alone loves at all.
+ - You can serve or you can sing, and wreck your heart in prayer, working the world’s hard work.
+ - Johnston’s books are beautifully written and among the funniest I have ever read.
+ - The soul may ask God for anything, and never fail.
+ - Could two live that way? Could two live under the wild rose, and explore by the pond, so that the smooth mind of each is as everywhere present to the other, and as received and as unchallenged, as falling snow?
+ - You are wrong if you think that you can in any way take the vision and tame it to the page. The page is jealous and tyrannical; the page is made of time and matter; the page always wins.
+ - Are you living just a little and calling that life?
+ - Last forever!? Who hasn’t prayed that prayer? You were lucky to get it in the first place. The present is a freely given canvas. That it is constantly being ripped apart and washed downstream goes without saying.
+ - When I teach, I preach. I thump the Bible. I exhort my students morally. I talk to them about the dedicated life.
+ - Even if things are as bad as they could possible be, and as meaningless, then matters of truth are themselves indifferent; we may as well please our sensibilities and, with as much spirit as we can muster, go out with a buck and a wing.
+ - It should surprise no one that the life of the writer – such as it is – is colorless to the point of sensory deprivation. Many writers do little else but sit in small rooms recalling the real world.
+ - Knowing you are alive is watching on every side your generation’s short time falling away as fast as rivers drop through air, and feeling it hit.
+ - Love so sprang at her, she honestly thought no one had ever looked into it. Where was it in literature? Someone would have written something. She must not have recognized it. Time to read everything again.
+ - It’s a little silly to finally learn how to write at this age. But I long ago realized I was secretly sincere.
+ - What is important is the moment of opening a life and feeling it touch – with an electric hiss and cry – this speckled mineral sphere, our present world.
+ - I cannot imagine a sorrier pursuit than struggling for years to write a book that attempts to appeal to people who do not read in the first place.
+ - We are here to bring to consciousness the beauty and power that are around us and to praise the people who are here with us.
+ - If you’re going to publish a book, you probably are going to make a fool of yourself.
+ - Writers serve as the memory of a people. They chew over our public past.
+ - The world knew you before you knew the world.
+ - I noticed this process of waking, and predicted with terrifying logic that one of these years not far away I would be awake continuously and never slip back, and never be free of myself again.
+ - The way to learn about a writer is to read the text. Or texts.
+ - Cruelty is a mystery, and a waste of pain.
+ - All my books started out as extravagant and ended up pure and plain.
+ - People who read are not too lazy to turn on the television; they prefer books.
+ - Every spring he vowed to quit teaching school, and every summer he missed his pupils and searched for them on the streets.
+ - Whenever an encounter between a writer of good will and a regular person of good will happens to touch on the subject of writing, each person discovers, dismayed, that good will is of no earthly use. The conversation cannot proceed.
+ - In literary history, generation follows generation in a rage.
+ - Almost all of my many passionate interests, and my many changes of mind, came through books. Books prompted the many vows I made to myself.
+ - Nothing moves a woman so deeply as the boyhood of the man she loves.
+ - The creatures I seek do not want to be seen.
+ - I worked so hard all my life, and all I want to do now is read.
+ - The novel is a game or joke shared between author and reader.
+ - It makes more sense to write one big book – a novel or nonfiction narrative – than to write many stories or essays. Into a long, ambitious project you can fit or pour all you possess and learn.
+ - As soon as beauty is sought not from religion and love, but for pleasure, it degrades the seeker.
+ - Many writers do little else but sit in small rooms recalling the real world.
+ - We have not yet encountered any god who is as merciful as a man who flicks a beetle over on its feet.
+
+213 quotes

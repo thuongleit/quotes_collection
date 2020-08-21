@@ -1,0 +1,24 @@
+ - Those who play badminton well take decisions quickly.
+ - When you borrow money, you should always think how you’re going to pay it back.
+ - When I get into a bad mood, I do sports and then everythings OK. And then I go and make decisions, however painful they may be.
+ - Let the people decide whom to vote for, who has more authority. And only people, only our citizens, are able to place the final emphasis, voting for this or that person or political force, or rejecting it. Thats democracy.
+ - Legal reform in Russia is a must. And I keep track of it daily.
+ - Russia will honour its international commitments. Our country is a reliable borrower, a reliable creditor and a reliable supplier. Sanctions come and go, but business ties, economic interests and the reputation of a state remain.
+ - The devaluation of words and promises regarding free enterprise is, in principle, worse than the devaluation of the rouble.
+ - Unfortunately, what is happening now in our central regions is evidence of this global climate change, because we have never in our history faced such weather conditions in the past.
+ - I always say that modernization is not an abstract thing; its a very specific task.
+ - Climate change is “some kind of tricky campaign made up by some commercial structures to promote their business projects.”
+ - What’s happening with the planet’s climate right now needs to be a wake-up call to all of us, meaning all heads of state, all heads of social organizations, in order to take a more energetic approach to countering the global changes to the climate.
+ - Unsolvable problems do not exist. Any crisis is a combination of specific tasks to be worked on. The government has the experience and reserves to overcome the economic downturn.
+ - We must learn to succeed in conditions of low fuel and energy prices.
+ - Our country today is at a cross-point of several crises that were triggered by three groups of causes: the effects of the 2008 world crisis, the external political and economic pressure, and the internal problems and constraints that have built up in our economy.
+ - The Government will not abandon the free conversion of the rouble.
+ - Business is always looking to avoid the toughest norms. But some do it in a civilized way, while others push it using uncivilized, brazen methods.
+ - We will step up support for the non-commodity export sector, working more closely with potential buyers of Russian goods. We do have something to offer in the IT sphere, the nuclear power industry, aircraft manufacturing, the aerospace industry and a number of other sectors.
+ - We value our relations with Europe, which we have jointly developed over the past decades, and Europe remains our main trading partner. It is my hope that we will normalise these relations in the near future.
+ - Our goal is not to douse the recession with money, which would be useless, as both you and I know. Our goal is to liberate the business initiative, to lower administrative and law enforcement pressure and to make legal protection truly effective.
+ - Any politician is to a certain degree a mentor. They preach something.
+ - Demand for grain in the world today is a more stable trend than demand for energy. Russia is a major grain exporter and can consolidate its positions.
+ - We do not want Ukraine to default. On the contrary, we need an economically viable partner. However, debts should be paid, and this includes state and commercial debts.
+
+22 quotes

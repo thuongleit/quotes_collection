@@ -1,0 +1,41 @@
+ - Men only treat women like princesses when they want to use them like prostitutes.
+ - Nothing else matters now that you love me.? – suicide note.
+ - An empty skull is the vanitas symbol of modern education.
+ - The idealist hopes. The romantic sees doom. The postmodernist sees doom and hopes.
+ - It is under intense pressure that the most profound thoughts occur, in those dark remote spaces thinned of all but carnivores. The monsters of the deep have only each other to feed upon.
+ - A mother’s love: the sacred relationship of affording a nanny so as to be tolerated as a granny.
+ - Just relax. Everyone around you is working too hard.
+ - I admire Shakespeare enormously. But since I can’t be him, I’m glad that his marriage was unhappy and he’s dead.
+ - People who practice freedom of expression are terrorizing our grammatical way of life.
+ - I don’t know the kind of person I’ll be tomorrow, but I’ll be able to look back on yesterday and ask “What was that guy’s problem?” The future is full of condescending jerks.
+ - An anniversary is the perfect time to celebrate all the missed opportunities to correct a mistake, and even take vows to renew it.
+ - I had a dream about you. You were lost in a daydream, when I walked in and you began screaming. But I know that could never actually happen. In real life I only enter people’s nightmares.
+ - If all women revealed their age, men would have nothing to hide from each other.
+ - Save endangered whales, only great whites stir the thrill of the hunt within me.
+ - Unrequited love is the only possible way to give yourself to another without being held in indentured servitude.
+ - The law and a thin veil of insincerity, all that prevents me from strangling an etiquette coach.
+ - I like to write in poorly lit conditions. It allows darkness to creep into my humor, and bad eyesight to excuse me from accountability.
+ - Highbrow Fiction: Since the invention of genre fiction, relegated from attention space to shelf space, then finally to empty space when no new editions are put out. The first category of literature in which the ideal reader and the real reader are one and the same – the writer.
+ - For a parched cheek, raindrops offer catharsis on loan. Those unable to weep can at least soak themselves in heaven’s sorrow.
+ - Selfishness is a bad habit. That’s why I always rationally think through my decisions to act without regard for others.
+ - When folly speaks in her own person, the fools only hear the praise.
+ - Love your wife, your servant and your enemy equally, and file her credit card bills under the ‘enemy’ folder.
+ - I didn’t sacrifice everything for love, just my mother when love required a caesarian.
+ - Bachelorhood: all the fun of married life and more prosperity, leaving lots of descendants to boast of their father’s memory to their fellow inmates.
+ - Artists are the serfs of a leisure society.
+ - Love leads people to become lost in their own feelings and ignore the world, so it’s no surprise their love for the world goes unrequited.
+ - I had a dream about you. I was sitting on your couch, relating my succession of ideas on subconscious influence. I asked you what they meant, and you told me that free associations were a bad way to advance my political career.
+ - Sentimentality provides a thousand things to say but makes the lips quiver too violently to speak in anything but mumbles.
+ - If I weren’t too proud, I’d boast of my exaggerated opinion of myself.
+ - A man wrapped up in himself always suffocates. But his loved ones will forever hold in their hearts the memory of that Christmas.
+ - Alphabet: a symbolic system used in algebra, with applications that have yet to be discovered by dyslexics and two thirds of college graduates.
+ - The lampshade on my head is for my bright ideas. I won’t be able to convey them until Monday, when my curtain gets out of the dry cleaners.
+ - Use condoms; it’s wise not to gamble with your children’s future.
+ - Like Saturn at a family reunion, we ravenously devour children, parents, cousins – all which threatens the integrity of the self, which renders it less than completely unique. The babysitter, too, must go: even the chance of a divulged memory must be snuffed out.
+ - Genre Fiction: grand visual spectacles produced to save bookstoregoers the misery of viewing the awful word versions.
+ - Envy is for people who don’t have the self-esteem to be jealous.
+ - First people lose their hair, then their vices, then their motivation. Then a toupee brings it all flowing back.
+ - Love is the escape plan from our scheduled existences.
+ - If you’re a nobody, just imagine a lot of celebrities are in love with you. Narcissism is the best cure for attention deficit disorder.
+
+39 quotes

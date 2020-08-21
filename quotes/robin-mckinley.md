@@ -1,0 +1,73 @@
+ - I advise those who want to become writers to study veterinary medicine, which is easier. You don’t want to be a writer unless you have no choice – and if you have no choice, good luck to you.
+ - When they finished laughing they were on their way to being not just friends, but the dearest of friends, the sort of friends whose lives are shaped by the friendship.
+ - Perhaps it is a human thing, to look upon such beauty and fail to encompass it.
+ - Because she was a princess she had a pegasus.
+ - With the knowledge of her aloneness came a rush of self-declaration: I will not be nothing.
+ - As I have said, you have no reason to trust me, and an excellent reason not to.
+ - Write what you want to read. The person you know best in this world is you. Listen to yourself. If you are excited by what you are writing, you have a much better chance of putting that excitement over to a reader.
+ - Can’t all beasts be tamed?
+ - He will apologize, or I’ll give him a lesson in swordplay he will not like at all.
+ - I love you. I will love you till the stars crumble, which is a less idle threat than is usual to lovers on parting.
+ - She fell asleep, leaning on his chest, and he edged her a little off a particularly painful bruise, leaned his head back against the tree he had propped them up against, and closed his own eyes.
+ - Tell me who you are. You need not tell me your name. Names have power, even human ones. Tell me where you live and what you do with your living.
+ - One keeps searching for ease, she did not say, and not finding it, till the memories of no-pain seem only like daydreams.
+ - Betrayal would be a different sort of sick.
+ - She, too, spoke only when the queen or king addressed her first, but she looked searchingly at every supplicant, and her clear face said that she had opinions about everything she heard, and that it was her proud duty to think out those opinions, and make them responsible and coherent.
+ - The Lone Ranger of vampires. Did that make me Tonto?
+ - Stay a little while longer, and let everyone congratulate you – including the ones who clearly don’t want to: in fact, especially the ones who clearly don’t want to. You don’t have to say anything but ’thank you.
+ - Feeling at peace, however fragilely, made it easy to slip into the visionary end of the dark-sight. The rose shadows said that they loved the sun, but that they also loved the dark, where their roots grew through the lightless mystery of the earth. The roses said: You do not have to choose.
+ - But the world turns, and even legends change; and somewhere there is a border, and sometime, perhaps, someone will decide to cross it, however well guarded its thorns may be.
+ - Vampire. Dangerous. Unknowable. Seriously creepy. This one’s name was Constantine. We’d met before.
+ - Sometimes it is better not to know. Sometimes when you do know you just fold up.
+ - For anyone who is: just keep writing. Keep reading. If you are meant to be a writer, a storyteller, it’ll work itself out. You just keep feeding it your energy, and giving it that crucial chance to work itself out. By reading and writing.
+ - Friends you will have need of, for in you two worlds meet. There is no one on both sides with you, so you must learn to take your own counsel; and not to fear what is strange, if you know it also to be true. – Luthe.
+ - Can you trust me, he said. Not will you. Can you. Can I trust him? What do I have to lose?
+ - My capacity for invention is flash hot stark, I thought. Sucker sunshade. Disembodied radar-reconnaissance. Not to mention Bitter Chocolate Death and Killer Zebras. Pity about the rest of me.
+ - There are things you don’t want to know you can do.
+ - The insides of our own minds are the scariest things there are.
+ - You are attempting to be logical, I suspect, and logic has little to do with government, and nothing at all to do with military administration.
+ - I don’t differentiate in the way that the genre creators want differentiation to be made. I feel that I have never written children’s or YA stories particularly.
+ - And if my choice is to sit graciously in my best robes and accept the inevitable or to bail a sea with a bucket, give me the bucket.
+ - If you wish, I shall go personally to your City and knock together the heads of Perlith and Galooney.
+ - Everything was an adventure, at night, when you were where you shouldn’t be, even if it was somwhere you could go perfectly well in daylight, and it was then only ordinary.
+ - He didn’t look insane or inhuman. He did look uncooperative.
+ - Mice are terribly chatty. They will chat about anything, and if there is nothing to chat about, they will chat about having nothing to chat about. Compared to mice, robins are reserved.
+ - It seems to me further, that it is very odd that fate should leave so careful a trail, and spend so little time preparing the one that must follow it.
+ - I wondered what you’d have on the side with a plate of Deep Fried Anxiety. Pickles? Coleslaw? Potato-strychnine mash?
+ - Then marry me. For I love you, and I do not believe there is anything so wrong with you. You are fair in my eyes and you lie fair on my heart.
+ - What was new was the fact that, despite my heart doing its fight-or-flight, help-we’re-prey-and-HEY-STUPID-THAT’S-A-VAMPIRE number, I was glad to see him. Ridiculous but true. Scary but true.
+ - Say yes, babe, or I’ll spill you off over the Wall next time – got it?
+ - If you try to breathe water, you will not turn into a fish, you will drown; but water is still good to drink.
+ - It was too important a matter, this talking to people, and listening to them, to do it lightly or often.
+ - Mathin said: “It is best to take your opponent’s sash. The kysin mark each blow dealt, but to cut off the other rider’s sash is best. This you will do.” “Oh,” said Harry. “You may, if you wish, unhorse him first,” Mathin added as an afterthought. “Thanks,” said Harry.
+ - Tsornin’s nostrils showed red, but his ears were as alert as ever, and occasionally he would rub his nose gently against the nape of her neck, just in case she was momentarily not thinking about him.
+ - He looked at her rather as a man looks at a problem that he would very much prefer to do without. She supposed it was a distinction of a sort to be a harassment to a king.
+ - Never assume. Never make plans. Keep doing the press-ups and deep knee bends: you’ll need all your strength and flexibility when your life suddenly implodes. Maybe it won’t – some people do lead enchanted lives – but odds are that it will. Some time.
+ - I get a little cranky with the whole business about kids not having attention spans. This reminds me of the usual business of thinking that the next generation is hopeless. Every generation has said that about every younger generation.
+ - The story is always better than your ability to write it. My belief about this is that if you ever get to the point that you think you’ve done a story justice, you’re in the wrong business.
+ - Tiny fists can hurt quite a lot when they hit you in the face.
+ - The great thing about fantasy is that you can drag dreams and longings and hopes and fears and strivings out of your subconscious and call them ‘magic’ or ‘dragons’ or ‘faeries’ and get to know them better. But then I write the stuff. Obviously I’m prejudiced.
+ - The train is roaring toward you and the villain is twirling his moustache and you’re fussing that he’s tied you to the tracks with the wrong kind of rope.
+ - He laughed, tried to make it into a cough, inhaled at exactly the wrong moment, and then really did cough.
+ - He grunted; she recognized it as relief that she wasn’t going to nag him further about Tor the Just, who probably wasn’t that boring if he could hold off the Notherners for nine days and melt a hole in the hills.
+ - We kings do develop a certain ability to recognize objects under our noses.
+ - Yes, I am letting my own experience color my answer, which is what experience is for...
+ - There had been certain romantic interludes in the past that had included galloping across the desert at night; but he had never abducted any woman whose enthusiastic support for such a plan had not been secured well in advance.
+ - I like to assume that since I drive a car and maintain a respectable credit rating and rarely murder anyone and bury them in the back garden unless they really deserve it, that the fact that I hear voices wont unduly disturb anyone.
+ - Charlie is one of the big good guys in my universe.
+ - I almost wish I’d had the forethought to eat a tree myself.
+ - What I write, if you have to label it, is crossover, and I think that much of the stuff that is called children’s or YA is in fact crossover and is equally valid for anyone who likes to read fantasy.
+ - Sungold blew impatiently and began to dig a hole with one foot. She booted his elbow with her toe and he stopped, but after a moment he lowered his head and blew again, harder, and she could feel him shifting his weight, considering if she might let him dig just a small hole.
+ - It’s hard to look too grand when you’re led by someone who looks like a pudding with legs.
+ - It is a much more straightforward thing to be a dog, and a dog’s love, once given, is not reconsidered.
+ - And none at all has ridden at the king’s side since Aerinha, goddess of honor and flame, first taught men to forge their blades. You’d think Aerinha would have had better sense.
+ - Those single-track military minds never think to ask their cleaning staff for help in giant lethal marauding creature matters.
+ - One doesn’t generally look into mirrors when one is especially angry; one has better things to do, like pace the floor or throw things.
+ - I long for another human face just as I fear it.
+ - All you did was sit there, he said. Why are you so tired? I sat very diligently, she said.
+ - The story is always better than your ability to write it.
+ - But it was equally clear to her that this was her fate, that she had called its name and it had come to her, and she could do nothing now but own it.
+ - I’ve always been fascinated by the grassroots folktale level of a culture, and as a storyteller, I have to follow what seems to be leading me on.
+ - Laughter went on and on, like sunlight and stone, even if the human beings who laughed did not.
+
+71 quotes

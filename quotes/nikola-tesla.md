@@ -1,0 +1,115 @@
+ - If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.
+ - Be alone, that is the secret of invention; be alone, that is when ideas are born.
+ - I don’t care that they stole my idea... I care that they don’t have any of their own.
+ - The present is theirs; the future, for which I really worked, is mine.
+ - My brain is only a receiver, in the Universe there is a core from which we obtain knowledge, strength and inspiration. I have not penetrated into the secrets of this core, but I know that it exists.
+ - If your hate could be turned into electricity, it would light up the whole world.
+ - Of all things, I liked books best.
+ - The day science begins to study non-physical phenomena, it will make more progress in one decade than in all the previous centuries of its existence.
+ - Anti-social behavior is a trait of intelligence in a world full of conformists.
+ - I do not think there is any thrill that can go through the human heart like that felt by the inventor as he sees some creation of the brain unfolding to success. Such emotions make a man forget food, sleep, friends, love, everything.
+ - The scientists of today think deeply instead of clearly. One must be sane to think clearly, but one can think deeply and be quite insane.
+ - A new idea must not be judged by its immediate results.
+ - Every living being is an engine geared to the wheelwork of the universe. Though seemingly affected only by its immediate surrounding, the sphere of external influence extends to infinite distance.
+ - What one man calls God, another calls the laws of physics.
+ - I could only achieve success in my life through self-discipline, and I applied it until my wish and my will became one.
+ - All that was great in the past was ridiculed, condemned, combated, suppressed – only to emerge all the more powerfully, all the more triumphantly from the struggle.
+ - We all make mistakes, and it is better to make them before we begin.
+ - Our entire biological system, the brain, and the Earth itself, work on the same frequencies.
+ - Electric power is everywhere present in unlimited quantities and can drive the world’s machinery without the need of coal, oil, gas, or any other of the common fuels.
+ - I am even grateful to Einstein and others because through their erroneous theories they lead mankind away from that dangerous path I followed.
+ - If you only knew the magnificence of the 3, 6 and 9, then you would have the key to the universe.
+ - My brain is only a receiver, in the Universe.
+ - No free energy device will ever be allowed to reach the market.
+ - Throughout the infinite, the forces are in a perfect balance, and hence the energy of a single thought may determine the motion of a universe.
+ - Inventors don’t have time for married life.
+ - The idea came like a flash of lightning and in an instant the truth was revealed.
+ - Let the future tell the truth, and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine.
+ - I am trying to awake the energy contained in the air. These are the main sources of energy. What is considered as empty space is just a manifestation of matter that is not awakened.
+ - It’s not the love you make. It’s the love you give.
+ - I have always been ahead of my time.
+ - Today’s scientists have substituted mathematics for experiments, and they wander off through equation after equation, and eventually build a structure which has no relation to reality.
+ - Love: I recognize the emotion for what it is, an irrational self-destructive impulse, which is disguised as joy.
+ - When wireless is fully applied the earth will be converted into a huge brain, capable of response in every one of its parts.
+ - Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
+ - Great moments are born great oppurtunity.
+ - The Buddhist expresses it in one way, the Christian in another, but both say the same: We are all one.
+ - The desire that guides me in all I do is the desire to harness the forces of nature to the service of mankind.
+ - The opinion of the world does not affect me. I have placed as the real values in my life what follows when I am dead.
+ - Perhaps I failed, but I did my best, These masters of mine may do the rest.
+ - Each day we go to our work in the hope of discovering.
+ - Everyone should consider his body as a priceless gift from one whom he loves above all, a marvelous work of art, of indescribable beauty, and mystery beyond human conception, and so delicate that a word, a breath, a look, nay, a thought may injure it.
+ - There is no energy in matter other than that received from the environment.
+ - You may live to see man-made horrors beyond your comprehension.
+ - Peace can only come as a natural consequence of universal enlightenment.
+ - My belief is firm in a law of compensation. The true rewards are ever in proportion to the labour and sacrifices made.
+ - In a crystal we have clear evidence of the existence of a formative life principle, and though we cannot understand the life of a crystal, it is nonetheless a living being.
+ - Originality thrives in seclusion free of outside influences.
+ - I do not think you can name many great inventions that have been made by married men.
+ - Though free to think and act, we are held together, like the stars in the firmament, with ties inseparable. These ties cannot be seen, but we can feel them.
+ - But instinct is something which transcends knowledge. We have, undoubtedly, certain finer fibers that enable us to perceive truths when logical deduction, or any other willful effort of the brain, is futile.
+ - Of all the frictional resistances, the one that most retards human movement is ignorance.
+ - Invention is the most important product of man’s creative brain. The ultimate purpose is the complete mastery of mind over the material world, the harnessing of human nature to human needs.
+ - In the twenty-first century, the robot will take the place which slave labor occupied in ancient civilization.
+ - Man, like the universe, is a machine. Nothing enters our minds or determines our actions which is not directly or indirectly a response to stimuli beating upon our sense organs from without.
+ - Of all things I liked books best. My father had a large library and whenever I could manage I tried to satisfy my passion for reading.
+ - I cannot exaggerate the effect of this marvelous sight on my childish imagination. Day after day I asked myself what is electricity and found no answer. Eighty years have gone by since and I still ask the same question, unable to answer it.
+ - The beauty and the scent of roses can be used as a medicine and the sun rays as a food.
+ - Crystals are living beings at the beginning of creation.
+ - The motors I build there were exactly as I imagined them. I made no attempt to improve the design, but merely reproduced the pictures as they appeared to my vision and the operation was always as I expected.
+ - There is no subject more captivating, more worthy of study, than nature. To understand this great mechanism, to discover the forces which are active, and the laws which govern them, is the highest aim of the intellect of man.
+ - All matter comes from a primary substance, the luminiferous ether.
+ - Within a few years a simple and inexpensive device, readily carried about, will enable one to receive on land or sea the principal news, to hear a speech, a lecture, a song or play of a musical instrument, conveyed from any other region of the globe.
+ - To know each other we must reach beyond the sphere of our sense perceptions.
+ - We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences.
+ - Even matter called inorganic, believed to be dead, responds to irritants and gives unmistakable evidence of a living principle within. Everything that exists, organic or inorganic, animated or inert, is susceptible to stimulus from the outside.
+ - My wireless transmitter does not use Hertzian waves, which are a grievous myth, but sound waves in the aether...
+ - My mother understood human nature better and never chided. She knew that a man cannot be saved from his own foolishness or vice by someone else’s efforts or protests, but only by the use of his own will.
+ - The last 29 days of the month are the toughest!
+ - Money does not represent such a value as men have placed upon it. All my money has been invested into experiments with which I have made new discoveries enabling mankind to have a little easier life.
+ - My Mother had taught me to seek all truth in the Bible.
+ - Nature may reach the same result in many ways.
+ - To create and to annihilate material substance, cause it to aggregate in forms according to his desire, would be the supreme manifestation of the power of Man’s mind, his most complete triumph over the physical world...
+ - The progressive development of man is vitally dependent on invention.
+ - It is a simple feat of scientific electrical engineering – only expensive – blind, faint-hearted, doubting world.
+ - So we find that the three possible solutions of the great problem of increasing human energy are answered by the three words: food, peace, work.
+ - It seems that I have always been ahead of my time. I had to wait nineteen years before Niagara was harnessed by my system, fifteen years before the basic inventions for wireless which I gave to the world in 1893 were applied universally.
+ - Is nature a giant cat? If so, who strokes its back?
+ - It is a mere question of time when men will succeed in attaching their machinery to the very wheelwork of nature.
+ - When natural inclination develops into a passionate desire, one advances towards his goal in seven-league boots.
+ - If Mr. Edison had thought smarter he wouldn’t sweat as much.
+ - Every effort under compulsion demands a sacrifice of energy. I never paid such a price.
+ - The idea of atomic energy is illusionary but it has taken so powerful a hold on the minds, that although I have preached against it for twenty-five years, there are still some who believe it to be realizable.
+ - We build but to tear down. Most of our work and resource is squandered. Our onward march is marked by devastation. Everywhere there is an appalling loss of time, effort and life. A cheerless view, but true.
+ - The entire Earth will be converted into a huge brain.
+ - To conquer by sheer force is becoming harder and harder every day. Defensive is getting continuously the advantage of offensive, as we progress in the satanic science of destruction.
+ - The spread of civilisation may be likened to a fire; first, a feeble spark, next a flickering flame, then a mighty blaze, ever increasing in speed and power.
+ - So astounding are the facts in this connection, that it would seem as though the Creator, himself had electrically designed this planet...
+ - The future will show whether my foresight is as accurate now as it has proved heretofore.
+ - My ear barely caught signals coming in regular succession which could not have been produced on earth...
+ - It has cost me years of thought to arrive at certain results, by many believed to be unattainable, for which there are now numerous claimants, and the number of these is rapidly increasing, like that of the colonels in the South after the war.
+ - All the great religions contain wise prescriptions relating to the conduct of life, which hold good now as they did when they were promulgated.
+ - Ere many generations pass, our machinery will be driven by a power obtainable at any point of the universe.
+ - Marconi is a good fellow. Let him continue. He is using 17 of my patents.
+ - I am equally proud of my Serbian origin and my Croatian fatherland.
+ - We should begin at the very root from which we spring, we should effect a radical reform in the character of the food.
+ - Up to that time I never realized that I possessed any particular gift of discovery, but Lord Rayleigh, whom I always considered as an ideal man of science, had said so and if that was the case, I felt that I should concentrate on some big idea.
+ - I predict that very shortly the old-fashioned incandescent lamp, having a filament heated to brightness by the passage of electric current through it, will entirely disappear.
+ - By an irony of fate, my first employment was as a draughtsman. I hated drawing; it was for me the very worst of annoyances. Fortunately, it was not long before I secured the position I sought, that of chief electrician to the telephone company.
+ - A century from now it will no more occur to a normal person to mate with a person eugenically unfit than to marry a habitual criminal.
+ - With a different form of wireless instrument devised by me some years ago it was found practicable to locate a body of metallic ore below the ground, and it seems that a submarine could be similarly detected.
+ - All peoples everywhere should have free energy sources.
+ - The individual is ephemeral, races and nations come and pass away, but man remains.
+ - Every living being is an engine geared to the wheel-work of the universe.
+ - Life is and will ever remain an equation incapable of solution, but it contains certain known factors.
+ - It will soon be possible to transmit wireless messages around the world so simply that any individual can carry and operate his own apparatus.
+ - Our senses enable us to perceive only a minute portion of the outside world.
+ - Archimedes was my ideal. I admired the works of artists, but to my mind, they were only shadows and semblances. The inventor, I thought, gives to the world creations which are palpable, which live and work.
+ - I have harnessed the cosmic rays and caused them to operate a motive device.
+ - But I hope that it will also be demonstrated soon that in my experiments in the West I was not merely beholding a vision, but had caught sight of a great and profound truth.
+ - Fights between individuals, as well as governments and nations, invariably result from misunderstandings in the broadest interpretation of this term.
+ - To stop war by the perfection of engines of destruction alone, might consume centuries and centuries. Other means must be employed to hasten the end.
+ - Sometimes I feel that by not marrying, I made too great a sacrifice to my work.
+ - Most certainly, some planets are not inhabited, but others are, and among these there must exist life under all conditions and phases of development.
+
+113 quotes

@@ -1,0 +1,48 @@
+ - I don’t like no confusion.
+ - I never had any ambition to be a star, or whatever it is called, and I’m still embarrassed at the word.
+ - If you listen, you learn; if you talk, you don’t.
+ - Life is full of ironies and paradoxes.
+ - I loathed school. I don’t have an academic mind, and besides I was so bored by my teachers! How teachers can take a child’s inventiveness and say yes, yes, in that pontifical way of theirs, and smother everything!
+ - The clergy is in the same business as actors, just a different department.
+ - It’s a great relief to feel that you’re working with someone rather than for someone. You don’t feel that you’re being tested, as it were.
+ - My parents felt that acting was far too insecure. Don’t ask me what made them think that painting would be more secure.
+ - Nudes are the greatest to paint. Everything you can find in a landscape or a still life or anything else is there: darkness and light, character dimension, texture. I painted heads too, of course.
+ - As Beckett said, it’s not enough to die, one has to be forgotten as well.
+ - You have to learn to cut your cloth accordingly. But it seems to be a human weakness. Once you start making a lot of money, you just join in with everyone else. It’s like the banks, and we’ve seen what happens there.
+ - My mother’s father drank and her mother was an unhappy, neurotic woman, and I think she has lived all her life afraid of anyone who drinks for fear something like that might happen to her.
+ - I never quite understand why we watch the news. There doesn’t really seem much point watching somebody tell you what the news is when you could quite easily listen to it on the radio.
+ - I was keen on sports-that’s how my nose got this way. It’s not actually broken; the nose was just pushed up a little bit and moved over. It’s an aquiline nose, quite Irish.
+ - I think it would be very difficult to play somebody if they didn’t think they had any virtues or redeeming characteristics.
+ - We are all racing towards death. No matter how many great, intellectual conclusions we draw during our lives, we know they’re all only man-made, like God. I begin to wonder where it all leads. What can you do, except do what you can do as best you know how.
+ - Acting is an imaginative leap, really. And imaginations prosper in different circumstances. And it’s being able – I can’t tell you how one does, but one tries to read those circumstances correctly.
+ - I think, you have to forget about intellect, to a degree. Intuition is very important when you’re working with a lens, I believe, for what the lens is doing, too.
+ - It would be difficult to have any unfulfilled ambitions because I don’t have any ambitions. I’ve never been that kind of performer.
+ - Pretending to be other people is my game and that to me is the essence of the whole business of acting.
+ - I mark a script like an exam, and I try not to do anything under 50 per cent. Similarly with the part. And also film is a peculiar thing, parts don’t necessarily read in script form anything like as well as they can do when it comes to materialising.
+ - My fathers a clergyman, and he was in the mission field for a certain amount of time in British Honduras, which is now Belize.
+ - I left drama school and went straight into a 10-week film for which I was paid $75 I might say, which for 1962 was one heck of a lot of money.
+ - I have lots of favourite memories but I can’t say that I have a favourite film.
+ - Society is constantly recalibrating, redefining what it considers to be moral and immoral.
+ - Obviously, the arrogance of my own nature in regards to other people’s work would suggest that I think I’m talented.
+ - Each day, as you get older, there is a new perspective on life. It’s a progression of some sort.
+ - I turn up in Los Angeles every now and then, so I can get some big money films in order to finance my smaller money films.
+ - It’s an immensely competitive business, and I can tell you the older you get, the parts are fewer, and the people who are proven performers are greater.
+ - I think it’s interesting to see how things come into and go out of fashion.
+ - We’re all far too afraid of being so arrogant to say “Either you can or you can’t.”
+ - I think you can fan the flames, but I think in the same way that a mathematician is a mathematician – He’s not taught to be a mathematician. He either has a feeling for equations and an understanding and delight in it, not only in the purity of it, but in its beauty as well.
+ - Also the wonderful thing about film, you can see light at the end of the tunnel. You did realize that it is going to come to an end at some stage.
+ - It’s quite a dangerous career move to go wilfully on making films that may not find a distributor.
+ - I remember once when I told Lindsay Anderson at a party that acting was just a sophisticated way of playing cowboys and Indians he almost had a fit.
+ - I think you can get better in mathematics on a school level, but when you’re talking about being a mathematician, I think that’s definitely a gift of genes or whatever.
+ - I put everything I can into the mulberry of my mind and hope that it is going to ferment and make a decent wine. How that process happens, I’m sorry to tell you I can’t describe.
+ - When you’re really working well with a director then you can be as outrageous as you like and so can he. And there’s no worry about it.
+ - If you do an interview in 1960, something it’s bound to change by the year 2000. And if it doesn’t, then there’s something drastically wrong.
+ - If I’m in theatre, cinema doesn’t even cross my mind. Similarly when I’m making a film, theatre doesn’t cross my mind.
+ - I am not an enormous believer in research being the be-all and end-all. I get suspicious when I read about actors spending six months in a clinic, say, in order to play someone who is sick.
+ - I’ve spent a great deal of my life doing independent film, and that is partly because the subject matter interests me and partly because that is the basis of the film industry. That’s where the filmmakers come from, it’s where they start and sometimes its where they should have stayed.
+ - You collect as much information as you can and then you put it into the mulberry of your mind and hope that you come up with a decent wine. Sometimes you do; sometimes you don’t.
+ - I first decided that I wanted to act when I was 9. And I was at a very bizarre prep school at the time, to say high Anglo-Catholic would be a real English understatement.
+ - You can see areas where maybe you got a bit lazy, perhaps, or you see when you were really on form. I think an actor is very like a sportsman in that respect. You have periods where you’re in terrific form.
+ - Very broadly speaking, you can put directors into two areas: One for whom you work, and the other with whom you work. And I prefer the latter, for obvious reasons.
+
+46 quotes

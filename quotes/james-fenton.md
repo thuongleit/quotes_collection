@@ -1,0 +1,37 @@
+ - English poetry begins whenever we decide to say the modern English language begins, and it extends as far as we decide to say that the English language extends.
+ - One does not become a guru by accident.
+ - In rap, as in most popular lyrics, a very low standard is set for rhyme; but this was not always the case with popular music.
+ - My feeling is that poetry will wither on the vine if you don’t regularly come back to the simplest fundamentals of the poem: rhythm, rhyme, simple subjects – love, death, war.
+ - It normally happens that if you put two words together, or two syllables together, one of them will attract more weight, more emphasis, than the other. In other words, most so-called spondees can be read as either iambs or trochees.
+ - The basic rhymes in English are masculine, which is to say that the last syllable of the line is stressed: ‘lane’ rhymes with ‘pain,’ but it also rhymes with ‘urbane’ since the last syllable of ‘urbane’ is stressed. ‘Lane’ does not rhyme with ‘methane.’
+ - The writing of a poem is like a child throwing stones into a mineshaft. You compose first, then you listen for the reverberation.
+ - A poem with grandly conceived and executed stanzas, such as one of Keats’s odes, should be like an enfilade of rooms in a palace: one proceeds, with eager anticipation, from room to room.
+ - At four lines, with the quatrain, we reach the basic stanza form familiar from a whole range of English poetic practice. This is the length of the ballad stanza, the verse of a hymn, and innumerable other kinds of verse.
+ - Generally speaking, rhyme is the marker for the end of a line. The first rhyme-word is like a challenge thrown down, which the poem itself has to respond to.
+ - Composers need words, but they do not necessarily need poetry. The Russian composer, Aleksandr Mossolov, who chose texts from newspaper small ads, had a good point to make. With revolutionary music, any text can be set to work.
+ - Windbags can be right. Aphorists can be wrong. It is a tough world.
+ - The voice is raised, and that is where poetry begins. And even today, in the prolonged aftermath of modernism, in places where ‘open form’ or free verse is the orthodoxy, you will find a memory of that raising of the voice in the term ‘heightened speech.’
+ - At somewhere around 10 syllables, the English poetic line is at its most relaxed and manageable.
+ - The lullaby is the spell whereby the mother attempts to transform herself back from an ogre to a saint.
+ - The Mormon mission to Africa, as to other dark-skinned parts of the world, was for a long time hobbled by the racism of the movement’s scripture.
+ - Poetry carries its history within it, and it is oral in origin. Its transmission was oral.
+ - My sonnet asserts that the sonnet still lives. My epic, should such fortune befall me, asserts that the heroic narrative is not lost – that it is born again.
+ - Considering the wealth of poetic drama that has come down to us from the Elizabethan and Jacobean periods, it is surprising that so little of any value has been added since.
+ - When Mr Ackroyd says that in the 18th century, stranglers bit off the noses of their victims, I feel that he probably knows what he is talking about. I just wish he hadn’t told me.
+ - Oh let us not be condemned for what we are. It is enough to account for what we do.
+ - Nobody really knows whether they are a poet. I knew I was interested from the age of 15.
+ - Hearing that the same men who brought us ‘South Park’ were mounting a musical to be called ‘The Book of Mormon,’ we were tempted to turn away, as from an inevitable massacre.
+ - Free verse seemed democratic because it offered freedom of access to writers. And those who disdained free verse would always be open to accusations of elitism, mandarinism. Open form was like common ground on which all might graze their cattle – it was not to be closed in by usurping landlords.
+ - Imitation, if it is not forgery, is a fine thing. It stems from a generous impulse, and a realistic sense of what can and cannot be done.
+ - What happened to poetry in the twentieth century was that it began to be written for the page.
+ - Great poetry does not have to be technically intricate.
+ - Babies are not brought by storks and poets are not produced by workshops.
+ - Modernism in other arts brought extreme difficulty. In poetry, the characteristic difficulty imported under the name of modernism was obscurity. But obscurity could just as easily be a quality of metrical as of free verse.
+ - One problem we face comes from the lack of any agreed sense of how we should be working to train ourselves to write poetry.
+ - A cabaret song has got to be written – for the middle voice, ideally – because you’ve got to hear the wit of the words. And a cabaret song gives the singer room to act, more even than an opera singer.
+ - I don’t see that a single line can constitute a stanza, although it can constitute a whole poem.
+ - The composer does not want the self-sufficiency of a richly complex text: he or she wants to feel that the text is something in need of musical setting.
+ - I prefer writing in the mornings, so to that extent I have a routine. I do reading and other things in the afternoon.
+ - There is no objection to the proposal: in order to learn to be a poet, I shall try to write a sonnet. But the thing you must try to write, when you do so, is a real sonnet, and not a practice sonnet.
+
+35 quotes

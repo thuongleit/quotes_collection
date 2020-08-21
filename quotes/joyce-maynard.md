@@ -1,0 +1,47 @@
+ - It’s not only children who grow. Parents do too. As much as we watch to see what our children do with their lives, they are watching us to see what we do with ours. I can’t tell my children to reach for the sun. All I can do is reach for it, myself.
+ - A person who deserves my loyalty receives it.
+ - To share our stories is not only a worthwhile endeavor for the storyteller, but for those who hear our stories and feel less alone because of it.
+ - I have long observed that the act of writing is viewed, by some, as an elite and otherworldly act, all the more so if a person isn’t paid for what she writes.
+ - A good home must be made, not bought. In the end, it’s not track lighting or a sun room that brings light into a kitchen.
+ - She felt everything too deeply, it was like the world was too much for her.
+ - I had known there had been a serial killer on Mount Tamalpais, and it felt so incongruous in such a beautiful, peaceful spot.
+ - I continued to protect him with my silence.
+ - A good home must be made, not bought.
+ - Growing up in the fifties and sixties, I can only remember knowing one child, ever, whose parents got a divorce, and hardly any whose mother ‘worked’ at anything besides raising her children.
+ - I believe every one of us possesses a fundamental right to tell our own story.
+ - It’s not only children who grow. Parents do too...
+ - Wherever it is you make your home, there is always this other place, this other person, calling to you. Come to me. Come back.
+ - Not only did I avoid speaking of Salinger; I resisted thinking about him. I did not reread his letters to me. The experience had been too painful.
+ - Every child, woman, and man should possess license to speak or sing in his or her true voice.
+ - If I told you about all the stories I don’t tell, I would be violating the very boundaries I set for myself.
+ - I believed my story would be helpful to young women my daughter’s age, who are still in the process of forming themselves as women, and in need of encouragement to remain true to themselves.
+ - The painter who feels obligated to depict his subjects as uniformly beautiful or handsome and without flaws will fall short of making art.
+ - The real drug, I came to believe, was love.
+ - At Home in the World is the story of a young woman, raised in some difficult circumstances, and how she survives. It tells a story of redemption, not victimhood.
+ - The word NO, carries a lot more meaning when spoken by a parent who also knows how to say yes.
+ - Those who rhapsodize about the ease and joy of childhood have perhaps forgotten what it’s like to be 12 years old.
+ - I have no doubt that over the years my children will find plenty of things about me to criticize. But something tells me that twenty years from now not one of them will sit on some therapist’s couch complaining because their mother didn’t spend enough time vacuuming up glitter.
+ - The silence was part of the story I wanted to tell.
+ - It troubles me that people speak about writing for money as ugly and distasteful.
+ - There is a theme that runs through my work, and that is: the toxic property of keeping secrets.
+ - For 25 years, I did take my responsibilities as a pleaser of others sufficiently seriously.
+ - Nothing like being visible, publishing one’s work, and speaking openly about one’s life, to disabuse the world of the illusion of one’s perfection and purity.
+ - When people ask what I write about, that’s what I tell them: ‘The drama of human relationships.’ I’m not even close to running out of material.
+ - The vehemence with which certain critics have chosen not simply to criticize what I’ve written, but to challenge my writing this story at all, speaks of what the book is about: fear of disapproval.
+ - The big dramas that fascinate me are the quiet ones that happen behind closed doors in so-called ordinary families.
+ - My job is writing. I get paid to do it. When was the last time you heard someone challenge a doctor for making money off of cancer?
+ - I think of myself as a realistic writer, not a creator of soap opera or melodrama.
+ - Some literary types subscribe to the notion that being a writer like Salinger entitles a person to remain free of the standards that might apply to mere mortals.
+ - More than any other setting – more than battlefields or boardrooms or a spaceship headed for intergalactic travel – I’ll put my money on the family to provide an endless source of comedy, tragedy and intrigue.
+ - No, I said. I didn’t remember that. There was so much to remember, sometimes the best thing was to forget.
+ - Although Salinger had long since cut me out of his life completely and made it plain that he had nothing but contempt for me, the thought of becoming the object of his wrath was more than I felt ready to take on.
+ - Imagine if you succeeded in making the world perfect for your children what a shock the rest of life would be for them.
+ - I do not outline. There are writers I know and count as my friends who certainly do it the other way, but for me, part of the adventure is not knowing how it’s going to turn out.
+ - If a man wishes to truly not be written about, he would do well not to write letters to 18-year-old girls, inviting them into his life.
+ - I compromised my ability to tell my story, at the most basic level.
+ - One of the sad realities of being a parent is that the same stuff you know is exciting, educational, and enriching in your child’slife is often messy, smelly and exhausting to deal with.
+ - Many women my age have known the experience of giving up crucial parts of themselves to please the man they love.
+ - The portrait of my parents is a complicated one, but lovingly drawn.
+ - Long after Salinger sent me away, I continued to believe his standards and expectations were the best ones.
+
+45 quotes

@@ -1,0 +1,26 @@
+ - A true patriot does not confuse government with country. A patriot’s loyalty is to his country, and loyalty to country requires holding government accountable.
+ - I don’t know why liberals want to disarm the law-abiding population, but I do know that not a single argument proffered stands the light of facts. Armed citizens deter far more crimes than the police, and far more lives are saved by the intended victim being armed than are lost in firearm accidents.
+ - When the world looks at America, what it sees is an Israeli colony.
+ - If our language and culture are not passed on to immigrants, where will they learn to value integrity in government and the rule of law?
+ - The very concept of law that protects us from tyranny has been lost. No longer the people’s shield, law has become a weapon in the hands of government.
+ - A country that goes out of its way to imprison the innocent has no business preaching democracy to the world.
+ - Consistency may be the hobgoblin of little minds, but law, morality and leadership demand it. Without consistency, there is privilege.
+ - A country in which 42% of the population is totally misinformed is not a country where democracy is safe.
+ - When character is lost, rules and punishments cannot take its place.
+ - A country whose population has been trained to accept the government’s word and to shun those who question it is a country without liberty in its future.
+ - Tariffs protect ill-considered government policies, such as costly regulations and high taxes on labor and capital that make our goods uncompetitive in international markets.
+ - The only thing that can be expected from the next US president is more war, more murder, and more oppression of the gullible American people. People as uninformed and as gullible as Americans have no future. Americans are a dead people that history is about to run over.
+ - There are now 17,000 local American police forces that are armed with rocket launchers, bazookas, heavy machine guns, all kinds of chemical sprays, in fact some of them have tanks. You now have local police departments that are equipped beyond the standard of American heavy infantry.
+ - Terrorists can endanger some of us, but the war on terror endangers us all. How much more can the Constitution be diminished before it is completely replaced by arbitrary government power?
+ - Unequal group rights, the politics of redistribution and a Constitution whose meaning varies with changeable coalitions are a recipe for civil war.
+ - If we add state capitalism to the Bush administration’s success in eroding both the US Constitution and the power of Congress, we may be witnessing the final death of accountable constitutional government.
+ - There are enough fools in Washington to destroy the country without any help from Muslim terrorists.
+ - For reporting a scientific finding, I was called a ‘conspiracy theorist.’ Only in America is scientific analysis seen as conspiracy theory and government lies as truth.
+ - Americans have no idea why they have been at war in the Middle East, Asia and Africa for a decade. They don’t realize that their liberties have been supplanted by a Gestapo Police State. Few understand that hard economic times are here to stay.
+ - Washington’s Corruption and Mendacity Is What Makes America ‘Exceptional’
+ - Justice is no longer a concern of the justice system.
+ - The United States has collapsed economically, socially, politically, legally, constitutionally, and environmentally.
+ - As the growing emphasis on feelings crowds out reason, facts will play a smaller role in public discourse.
+ - The worst criminals of our time are the US and UK governments. Both are devoid of all integrity, all honor, all mercy, all humanity. Many members of both governments would have made perfect functionaries in Stalinist Russia or Nazi Germany.
+
+24 quotes

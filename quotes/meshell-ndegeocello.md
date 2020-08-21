@@ -1,0 +1,45 @@
+ - Your yes means nothing if you can’t say no.
+ - Her beauty cannot be measured with standards of a colonized mind.
+ - God looks out for fools and babies.
+ - It’s hard being bisexual, omnisexual, multisexual, whatever you want to call it, when people have their agenda and expect you to just represent their agenda.
+ - I think leaders are incapable of the strength that passive resistance entails.
+ - I’m becoming more and more apolitical – I think the most revolutionary thing you can do is just live your life and have a good time. Before they scoop you up on the street or you die.
+ - Definitely dub is in my body forever. I think I hear everything through a dub filter. Even when I play rock music, I play through a dub filter.
+ - I’m a true believer that unless you’re Prince or Stevie Wonder – and even Prince is showing that he needs help – not everybody can produce themselves. I’m definitely not that person.
+ - My legacy is in my family, not in my work. For me. I don’t know about for other people. I try to forget a lot.
+ - I joke that a person of color would never make a movie like ‘Midnight in Paris.’ Nostalgia isn’t so enticing.
+ - Any ideas of ‘other’ are complicated, and otherness is relative to personal ideas of ’normal.
+ - There’s no hierarchy in suffering. I think songs that are transcendent are the ones where everyone can feel something from it, you know?
+ - We’re all just bags of bones and muscle and hormones; I’ll never understand what makes our minds do the things we do. It’s like that statue of the monkey holding a skull. We’re trying to use a thing we don’t understand to understand ourselves.
+ - You make a choice to make music or be an actor, and people automatically think they can have access to your life.
+ - It’s funny, I think after you are a star like Sting and you no longer think you need any guidance or aid – it would be great to see those stars work with other songwriters.
+ - Madonna is interesting. She changed music. She definitely did. She gave me an opportunity that no one else would give me, so I am very grateful to her.
+ - Once you encounter people who are really testing the limits of kindness, that’s when you start to build up a shield and close yourself down.
+ - No one knows anything for sure.
+ - I love children. I’d prefer to be around children much more than adults, actually. And I like animals, too. I’m just really into beings who are at ease with themselves.
+ - I am here no longer just a vision birthed into this body I accept my praise, my blame, my joy, my sorrow I realize we are, in truth, the truth we seek God, perfect this very moment.
+ - Our leaders and Osama Bin Laden all claim to do the right thing in the name of God. I question that. I wonder if that God is worth the life of another human-being.
+ - My greatest influence is Jimi Hendrix, and if he’s been reincarnated, or if he’s looking down, sideways, or looking up, I just wanted to tell him that I love him and thank him for opening doors for me. I just wanted to make it beautiful for him.
+ - Allow the artist to finish the piece of work before you critique it.
+ - Music is like a lover that I can’t commit to, but I seem to always find myself in bed with.
+ - I stopped beating up on myself. I stopped asking myself why I didn’t sell this number of records, why I don’t have corporate sponsorship. I just don’t buy into any of that anymore.
+ - It’s interesting to do other people’s music – that’s how I learned to play, by learning other people’s songs. It’s nice to delve into how other people got to where they are.
+ - I think all musicians should understand that you have chosen not to be a soldier but a musician.
+ - The blowing thing is something that you either have a predilection for or not. And I don’t have that thing. It was just unsanitary. I couldn’t do it. I am a complete germaphobe.
+ - Not to be a Bible-thumper, but there really is nothing new under the sun.
+ - Sometimes people ask what it was like when I got to meet Mick Jagger, and I must admit that you just try and chill out and be your best self around anyone that you meet.
+ - I find myself wanting to make music at the dining room table or in the bedroom – I’m kind of a mobile writer, so I sort of move around the house. But the attic is definitely where I can make the most noise. While everyone on the lower floors screams ‘Earthquake!’ But no! It’s just my bass!
+ - Children are born with their own optimism. They have a clarity and a simplicity that we can only wish for.
+ - I just try to tell a story with a song, and be able to try to transmit the emotion to you. That’s all I’m really trying to do.
+ - Music is my only guide. I don’t care if people pigeonhole me. Miles Davis is my hero. He covered Cindy Lauper and Michael Jackson, and he didn’t give a hoot about what the purists said.
+ - I think secretly I’ve realized after my time on the planet that I have no control over what people feel about me or need from me, so I just have a more laid-back approach in my apologies.
+ - I tried to be as positive as possible, because I have the same birthday as Michael Jackson. He is my cosmic brother. I love him.
+ - I’m really good at melodic and sonic things, but I don’t really think I have anything to say. But I really enjoy the puzzle-making of taking words and adding a melody to them.
+ - If I would not be able to create music, I would create art or something else. Perhaps cooking.
+ - I’m pushing ahead on my own – you no longer need a large record company to make you a star.
+ - Yes, violence begets more violence, but historically this has been the way of the world.
+ - My favorite period is when we lived in the land of the three-minute song. The Motown thing – I thought they were genius in knowing that’s as much as a listener can take.
+ - I feel that musicians are in a fellowship, and that fellowship is a responsibility.
+ - I watch documentaries for information. I watch films to be entertained.
+
+43 quotes

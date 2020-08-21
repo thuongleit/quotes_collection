@@ -1,0 +1,77 @@
+ - The sooner we get started with alternative energy sources and recognize that fossil fuels makes us less secure as a nation, and more dangerous as a planet, the better off we’ll be.
+ - I think the worst thing in the world is to have the courts decide who to target in the war on terrorism. And courts are not military commanders.
+ - The intelligence community gets hurt through sequestration.
+ - If the Egyptian people can create a democracy in the heart of the Arab world, it will be a more significant contribution to civilization than the great pyramids.
+ - The worst nightmare in the world is a radical Islamic regime with a weapon of mass destruction.
+ - We’re not generating enough angry white guys to stay in business for the long term.
+ - Well, thank God for a media that will ask questions.
+ - I believe climate change is real, but I reject the cap and trade solution of John – of, you know, of Al Gore. He’s made a religion. It’s a problem.
+ - I dare say there may be some men and women in the Armed Forces who are so decent that they would say: Give the Iraqi people money, we do not want to be paid back. That is the strength of our country.
+ - I intend to make America strong again. I’m going to be the champion of the middle class, where I came from. If you make me your president, our best days are ahead. I’m ready to be commander-in-chief, ladies and gentlemen, on day one. I intend to win a war that we cannot afford to lose.
+ - I’m not going to throw my state under the bus. That’s never going to happen.
+ - Well, the big elephant in the whole system is the baby boomer generation that marches through like a herd of elephants. And we begin to retire in 2008.
+ - The courtroom is a quiet place, Judge Roberts, where you park your political ideology, and you call the balls and you call the strikes.
+ - The American consumer is also the American worker, and if we don’t do something to protect our manufacturing base here at home, it is going to be hard to buy any retail goods.
+ - I would love to end the nuclear ambition of the Iranians without firing a shot, but you have to know who you’re talking to and what they actually want, this is North Korea in the making.
+ - I think most Americans understand that radical Islam can’t be compromised with or appeased. And the only way we can be safe is to form partnerships over there that will protect us over here.
+ - Most people are one car wreck away from needing somebody’s help. So, I don’t take anything for granted much anymore.
+ - The world we live in takes a multifaceted approach. To the American taxpayer: We need to be investing in improving people’s lives before the terrorists try to take over.
+ - I’m running because I think the world is falling apart.
+ - We cannot win this war on terror if people are undercutting us. And one way to undercut us is to empower Iran.
+ - President Bush has shown great leadership. He has said that the 21st century will not be ruled or dictated by terrorists, dictators, and murderers. He is absolutely right. God bless him for his resolve.
+ - It’s really American to avoid paying taxes, legally.
+ - Conservatives have a different view of a lot of issues versus our friends on the other side. The election determines how that shakes out.
+ - I would love to have a good deal to end the nuclear ambitions of the Iranians, but I don’t trust the Iranians. They’ve been lying and cheating.
+ - I’m for eliminating deductions and taking some of the money to buy down rates and put it on the debt. That’s not raising taxes. That’s solving a problem.
+ - Iran is part of the problem, not the solution. And the Russian government is ignoring reality.
+ - The best deal that Barack Obama can get will not be the best deal to be had because he’s weak and indecisive.
+ - If ‘Obama-care’ becomes fully implemented in 2014, it’s going to bankrupt states.
+ - I am confident – very confident – that if I help solve this problem in a way that we won’t have 20 million illegal immigrants 20 years from now, not only will I get re-elected, I can look back and say I was involved in something that was important.
+ - The healthcare bill not only is a monstrosity in terms of growing the government and cutting out the private sector, the way it was passed was sleazy. Every old Washington trick was used to pass the healthcare bill.
+ - I think the American people pretty well understand that radical Islam has an agenda that includes us.
+ - Marco Rubio, I think, will be president some day. Whether 2016 is his time, time will tell. He embraced immigration reform. He seems to have backed off. I’ll let him explain why.
+ - The Lindsey Graham via foreign policy is going to beat Rand Paul’s libertarian view of foreign policy. It will beat Barack Obama’s view of foreign policy. It will beat Hillary Clinton’s view of foreign policy.
+ - We have to adjust the age retirement for younger people. People of my income level are going to have to have their benefits means-tested. Democrats are going to want a simpler tax code.
+ - Do not give the terrorists, the enemy combatants, the people who blow up folks at weddings, who fly airplanes into the twin towers, the ability to sue our own troops all over the country for any and everything.
+ - I think our nation’s at war with radical Islam. The primary goal of these groups is to attack our nation. Washington’s a prime target.
+ - I don’t have kids, but I do understand family, and I understand how precious family is.
+ - We’ve got fifty people at Gitmo that are too dangerous to be let go that will never go through a normal criminal trial. Let’s create a new legal system, so they’ll have their day in court.
+ - Philanthropy is lost. The human spirit is suppressed. Most people want a legacy; they want to give something back, a library, a hospital wing, a donation to their church. This is a form of socialism that must go.
+ - Nobody in the Senate on a bipartisan fashion trusts the Iranians. They lie. They cheat. They’re a murderous regime. They’ve been trying to develop a nuclear weapon.
+ - Im the ranking Republican on the foreign aid appropriations subcommittee, so I know Tunisia well.
+ - What is the environmental policy of the Republican Party? When I ask that question, I get a blank stare, if I’m president of the United States, we’re going to address climate change and CO2 emissions in a business-friendly way.
+ - I think I’ve done more right than wrong on foreign policy. I’ve criticized the president for being weak and indecisive. I’ve been a problem solver in Washington and I think I’ve got something to offer the party and nation.
+ - Free speech is a great idea, but were in a war.
+ - There’s something wrong when hedge fund managers pay lower tax rates than nurses or the truckers.
+ - I don’t see any coronation coming my way.
+ - We owe to every businessperson and worker in America the best environment in the world to create a job. We owe that to American businesses. Thirty-five percent corporate tax rate is the second highest in the world. We need to lower it so they don’t leave. The goal is to help the middle class.
+ - Is any blogger out there saying anything – do they deserve First Amendment protection? These are the issues of our times.
+ - The Iranians have shared every weapon they’ve ever developed with terrorist organizations. I fear they would share nuclear technology with a terrorist organization that would one day come here.
+ - President Obama chose politics over leadership. ‘Hope’ and ‘Change’ have become bait-and-switch.
+ - In my view, Democrats and Republicans work together too little, and I would try to change that if I got to be president. And when it came to radical Islam, I would go after them before they come back here again.
+ - I want a president who’ll look out for American interests. Every treaty we sign has a provision that a president of the United States, if he or she concludes that it’s no longer in the interest of the country should step back from it.
+ - No employer is going to hire robustly until they know what the health care cost is going to be.
+ - If Barack Obama cannot appreciate that our troops are winning in Iraq, he should not be their Commander in Chief.
+ - There’s a lot of things we can do to balance out what Obama’s done and going forward show the American people the Republican Party can govern. I want a coalition of tea party people, independents, moderate Democrats trying to find a way to move this country forward before we become Greece.
+ - What is the environmental platform of the Republican party? I don’t know either.
+ - I think the best thing, if you can’t get an air-tight deal with every “I” dotted and every “t” crossed is let the next president have a chance to deal with the Iranians.
+ - The legal system in Afghanistan is very immature and porous.
+ - I think comprehensive immigration reform while securing your border and dealing rationale with 11 million is the only way we’re going to solve this problem.
+ - The worst nightmare for al Qaeda is to come into a community that feels supported and has hope.
+ - We can talk about corporations all day long but my goal is to help the middle class, somebody who makes too much to be on government assistance but still lives paycheck to paycheck.
+ - Dishonest, which is Hillary Clinton in the eyes of the American people, beats crazy. Dishonest loses to normal. So, let’s just pick somebody out of the phone book if we have to.
+ - I think as people find out about my foreign policy, what they’re going to find out is that I’m right in the mainstream of the Republican Party. I believe the number one priority of the federal government is national defense.
+ - Ronald Reagan would have a hard time getting elected as a Republican today.
+ - The next president of the United States needs to figure one thing out quickly – how to be commander in chief. And I think I could do that.
+ - The politics of judges is getting to be red hot.
+ - I hope we follow Mr. Snowden to the ends of the Earth to bring him to justice.
+ - Tea Party to establishment from social conservative to libertarian, we all – what people want more than anything is they don’t just want a fighter. They want someone who fights and wins.
+ - I’ve been a military lawyer for 33 years. A member of al Qaeda or their affiliate group can be detained under a law of war as long as their threat to our nation without a trial.
+ - What’s going on in the Senate is kind of a politics of escalation. We’re getting sort of like the Mideast: pay back everybody when you’re in charge.
+ - Social Security must be preserved and strengthened. But we need to be candid about the costs and willing to make the tough choices that real reform will require.
+ - I’m for Simpson-Bowles. It doesn’t raise taxes, it closes loopholes and takes the money we would give to a few people and put it on the debt.
+ - At the end of the day, I think I understand the dynamic that we face. And I’m best prepared to be commander in chief on day one, with all due respect to my other colleagues, including Hillary Clinton.
+ - I’ve been elected numerous times in South Carolina. If I’m on the ballot, I’m going to win South Carolina.
+ - In the eyes of the Iranians, they don’t respect or fear Barack Obama. He drew a line against Assad when he used chemical weapons and did nothing about it. And our friends, the Arabs and the Israelis, don’t trust President Obama.
+
+75 quotes

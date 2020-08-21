@@ -1,0 +1,44 @@
+ - I don’t want to work, I want to bang on the drum all day.
+ - Everyone has been a witness sometime – It doesn’t change it if you don’t believe.
+ - When you’re all alone, love one another.
+ - I must of woke up this morning with a bug up my ass, I think I’ll just haul off and belt the next jerk that I pass.
+ - Look upon yourself only with compassion.
+ - I know that I could make this world peaceful and calm, if I only could get my hands on a hydrogen bomb.
+ - There must be a God because he made me.
+ - I prefer hallucinations cause they tend to make more sense than experience.
+ - They may be stupid, but they sure are fun.
+ - Love between the ugly, is the most beautiful love of all.
+ - I’ll come around to see you once in a while, or if I ever need a reason to smile, and spend the night if you think I should.
+ - Most people outside of America won’t get it. It’s the Easter bunny. It’s another lie and I don’t understand why we had to invent this character.
+ - Behind every tree there’s a new monster.
+ - Every day when I get home from work, I feel so frustrated, my boss is a jerk.
+ - Today I saw a car crush my little dog under it’s wheel.
+ - People who have memorized your songs-how can you not love them?
+ - One Long Year was just a song here and there, and it was meant to reflect the mood that I was in but unfortunately it also reflected too little of any particular thing rather than hanging together as a whole album.
+ - I guess country music works better in supermarkets.
+ - I don’t have the same restrictions that other people do because I never painted myself into a corner. I’ve always done things that didn’t necessarily fit the form. I’ve never felt limited in that respect in terms of songwriting.
+ - I wonder how many eggs are in the golden goose?
+ - So I don’t think I’m gonna pull my head into my shell just because a bunch of people start acting like idiots.
+ - Most people didnt have the bandwidth to download whole albums. And so it brought back this cherry picking idea that the audience would focus on certain songs and possibly be the impetus behind what eventually got on AM radio: the single or whatever.
+ - I get my sticks and go out to the shed, and I pound on that drum like it was my boss’s head.
+ - It may not necessarily reflect my current frame of mind. Sometimes I have to put myself at the point in time of the voice that I’m trying to sing with.
+ - As much as I’d like to be listening to other things, I can’t do that until I get all of this sort of put to bed.
+ - If you’re familiar enough with my body of work, my voice is a familiar totem, in a sense. I guess I have something characteristic in the way that I sing, although I’m not very personally self-conscious about it, so I don’t think about it that much. But when I hear the record I can tell it’s me.
+ - I’ve got billions of sparrows to worry about as well as everything else’. So there’s the whole idea that whatever it is that you believe, it can never be valid unless you have some consensus reality demonstration.
+ - If you went crazy, would you know it?
+ - If you will, then you will, for nothing can withstand your will. As your faith is, so you are, where your mind is there you are.
+ - The ultimate crime is not to care.
+ - Music gets recorded usually in one format, and when you have to take it out and perform it there are other applications and things like that that are better for the live performance.
+ - Recorded music has always been in a sense promotion for live performance, and some artists have discovered that giving it away is as effective as trying to sell it.
+ - And so it’s inescapable and people who proclaim scrupulous honesty can only proclaim that if they don’t examine closely the things they believe.
+ - There are still people who believe in that and wake up every day believing it’s possible, and invest their whole selves in that.
+ - Kept his locker full of weed just to satisfy his smoking needs and his love of fire.
+ - I’d like to continue to play until I drop dead on stage or something.
+ - There are some things that we know are just not as pleasant as the lies that we tell ourselves, and in that sense in order to endure existence everyone endures a certain amount of dishonesty in their everyday lives.
+ - Singles needed to come back. And what I tried to do in my online experiment was to change the rules for myself and make available at a more regular pace the fruits of my labour, for people who decided they wanted to support my recordings.
+ - My senses tell me hubba.
+ - It’s the only way that YOUR life is gonna have any value to you. If you’re just living the same life that everybody else is living what’s the point?
+ - People got a little too self-conscious about the techniques that go into recording because sometimes, if you sing too well in tune, people accuse you of auto-tuning. It’s like you have to use auto-detuning or something.
+ - The problem turned out to be that I never was that kind of an artist.
+
+42 quotes

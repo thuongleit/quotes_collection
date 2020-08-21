@@ -1,0 +1,56 @@
+ - I went out on a date with Simile. I don’t know what I metaphor.
+ - I took part in the sun-tanning Olympics – I just got bronze.
+ - Black beauty – he’s a dark horse.
+ - Black holes. I don’t know what people see in them. Exit signs? They’re on their way out.
+ - I’d like to start with the chimney jokes – I’ve got a stack of them. The first one is on the house.
+ - Apparently, one in five people in the world are Chinese. And there are five people in my family, so it must be one of them. It’s either my mum or my dad. Or my older brother, Colin. Or my younger brother, Ho-Chan-Chu. But I think it’s Colin.
+ - Now did you know if a stick insect laid it’s eggs in a jar of Bovril it will give birth to a litter of twiglets.
+ - I saw this bloke chatting up a cheetah. He was trying to pull a fast one.
+ - I phoned the local ramblers club today and this bloke just went on and on.
+ - I was at sea the other day and loads of meat floated past. It was a bit choppy.
+ - I saw this train driver and said, ‘I wanna go to Paris.’ He said, ‘Eurostar?’ I said, ‘Well I’ve been on telly but I’m no Dean Martin.’ Mind you, at least the Eurostar’s comfy. It’s murder on the Orient Express isn’t it?
+ - I met this gangster who pulls up people’s pants. Name’s Wedgie Kray.
+ - One-armed butlers, they can take it but they can’t dish it out.
+ - You see I’m against hunting, in fact I’m a hunt saboteur. I go out the night before and shoot the fox.
+ - You see my next door neighbour worships exhaust pipes, he’s a catholic converter.
+ - This policeman came up to me with a pencil and a piece of very thin paper. He said, “I want you to trace someone for me.”
+ - Crime in multi-storey car parks. That is wrong on so many different levels.
+ - If you do weave one-liners into a story, you have to have an overall story as well, otherwise it doesn’t really count as narrative.
+ - I’m so lazy I’ve got a smoke alarm with a snooze button.
+ - I’ve got a sponge front door. Hey, don’t knock it.
+ - So I met the bloke who invented crosswords today. I can’t remember his name, it’s P something T something R.
+ - You know, I’m not very good at magic – I can only do half of a trick. Yes – I’m a member of the Magic Semi-circle.
+ - I’ve just been on a once-in-a-lifetime holiday. I’ll tell you what, never again.
+ - My mate asked me “What do you think of voluntary work?” I said “I wouldn’t do it if you paid me.”
+ - Now you know those trick candles that you blow out and a couple of seconds.
+ - People think that because of my act that I must have a really busy mind and I must be driven. I really am not. I quite like going outside and looking at spiders on a hedge in my garden and stuff.
+ - I sit in places like Costa Coffee in Banstead and write rubbish. I need a deadline. I think about the 44 tour dates and keep imagining standing in front of all these people. Then every day I write 15 jokes minimum.
+ - People ask ‘do you make a conscious effort not to swear?’ – if you’re doing silly stuff you’re not tempted to put swearing in. All the comics from my childhood, who were funny without swearing, were the people that influenced me. What I do is quite traditional anyway.
+ - So I went in to a pet shop. I said, “Can I buy a goldfish?” The guy said, “Do you want an aquarium?” I said, “I don’t care what star sign it is.”
+ - I went to the doctor. I said to him “I’m frightened of lapels.” He said, “You’ve got cholera.”
+ - I’ll tell you what I love doing more than anything: trying to pack myself in a small suitcase. I can hardly contain myself.
+ - So I went to buy a watch, and the man in the shop said “Analogue.” I said “No, just a watch.”
+ - So I rang up my local swimming baths. I said ‘Is that the local swimming baths?’ He said ‘It depends where you’re calling from.’
+ - So I got home, and the phone was ringing. I picked it up, and said ‘Who’s speaking please?’ And a voice said ‘You are.’
+ - I love acting, but it’s all just a bonus.
+ - So I was getting into my car, and this bloke says to me ‘Can you give me a lift?’ I said ‘Sure, you look great, the world’s your oyster, go for it.’
+ - Comedy covers such a wide range of different styles that I’m not really qualified to talk on all of them any more than anyone else is.
+ - I went into a shop and I said, “Can someone sell me a kettle.” The bloke said “Kenwood” I said, “Where is he?”
+ - Velcro: what a rip-off.
+ - So this bloke says to me, “Can I come in your house and talk about your carpets?” I thought “That’s all I need, a Je-hoover’s witness”.
+ - As you get older you’re told to be sensible, but it’s important for writing if you’re a comic that you’re able to still access that childlike thing.
+ - The other day someone left a piece of plasticine in my dressing room. I didn’t know what to make of it.
+ - Believe it or not, there are twice as many eyebrows in the world as there are people.
+ - I was in this restaurant and I asked for something herby. They gave me a Volkswagen with no driver.
+ - My DVD cellophane was put on by a psychiatrist. It was shrink-wrapped.
+ - With silly stuff, it’s seventy-five percent confidence. I always tell people that it’s because I’m nervous about getting that next laugh and I need to hear it. I always want to condense a joke.
+ - So I went down the local supermarket, I said “I want to make a complaint, this vinegar’s got lumps in it”, he said “Those are pickled onions”.
+ - For one thing, I don’t pun excessively in real life.
+ - I’m not someone who gets to play The O2 and places like that, but that’s the kind of rock and roll venue. The popularity of stand-up means that some people are getting to play rock star venues.
+ - If you compulsively pun you are called a paronomasiac.
+ - One of the things I like about when I tour sometimes is that occasionally you’ll see a dad there with his 12-year-old son and they’re both enjoying it.
+ - My house is a bit like a teenager’s bedroom. The kind of pictures you have hanging up on your wall say a lot about you. I’ve got ones of Evel Knievel, Elvis and Starsky and Hutch, signed by David Soul.
+ - So I went to the Chinese restaurant and this duck came up to me with a red.
+ - So I told my mum that I’d opened a theatre. She said, “Are you having me on?” I said, “Well I’ll give you an audition, but I’m not promising you anything.”
+
+54 quotes

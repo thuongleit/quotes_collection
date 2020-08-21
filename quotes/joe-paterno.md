@@ -1,0 +1,41 @@
+ - The will to win is important, but the will to prepare is vital.
+ - Today, you’ve got a decision to make. You’re gonna get better or you’re gonna get worse, but you’re not gonna stay the same. Which will it be?
+ - Believe deep down in your heart that you’re destined to do great things.
+ - When a team outgrows individual performance and learns team confidence, excellence becomes a reality.
+ - You’re only as happy as your least happy child.
+ - Its the name on the front of the jersey that matters most, not the one on the back.
+ - Success is best measured by the achiever.
+ - Success without honor is an unseasoned dish; it will satisfy your hunger, but it won’t taste good.
+ - Failure is not getting beat. Failure is when you don’t do a good job preparing.
+ - You have to perform at a consistently higher level than others. That’s the mark of a true professional.
+ - Besides pride, loyalty, discipline, heart, and mind, confidence is the key to all the locks.
+ - You can’t have a great university without a great library.
+ - The minute you think you’ve got it made, disaster is just around the corner.
+ - I still haven’t gotten that little something out of my system that I’m still not a kid going to a football game. I’m excited.
+ - Success and excellence are not the same. Excellence grows within a person, is largely within that person’s control, and its meaning lasts. Success is measured externally, by comparison to others, is often outside our control, and is perishable.
+ - What counts in sports is not the victory, but the magnificence of the struggle.
+ - You need to play with supreme confidence, or else you’ll lose again, and then losing becomes a habit.
+ - They ask me what I’d like written about me when I’m gone. I hope they write I made Penn State a better place, not just that I was a good football coach.
+ - When a kid plays football before he attends a class, something is wrong.
+ - Publicity is like poison; it doesn’t hurt unless you swallow it.
+ - My name, I have spent my whole life trying to make that name mean something. And now it’s gone.
+ - In hindsight, I wish I had done more.
+ - What is a coach? We are teachers. Educators. We have the same obligations as all teachers, except we probably have more influence than anybody but their families. And, in a lot of cases, more than their families.
+ - I stayed on the track I wanted to stay on. I don’t think I deviated from what I’m all about and what I thought was important. Whether you want to call that a legacy, or whatever you want to call it.
+ - Losing a game is heartbreaking. Losing your sense of excellence or worth is a tragedy.
+ - Don’t just stand back and play the way you’re coached. A great player must rise to the occasion and turn the game around on his own.
+ - Everybody likes to win. It sure beats the devil out of losing.
+ - There’s never been a greater game than football.
+ - Connfidence, excellence becomes a reality.
+ - We need people who influence their peers and who cannot be detoured from their convictions by peers who do not have the courage to have any convictions.
+ - My father said about money: ‘You have to have some. But you don’t have to have all of it. Just be honest with yourself.’
+ - Some things I thought were important for a young man to know.
+ - Right now I’m trying to figure out what I’m gonna do, ’cause I don’t want to sit around on my backside all day. If I’m gonna do that I’ll be a newspaper reporter.
+ - All coaches are thinking men, or else they wouldn’t survive.
+ - We play with enthusiasm and recklessness. We aren’t afraid to lose. If we win, great; but win or lose, it is the competition that gives us pleasure.
+ - There has to be some self-denial.
+ - If I had to do it over again, I’d probably play the game the same way.
+ - You must relate athletic experiences to life.
+ - I had a great bunch of kids. They all hung with us. The coaching staff hung with us. And we played tough every game. If you’ve got kids that want to play and react to you, it’s fun. I’m having a good time.
+
+39 quotes

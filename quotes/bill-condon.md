@@ -1,0 +1,29 @@
+ - Problems emerge and some people try to sweep them under the rug.
+ - I think it would be fun to write about movies again.
+ - In Hollywood through the 50s, there were black, English, and Middle European housekeepers and maids.
+ - My idea of a beach holiday is going to New York for two weeks, just going and hanging out.
+ - I’m a horrible public speaker.
+ - That day I think we really saw each other for the first time. I mean, saw beyond the bag of bones on the outside. You take away her pretty and my plain and what you get underneath is about the same: a couple of lost girls looking to be found.
+ - A scientist is an unlikely character to put at the center of a movie.
+ - It’s an odd thing to go to New York to shoot a movie that is set in Indiana.
+ - Our relationships, relationships between adults, how all those pieces fit together – that’s the most complicated thing we all face.
+ - There’s no question that Whale’s movies are classics. They were wonderful, and successful.
+ - There were moments on the set when the depth of the cast of ‘Dreamgirls’ was almost overwhelming to me.
+ - But you really – I always think that a director has got to adapt to whatever the needs of the actor are. You know, so if you take someone like Eddie Murphy, who is not a big fan of rehearsal. You know he comes out of stand-up. He comes – it’s all about capturing the moment – in the moment, you know.
+ - Kinsey was six foot five, and he had this leader of men quality.
+ - I wanted to make connections between Whale’s past and present.
+ - From its inception by Michael Bennett, ‘Dreamgirls’ has always been an epic story with an ensemble cast. I didn’t change that. The screen version remains, really, a group story.
+ - No piece of writing is ever finished. It’s just due.
+ - It is interesting to be here and to see that for certain actors they have to live in a way that you think of nobody living anymore except for in small towns. They have such elaborate double lives.
+ - First of all, just knowing people who grew up in the movie business at that time, no one had Mexican maids.
+ - Kinsey thought that Freud in his own way was as dangerous as the Catholic Church.
+ - I think that finding a way into somebody’s life that’s sort of off from a side angle can tell you more about that person than a greatest hits approach.
+ - Kinsey himself collected absolutely everything.
+ - It’s in the nature of television to restrain the spontaneity of a live event. Things become more and more prepackaged.
+ - But the imposition of morality onto science, – where it does not belong – has become rampant in recent years.
+ - Because his basic idea that he got from the study of gall wasps is that everyone’s sexuality is unique.
+ - We knew that there was a certain kind of interest in Whale among a genre crowd.
+ - I do think that’s so much a part of what being a director is – in working with actors – to really try and be sensitive to what each actor needs to get to where he wants to be.
+ - Kinsey would identify himself with Galileo in moments of feelings of persecution.
+
+27 quotes

@@ -1,0 +1,131 @@
+ - Study while others are sleeping; work while others are loafing; prepare while others are playing; and dream while others are wishing.
+ - The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.
+ - The price of excellence is discipline. The cost of mediocrity is disappointment.
+ - If you can imagine it, you can achieve it. If you can dream it, you can become it.
+ - Before you speak, listen. Before you write, think. Before you spend, earn. Before you invest, investigate. Before you criticize, wait. Before you pray, forgive. Before you quit, try. Before you retire, save. Before you die, give.
+ - The mediocre teacher tells. The good teacher explains. The superior teacher demonstrates. The great teacher inspires.
+ - Opportunities are like sunrises. If you wait too long, you miss them.
+ - A warm smile is the universal language of kindness.
+ - Feeling gratitude and not expressing it is like wrapping a present and not giving it.
+ - Do more than belong: participate. Do more than care: help. Do more than believe: practice. Do more than be fair: be kind. Do more than forgive: forget. Do more than dream: work.
+ - Teaching is more than imparting knowledge, it is inspiring change.
+ - The adventure of life is to learn...
+ - It is wise to direct your anger towards problems – not people; to focus your energies on answers – not excuses.
+ - Before you react, think. Before you spend, earn. Before you criticize, wait. Before you quit, try.
+ - Happiness is an inside job.
+ - Adversity causes some men to break; others to break records.
+ - The person who risks nothing, does nothing, has nothing, is nothing. He may avoid suffering and sorrow, but he cannot learn, feel change, grow or live...
+ - A true friend knows your weaknesses but shows you your strenghs; feels your fears but fortifies your faith; sees your anxieties but frees your spirit; recognizes your disabilities but emphasizes your possibilities.
+ - Before you speak, listen.
+ - Only the person who risks is truly free.
+ - Greatness is not found in possessions, power, position, or prestige. It is discovered in goodness, humility, service, and character.
+ - A good teacher explains, while a great teacher inspires.
+ - When we seek to discover the best in others, we somehow bring out the best in ourselves.
+ - God gave you a gift of 86,400 seconds today. Have you used one to say ‘thank you?’
+ - Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.
+ - Curiosity is the wick in the candle of learning.
+ - Empathy feels these thoughts; your hurt is in my heart, your loss is in my prayers, your sorrow is in my soul, and your tears are in my eyes.
+ - A well-developed sense of humor is the pole that adds balance to your steps as you walk the tightrope of life.
+ - Forgiveness is a funny thing. It warms the heart and cools the sting.
+ - Blessed is he who has learned to admire but not envy, to follow but not imitate, to praise but not flatter, and to lead but not manipulate.
+ - A complaining tongue reveals an ungrateful heart.
+ - We can choose to throw stones, to stumble on them, to climb over them, or to build with them.
+ - The greatest failure is the failure to try.
+ - We must be silent before we can listen. We must listen before we can learn. We must learn before we can prepare. We must prepare before we can serve. We must serve before we can lead.
+ - The greatest hazard in life is to risk NOTHING.
+ - Do more than dream. Work.
+ - Three enemies of personal peace: regret over yesterday’s mistakes, anxiety over tomorrow’s problems, and ingratitude for today’s blessings.
+ - Three keys to more abundant living: caring about others, daring for others, sharing with others.
+ - Today’s patience can transform yesterday’s discouragements into tomorrow’s discoveries. Today’s purposes can turn yesterday’s defeats into tomorrow’s determination.
+ - The experienced mountain climber is not intimidated by a mountain – he is inspired by it.
+ - Today is a most unusual day, because we have never lived it before; we will never live it again; it is the only day we have.
+ - Flatter me, and I may not believe you. Criticize me, and I may not like you. Ignore me, and I may not forgive you. Encourage me, and I will not forget you. Love me and I may be forced to love you.
+ - Excellence without effort is as futile as progress without preparation.
+ - Each of us will one day be judged by our standard of life, not by our standard of living; by our measure of giving, not by our measure of wealth; by our simple goodness, not by our seeming greatness.
+ - Love is more than a noun-it is a verb; it is more than a feeling-it is caring, sharing, helping, sacrificing.
+ - Believe while others are doubting.
+ - Men never plan to be failures; they simply fail to plan to be successful.
+ - Encourage me, and I will not forget you.
+ - A cloudy day is no match for a sunny disposition.
+ - To make mistakes is human; to stumble is commonplace; to be able to laugh at yourself is maturity.
+ - Giving is more than a responsibility-it is a privilege; more than an act of obedience-it is evidence of our faith.
+ - Better to master one mountain than a thousand foothills.
+ - We are most like beasts when we kill. We are most like men when we judge. We are most like God when we forgive.
+ - Our words reveal our thoughts; our manners mirror our self-esteem; our actions reflect our character; our habits predict the future.
+ - Failure is delay, but not defeat. It is a temporary detour, not a dead-end street.
+ - Nothing limits achievement like small thinking; nothing expands possibilities like unleashed imagination.
+ - Do you depend on others for motivation – or can you motivate yourself?
+ - A friend is one with whom you are comfortable, to whom you are loyal, through whom you are blessed, and for whom you are grateful.
+ - To bear defeat with dignity, to accept criticism with poise, to receive honors with humility – these are marks of maturity and graciousness.
+ - This bright new year is given me.
+ - Leadership is a serving relationship that has the effect of facilitating human development.
+ - A success is one who decided to succeed and worked. A failure is one who decided to succeed and wished.
+ - As the valley gives height to the mountain, so can sorrow give meaning to pleasure; as the well is the source of the fountain, deep adversity can be a treasure.
+ - A second-class is a first-class mistake.
+ - Lose yourself in generous service and every day can be a most unusual day, a triumphant day, an abundantly rewarding day!
+ - Another fresh new year is here. Another year to live! To Banish worry, doubt and fear, to love and give.
+ - A life lived without forgiveness is a prison.
+ - The essence of life is to care. The beauty of life is to give.
+ - In the face of unjust criticism we can become bitter or better; upset or understanding; hostile or humble; furious or forgiving.
+ - Failure is not fatal. Failure should be our teacher, not our undertaker. It should challenge us to new heights of accomplishments, not pull us to new depths of despair. From honest failure can come valuable experience.
+ - Whatever gets your goat gets your attention. Whatever gets your attention gets your time. Whatever gets your time gets you. Whatever gets you becomes your master. Take care, lest a little thing horn in and get your goat.
+ - Skillful listening is the best remedy for loneliness, loquaciousness, and laryngitis.
+ - To the optimist all doors have handles and hinges; to the pessimist, all doors have locks and latches.
+ - The more generous we are, the more joyous we become. The more cooperative we are, the more valuable we become. The more enthusiastic we are, the more productive we become. The more serving we are, the more prosperous we become.
+ - Real optimism knows the difficulties but believes they can be overcome.
+ - A pinch of praise is worth a pound of scorn. A dash of encouragement is more helpful than a dipper of pessimism. A cup of kindness is better than a cupboard of criticism.
+ - If laser beams can cut through mountains, why should we doubt the power of prayer?
+ - Vow to be valiant. Resolve to be radiant. Determine to be dynamic. Strive to be sincere. Aspire to be attuned.
+ - The optimist lives on the peninsula of infinite possibilities; the pessimist is stranded on the island of perpetual indecision.
+ - Friendship flourishes at the fountain of forgiveness.
+ - Gratitude can transform common days into thanksgivings.
+ - Optimism is a seed sown in the soil of faith; pessimism is a seed hoarded in the vault of doubt.
+ - Gratitude is the the energy of faith.
+ - Blessed is the person who sees the need, recognizes the responsibility, and actively becomes the answer.
+ - Raised voices lower esteem. Hot tempers cool friendships. Loose tongues stretch truth. Swelled heads shrink influence. Sharp words dull respect.
+ - We can learn much from wise words, little from wisecracks, and less from wise guys.
+ - Delays, disappointments and defeats cause quitters to give up in resignation; losers, to give in the frustration; winners, to come through with determination.
+ - Real and lasting generosity requires that a person do more than make up his mind to give. He must also make up his heart.
+ - If you would be interesting, be interested, if you would be pleased, be pleasing, if you would be loved, be loveable, if you would be helped be helpful.
+ - Wise are they who have learned these truths: Trouble is temporary. Time is tonic. Tribulation is a test tube.
+ - Change, like sunshine, can be a friend or a foe, a blessing or a curse, a dawn or a dusk.
+ - I have the opportunity, once more to right some wrongs, to pray for peace, to plant some trees, and sing more joyful songs.
+ - Faith is knowing there is an ocean because you have seen a brook.
+ - The greatest ideas, the most profound thoughts, and the most beautiful poetry are born from the womb of silence.
+ - The winner asks, “May I help?” The loser asks, “Do you expect me to do that?”
+ - Christmas is more that a time of festivities, family, and friends; it is a season of generosity, gladness, and gratitude.
+ - The more we count the blessings we have, the less we crave the luxuries we haven’t.
+ - There is one thing we can do better than anyone else: we can be ourselves.
+ - Forgiveness from others is charity; from God, grace; from oneself, wisdom.
+ - To the optimist, obstacles aare challenges, roadblocks are inspirations, and problems are invitations to achievement.
+ - Will someone else’s life be brighter tomorrow, because of what you have done today?
+ - Freedom’s enemies are waste, lethargy, indifference, immorality, and the insidious attitude of something for nothing.
+ - The pessimist borrows trouble; the optimists lend encouragement.
+ - Television remote controls encourage couch potatoes to exercise their options while broadening their base.
+ - Man, like the bridge, was designed to carry the load of the moment, not the combined weight of a year at once.
+ - Christmas is more than a time of music, merriment and mirth; it is a season of meditation, mangers and miracles. Christmas is more than a time of carols, cards and candy; it is a season of dedication and decision.
+ - Commend while others are criticizing, persist while others are quitting.
+ - Success never resides in the world of weak wishes, but in the palace of purposeful plans and prayerful persistence.
+ - Flying off the handle sometimes causes hammers and humans to lose their heads, as well as their effectiveness.
+ - The momentary thrill of getting rarely equals the lasting joy of giving.
+ - A religion without the Holy Ghost, though it had all the ordinances and all the doctrines of the New Testament, would certainly not be Christianity.
+ - Fools act on imagination without knowledge. Pedants act on knowledge without imagination.
+ - Real optimism is exposed to the worst but expects the best.
+ - Words, like tranquil waters behind a dam, can become reckless and uncontrollable torrents of destruction when released without caution and wisdom.
+ - The optimist pleasantly ponders how high his kite will fly; the pessimist woefully wonders how soon his kite will fall.
+ - Too many of us hear without heeding, read without responding, confess without changing, profess without practicing, worship without witnessing, and seek without sharing.
+ - We can be bitter about our handicaps or we can be happy about our blessings.
+ - Humanity either makes, or breeds, or tolerates all its afflictions.
+ - Christmas can be the end of emptiness and waywardness; The beginning of happiness and purposefulness.
+ - Real optimism has reason to complain but prefers to smile.
+ - What you believe is more important than what you possess. What you live is more lasting than what you profess. Whom you inspire is more significant than whom you impress.
+ - Opportunity is often difficult to recognize; we usually expect it to beckon us with beepers and billboards.
+ - We can be resentful of our age, or we can be grateful for having attained it.
+ - A friend is one who joyfully sings with you when you are on the mountaintop, and silently walks beside you through the valley.
+ - Once trust is tarnished, it is hard to restore it to its original glow.
+ - America needs fewer men obsessed with erecting fences of hate, suspicion and name calling.
+ - Every day is a good day to examine our prime-time priorities.
+ - Everyone has a common, yet unique, responsibility to the future: to make the most of today.
+ - The more patient we are, the more understanding we become.
+
+129 quotes

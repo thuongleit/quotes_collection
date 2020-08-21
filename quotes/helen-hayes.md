@@ -1,0 +1,45 @@
+ - The expert at anything was once a beginner.
+ - If you rest, you rust.
+ - When it comes to staying tuned: if you rest, you rust.
+ - We relish news of our heroes, forgetting that we are extraordinary to somebody too.
+ - Always aim for achievement, and forget about success.
+ - The good die young but not always. The wicked prevail but not consistently. I am confused by life, and I feel safe within the confines of the theatre.
+ - Age is not important unless you’re a cheese.
+ - All through the long winter, I dream of my garden. On the first day of spring, I dig my fingers deep into the soft earth. I can feel its energy, and my spirits soar.
+ - Legends die hard. They survive as truth rarely does.
+ - When books are opened, we discover that we have wings.
+ - Childhood is a short season.
+ - Love is perhaps the only glimpse we are permitted of eternity.
+ - Yes, I have doubted. I have wandererd off the path. I have been lost. But I always returned. It is beyond the logic I seek. It is intuitive – an intrinsic, built-in sense of direction. I seem to find my way home. My faith has wavered but has saved me.
+ - People who refuse to rest honorably on their laurels when they reach retirement age seem very admirable to me.
+ - In this sometimes turbulent world, the river is a cosmic symbol of durability and destiny; awesome, but steadfast. In this period of deep national concern, I wish everyone could live for a while beside a great river.
+ - Mere longevity is a good thing for those who watch Life from the side lines. For those who play the game, an hour may be a year, a single day’s work an achievement for eternity.
+ - I’m leaving the screen because I don’t think I am very good in the pictures and I have this beautiful dream that I’m elegant on the stage.
+ - From your parents you learn love and laughter and how to put one foot before the other. But when books are opened you discover that you have wings.
+ - There’s a little vanity chair that Charlie gave me the first Christmas we knew each other. I’ll not be parting with that, nor our bed – the four-poster – I’ll be needing that to die in.
+ - Perhaps we have been misguided into taking too much responsibility from our children, leaving them too little room for discovery.
+ - The hardest years in life are those between ten and seventy.
+ - All my dogs have been scamps and thieves and troublemakers and I’ve adored them all.
+ - The worst constructed play is a Bach fugue when compared to life.
+ - Egocentrics are attracted to the inept. It gives them one more excuse for patting themselves on the back.
+ - An actress always knows when she’s hit it and mostly you haven’t; but once or twice I think I hit it right, so maybe that’s good enough for one life.
+ - Actors work and slave and it is the color of your hair that can determine your fate in the end.
+ - One has to grow up with good talk in order to form the habit of it.
+ - I cry out for order and find it only in art.
+ - There is only one terminal dignity – love.
+ - We may be living in the twentieth century, in resplendent sophistication. But deep down, most of us find ourselves still in the Stone Age of superstition.
+ - When traveling with someone, take large does of patience and tolerance with your morning coffee.
+ - Only the poet can look beyond the detail and see the whole picture.
+ - There is no racial or religious prejudice among people in the theater. The only prejudice is against bad actors, especially successful ones.
+ - Actors cannot choose the manner in which they are born. Consequently, it is the one gesture in their lives completely devoid of self-consciousness.
+ - The truth is that there is only one terminal dignity – love. And the story of a love is not important – what is important is that one is capable of love. It is perhaps the only glimpse we are permitted of eternity.
+ - The theatre demanded of its members stamina, good digestion, the ability to adjust, and a strong sense of humor. There was no discomfort an actor didn’t learn to endure. To survive, we had to be horses and we were.
+ - Stardom can be a gilded slavery.
+ - The old-fashioned idea that the simple piling up of experiences, one on top of another, can make you an artist, is, of course, so much rubbish. If acting were just a matter of experience, then any busy harlot could make Garbo’s Camille pale.
+ - In the last stages of a final illness, we need only the absence of pain and the presence of family.
+ - At 50, you need to laugh about your age. If you don’t, everybody else will do it for you. Happy birthday, old chum!
+ - The faster we travel, the less there is to see.
+ - When Charles first saw our child Mary, he said all the proper things for a new father. He looked upon the poor little red thing and blurted, “She’s more beautiful than the Brooklyn Bridge.”
+ - Everybody starts at the top, and then has the problem of staying there. Lasting accomplishment, however, is still achieved through a long, slow climb and self-discipline.
+
+43 quotes

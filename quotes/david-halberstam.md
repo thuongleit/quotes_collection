@@ -1,0 +1,22 @@
+ - Being a professional means doing your job on the days you don’t want to do it.
+ - One of the things I learned, the easiest of lessons, was that the better you do your job, often going against conventional mores, the less popular you are likely to be.
+ - Always stay in with the outs.
+ - There’s a great quote by Julius Irving that went, ‘Being a professional is doing the things you love to do, on the days you don’t feel like doing them.’
+ - What looked safe was not safe. What looked hard and unsafe was probably safer. Anyway, safe was somewhere else in the world.
+ - If there is anything that is important to America, it is that you are not a prisoner of the past.
+ - Sometimes the best virtue learned on the battlefield is modesty.
+ - If youre a reporter, the easiest thing in the world is to get a story. The hardest thing is to verify. The old sins were about getting something wrong, that was a cardinal sin. The new sin is to be boring.
+ - Memory is often less about the truth than about what we want it to be.
+ - Few sports has as great a disparity between the time committed in practice and time actually spent in game or race conditions.
+ - The most dangerous thing about power is to employ it where it is not applicable.
+ - I have a great faith in the strength and the resilience in the American people.
+ - These days there’s all too much coverage of pesudo-events about extraordinarily inauthentic people doing inauthentic things.
+ - This was the mark of an uncommon soldier, someone whose courage away from the battlefield was the same as that on it.
+ - No publisher in America improved a paper so quickly on so grand a scale, took a paper that was marginal in qualities and brought it to excellence as Otis Chandler did.
+ - The truth posed a great dilemma for a man who always had to be right, and yet, for all his grandeur, was often wrong.
+ - With the marketing pressures driving the book world today, it’s much easier to get the author of a memoir on a television show than a serious novelist.
+ - There are only two kinds of stories in the world: those about which I do not care to write as many as 600 words, and those about which I would like to write many more than 600 words. But there is nothing about which I would like to write exactly 600 words.
+ - A staff can be no better than the man it serves.
+ - Fear was the terrible secret of the battlefield and could afflict the brave as well as the timid. Worse it was contagious, and could destroy a unit before a battle even began. Because of that, commanders were first and foremost in the fear suppression business.
+
+20 quotes

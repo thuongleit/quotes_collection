@@ -1,0 +1,63 @@
+ - You can change your wife, your politics, your religion, but never, never can you change your favourite football team.
+ - When I think football, I think Manchester United. I still support United and always will. I will die with them in my heart.
+ - I’m just enjoying my life at the moment.
+ - Become a legend? But I am already.
+ - I don’t play against a particular team. I play against the idea of losing.
+ - When people are talking about you, it means that you exist.
+ - Every experience makes you a man.
+ - I think life is a big game we play.
+ - I always knew I had to work hard.
+ - Socrates worked towards making people question themselves. He like to provoke self-interrogation but wasn’t particularly interested in the answers that emerged; he just like to set off the thought process.
+ - After his first training session in heaven, George Best, from the favourite right wing, turned the head of God who was filling in at left back. I would love him to save me a place in his team, George Best that is, not God.
+ - An artist is someone with the gift to light up a dark room.
+ - Certainly take the advice of others but always, always be yourself.
+ - Those who hate or disrespect Sir Alex Ferguson, its only because he snatched away their dreams of winning.
+ - You may find another Beckham or Ronaldo, but never ever will you find another Sir Alex Ferguson.
+ - I’m so proud the fans still sing my name, but I fear tomorrow they will stop. I fear it because I love it. And everything you love, you fear you will lose.
+ - Whatever happens, there are always things you could have done better. You score two goals and you usually feel you could have done better. You score two goals and you usually feel you could have scored a third. That’s perfectionism. That’s what makes you progress in life.
+ - I apologize for nothing.
+ - I manage a team, for beach soccer. I’m the coach. Player, coach.
+ - I always planned to retire when I was at the top and at Manchester United I have reached the pinnacle of my career.
+ - I have a car but it’s not important.
+ - Some films I say no to and they end up working very well, but I don’t care, I just want to do something exciting.
+ - The ball is like a woman, she loves to be caressed.
+ - I stopped playing football because I’d done as much as I could. I needed something which was going to excite me as much as football had excited me.
+ - I play with passion and fire. I have to accept that sometimes this fire does harm.
+ - Messi, he’s exceptional. When you watch him, you feel there’s a child inside him and he is making some childhood dream come true. He’s a Great Player, not only for today but also tomorrow.
+ - Every man who has an idol or admires someone can recognise its themes. It’s not only a film about the relationship between fans and idols, it’s also a love story, a story of a man who is depressed, who has problems in his relationship with his teenage step-children.
+ - I feel close to the rebelliousness of the youth here. Perhaps time will separate us, but nobody can deny that here, behind the windows of Manchester, there is an insane love of football, of celebration and of music.
+ - You can feel very quickly as a prisoner of your past, of the memories.
+ - I don’t think the world of football is so serious. It’s important to have distance about things and about yourself. If we believe we are kings or gods, we become crazy. We all know it’s a game and we all enjoy it together.
+ - I am very mistrustful of people who are constantly over intellectualising things. It kills passion. You have to allow yourself to lose control from time to time.
+ - The French have only negative things to say about everything and everyone.
+ - Sometimes you get submerged by emotion. I think it’s very important to express it – which doesn’t necessarily mean hitting someone.
+ - I’m proud of what I achieved there, but a life built on memories is not much of a life.
+ - When you are a rich man you are proud to own a Rolls Royce and when you are a poor man you are proud to own a Renault.
+ - My father’s parents were from Sardinia and my mother’s from Barcelona.
+ - I live to feel myself in danger.
+ - You need a particular talent only to want to please. I don’t have this talent.
+ - I would love him to save me a place in his team, George Best that is, not God.
+ - A good goal is one that is important and beautiful.
+ - We all seem to be about aggression and greed. It’s a massive pressure that affects us all.
+ - I’m lucky to have the privilege of being able to choose what I want to do.
+ - I always wanted to play against the best.
+ - We knew that you don’t get to be world champions without a struggle.
+ - When times are difficult, I tell myself, ‘I’m just passing through.’
+ - Domenech is the worst coach France have had since Louis XVI.
+ - I don’t think we can be entirely happy seeing such misery around us.
+ - I don’t need to be involved with a game watched by millions of people to be fulfilled.
+ - Anyone who is different or is slightly out of the norm, is considered crazy.
+ - There were moments – I would be daydreaming – I would imagine scenes, even if there wasn’t a camera around. In my head, I was acting.
+ - I know that I have a face, a look, people aren’t used to seeing. A presence.
+ - In England, your life is your life.
+ - Actually, I wanted to act even when I was still playing football.
+ - Without spontaneity in any sport, you cannot succeed.
+ - I don’t take life so seriously I can just play with life.
+ - You are constantly battling against your own weaknesses to make a good performence.
+ - I think it’s better to be involved in one or two movies a year.
+ - I think I have a sense of mischief and that I can laugh at myself.
+ - We all have common frailties but we need to treasure friends more.
+ - I was always being creative. I could never have played a defensive role because I would have been forced to destroy the other player’s creativity.
+ - When I was banned for nine months I had an opportunity to focus on something else and I needed to focus on something else. It’s who I am. I admire Miles Davis and Chet Baker a lot and I like this instrument, so I tried and I learned and practised for two months. But I stopped after that.
+
+61 quotes

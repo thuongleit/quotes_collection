@@ -1,0 +1,57 @@
+ - Tell me what you listen to, and I’ll tell you who you are.
+ - Anything less than mad, passionate, extraordinary love is a waste of time. There are too many mediocre things in life to deal with and love shouldn’t be one of them.
+ - And no matter what anybody says about grief and about time healing all wounds, the truth is, there are certain sorrows that never fade away until the heart stops beating and the last breath is taken.
+ - Fate is the magnetic pull of our souls toward the people, places, and things we belong with.
+ - Bottom line, Eliza – you’re my home and my family, and I don’t want to lose you. I could lose everything else, and as long as I still had you and a guitar I know I’d be all right. Do you get what I’m saying?
+ - And if my aunt had balls she’d be my uncle.
+ - The days will always be brighter because he existed. The nights will always be darker because he’s gone.
+ - I like to say I don’t believe in mystics. I don’t believe in fate. I don’t believe in destiny or kismet. I don’t believe in God. I don’t believe in anything. But I believe in the possibility of everything.
+ - As usual, no one’s ever around when you need them.
+ - There’s a big difference between being alone and being lonely. And I’m guessing that once you’ve discovered this distinction you can’t go back to solitary confinement without serious emotional repercussions.
+ - Fate is just another word for people’s choices coming to a head. Destiny, coincidence, whatever you name it. It inevitably lies in our hands.
+ - Break my heart? Is that what you just said? I have news for you; you didn’t break my heart. My heart’s fine. My heart’s in the best shape of its life. You know what you did to me? You took an AK-47 and blew my soul open.
+ - Forget the noose. Forget the Iron Maiden. Forget the electric chair or the guillotine. The mind was mankind’s most painful torture chamber, the blessed liberty to cogitate offering either doom or salvation, depending on one’s disposition.
+ - No one commits suicide because they want to die.
+ - Maybe I’m weak for music men. Maybe I’m weak, period. But I couldn’t deny I was charmed by his arrogant, fool-ish guise.
+ - Just knowing you exist changed the world for me.
+ - I try to find meaning anywhere I can. It’s the only way I know how to validate my existence.
+ - When dreams come true in reality they never feel the same as when you imagine them, and you know what that means? It means that no matter how good things are, maybe they’ll never be good enough, and there’s something seriously wrong with that.
+ - We had pathetically simple dreams: to do meaningful work that we could be proud of, to be together, and to be happy.
+ - He was waiting for something from me. Acknowledgement. Validation. Commiseration, perhaps. I couldn’t even look at him because I was afraid of feeling any more than I already did.
+ - For me, the release was a spot in time with no past and no future. Just the extraordinary simplicity of a moment – the kind of moment that has a funny way of making a person believe that life and love can last forever.
+ - For the record, if I were Superman, a pale, scrawny guy holding a guitar would be Kryptonite.
+ - Personally, I don’t like inherently happy people. I don’t trust them. I think there’s something seriously wrong with anyone who isn’t at least a little let down by the world.
+ - And when Paul dove to embrace me, the look on his face was one of absolute, perfect joy – the kind of joy that can’t be reproached, stolen, or marred – the kind that only the innocent or the ignorant are capable of experiencing.
+ - Committing suicide so as not to be murdered is the worst reason I’ve ever heard of to die.
+ - There’s nothing worse than falling in love with a person over and over every time you lay eyes on them, especially when you hate their goddamn guts.
+ - We hovered above the moment like two rain clouds.
+ - In his eyes I saw all the other possibilities. The dream-world possibilities. The fairytale possibilities. The seemingly impossible possibilities.
+ - I know that if I ever have the audacity to blame fate or God for holding a gun to my temple, I also have the wherewithal to remind myself that if I end up with a hole in my head, I was the one who pulled the trigger.
+ - I’d never seen that look on another face before, had never identified it in another person. I’d only met with it in fiction. But everyone falls in love with Holden Caulfield when they’re sixteen. They read Catcher in the Rye and don’t feel so alone.
+ - Dreams can change histories and songs can alter destinies- two ideas that on good days I believe wholeheartedly and on bad days I denounce as a bunch of bull.
+ - It’s easy to plant a seed and sprinkle it with water, but once the sun scorches the ground, and the earth soaks up all the moisture, you’re left with nothing but a thirsty little flower trying desperately to make it out of the dirt.
+ - Isn’t it funny to think that this magnificent piece of matter is in a state of decay? Really, can you think of any other living thing that looks this glorious as it’s dying?
+ - The phrase what I want struck me. It contains so much entitlement, so many complications, but encompasses only what a person doesn’t have.
+ - The question is one of faith. Faith in my talent. Faith in my decisions. And faith in the idea that the truth, even if it can’t pay my bills, can still set me free.
+ - Dreams can change histories and songs can alter destinies.
+ - Eliza has the sky in her eyes and I’ve always wanted to touch the goddamn sky.
+ - I need to know that wherever I end up, in the stars or in the gutter, you’re along for the ride.
+ - Sometimes I would open my eyes when we were kissing, I would watch him and I could see it. I could actually see LOVE – not words, not an emotion, not an abstract concept or a subjective state of mind, but a living, breathing thing.
+ - I’m almost thirty and my day job is folding shirts at the Gap. Have you seen my room? I’m not messy. I’m rebelling against folding.
+ - That’s why you have to save the dying man. Because you want him around to keep saving you.
+ - If you want me you’re going to have to come and get me.
+ - I just happen to comprehend the low standards of the majority of the music-buying public, and I don’t care how condescending that sounds, it’s true. They always go for the shiny gimmicks. Always.
+ - This is what it means to be in the middle of love, I thought. Being in the middle of love is like being in the middle of a war zone.
+ - Has the industry done to music what McDonald’s has done to eating?
+ - Lying next to Eliza, I had the feeling I had I’d just found something I didn’t even know I’d lost.
+ - I’m not messy. I’m rebelling against folding.
+ - I’ve got my girl and my guitar, and for me that’s enough.
+ - I didn’t write that song to try and win you over, or to steal you away from him. I wrote it because I knew I never could.
+ - I would have remembered the good stuff. Nobody ever remembers the good stuff.
+ - Thoughts are king, Trixie, king!
+ - Nobody, and I mean nobody, ever started a revolution playing by the rules.
+ - That’s the only way I could describe the music. It was the sonic equivalent of flight.
+ - Talent? That’s not talent. Talent is Liza Minnelli tap dancing and singing at the same time. What I just saw was devastation. Dying man on the cross. Salvation in B minor.
+ - Don’t swear off all the fruits just because you ate one bad apple.
+
+55 quotes

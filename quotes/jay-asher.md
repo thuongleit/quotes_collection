@@ -1,0 +1,108 @@
+ - A lot of you cared, just not enough.
+ - If my love were an ocean, there would be no more land. If my love were a desert, you would see only sand. If my love were a star- late at night, only light. And if my love could grow wings, I’d be soaring in flight.
+ - But you can’t get away from yourself. You can’t decide not to see yourself anymore. You can’t decide to turn off the noise in your head.
+ - No one knows for certain how much impact they have on the lives of other people. Oftentimes, we have no clue. Yet we push it just the same.
+ - I hate not knowing what to believe anymore. I hate not knowing what’s real.
+ - But sometimes there’s nothing left to do but move on.
+ - It’s hard to be disappointed when what you expected turns out to be true.
+ - A flood of emotions rushes into me. Pain and anger. Sadness and pity. But most surprising of all, hope.
+ - You don’t know what goes on in anyone’s life but your own.
+ - Because what if I got to know you and you turned out to be just like they said? What if you weren’t the person I hoped you were? That, more than anything, would have hurt the most.
+ - You can hear rumors. But you can’t know them.
+ - The road to publication is like a churro – long and bumpy, but sweet.
+ - I left. When I should have stayed.
+ - I can’t. You can’t rewrite the past.
+ - Because I’ve heard so many stories that I don’t know which one is the most popular. But I do know which is the least popular. The truth.
+ - Betrayal. It’s one of the worst feelings.
+ - After all, how often do we get a second chance?
+ - Because it may seem like a small role now, but it matters. In the end, everything matters.
+ - Sometimes we have thoughts that even we don’t understand. Thoughts that aren’t even true – that aren’t really how we feel – but they’re running through our heads anyway because they’re interesting to think about.
+ - They were like two magnets who couldn’t decide whether to attract or repel.
+ - I sat. And I thought. And the more I thought, connecting the events in my life, the more my heart collapsed.
+ - I hope you’re ready, because I’m about to tell you the story of my life. More specifically, why my life ended. And if you’re listening to these tapes, you’re one of the reasons why.
+ - And what about you-the rest of you-did you notice the scars you left behind? No. Probably not. Because most of them can’t be seen with the naked eye.
+ - When the right moment appears, the key is to not let it pass.
+ - Rejection always hurts, but having it come from my best friend was the worst.
+ - And when you mess with one part of a person’s life, you’re not messing with just that part. When you mess with one part of a person’s life, you’re messing with their entire life.
+ - Maybe if I forgot things once in a while, we’d all be a little bit happier.
+ - This time, for the first time, I saw the possibilities in giving up. I even found hope in it.
+ - But they were wrong. There was a reason.
+ - When you write a book for publication, you’re writing it for other people to read.
+ - Don’t give up on me now. I’m sorry. I guess that’s an odd thing to say. Because isn’t that what I’m doing? Giving up?
+ - People grow apart, and sometimes, there nothing anyone can do about it.
+ - Fun drunks make a nice addition to any party. Not looking to fight. Not looking to score. Just looking to get drunk and laugh.
+ - When you try rescuing someone and discover they can’t be reached, why would you ever throw that back in their face?
+ - Yes, it feels great to plan your life when you believe everything can turn out fine. But what about when you’re shown, again and again, how little control you have over anything? No matter what I do to try to fix my future, it doesn’t work.
+ - Do you remember the last thing you said to me? The last thing you did to me? And what was the last thing I said to you? Because trust me when I said it I knew it was the last thing I’d ever say.
+ - Because when you’re posed, you know someone’s watching. You put on your very best smile. You let your sweetest personality shine.
+ - I didn’t humiliate him by pointing it out because that’s not how you treat friends. You don’t judge them. You don’t humiliate them. I bet he’s been judging me all along.
+ - My heart and my trust were in the process of collapsing. And that collapse created a vacuum in my chest.
+ - He looks out into the empty street, allowing me to sit in his car and just miss her. To miss her each time I pull in a breath of air. To miss her with a heart that feels so cold by itself, but warm when thoughts of her flow through me.
+ - Actually, I love trying to figure out why certain books become hits while others, which may be just as good, have trouble finding an audience.
+ - And as I stood there in the hallway – alone – trying to understand what had just happened and why, I realized the truth: I wasn’t worth an explanation – not even a reaction. Not in your eyes.
+ - And it feels strange, almost sad, to walk through ther empty halls. Each step I take sounds so lonely.
+ - When you hold people up for ridicule, you have to take responsibility when other people act on it.
+ - I wanted to tell you everything. And that hurt because some things were too scary. Some things even I didn’t understand. How could I tell someone – someone I was really talking to for the first time – everything I was thinking? I couldn’t. It was too soon.
+ - What you don’t understand, you can make mean anything.
+ - You told me I wrote that poem because I was afraid of dealing with myself. And I used my mom as an excuse, accusing her of not appreciating or accepting me, when I should have been saying those words into a mirror.
+ - That’s why you did it. You wanted your world to collapse around you. You wanted everything to get as dark as possible.
+ - Maybe it didn’t seem like a big deal to you Zach. But now, I hope you understand. My world was collapsing. I needed those notes. I needed any hope those notes might have offered. And you? You took that hope away. You decided I didn’t deserve to have it.
+ - How many times had I let myself connect with someone only to have it thrown back in my face?
+ - Normally when a person has a stellar image another person’s waiting in the wings to tear them apart. They’re waiting for that one fatal flaw to expose itself.
+ - I want to look back. To look over my shoulder and see the Stop sign with huge reflective letters, pleading with Hannah. Stop!
+ - Because our lies matched. It was a sign.
+ - Maybe you didn’t know what people thought of you because they themselves didn’t know what they thought of you. Maybe you didn’t give us enough to go on, Hannah.
+ - It’s nothing. A school project. My go-to answer for anything. Staying out late? School project. Need extra money? School project.
+ - We all know the sound a camera makes when it snaps a picture. Even some of the digitals do it for nostalgia’s sake.
+ - If I had a chance with him, I missed it. No, I didn’t miss it. I threw it away.
+ - One little ripple started today could create a typhoon fifteen years from now.
+ - But I need to wake up somehow. Or maybe not. Maybe it’s best to get through the day half-asleep. Maybe that’s the only way to get through today.
+ - That’s what I love about poetry. The more abstract, the better. The stuff where you’re not sure what the poet’s talking about. You may have an idea, but you can’t be sure. Not a hundred percent. Each word, specifically chosen, could have a million different meanings.
+ - We didn’t get that chance because I was afraid. Afraid I had no chance with you.
+ - It may seem that every time someone offers you a hand up, they just let go and you slip further down.
+ - Hannah wasn’t my first kiss, but the first kiss that mattered: the first kiss with someone who mattered.
+ - What the hell happened to Pluto?!
+ - I simply wanted a kiss. I was a freshman girl who had never been kissed. Never. But I liked the boy, he liked me, and I was going to kiss him. That’s the story, the whole story, right there.
+ - Why would anyone say this stuff about themselves on the Internet? It’s crazy!
+ - I’m going to be mentally ill in fifteen years, and that’s why my husband doesn’t want to be around me.
+ - We both laugh. And it feels good. A release. Like laughing at a funeral. Maybe inappropriate, but definitely needed.
+ - Did the poet use red to symbolize blood? Anger? Lust? Or is the wheelbarrow simply red because red sounded better than black?
+ - She wants to believe my excuses so bad. Every time I lie, she wants to believe me so much.
+ - I miss video games where the jump-kick was the trickiest combo to master.
+ - And everyone knows you can’t disprove a rumor.
+ - The Golden Rule will always be good advice!
+ - There are also the people too bizarre to ignore, like Kyle Simpson. Future male stripper.
+ - Those are some strong currents you’re swimming against.
+ - Everything about it was false. Right then, in that office, with the realization that no one knew the truth about my life, my thoughts about the world were shaken.
+ - Teens in the ’90s had the same basic desires as they do now.
+ - It’s up to the reader to decipher the code, or the words, based on everything they know about life and emotions.
+ - Will I ever get control of my life? Will I always be shoved back and pushed around by those I trust?
+ - But I do know which is the least popular. The truth.
+ - The main thing I wanted to say, and thankfully it’s what most people say they get out of the book, is simply an acknowledgement that we do affect each other in ways we can’t predict.
+ - If time was a string connecting all of your stories, that party would be the point where everything knots up. And that knot keeps growing and growing, getting more and more tangled, dragging the rest of your stories into it.
+ - Josh will begin disappearing into a future where the only place he and I remain friends is on the Internet.
+ - I could picture life – school and everything else – continuing on without me. But I could not picture my funeral. Not at all. Mostly because I couldn’t imagine who would attend or what they would say.
+ - That’s when I said it. That’s when I whispered to her, “I’m so sorry.” Because inside, I felt so happy and sad at the same time. Sad that it took me so long to get there. But happy that we got there together.
+ - And what if in the future we’re at war again, or we still haven’t elected a non-white or non-male president, or the Rolling Stones are still dragging their tired old butts on stage? That would depress me way too much.
+ - God, I am freaking out. Maybe he doesn’t know. Maybe I just look guilty of something and he’s picking up on that.
+ - The longer you wait, and this is true, the slower the hands will move.
+ - Maybe it’s not as important to you as it was for me, but that’s not for you to decide.
+ - As a writer, my only responsibility is to tell a compelling story.
+ - I’ve always loved brainstorming with other writers, and I consider having my work critiqued a part of that brainstorming.
+ - And here he is again, yet things feel like they’ll never be as easy between us as they once were.
+ - And concentrating on the spot where the two spindles should be is the closest I get to looking Hannah’s eyes as she tells my story.
+ - I was too weak to walk. At least, I thought I was too weak. But in truth, I was too weak to try.
+ - Whenever I’m out late she makes a sandwich for my school lunch. I always protest and tell her not to, saying I’ll make my own when I get home. But she likes it. She says it reminds her of when I was younger and needed her.
+ - I decided to find out how people at school might react if one of the students never came back.
+ - That is all that happened. Why did you hear something else?
+ - A week went by and nothing. But eventually, as they always will, the rumors reached me. And everyone knows you can’t disprove a rumor.
+ - How in the world was I alone? Because I wanted to be. That’s all I can say. It’s all that makes sense to me.
+ - And in high school, people are always watching so there’s always a reason to pose.
+ - Everything seemed good, but I knew it had the potential to be awful.
+ - It was love because it was worth it.
+ - I want to collapse. I want to fall on the sidewalk right there and drag myself to the ivy.
+ - Watching those guys pummel each other so no one would suspect them of being weak was too much for me. Their reputations were more important than their faces.
+ - You need to figure out what you want, Josh. If that means you need to swim against the tide to get it, at least youre aiming for something that could make you very happy.
+ - My breathing begins to slow. The tension in my muscles starts to relax. Then, a click in the headphones. A slow breath of air. I open my eyes to bright moonlight. And Hannah, with warmth. Thank you.
+
+106 quotes

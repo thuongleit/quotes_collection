@@ -1,0 +1,175 @@
+ - Thoughts in your head are really no different than the sound of a bird outside. It is just that you decide that they are more or less relevant.
+ - Your life, all of your life, is your path to awakening. By resisting or not dealing with its challenges, you stay asleep to Reality. Pay attention to what life is trying to reveal to you. Say yes to its fierce, ruthless, and loving grace.
+ - Embrace suffering, and you transform your relationship with what causes you to suffer, as well as your relationship with suffering itself.
+ - Real meditation is not about mastering a technique; it’s about letting go of control.
+ - The truth is you can’t try to let go. Trying is the opposite of letting go. To let go is to relinquish trying. To let go is much more like to let be.
+ - Now don’t think that awakening is the end. Awakening is the end of seeking, the end of the seeker, but it is the beginning of a life lived from your true nature.
+ - Stop all doing and be still. Let the fire of stillness burn everything and reveal That which is Openness.
+ - The more in harmony you are with the flow of your own existence, the more magical life becomes.
+ - What the universe will manifest when you are in alignment with it is a lot more interesting than what you try to manifest.
+ - The truth is that you already are what you are seeking.
+ - When emptiness is still, that is eternity. When it moves, that is love.
+ - When you let go of the egoic self what you’re getting in exchange is the whole universe.
+ - An ordinary man seeks freedom through enlightenment. An enlightened man expresses freedom through being ordinary.
+ - The willingness to not bypass illusion is very important. We come to nirvana by way of samsara. We come to see the true nature of things by seeing through the illusory nature of things. We don’t come to nirvana by avoiding samsara. We don’t come to clarity by avoiding confusion.
+ - A quiet mind married to integrity of heart is the birth of wisdom.
+ - Take the armor off, so the arrow of the Truth can penetrate you.
+ - The paradox is that when resistance is fully accepted, the resistance disappears.
+ - The true heart of all human beings is the lover of what is.
+ - You must choose between your attachments and happiness.
+ - A total acceptance of yourself brings about a total transcendence of yourself.
+ - True intelligence does not derive from thought. True intelligence uses thought.
+ - There is, quite literally, nothing to understand.
+ - Gratitude is the appreciation of what is, of life, of existence, of anybody and anything, for just the way it is.
+ - Suffering is how Life tells you that you are resisting or misperceiving what is real and true. It is the way Life suggests that you are not in harmony with what is.
+ - The silence inside of you is the sound of your knowledge collapsing. Remember, it is you who said, ‘I want to be free.’
+ - Instead of striving towards some distant goal that you will never reach, I invite you to stop and ask: How am I avoiding the enlightenment that is already present in each moment? How am I seeing separation where it doesn’t exist?
+ - What matters are not the truths other people tell us or the practices that we are able to mimic, but the spiritual discoveries we make through personal investigation.
+ - Enlightenment is the natural state of consciousness, the innocent state of consciousness, that state which is uncontaminated by the movement of thought, uncontaminated by control or manipulation of mind.
+ - The unknown, our own true nature, has the capacity to wake itself up when you start to fall in love with letting go of all the mental structures you hold onto. Contemplate this: there is no such thing as a true belief.
+ - Meditation is a dress rehearsal for death.
+ - The most challenging thing for the spiritual seeker to do is to stop struggling.
+ - Whenever you aren’t manipulating your experience, you’re meditating. As soon as you meditate because you think you should, you’re controlling your experience again, and you’ve squeezed all the value out of your meditation.
+ - Wisdom without love is like having lungs but no air to breathe. Do not seek wisdom in order to acquire knowledge but in order to live and love more fully.
+ - True meditation is letting go of manipulating our experience.
+ - Awakening to the truth is a deep realization of what you are as an experience. What is it that is listening? What is it that is feeling? Feel it. Sense it. Welcome it.
+ - Refuse to disconnect from love and every relationship will be totally transformed; even the relationship with yourself.
+ - Reality is always true to itself. When you’re in harmony with it, you experience bliss. As soon as you are not in harmony with it, you experience pain. This is the law of the universe; it is the way things are. Nobody gets out of this law.
+ - When someone says, ‘I love you,’ he is telling you about himself, not you. When someone says, ‘I hate you,’ she is telling you about herself, not you. World views are self views-literally.
+ - Faith is a withholding of conclusion so that you allow what is to arise.
+ - To be free of fear is to be full of Love.
+ - When you inquire ‘Who am I?’ if you are honest, you’ll notice that it takes you right back to silence instantly. The brain doesn’t have an answer, so all of a sudden there is silence.
+ - Whatever you want, be it. If you want connection, it’s because you are connection. Be what you want, and then it happens all around you. If you want love, be it. You’ll have more love than you know what to do with. Whatever you are inside, you receive a thousandfold on the outside.
+ - You think that enlightenment is something other than what is happening right now. This is your primary mistake.
+ - You are the doorway to the infinite.
+ - How do I integrate spirituality into my everyday life? Throw out the concept of “spiritual life” and “everyday life.” There is only life, undivided and whole.
+ - All is always well even when it seems unbelievably unwell.
+ - If we would only see that all limitations are self imposed and chosen out of fear, we would leap at once.
+ - The door to God is the insecurity of not knowing anything. Bear the grace of that uncertainty and all wisdom will be yours.
+ - True sincerity reveals a powerful form of clarity and discernment that is necessary in order to perceive yourself honestly without flinching or being held captive by your conditioned mind’s judgments and defensiveness.
+ - You must want to know the truth more than you want to feel secure in order to fully awaken to the fact that you are nothing but Awakeness itself.
+ - Go ahead, climb up onto the velvet top of the highest stakes table. Place yourself as the bet. Look God in the eyes and finally, for once in your life, lose.
+ - We must leave the entire collection of conditioned thought behind and let ourselves be led by the inner thread of silence into the unknown, beyond where all paths end, to that place where we go innocently or not at all, not once but continually.
+ - My speaking is meant to shake you awake, not to tell you how to dream better.
+ - The perspective of Love doesn’t leave anybody out. Until your vision and compassion is big enough to include those who oppose you, you are simply contributing to the continuation of destructiveness. The end of separation is the salvation for all.
+ - The process of finding the truth may not be a process by which we feel increasingly better and better. It may be a process by which we look at things honestly, sincerely, truthfully, and that may or may not be an easy thing to do.
+ - The Way of Liberation is not a belief system; it is something to be put into practice.
+ - A meditative mind is at ease because it’s not trying to acquire anything.
+ - If you have any image of what the Truth is, slay it immediately because that’s not it.
+ - Cessation of struggle is like free falling through space without a care in the world.
+ - The Truth is the only thing you’ll ever run into that has no agenda.
+ - At any moment, we are either giving humanity the gift of our clarity or our confusion. And that clarity or confusion is affecting the humanity around us, the world around us. It is manifesting. It is taking form.
+ - True Meditation is the space in which everything gets revealed, everything gets seen, everything gets experienced. And as such, it lets go of itself. We don’t even let go. It lets go of itself.
+ - There is nothing wrong with thought and it can be used whenever necessary. But in every moment you can choose to follow your thoughts or you can recognize that which is not thinking. Don’t try to stop thinking, let it happen. Just recognize that which is not thinking.
+ - There is only consciousness. There is no individual apart from consciousness who is conscious.
+ - We realize – often quite suddenly – that our sense of self, which has been formed and constructed out of our ideas, beliefs and images, is not really who we are. It doesn’t define us, it has no center.
+ - Enlightenment is, in the end, nothing more than the natural state of being.
+ - When we really start to take a look at who we think we are, we become very grace prone.
+ - No matter what identity we cling to, it takes great courage to step out of the old masks we wear and the old scripts that we live by, and open ourselves to the mysterious inner core of our being.
+ - There’s something more to life than what we see on the surface.
+ - Be a true representative of the goodness in your heart, and don’t expect it to be easy or even noticed.
+ - Many Sages have said, “Your world is a dream. You’re living in an illusion.” They’re referring to this world of the mind and the way we believe our thoughts about reality. When we see the world through our thoughts, we stop experiencing life as it really is and others as they really are.
+ - The aim of my teaching is enlightenment, awakening from the dream state of separateness into the reality of the One. In short, my teaching is focused on realizing what you are.
+ - When the eternal and the human meet, that’s where love is born – not through escaping our humanity or trying to disappear into transcendence, but through finding that place where they come into union.
+ - Nothing appears to be something. The human experience is a senseory organ for the divine self. Through these eyes, the divine gets to see itself in form.
+ - Misery needs your conspiracy; it needs your help. Without your resistance misery cannot survive.
+ - If you prefer smoke over fire then get up now and leave. For I do not intend to perfume your mind’s clothing with more sooty knowledge.
+ - Fear is very often a part of the spiritual path. When people sit down and meditate it’s not at all uncommon for fear to arise at some point.
+ - Love causes us to be deeply connected in an unspoken way. It happens when we’re really available, really open.
+ - The biggest barrier to awakening is the belief that it is something rare.
+ - When we start to suffer, it tells us something very valuable. It means that we are not seeing the truth, and we are not relating from the truth. It’s a beautiful pointer. It never fails.
+ - Only when the pursuit ceases, is it possible to recognize what comprises you: pure being.
+ - What will carry us into living freedom is not the holding of attention so much as the holding of appreciation.
+ - Thoughts are just moving through consciousness. They have no power. Nothing has reality until you reach it, grab it, and somehow impregnate it with the power of belief.
+ - Our own intuition of what we’re called to is reality speaking to us individually and perfectly. We have to listen to how the Infinite talks to us and leads us. Reality, Life the Infinite, God, has a way of leading us in just the perfect way, if we will only just listen to it.
+ - Often life is a frantic avoidance of the truth.
+ - The goal of Buddhism is to create Buddhas, not Buddhists, as the goal of Christianity is to create Christs, not Christians.
+ - Space and stillness is the light that illuminates the beauty of our soul’s being.
+ - The mind may accept or deny that you are awareness, but either way it can’t really understand. It cannot comprehend. Thought cannot comprehend what is beyond thought.
+ - The world’s problems are, by and large, human problems-the unavoidable consequence of egoic sleepwalking. If we care to look, all the signs are present to suggest that we are not only sleepwalking, but at times borderline insane as well.
+ - The intricacies of spiritual philosophy and theologies are just a thought within Emptiness.
+ - If we do not live and manifest in our lives what we realize in our deepest moments of revelation, then we are living a split life.
+ - Completion comes when we not just wake up from all form, from all identification, but when love causes us to re-embrace it all.
+ - You can’t lose what you serve. That’s the secret. What you serve, you can’t lose. What you don’t serve and what you try to hold onto, you can’t hold onto. It’s always slipping out of your fingers.
+ - Awareness yields to itself, to its inherent creativity, to its expression in form, to experience itself.
+ - Take one step backward into the unknown.
+ - Serving the Truth becomes our life instead of just an isolated event. It takes the abstractness out of spirituality. That’s the opportunity of real spirituality: to be in service to the silence of the heart.
+ - Stop all delays, all seeking and all striving. Put down your concepts, ideas and beliefs. For one instant be still and directly encounter the silent unknown core of your being. In that instant Freedom will embrace you and reveal the Awakening that you are.
+ - My experience of fundamental Truth is that it’s a place of extraordinary intelligence. It’s a place from which great intelligence arises. I call it a place of absolute infinite potential.
+ - There’s a fierceness about life that calls for a fierceness to not anxiously solve it but to allow it to transform you.
+ - Do not seek after what you yearn for, seek the source of the yearning itself.
+ - As you rest into stillness more profoundly, awareness becomes free of the mind’s compulsive control, contractions, and identifications. Awareness naturally returns to its non-state of absolute unmanifest potential, the silent abyss beyond all knowing.
+ - Nothingness is an absolute infinite potential, not an empty box.
+ - One must be willing to stand alone – in the unknown, with no reference to authority or the past or any of one’s conditioning. One must stand where no one has stood before in complete nakedness, innocence, and humility.
+ - In the end it’s all very simple. Either we give ourselves to Silence or we don’t.
+ - Imagine trusting silence more than any thought you can come up with.
+ - When you begin to become conscious, more aware, when your eyes begin to open, the first thing you see is how deluded you are and how much you’re holding onto that which makes you suffer. This is, in many ways, the most important step: Are you willing to be aware?
+ - Self-inquiry is a spiritually induced form of wintertime. It’s not about looking for a right answer so much as stripping away and letting you see what is not necessary, what you can do without, what you are without your leaves.
+ - Only something as insane as human beings would ever asked themselves if ‘I’m good.’ You don’t find oak trees having existential crisis. ‘I feel so rotten about myself. I don’t produce as much acorns as the one next to me.’
+ - Life sustains itself. Let go of the ego and life takes care of itself through you.
+ - The proof of the depth and embodiment of your realization will be seen in your love relationship. That’s where the proof is in the pudding. If it all collapses in your relationship, you have some work to do. And people do have a lot of difficulties in their relationships.
+ - The truth is that you already are what you are seeking. You are looking for God with his eyes. I suggest you ask, “What’s ultimately behind this set of eyes?” Turn around to see what is looking.
+ - Has it ever occurred to you that you are seeking God with His eyes?
+ - Whatever you can become will ultimately be destroyed. Only what you already are can’t be taken away.
+ - If we look at the world around us, we see that we are conditioned to not listen deeply. Because isn’t that what silence is? It’s a listening, a deep wordless listening.
+ - Grace is something that comes to us when we somehow find ourselves completely available, when we become openhearted and open-minded, and are willing to entertain the possibility that we may not know what we think we know.
+ - As I often tell my students, the person you’ll have the hardest time opening to and truly loving without reserve is yourself. Once you can do that, you can love the whole universe unconditionally.
+ - The more honest and authentic we are, the more deeply we go into the mystery of our own being...
+ - Spirituality does not require that you work hard toward achieving a result in the future as much as it requires you to be fully present, sincere and committed now, with absolute honesty and willingness to uncover and let go of any illusions that come between you and the realization of Reality.
+ - Since everything is already the Supreme Buddha Nature, where are you going to find it?
+ - Silence is the only teaching and the only teacher that is there all the time.
+ - Love moves without an agenda. It just moves because that is its nature to move.
+ - Freedom is the disappearance of that which is searching for freedom.
+ - Life itself is nothing but relationship.
+ - When you rest in quietness and your image of yourself fades, and your image of the world fades, and your ideas of others fade, what’s left? A brightness, a radiant emptiness that is simply what you are.
+ - The ultimate freedom from the nonexistent ego is to see that it is actually irrelevant.
+ - This moment in which you experience stillness is every moment. Don’t let the mind seduce you into the past or future. Stay in the moment, and dare to consider that you can be free now.
+ - When you realize what you are now, the issue of death will solve itself.
+ - Enlightenment is the unaltered state of consciousness.
+ - True meditation has no direction or goal. It is pure wordless surrender, pure silent prayer.
+ - What would happen if you were to allow everything to be exactly as it is? If you gave up the need for control, and instead embraced the whole of your experience in each moment that arose?
+ - It is one thing to touch a flame and know it is hot, but quite another to jump into that flame and be consumed by it.
+ - Have you noticed, with whatever quality of love you have experienced, that when true love arises, it opens up both your mind and emotions? It’s an openness to whatever is happening.
+ - Awareness isn’t something we own; awareness isn’t something we possess. Awareness is actually what we are.
+ - I often describe the Absolute as Pure Infinite Potential, prior to being or becoming anything. It is forever unborn, yet gives birth to all of existence. About our ultimate nature nothing can be said; it must be revealed.
+ - What you run away from owns you. You are the dog on a leash. The most you can do is to tug against the leash.
+ - In True Meditation, we’re in the body as a means to transcend it. It is paradoxical that the greatest doorway to the transcendence of form is through form itself.
+ - A spiritual teaching is a finger pointing toward Reality; it is not Reality itself. To be in a true and mature relationship with a spiritual teaching requires you to apply it, not simply believe in it.
+ - As soon as the mind pulls out an agenda and decides what needs to change, that’s unreality. Life doesn’t need to decide who’s right and who’s wrong. Life doesn’t need to know the “right” way to go because it’s going there anyway.
+ - Our yearning for truth actually comes from truth.
+ - The biggest embrace of love you’ll ever make is to embrace yourself completely. Then you’ll realize you’ve just embraced the whole universe, and everything and everybody in it.
+ - The moment that you are willing to step outside of tomorrow, outside of needing more time, or having more time, everything becomes possible. And you may finally notice where the Buddha has always been.
+ - Let go of all ideas and images in your mind, they come and go and aren’t even generated by you. So why pay so much attention to your imagination when reality is for the realizing right now?
+ - At first it seems as if begoing follows becoming. But look even closer and you will see that there are only flashes of lightning illuminating the empty sky.
+ - We think there’s someplace other than here to get to – that’s what drives the whole pursuit. Only when the pursuit ceases, is it possible to recognize what comprises you: pure being, pure consciousness. This is actually the very substance of your own self and being.
+ - What is really important you can’t understand with your mind.
+ - We must become expressions of, not consumers of, realization.
+ - You can’t look at what’s looking. You can’t think about that which is prior to thought.
+ - This world is not my concern; it is myself.
+ - Feel this moment, see it with a willingness to experience it deeply, whether it be good, bad, or indifferent. Emotionally and feelingly be fully present, right here, vulnerable, with your heart. Just be present. Don’t live from your conditioned mind, live from unconditional truth.
+ - Why is it that so few people are truly free? Because they try to conform to ideas, concepts, and beliefs in their heads.
+ - The beautiful thing about the truth of being is that it’s so unimaginably immediate.
+ - All delusions begin in the mind. All delusions are based on various ways we’re talking to ourselves and then believing what we are saying.
+ - You are an incredible mystery that you will never figure out. To be this mystery consciously is the greatest joy.
+ - Truth has no finality to it. It is not something to be held on to. Truth is discovered minute to minute or not at all.
+ - All we really want in the end is to be connected once again with the Truth of our being, to realize what it is that wears this mask of self.
+ - In silence a question has great power, because in silence a question will always lead you deeper into your experience. If there is no grounding in silence, a spiritual question is going to lead you into your mind.
+ - Doubt is always accompanied by a pervasive cynicism that unconsciously puts a negative spin on whatever it touches.
+ - The main requirement for spiritual growth: A yearning to know who you really are.
+ - Enlightenment means waking up to what you truly are and then being that.
+ - You will only lose when you resist reality; you will only struggle when you disagree with what is.
+ - As soon as you believe that a label you’ve put on yourself is true, you’ve limited something that is literally limitless, you’ve limited who you are into nothing but a thought.
+ - The light of consciousness has no mind to change or alter anything. There is no sense that anything needs to change, but it does change.
+ - To find out that you are empty of emptiness is to die into an aware mystery, which is the source of all existence.
+ - True freedom is to be free from the desire to be free from anything.
+ - It is not the pursuit of greater and greater states of happiness and bliss that leads to enlightenment, but the yearning for Reality and the rabid dissatisfaction with living anything less than a fully authentic life.
+ - The most intimate question we can ask, and the one that has the most spiritual power, is this: What or who am I?
+ - There’s a great space in which this moment takes place. There’s a great silence that is listening to the thoughts.
+ - The Truth doesn’t answer anything. The Truth IS everything!
+ - One doesn’t stay in a state of nirvana by hiding from difficulties. You stay in nirvana by lavishing nirvana on everyone you meet, by giving it away as fast as you receive it.
+ - If you want to know something, go elsewhere. If you want to un-know everything, then sit and listen.
+ - When we’re in our true being, the purpose of life is to feel that every moment is the purpose.
+ - We are birthed into sangha, into sacred community. It is called the world.
+ - Love is a flame that burns everything other than itself. It is the destruction of all that is false and the fulfillment of all that is true.
+
+173 quotes

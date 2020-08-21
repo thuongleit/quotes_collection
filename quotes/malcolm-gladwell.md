@@ -1,0 +1,183 @@
+ - Practice isn’t the thing you do once you’re good. It’s the thing you do that makes you good.
+ - If everyone has to think outside the box, maybe it is the box that needs fixing.
+ - No one who can rise before dawn three hundred sixty days a year fails to make his family rich.
+ - Success has to do with deliberate practice. Practice must be focused, determined, and in an environment where there’s feedback.
+ - It takes ten thousand hours to truly master anything. Time spent leads to experience; experience leads to proficiency; and the more proficient you are the more valuable you’ll be.
+ - Working really hard is what successful people do...
+ - The tipping point is that magic moment when an idea, trend, or social behavior crosses a threshold, tips, and spreads like wildfire.
+ - The people at the top don’t work just harder or even much harder than everyone else. They work much, much harder.
+ - The act of facing overwhelming odds produces greatness and beauty.
+ - Through embracing the diversity of humans beings, we will find a sure way to true happiness.
+ - The key to good decision making is not knowledge. It is understanding. We are swimming in the former. We are desperately lacking in the latter.
+ - We learn by example and by direct experience because there are real limits to the adequacy of verbal instruction.
+ - Innovation-the heart of the knowledge economy-is fundamentally social.
+ - Success is a function of persistence and doggedness and the willingness to work hard.
+ - I have a new way of doing things, and I don’t care if you think I’m crazy.
+ - Success is not a random act. It arises out of a predictable and powerful set of circumstances and opportunities.
+ - Outlier are those who have been given opportunities – -and who have had the strength and presence of mind to seize them.
+ - A lot of what is most beautiful about the world arises from struggle.
+ - If people disobey, don’t ask what is wrong with them, ask what’s wrong with their leaders.
+ - We have, as human beings, a storytelling problem. We’re a bit too quick to come up with explanations for things we don’t really have an explanation for.
+ - We need to look at the subtle, the hidden, and the unspoken.
+ - Achievement is talent plus preparation.
+ - Truly successful decision-making relies on a balance between deliberate and instinctive thinking.
+ - Hard work is a prison sentence only if it does not have meaning.
+ - There can be as much value in the blink of an eye as in months of rational analysis.
+ - People who bring transformative change have courage, know how to re-frame the problem and have a sense of urgency.
+ - The visionary starts with a clean sheet of paper, and re-imagines the world.
+ - The sad thing about doping is how much it obscures our appreciation of greatness.
+ - That was it! The whole Redwood City philosophy was based on a willingness to try harder than anyone else.
+ - If you’re in business it’s both a promise and a warning. It says that sometimes little things can cause some little guy to have an overnight success.
+ - An incredibly high percentage of successful entrepreneurs are dyslexic. That’s one of the little-known facts.
+ - If you don’t contradict yourself on a regular basis, then you’re not thinking.
+ - If you think advantage lies in resources, then you think the best educational system is the one that spends the most money.
+ - The single most important thing a city can do is provide a community where interesting, smart people want to live with their families.
+ - Those three things – autonomy, complexity, and a connection between effort and reward – are, most people will agree, the three qualities that work has to have if it is to be satisfying.
+ - Achievement is talent plus preparation. The problem with this view is that the closer psychologists look at the careers of the gifted, the smaller the role innate talent seems to play and the bigger the role preparation seems to play.
+ - The difference isn’t resources, it’s attitude.
+ - We have the kind of self-made-man myth, which says that super-successful people did it themselves.
+ - The kinds of errors that cause plane crashes are invariably errors of teamwork and communication.
+ - You don’t start at the top if you want to find the story. You start in the middle, because it’s the people in the middle who do the actual work in the world.
+ - Success is deeply rooted in time and place. You may have the drive to read tons of books on biology. But if there are no books on biology in your library, and the library is never open, your drive is meaningless.
+ - People are experience-rich and theory-poor.
+ - It’s not how much money we make that ultimately makes us happy between nine and five. It’s whether or not our work fulfills us. Being a teacher is meaningful.
+ - Our unconscious is really good at quick decision-making – it often delivers a better answer than more deliberate and exhaustive ways of thinking.
+ - A radical and transformative thought goes nowhere without the willingness to challenge convention.
+ - The trick to finding ideas is to convince yourself that everyone and everything has a story.
+ - Good writing does not succeed or fail on the strength of its ability to persuade. It succeeds or fails on the strength of its ability to engage you, to make you think, to give you a glimpse into someone else’s head.
+ - Incompetence annoys me. Overconfidence terrifies me.
+ - Emotion is contagious.
+ - There are exceptional people out there who are capable of starting epidemics. All you have to do is find them.
+ - Anyone who knows the marketing world knows that ideas come and go, and people latch onto things and think of them as a kind of solution...
+ - If you are going to do something truly innovative, you have to be someone who does not value social approval. You can’t need social approval to go forward. Otherwise, how would you ever do the thing that you are doing?
+ - Of the great entrepreneurs of this era, people will have forgotten Steve Jobs.
+ - In fact, researchers have settled on what they believe is the magic number for true expertise: ten thousand hours.
+ - The fact of being an underdog changes people in ways that we often fail to appreciate. It opens doors and creates opportunities and enlightens and permits things that might otherwise have seemed unthinkable.
+ - The world is not a meritocracy, as much as we may like to pretend that it is. And we have a long way to go before we really reward people based on their own merit.
+ - Insight is not a lightbulb that goes off inside our heads. It is a flickering candle that can easily be snuffed out.
+ - It is those who are successful, in other words, who are most likely to be given the kinds of special opportunities that lead to further success.
+ - Activism that challenges the status quo, that attacks deeply rooted problems, is not for the faint of heart.
+ - When we become expert in something, our tastes grow more esoteric and complex.
+ - Asian culture has a profoundly different relationship to work. It rewards people who are persistent.
+ - The values of the world we inhabit and the people we surround ourselves with have a profound effect on who we are.
+ - We prematurely write off people as failures. We are too much in awe of those who succeed and far too dismissive of those who fail.
+ - Arousal leaves us mind-blind.
+ - To be someone’s best friend requires a minimum investment of time. More than that, though, it takes emotional energy. Caring about someone deeply is exhausting.
+ - The sense of possibility so necessary for success comes not just from inside us or from our parents. It comes from our time: from the particular opportunities that our place in history presents us with.
+ - The injunction to be nice is used to deflect criticism and stifle the legitimate anger of dissent.
+ - That’s your responsibility as a person, as a human being – to constantly be updating your positions on as many things as possible. And if you don’t contradict yourself on a regular basis, then you’re not thinking.
+ - Ideas and products and messages and behaviors spread just like viruses do.
+ - Did they know why they knew? Not at all. But the Knew!
+ - When you’re an underdog, you’re forced to try things you would never otherwise have attempted.
+ - Performance ought to improve with experience, and pressure is an obstacle that the diligent can overcome.
+ - You don’t manage a social wrong. You should be ending it.
+ - The goal of storytelling should be to make stories as ubiquitous as music.
+ - We cling to the idea that success is a simple function of individual merit and that the world in which we all grow up and the rules we choose to write as a society don’t matter at all.
+ - Choking is about thinking too much. Panic is about thinking too little. Choking is about loss of instinct. Panic is reversion to instinct. They may look the same, but they are worlds apart.
+ - The difference between a crime of evil and a crime of illness is the difference between a sin and a symptom.
+ - We overlook just how large a role we all play – and by ‘we’ I mean society – in determining who makes it and who doesn’t.
+ - The Band-Aid solution is actually the best kind of solution because it involves solving a problem with the minimum amount of effort and time and cost.
+ - To build a better world we need to replace the patchwork of lucky breaks and arbitrary advantages today that determine success – the fortunate birth dates and the happy accidents of history – with a society that provides opportunities for all.
+ - There is more going on beneath the surface than we think, and more going on in little, finite moments of time than we would guess.
+ - In the act of tearing something apart, you lose its meaning.
+ - I think that persistence and stubbornness and hard work are probably, at the end of the day, more important than the willingness to take a risk.
+ - Incompetence is certainty in the absence of expertise. Overconfidence is certainty in the presence of expertise.
+ - Poverty is not deprivation, it is isolation.
+ - Nobody accomplishes success by themselves.
+ - Clear writing is universal. People talk about writing down to an audience or writing up to an audience; I think that’s nonsense. If you write in a way that is clear, transparent, and elegant, it will reach everyone.
+ - There is a simple way to package information that, under the right circumstances, can make it irresistible. All you have to do is find it.
+ - Success is not a function of individual talent. It’s the steady accumulation of advantages. It’s bound up in so many other broader circumstantial, environmental, historical, and cultural factors.
+ - What must underlie successful epidemics, in the end, is a bedrock belief that change is possible, that people can radically transform their behavior or beliefs in the face of the right kind of impetus.
+ - Humans socialize in the largest groups of all primates because we are the only animals with brains large enough to handle the complexities of that social arrangement.
+ - I’m necessarily parasitic in a way. I have done well as a parasite. But I’m still a parasite.
+ - When it’s easy to make money, you have no incentive to think about development of talent.
+ - My earliest memories of my father are of seeing him work at his desk and realizing that he was happy. I did not know it then, but that was one of the most precious gifts a father can give his child.
+ - When people in authority want the rest of us to behave, it matters-first and foremost-how they behave.
+ - Often a sign of expertise is noticing what doesn’t happen.
+ - Giants are not what we think they are. The same qualities that appear to give them strength are often the sources of great weakness.
+ - We don’t know where our first impressions come from or precisely what they mean, so we don’t always appreciate their fragility.
+ - The ethics of plagiarism have turned into the narcissism of small differences: because journalism cannot own up to its heavily derivative nature, it must enforce originality on the level of the sentence.
+ - Happiness, in one sense, is a function of how closely our world conforms to the infinite variety of human preference.
+ - If you think success is about so many more things and is so much more arbitrary, then you can be much more open to the idea that you can be Ben Fountain and publish your great book at forty-nine.
+ - My father read Charles Dickens to us as children, and at the end of virtually every novel he would choke up and start to cry – and my father NEVER cried. It always made me love him all the more.
+ - It wasn’t an excuse. It was a fact. He’d had to make his way alone, and no one – not rock stars, not professional athletes, not software billionaires, and not even geniuses – ever makes it alone.
+ - Who we are cannot be separated from where we’re from.
+ - A book, I was taught long ago in English class, is a living and breathing document that grows richer with each new reading.
+ - That is the paradox of the epidemic: that in order to create one contagious movement, you often have to create many small movements first.
+ - We sometimes think of being good at mathematics as an innate ability. You either have “it” or you don’t. But to Schoenfeld, it’s not so much ability as attitude. You master mathematics if you are willing to try.
+ - Acquaintances represent a source of social power, and the more acquaintances you have the more powerful you are.
+ - It’s not about how smart you are. It’s about your values.
+ - Lesson Number One: The Importance of Being Jewish.
+ - There are moments, particularly in times of stress, when haste does not make waste, when our snap judgments and first impressions can offer a much better means of making sense of the world.
+ - We can unravel the logic behind who succeeds and who doesn’t.
+ - What a gifted child is, in many ways, is a gifted learner. And what a gifted adult is, is a gifted doer. And those are quite separate domains of achievement.
+ - The great accomplishment of Jobs’s life is how effectively he put his idiosyncrasies – his petulance, his narcissism, and his rudeness – in the service of perfection.
+ - Sometimes constraints actually create success. Not being able to swim made me run. And running taught me the discipline I needed as a writer.
+ - As human beings, we always expect everyday change to happen slowly and steadily, and for there to be some relationship between cause and effect.
+ - For every romantic possiblity, no matter how robust, there exists at least one equal and opposite sentence, phrase, or word capable of extinguishing it.
+ - I’m a purist: I start to wrinkle my nose when the Cold War ends.
+ - What is learned out of hard work and trial is inevitably more powerful than what is learned easily.
+ - I should point out that I have a picture of Asbel Kiprop as the screensaver on my phone. Is that embarrassing?
+ - You can learn as much – or more – from one glance at a private space as you can from hours of exposure to a public face.
+ - Part of me thinks that innovation, real innovation in health care delivery, needs to happen from the bottom to the top.
+ - Re-reading is much underrated. I’ve read The Spy Who Came in from the Cold once every five years since I was 15. I only started to understand it the third time.
+ - I don’t really collect books. I tend to lose interest in them the minute I’ve read them, so most of the books I’ve read are left in airplanes and hotel rooms.
+ - Look at the world around you. It may seem like an immovable, implacable place. It is not. With the slightest push – in just the right place – it can be tipped.
+ - I worry that track is going to enter into an impossibly complicated stage, where our understanding of the complexities of human physiology – and our ability to accentuate and exploit them – is going to make the notion of pure competition impossible.
+ - Instead of thinking about talent as something that you acquire, talent should be thought of as something that you develop.
+ - Father: ‘Anything but journalism.’ I rebelled.
+ - What we do as a community, as a society, for each other, matters as much as what we do for ourselves. It sounds a little trite, but there’s a powerful amount of truth in that, I think.
+ - If we are to learn to improve the quality of the decisions we make, we need to accept the mysterious nature of our snap judgments.
+ - Does that mean we should give up? Probably. But there are two issues worth considering. The first is – is it really true that drugs destroy the integrity of the game?
+ - What happens when two people talk? That is really the basic question here, because, that’s the basic context in which all persuasion takes place.
+ - Sometimes the most modest changes can bring about enormous effects.
+ - The answer is that the success of any kind of social epidemic is heavily dependent on the involvement of people with a particular and rare set of social gifts.
+ - If your parents are billionaires, that might actually be an obstacle to your own happiness and self-development. If you go to Oxford or Harvard, that might actually thwart your desire to graduate with a science or math degree.
+ - Affect, Imagery, Consciousness, a four-volume work so dense that its readers were evenly divided between those who understood it and thought it was brilliant and those who did not understand it and thought it was brilliant.
+ - Occasions when you can change your mind should be cherished, because they mean you’re smarter than you were before.
+ - The face is not a secondary billboard for our internal feelings. It is an equal partner in the emotional process.
+ - Change your mind about something significant every day.
+ - It’s as if you were interested in fashion and your neighbor when you were growing up happened to be Giorgio Armani.
+ - It’s just strange to think that so much of our enjoyment from sports comes from the elevation of arbitrary differences.
+ - I suspect people who are indecisive are people who are far too enamored of analysis in all settings and are destroying their ability to make an instinctive judgment through over-analysis and that’s dangerous.
+ - Whenever we have something that we are good at – something we care about – that experience and passion fundamentally change the nature of our first impressions.
+ - By shifting the balance away from the individual we open the door for the individual. Because we make it obvious that anyone can do it given the right circumstance.
+ - I know it sounds hard to believe, but habits laid down by our ancestors persist even after the conditions that created those habits have gone away.
+ - An aggressive drug-testing program would cut down on certain abuses, but its never going to catch everyone – or even close to everyone.
+ - Bad improvisers block action, often with a high degree of skill. Good improvisers develop action.
+ - People who are busy doing things – as opposed to people who are busy sitting around, like me, reading and having coffee in coffee shops -don’t have opportunities to kind of collect and organize their experiences and make sense of them.
+ - I’m someone who can provide an intellectual framework, but I can’t tell people who are trying to sell Product X how to do that because I don’t know, and I would be faking it if I attempted to step into that role.
+ - It’s very hard to find someone who’s successful and dislikes what they do.
+ - If you play an audiotape of a yawn to blind people, they’ll yawn too.
+ - Without the New York Times, there is no blog community. They’d have nothing to blog about.
+ - We are approaching levels – if we’re not beyond levels – of threshold for the number of messages that consumers can take in in a given day. There is a kind of hunger for some kind of new approach to getting the word out about something.
+ - Track is full of the absolute nicest and most polite athletes in all of sports, and where does it get us?
+ - I think actually the marketing community is approaching a crisis: There are just too many messages competing for too little attention. That is the fundamental problem.
+ - We vary greatly in the natural advantages that we’ve been given. The world’s not fair.
+ - The poorer children were, to her mind, often better behaved, less whiny, more creative in making use of their own time, and have a well-developed sense of independence.
+ - In a country that never wins anything: in Canada, if one of our athletes so much as makes the final in a World Championship, we declare a national holiday.
+ - I’ve always been baffled by how much we over-rate the statistically insignificant differences that separate competitors at the top end of the distribution.
+ - When crime drops dramatically in New York for no apparent reason, or when a movie made on a shoestring budget ends up making hundreds of millions of dollars – we’re surprised. I’m saying, don’t be surprised. This is the way social epidemics work.
+ - It changes how people read you if you believe in God. It gives insight into your motivation, how you look at problems and how you deal with people.
+ - What track needs to figure out: how to engage us between the races. Instead, the entire off-the-track conversation is about doping. This is how you kill a sport.
+ - It is the new and different that is always most vulnerable to market research.
+ - The nature of athletic celebrity is increasingly moving away from the actual field of play.
+ - An innate gift and a certain amount of intelligence are important, but what really pays is ordinary experience.
+ - The issue isn’t the accuracy of the bombs you have, it’s how you use the bombs you have – and more importantly, whether you ought to use bombs at all.
+ - That fundamentally undermines your ability to access the best part of your instincts. So my advice to those people would be stop thinking and introspecting so much and do a little more acting.
+ - I’m totally engaging in cultural stereotyping, no question about it. But I think it’s OK because I’m doing it for a reason, for a good reason.
+ - There’s no idea that can’t be explained to a thoughtful 14-year-old. If the thoughtful 14-year-old doesn’t get it, it is your fault, not the 14-year-old’s.
+ - What does it say about a society that it devotes more care and patience to the selection of those who handle its money than of those who handle its children?
+ - There will be statues of Bill Gates across the Third World. There’s a reasonable shot that – because of his money – we will cure malaria.
+ - You need to have the ability to gracefully navigate the world.
+ - Visionaries are limited by their visions.
+ - Our intuitions, as humans, aren’t always very good. Changes that happen really suddenly, on the strength of the most minor of input, can be deeply confusing.
+ - Policy is driven by more than politics, however. It is equally driven by ideas.
+ - So long as the stereotype is used as a way of understanding how to fix the problem as opposed to demonizing a people or writing them off, then I think it’s OK.
+ - Where they come from matters. They’re products of particular places and environments.
+ - I became convinced that knowing lots of people was kind of skill, something that the diligent can overcome.
+ - It is quite possible for people who have never met us and who have spent only twenty minutes thinking about us to come to a better understanding of who we are than people who have known us for years.
+ - A prediction, in a field where prediction is not possible, is no more than a prejudice.
+ - I’m convinced that ideas and behaviors and new products move through a population very much like a disease does.
+
+181 quotes

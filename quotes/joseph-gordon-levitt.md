@@ -1,0 +1,140 @@
+ - I’m tired of being tired of being tired of being.
+ - When I started editing on my home computer, I said to myself, ‘Well, I could be at home studying for a class or I could be at home editing a video.’
+ - The sun is such a lonely star. Whenever he comes out to see his friends, they all disappear.
+ - I think there is something beautiful in reveling in sadness. The proof is how beautiful sad songs can be. So I don’t think being sad is to be avoided. It’s apathy and boredom you want to avoid. But feeling anything is good, I think. Maybe that’s sadistic of me.
+ - The universe is not made up of atoms; it’s made up of tiny stories.
+ - If you don’t stick to your plan enough, and you’re too seduced by whimsical notions and new ideas, you can kind of lose your train of thought and end up with something that doesn’t have a solid through-line.
+ - The most valiant thing you can do as an artist is inspire someone else to be creative.
+ - That’s what life is: repetitive routines. It’s a matter of finding the balance between deviating from those patterns and knowing when to repeat them.
+ - Everyone has a unique perspective and that’s valid. Everyone’s perspective is valid. That doesn’t mean that everyone has the same degree of skill level as an entertainer, but skill isn’t the only important thing. It’s also what kind of perspective and feelings you’re bringing to it.
+ - Supermarket tabloids and celebrity gossip shows are not just innocently shallow entertainment, but a fundamental part of a much larger movement that involves apathy, greed and hierarchy.
+ - I lost you when you left me to find yourself.
+ - I think there is something beautiful in reveling in sadness.
+ - Here’s the new art of the twenty-first century: the art of curating, the art of plucking all the good stuff from a superabundance of crap.
+ - I have an eclectic taste in stuff whether it be movies or music or books or food or anything. Variety is interesting.
+ - Making checklists of things you’re looking for in a person is the numero uno thing you can do to guarantee you’ll be alone forever.
+ - I tend to think having an impact on the world is a lot more complicated than government.
+ - Sometimes what someone else does is really not what you expected them to do, which to be honest, sometimes doesn’t work.
+ - This is the saddest, most depressing music I’ve ever heard. It makes me so happy.
+ - The element of surprise wasn’t allowed near the Periodic Table.
+ - The chemistry and the comfort and trust between two people playing a love story l is key, and to have a friend that I could trust, and whose sensibilities I already understood, made it so much easier, and is a big part of why it all looks natural on screen.
+ - I don’t have any training in dance. I can convince an audience that I know how to dance because I’m a convincing actor.
+ - The spiral in a snail’s shell is the same mathematically as the spiral in the Milky Way galaxy, and it’s also the same mathematically as the spirals in our DNA. It’s the same ratio that you’ll find in very basic music that transcends cultures all over the world.
+ - In the old days, people would gather around the fire, or they would gather at a tavern, and they’d tell a story. And then, maybe a week later, someone would tell the same story, but with a different twist on it. That’s how folk takes evolved.
+ - The doctor’s wife ate two apples a day, just to be safe. But her husband kept coming home.
+ - I just need some time away to remember why I stay.
+ - But I would encourage anyone who has a crush on my character to watch it again and examine how selfish he is.
+ - His hands were weak and shaking from carrying far too many books from the bookshop. It was the best feeling.
+ - Every day I’ve got to be thankful that I am alive, and you never know – the cliche is, I guess, you could get hit by a bus tomorrow, so you’d better be at peace with whatever you got going at the moment.
+ - Don’t we want to escape our real world and go into something larger than that, simpler than that, more beautiful or darker?
+ - Your heart has a little empty corner. You won’t even know I’m there – I’ll be very quiet.
+ - I know other worlds exist. I can see them in my peripheral vision.
+ - I collect flickering stars in old pickling jars, poking holes in the lids so they can breathe.
+ - Real life is not as simple as it is on a screen. I think real life is actually a lot more beautiful.
+ - It’s worth paying attention to the roles that are sort of dictated to us and that we don’t have to fit into those roles. We can be anybody we wanna be.
+ - One thing that stays pretty consistent for all my jobs is, I listen to a lot of music while I’m working.
+ - I enjoy a challenge or provocation, something to think about, to talk about after it’s done.
+ - Nothing is ever finished. It’s a funny thing. I actually think that’s really the more natural way of stories or songs.
+ - The term ‘popular culture’ always used to mean what the people do – pop songs, folk songs, music in general used to live because people would sing these songs and tell these stories together. Then all of these new technologies came out and it became the work of professionals.
+ - My mom brought me up to be a feminist. She would always point out to my brother and me that our culture does often portray women like objects.
+ - Kids play pretend. I think that kids can be the best actors.
+ - Movies are different from real life.
+ - You’re gone. No mailing address. But I send you letters anyway.
+ - Why am I doing the work I’m doing? Why am I friends with this person? Am I living the best life I possibly can? Questions are often looked upon as questions of doubt but I don’t see it that way at all. I question things to stay present, to make sure I’m doing what I’m supposed to be doing.
+ - I think our culture is sick and tired of fluffy nonsense and people want something more sincere and heartfelt.
+ - Lets face it, most pretty girls arent funny.
+ - Success is not important to me, nor are power or money. If the script feels good, then I’m in. It’s that simple.
+ - There’s something really appealing about the simplicity of black-and-white images.
+ - That you can be whatever you want to be, whoever you want to be, regardless of your gender.
+ - Every director is different. And all the movies are very different, and the characters are very different.
+ - I’d been an actor my whole life, since I was a kid. And then, I quit for awhile and went to university. When I wanted to start acting again, I couldn’t get a job, and that was really depressing. So, I realized, at that time, that I have to take responsibility for my own creativity.
+ - I think violence begets violence. I don’t think a way to solve any sort of conflict is with violence because nothing ever ends up solved, that way.
+ - He loved me. He loves me not.
+ - When you become a ghost feel free to haunt me.
+ - Celebrity doesn’t have anything to do with art or craft. It’s about being rich and thinking that you’re better than everybody else.
+ - If the inspiration is genuine and it’s coming from the right place, that’s what I like and want to be a part of.
+ - Storytelling in general is a communal act. Throughout human history, people would gather around, whether by the fire or at a tavern, and tell stories. One person would chime in, then another, maybe someone would repeat a story they heard already but with a different spin. It’s a collective process.
+ - I like making little videos and little records. I’ve always loved video cameras and four-track cassette recorders, still cameras, anything.
+ - We’re all beautiful. We all deserve attention.
+ - My dad never blew anything up, but he probably had friends who did. He and my mom have always preached that the pen is mightier than a Molotov cocktail.
+ - My favorite kinds of movies are the ones that start a conversation.
+ - I just like to do work that inspires me, and I don’t pay any attention to whether it’s a high- or low-budget movie.
+ - I have a pretty eclectic taste in the movies that I like to watch, and also in the movies that I’m inspired to work on.
+ - Being politically active is “more about doing things, not just standing for some platform or being involved in some political party.”
+ - Certainly the animation technology is growing like crazy. All media technology is.
+ - I have a really terrible sense of direction.
+ - Genres give a vocabulary. They give a frame of reference for the audience to enter into a movie. Then, once they have their footing, that’s when you can start doing things that they don’t expect.
+ - Bikes are clearly a superior form of transportation when it comes to just simple getting around. A car makes sense if you need to carry a bunch of stuff.
+ - I don’t think action for action’s sake is so fun, but when it helps tell the story, I love doing a good fight scene.
+ - I don’t blame the people for the fact that so many movies are bad. I think there’s a corrupt, perverted, lazy and sloppy attitude that’s pervasive in the movie business. The whole entertainment business is kind of crumbling around us.
+ - Even when I was really young, I hated doing commercials, because I would say, “That’s not real acting.” And it’s not. It’s embarrassing what they make little kids do in commercials.
+ - I think some of the best actors ever were little kids.
+ - The thing about Occupy is that the sentiment the movement embodies is timeless: Don’t be greedy, share.
+ - I want to keep working with people that care about what they’re doing. It seems obvious, but it’s not. It’s sometimes hard to keep on that track.
+ - Your kisses are snowflakes: each one is unique. They land on me, before they melt away and leave me cold.
+ - The Internet is allowing us to get back to what’s really more natural, which is that storytelling is a shared thing. It’s our natural way to be communal.
+ - I just love to act. It’s my favorite thing to do in the world, and what keeps it interesting, to me, is the creative challenge. So, different kinds of characters, that’s what I just love to do.
+ - When you believe that you can do something, that’s when you can do it.
+ - I do feel that even though I didn’t grow up being a big sci-fi fan or comic books or superhero fan, I felt myself definitely gravitate towards these movies that have a high concept and yet they’re giving you a moral dilemma within that.
+ - Even today, in our progressive times, in most movies that come out, the men have to have biceps and the women have to be thin or something.
+ - I’m the last person to tell my friends to go see something I’m in. I could care less if friends of mine never saw anything I’m in.
+ - I’m definitely not a science nerd, I’ll say that. That was not my forte at school.
+ - I think any time you set out to make something, anybody is going to be confronted by those voices in their head that say “You don’t need to do this. Someone else can do this better. You should probably just quit right now.”
+ - Media used to be one way. Everyone else in the world just had to listen. Now the internet is allowing what used to be a monologue to become a dialogue. I think that’s healthy.
+ - We can be anybody we wanna be.
+ - When I arrived at Columbia, I gave up acting and became interested in all things French. French poetry, French history, French literature.
+ - When I was a teenager, if anyone recognized me for anything I did, it would ruin my day. I couldn’t handle it. It was some sort of neurotic phobia. I guess I was paranoid that people would treat me differently, or in an unfair way, because of my job.
+ - I think Hollywood, as it’s been, will have to change because the model of Hollywood is “we’ll make this content, and you guys buy it,” but I don’t think that’s the future.
+ - The traditions of Hollywood are grand and great and are going to survive forever, in a way. But they’re not going to be the only way for much longer. The technology is such now that you don’t have to have millions of dollars to make a movie. You can make one with a computer.
+ - I do call myself a feminist. Absolutely!
+ - I don’t blame folks for not wanting to put me in their movies or whatever. I understand if their audiences had an association with me.
+ - This overwhelming desire to be close to you directly conflicts with my intense fear of people.
+ - Comedy takes a very specific technique, specific skills.
+ - Darkness is a lot of what art is and certainly in our community a lot of it is people sort of wrestling with their demons.
+ - I find the voice is what I look for first and foremost with just about every character I play.
+ - While I’m not a celebrity, it’s such a weird concept that society has cooked up for us. Astronauts and teachers are much more amazing than actors.
+ - I have a lot of trouble getting turned on by girls who are turned on by celebrity.
+ - There’s an absolute prejudice that good movies are dramas and comedies are more dismissable. But I couldn’t disagree more.
+ - I was such a big Dustin Hoffman fan when I was young.
+ - Hollywood can be an exclusive place. Who gets to be on TV, or who gets to make TV can be a small clique of an industry. There’s so many talented, skilled people, all over the world, that might not have the connections or the opportunities to work in TV.
+ - If more people rode bikes and less people drove cars, the air would be in better shape and people would be in better shape.
+ - Singing doesn’t have to mean that you sound like Stevie Wonder. I love to sing. I’m not the greatest singer in the world. But, a lot of my favorite singers aren’t the greatest singers in the world.
+ - I think we all have a tendency to feel like, “Well, what can I do? I can’t influence the government or politics in my country.”
+ - If you look at all the movies that have made tons of money, almost all of them are great movies. Even Titanic. I think Titanic is a great movie.
+ - I didn’t really like doing commercials.
+ - I didn’t really like doing commercials. You had to behave like you were on angel dust or something.
+ - Actors didn’t use to be celebrities. A hundred years ago, they put the theaters next to the brothels.
+ - There’s a long, long history of women suffering abuse, injustice, and not having the same opportunities as men, and I think that’s been very detrimental to the human race as a whole.
+ - Most scripts are bad. I read a lot of them.
+ - I think acting is totally conducive to being a little kid, because kids are less inhibited and use their imagination.
+ - I suppose the longer anyone spends on earth, the closer we all get to becoming superfluous characters.
+ - Normally you read a screenplay – and I read a lot of them – and the characters don’t feel like people. They feel like plot devices or cliches or stereotypes.
+ - I think the reason I was able to get the jobs I did is because I worked for some very strong, self-possessed filmmakers who wouldn’t listen to the executive-suited wisdom, and they believed in me from director to actor. Not from salesman to commodity.
+ - It’s just a natural part of being a social creature and being a human being.
+ - I was studying for the SAT’s and learning lines.
+ - I didn’t want to just work within Hollywood when I started a production company. I wanted to be able to collaborate with great artists from all over the world.
+ - Astronauts and teachers are much more amazing than actors.
+ - I was just watching baby videos of me and I was obviously an exhibitionist.
+ - I don’t think you necessarily have to be the most perfected performer, in order to express your feelings. It’s really those feelings that an audience connects with, I think, at least as much as perfected technical skill.
+ - I just want to open up the avenues for people to express themselves. That’s what the media ought to be. It shouldn’t just be a conveyer belt of shiny products to buy. It should be a way that we’re all communicating and understanding each other.
+ - The truth of actually working on a movie set is that you’re in the midst of a logistical nightmare. There are so many things going on. There are many factors that keep your ideal scenario from ever happening. And you’re rarely going to get that.
+ - It’s less about what you do and more about who you are doing it with.
+ - Most of what Hollywood puts out is crap anyway.
+ - The cool thing about my character was that it’s not that digital. I get to put hours of prosthetic makeup on and see a different creature altogether. I’ve seen how he looks and it’s really cool.
+ - I think, honestly, that the word ‘indie’ is a false gimmick. ‘Independent’ used to mean a movie that was financed outside corporate Hollywood, but a lot of what gets called independent these days is totally produced within that system. And there’s nothing wrong with that.
+ - If the goal is to get the best artists, actors, and filmmakers in the world to create the best movies, Hollywood does a decent job. And I think no one would disagree with me that it also makes a ton of bad movies and employs a bunch of hacks.
+ - Hollywood has the idea that movies have to be dumb. But especially movies for or about teenagers have to be really dumb!
+ - What makes a good work of art is something that honors certain traditions and breaks with others.
+ - When I was a teenager I loved acting, but I really just loved it for myself. I didn’t like the fact that anyone else saw the work I was doing.
+ - If you do or don’t like something it’s because of that thing and not because it has the right politics behind them or the right company or the right connections. It’s really just about the thing itself.
+ - If you know which way the current is going, you can use it to your advantage.
+ - Fame has always been a downside to acting for me. It gives me the creeps.
+ - I go through a lot of bad stuff, because most of the stuff that’s written is pretty bad. But occasionally something comes along that’s good, and I want to do it.
+ - If you’re going to put yourself above everybody else, you might end up alone.
+ - A lot of movies try to set up a world with cool sets, costumes, camera work. In Brick, the world is born from the words.
+ - I think the way the media is going to work in the future is less something that the population consumes and more something that the population creates.
+ - As soon as you are trying to be funny or dramatic, that’s when things start feeling fake and boring.
+ - Everyone has the attitude that movies aren’t just disposable entertainment – they can really mean something. I love that, because that’s the way I feel about films.
+ - Making little videos that you know are going to be on tiny windows is a whole different thing. I don’t know what it’s going to lead to necessarily, but it’s certainly fun.
+
+138 quotes

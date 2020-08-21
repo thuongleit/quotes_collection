@@ -1,0 +1,65 @@
+ - When things are bad, it’s the best time to reinvent yourself.
+ - No particular race is the enemy. Ignorance is the enemy.
+ - I had a very difficult childhood. I was surrounded by people who had both parents, which made me feel different. Having a bit of a rougher existence early on, it made me appreciate the work ethic that my grandparents instilled in me.
+ - I didn’t want to be nobody, and that was the only way I could be somebody was to do stand-up.
+ - Memories, priceless. Well not really priceless, but there you go!
+ - If you want a show to succeed, you’re going to have to have a certain amount of people watch who are non-black and non-Latino. If you can’t cross over, you don’t belong on TV. That’s not just me saying it. That’s just the way it is.
+ - I got a pain in my chest, and I can’t breathe.
+ - I can never do nothing in this house!
+ - I think we all feel the same things most of the time, we just don’t know how to put it into words. When I’m on stage, I say it. The truth makes people laugh.
+ - From now on, we’re home schooling you. Whatever we don’t know, you don’t know. When did the Korean War start? I don’t know, and neither do you!
+ - When I first heard about Beverly Hills Chihuahua, I thought, no. This, this is ridiculous. And then you read the script and you close the script and you go, “They aren’t going to be able to do that with real dogs. How are they going to do that?” You’re going to see the strings. But they did.
+ - When I was 10 there wasnt trampolines and cartoon charaters, I never went to Chuck E Cheese! My mom said ‘You wanna see a mouse pull the refrigerator Out!’
+ - 80% of the women who were asked if they fake orgasms said yes. Actually, they said Yes! Oh God, Yes!
+ - I spend a lot of time alone and my wife understands that I need to be alone. I enjoy being alone. But I’m never lonely.
+ - Tied one on last night. Not feeling great this morning. I was trying to sleep it off, unfortunately, it was on the casino floor.
+ - If laughter is the best medicine, I promise to continue to make you laugh as my wife and I work together with the National Kidney Foundation to save lives.
+ - I grew up not having a father. Golf is the father I never had. It taught me honesty and respect and discipline and it taught me to control my temperament.
+ - When we got married, we agreed on a boy for me, and a girl for you. Mine’s upstairs sleeping. Good luck with yours!
+ - One time, I was so hungry, I ate the beans in a bean bag chair.
+ - We’re Mexi-cans not Mexi-can’ts.
+ - It’s a great day in America when white people, black people and Latinos can all come together and pick on another minority.
+ - Angie, I’ve seen my mom wrestle two cops to the ground with a taser dart in her neck, and you cry when your shoes pinch. Good luck, Bambi!
+ - David Letterman is the best late-night talk show host right now, hands down, and has been since he first took the desk.
+ - Y’know, if those pews reclined, and the priests gave the Raiders scores I’d go to church every Sunday.
+ - Look, I made a commitment to corn 17 years ago. Sure, I’m a man. I like to go to a barbecue and see beans that I like: baked beans, red beans, black beans, big plump garbanzos. But in the end, I always come home to my sweet, sweet corn.
+ - I didn’t come from a background where I saw a lot of loving couples. All my aunts and uncles were either split up or fighting all the time. The only healthy relationships I saw were on TV.
+ - It’s good to see people not smoking. You get dressed up, and you smoke, and it gets in your clothes. You go, ‘What should I wear tonight?’ ‘I don’t know, honey, how about something menthol?’
+ - I’ve gotten in trouble with every race you can imagine.
+ - Presents? We already bought you a lot of things. Member when we were at the market and I bought you gum? You’member.
+ - I’ve spent days in cinemas answering questions from the audience, in interviews, travelling abroad, and all they do is thank me nicely.
+ - I’m not afraid to take on somebody or say something that somebody will find offensive because unfortunately in comedy, you can’t say anything really good without offending somebody.
+ - We are now the proud owners of a white boy. Now we have to shop in the caucasian isle and get sunscreen, mayonaise and mild salsa because the other ones really hawt!
+ - Max: What’s a period? George: It’s a bullet we dodge, go get ready.
+ - At the factory, I deal with ex-cons, substance abusers, and sexual harassers. And I’m not just talking about my mom.
+ - I actually graze at several of the homes while Im playing. There a lot of food going on. I drink and eat and use the restrooms in a lot of the houses. What better way to really get closer to the fans than to steal their soap from the restrooms as they allow you to enter their homes?
+ - It was June 4, 1979, the first time I went on stage. I didn’t know I could do it but I knew I couldn’t not do it. I quit everything in my life and this was the one thing I couldn’t quit.
+ - It’s an honor to walk in the footsteps of a legend. As host I intend to honor the tradition of The Bob Hope Classic and have a great time blazing a new path.
+ - Two wrongs do not make a right; but three rights make a left.
+ - Marijuana brownies are amazing. Very simple to make, too. Just get some Duncan Hines brownie mix and cook the weed right in there. Drop it right in with the butter. I don’t know who came up with this idea first, but it’s sheer genius.
+ - Sarah Palin is Latina. Pay-leen. She has an infant and a grandkid the same age. Latina!
+ - As long as you’re a tax deduction, you’ll always be safe in my house.
+ - Whoever is my relative, I will not be nice to them.
+ - Barack Obama may be black, but John McCain is the first Albino presidential candidate: he’s completely see-through!
+ - I never realized I could love people as much as I do now.
+ - I love comedy and I would write things to myself as an exercise in writing. I didn’t do well for years, and I quit. I started to break down why I was afraid and started to look at people I admired, like Richard Pryor, Eddie Murphy, Freddie Prinze, George Carlin and all.
+ - I’m a big fan of reality shows. I thought the first one, Dukes of Hazzard, captured white people perfectly.
+ - No Angie, it’s instant. Like when someone trips in the cafeteria and you’re laughing so hard milk comes out of your nose, the guy next to you is laughing so hard he accidentally farts. BOOM! Friends for life!
+ - Life is moments going by, but if you don’t grab them, they’re gone. For a long time, the only moments that were available were bad ones. So now I make sure to grab the good ones.
+ - Obama is the closest thing to a Latino that we have. Barack. Everybody wants to see his birth certificate too.
+ - If the worst thing that can happen is that nobody laughs, then I can deal with that, because the worst thing that can happen at the factory is that I could lose a limb or be crushed by a huge machine.
+ - It’s not even about black and white anymore, because so many people are from mixed backgrounds and mixed ethnicities, and it’s just a great time to be able to pull all that together.
+ - So I started to relax and would work on my act eight hours a day, sitting at a desk writing at my grandmother’s house, and I would put on Richard Pryor Live on Long Beach and would play it like a loop and think and write.
+ - Finally there is someone that you can invest in that looks like you, speaks like you, relates to things you relate to, and make our culture okay to talk about.
+ - I have dogs in my house and much like teenagers at some point, they leave the parents. Even though they’re in the same house, they live independently. I think that’s how I live with the Chihuahuas.
+ - I believe that there are certain things that could be taken care of that you don’t need a strong political background in.
+ - I’d shake his hand, but I think that’s what’s holding up his pants.
+ - When I look at the Gospel, I see how it is speaking to me at this time. I see how to be to others and it helps.
+ - Life is great and golf has been one of the great parts of it for me.
+ - A Dodger uniform just doesn’t look good with a cummerbund.
+ - Shows should just be able to be shows without hyphenating their lead characters.
+ - When you go to cable, there are no stations and no affiliates and they allow you to do your show.
+ - The average late-night viewer is in their mid-50s and the average viewer of TBS is in their 30s and is largely African-American and Hispanic, already, before I even get there.
+ - You’re never going to be a Yankee for a day, or you’re never going to be a Laker, but with Pro-Ams, they allow you to feel like you’re a professional golfer and play under their conditions.
+
+63 quotes

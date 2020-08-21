@@ -1,0 +1,44 @@
+ - Horror is like a serpent; always shedding its skin, always changing. And it will always come back. It can’t be hidden away like the guilty secrets we try to keep in our subconscious.
+ - Horror by definition is the emotion of pure revulsion. Terror of the same standard, is that of fearful anticipation.
+ - Films are dreams. Many, many critics say to me that my films are not good because they are too unbelievable, but this is my style. I tell stories like they are dreams. This is my imagination. For me, it would be impossible to do a film that is so precise, that resembles real life.
+ - I like women, especially beautiful ones. If they have a good face and figure, I would much prefer to watch them being murdered than an ugly girl or man.
+ - Paradise is too perfect for humanity.
+ - Young girls of 13 or 12 are great actors.
+ - I used a Luma crane, a wounderful device; it makes the camera able to go anywhere. It was also used on Friday the 13th Part 3.
+ - You must push everything to the absolute limit or else life will be boring.
+ - I wanted something new, the supernatural. The witch, the sorcerer, I love this. I love the films of the witch and sorcerers and magic, its wonderful!
+ - I like to watch many things, especially strange films and something recent, not just the story.
+ - I think the camera was always my obsession, the camera movements. Because for me it’s the most important thing in the move, the camera, because without the camera, film is just a stage or television – nothing.
+ - Every writer, to some extent, writes about himself.
+ - I also don’t like films that are made just to make money, no this kind of film I don’t like.
+ - My life and career is my own adventure.
+ - The Opera was a very cold film, a hopeless and dark film, no hope, no love.
+ - If you don’t like my movies, don’t watch them.
+ - Without psychology, the horror film doesn’t exist.
+ - Fear has disappeared. No more fear. In Asia, it is different. They’ve discovered again the fear and the psychology of the characters. Without psychology, the horror film doesn’t exist.
+ - Theres nothing gratuitous about my films.
+ - Americans are very enthusiastic. We have a new generation of moviegoers who love great horror films. I am a very imaginative man, and for me, it’s easy to speak with my dark side. I have very beautiful, interesting nightmares.
+ - Each film I make changes me in some way. When I start the picture I’m one person and by the time I finish I’m another.
+ - Maybe when I stop making movies, I’ll understand my work better.
+ - I wanted to get back to my style of 20 years ago after a long period of exploring horror and fantasy themes.
+ - The psychiatrists examine you and ask you about your life and work, and then they decide whether your film can be shown or not. It’s a horrible experience.
+ - When I was a teenager, I read a lot of Poe.
+ - To try and raise a budget for a film that is strictly for adults and both strong and graphic in content is not easy, especially when there is pressure to spend serious money on good special effects.
+ - I’ve been lucky enough to have had the luxury of being able to make the picture I’ve wanted to make each time on my own terms and without compromise.
+ - My daughter, Asia, has been in many of my movies. I love working with her. In the beginning, I was not supportive of her being an actress, but now I think she is fantastic.
+ - Then I realized my early work did have something special that audiences adored apart from what I humbly thought about them. They occupy a distinguished niche in Italian film history and probably always will.
+ - In each of my characters there is a little of me. Not strictly autobiographical but a little piece of my soul.
+ - But no one should have the right to manipulate my films in the first place.
+ - This is my life – I want to tell stories. There is something huge inside me that pushes me to tell stories, and tell stories for an audience and everybody.
+ - The process of writing and directing drives you to such extremes that it’s natural to feel an affinity with insanity. I approach that madness as something dangerous, and I’m afraid, but also I want to go to it, to see what’s there, to embrace it. I don’t know why, but I’m drawn.
+ - I’m Dario Argento, and my style is something recognizable I think by the audience.
+ - When I see a film I’ve finished, it’s like another person made it. Like another mind.
+ - If you make a film normally it’s all right, the distributors are helpful and cooperative. But if you make a film that’s a little stange, a little bizarre, then all the time it’s a struggle with them.
+ - It irritated me that my fans kept wanting me to retread old ground.
+ - I like films to have something inside, I don’t mean a message, I mean something from the soul.
+ - But you know, as you say, the original versions of my films are getting out there, slowly.
+ - It’s incredible that they censor films. It’s sad.
+ - When I was five. That’s when I started to love film.
+ - I want to do what I want when I want to do it not be dictated to by audiences.
+
+42 quotes

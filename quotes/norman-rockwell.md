@@ -1,0 +1,36 @@
+ - I’m tired, but proud.
+ - I just wanted to do something important.
+ - Here in New England, the character is strong and unshakable.
+ - The secret to so many artists living so long is that every painting is a new adventure. So, you see, they’re always looking ahead to something new and exciting. The secret is not to look back.
+ - If a picture wasn’t going very well, I’d put a puppy in it.
+ - I talk as I sketch, too, in order to keep their minds off what I’m doing so I’ll get the most natural expression I can from them. Also, the talking helps to size up the subject’s personality, so I can figure out better how to portray him.
+ - Some people have been kind enough to call me a fine artist. I’ve always called myself an illustrator. I’m not sure what the difference is. All I know is that whatever type of work I do, I try to give it my very best. Art has been my life.
+ - Travel is like a tonic to me. It’s more than just getting away from the studio for a brief rest. I need it to recharge my batteries.
+ - I keep the pornographic stuff in a bus station locker.
+ - If there was sadness in this creative world of mine, it was a pleasant sadness. If there were problems, they were humorous problems.
+ - I’m still about as pigeon-toed as you can get. But I learned to manage pretty well on a bike. Should have had a bicycle then, when I was a kid, but our family didn’t have the money for such luxuries. I saved up to buy one myself a few years later.
+ - Eisenhower had about the most expressive face I ever painted, I guess. Just like an actor’s. Very mobile. When he talked, he used all the facial muscles. And he had a great, wide mouth that I liked. When he smiled, it was just like the sun came out.
+ - The view of life I communicate in my pictures excludes the sordid and ugly. I paint life as I would like it to be.
+ - Right from the beginning, I always strived to capture everything I saw as completely as possible.
+ - Without thinking too much about it in specific terms, I was showing the America I knew and observed to others who might not have noticed. My fundamental purpose is to interpret the typical American. I am a story teller.
+ - I can take a lot of pats on the back. I love it when I get admiring letters from people. And, of course, I’d love it if the critics would notice me, too.
+ - I’m not going to be caught around here for any fool celebration. To hell with birthdays!
+ - No man with a conscience can just bat out illustrations. He’s got to put all his talent and feeling into them!
+ - How will I be remembered? As a technician or artist? As a humorist or a visionary?
+ - Very interesting for an old duffer like me to try his hand at something new. If I don’t do that once in a while, I might just turn into a fossil, you know!
+ - I work from fatigue to fatigue at my age there’s only so much daylight left.
+ - If the public dislikes one of my Post covers, I can’t help disliking it myself.
+ - The remarks about my reaching the age of Social Security and coming to the end of the road, they jolted me. And that was good. Because I sure as hell had no intention of just sitting around for the rest of my life. So I’d whip out the paints and really go to it.
+ - Commonplaces never become tiresome. It is we who become tired when we cease to be curious and appreciative.
+ - The ’20s ended in an era of extravagance, sort of like the one we’re in now. There was a big crash, but then the country picked itself up again, and we had some great years. Those were the days when American believed in itself. I was happy and proud to be painting it.
+ - It wouldn’t be right for me to clown around when I’m painting a president.
+ - My best efforts were some modern things that looked like very lousy Matisses. Thank God I had the sense to realize they were lousy, and leave Paris.
+ - Some folks think I painted Lincoln from life, but I haven’t been around that long. Not quite.
+ - You must first spend some time getting your model to relax. Then you’ll get a natural expression.
+ - I know of no painless process for giving birth to a picture idea. When I must produce, I retire to a quiet room with a supply of cheap paper and sharp pencils; my brain knows it’s going to take a beating.
+ - Everyone in those days expected that art students were wild, licentious characters. We didn’t know how to be, but we sure were anxious to learn.
+ - I’ll never have enough time to paint all the pictures I’d like to.
+ - When I go to farms or little towns, I am always surprised at the discontent I find. And New York, too often, has looked across the sea toward Europe. And all of us who turn our eyes away from what we have are missing life.
+ - I’m the oldest antique in town.
+
+34 quotes

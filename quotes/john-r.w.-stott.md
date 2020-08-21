@@ -1,0 +1,128 @@
+ - We must be global Christians with a global vision because our God is a global God.
+ - Truth without love is too hard; love without truth is too soft.
+ - God does not love us because Christ died for us; Christ died for us because God loved us.
+ - We do not need to wait for the Holy Spirit to come: he came on the day of Pentecost. He has never left the church.
+ - The other gods were strong; but thou wast weak; they rode, but thou didst stumble to a throne; But to our wounds only God’s wounds can speak, And not a god has wounds, but thou alone.
+ - Our love grows soft if it is not strengthened by truth, and our truth grows hard if it is not softened by love.
+ - Pride is more than the first of the seven deadly sins; it is itself the essence of all sin.
+ - There is no Christianity without the cross. If the cross is not central to our religion, ours is not the religion of Jesus.
+ - The Spirit of God leads the people of God to submit to the Word of God.
+ - We are sent into the world, like Jesus, to serve. For this is the natural expression of our love for our neighbors. We love. We go. We serve.
+ - Grace is love that cares and stoops and rescues.
+ - Perhaps the transformation of the disciples of Jesus is the greatest evidence of all for the resurrection.
+ - Before we can begin to see the cross as something done for us, we have to see it as something done by us.
+ - We live and die; Christ died and lived!
+ - We must allow the Word of God to confront us, to disturb our security, to undermine our complacency and to overthrow our patterns of thought and behavior.
+ - Every Christian should be both conservative and radical; conservative in preserving the faith and radical in applying it.
+ - All of us have inflated views of ourselves, especially in self-righteousn ess, until we have visited a place called Calvary. It is there, at the foot of the cross, that we shrink to our true size.
+ - Christians believe that true worship is the highest and noblest activity of which man, by the grace of God, is capable.
+ - At the cross in holy love God through Christ paid the full penalty of our disobedience himself.
+ - Sin and the child of God are incompatible. They may occasionally meet; they cannot live together in harmony.
+ - The major mark of justified believers is joy, especially joy in God himself. We should be the most positive people in the world. For the new community of Jesus Christ is characterized not by a self-centered triumphalism but by a God-centered worship.
+ - It is there, at the foot of the cross, that we shrink to our true size.
+ - Apathy is the acceptance of the unacceptable.
+ - Greatness in the kingdom of God is measured in terms of obedience.
+ - Grace is God loving, God stooping, God coming to the rescue, God giving himself generously in and through Jesus Christ.
+ - His authority on earth allows us to dare to go to all the nations. His authority in heaven gives us our only hope of success. And His presence with us leaves us with no other choice.
+ - The concept of substitution lies at the heart of both sin and salvation. For the essence of sin is man substituting himself for God, while the essence of salvation is God substituting himself for man.
+ - Baptism with water is the sign and seal of baptism with the Spirit, as much as it is of the forgiveness of sins. Water-baptism is the initiatory Christian rite, because Spirit-baptism is the initiatory Christian experience.
+ - The chief reason people do not know God is not because He hides from them but because they hide from Him.
+ - A Christian should resemble a fruit tree with real fruit, not a Christmas tree with decorations tied on.
+ - The Christian’s chief occupational hazards are depression and discouragement.
+ - Prayer is not a convenient device for imposing our will upon God, or bending his will to ours, but the prescribed way of subordinating our will to his.
+ - Leaders have power, but power is safe only in the hands of those who humble themselves to serve.
+ - It is impossible to pray for someone without loving him, and impossible to go on praying for him without discovering that our love for him grows and matures.
+ - In the real world of pain, how could one worship a God who was immune to it?
+ - Social responsibility becomes an aspect not of Christian mission only, but also of Christian conversion. It is impossible to be truly converted to God without being thereby converted to our neighbor.
+ - The authority by which the Christian leader leads is not power but love, not force but example, not coercion but reasoned persuasion. Leaders have power, but power is safe only in the hands of those who humble themselves to serve.
+ - The Cross is the blazing fire at which the flame of our love is kindled, but we have to get near enough for its sparks to fall on us.
+ - The gospel is NOT preached if Christ is not preached.
+ - Mission arises from the heart of God Himself and is communicated from His heart to ours. Mission is the global outreach of the global people of a global God.
+ - Christianity is in its very essence a resurrection religion. The concept of resurrection lies at its heart. If you remove it, Christianity is destroyed.
+ - Lord Jesus, I pray that this day I may take up my cross and follow you.
+ - The purpose of prayer is emphatically not to bend God’s will to ours, but rather to align our will to his.
+ - Scripture is the royal scepter by which King Jesus rules his church.
+ - What we need is not more learning, not more eloquence, not more persuasion, not more organization, but more power from the Holy Spirit.
+ - If we truly worship God, acknowledging and adoring his infinite worth, we find ourselves impelled to make him known to others, in order that they may worship him too. Thus worship leads to witness, and witness in its turn to worship, in a perpetual circle.
+ - Christians who neglect the Bible simply do not mature.
+ - The Bible isn’t about people trying to discover God, but about God reaching out to find us.
+ - Probably the greatest tragedy of the church throughout its long and checkered history has been its constant tendency to conform to the prevailing culture instead of developing a Christian counter-culture .
+ - The reason I am a Christian is not that it is nice, but that it is true.
+ - An unchurched christian is a grotesque anomaly. The New Testament knows nothing of such a person. For the church lies at the very center of the eternal purpose of God. It is not a divine afterthought. It is not an accident of history. On the contrary, the church is God’s new community.
+ - No man has ever appreciated the gospel until the law has first revealed him to himself. It is only against the inky blackness of the night sky that the stars begin to appear, and it is only against the dark background of sin and judgment that the gospel shines forth.
+ - Moved by the perfection of His holy love, God in Christ substituted Himself for us sinners. That is the heart of the cross of Christ.
+ - The church lies at the very center of the eternal purpose of God. It is not a divine afterthought.
+ - Faith is a reasoning trust, a trust which reckons thoughtfully and confidently upon the trustworthiness of God.
+ - No theology is genuinely Christian which does not arise from and focus on the cross.
+ - The church is under orders. Evangelistic inactivity is disobedience.
+ - God sacrifices himself for man and puts himself where only man deserves to be.
+ - Persecution is simply the clash between two irreconcilable value-systems.
+ - Knowledge is indispensable to Christian life and service. If we do not use the mind that God has given us, we condemn ourselves to spiritual superficiality and cut ourselves off from many of the riches of God’s grace.
+ - Every time we look at the cross Christ seems to say to us, ‘I am here because of you. It is your sin I am bearing, your curse I am suffering, your debt I am paying, your death I am dying.’ Nothing in history or in the universe cuts us down to size like the cross.
+ - Saving faith is resting faith, the trust which relies entirely on the Savior.
+ - Our Christian life began not with our decision to follow Christ but with God’s call to us to do so.
+ - A Christian’s freedom from anxiety is not due to some guaranteed freedom from trouble, but to the folly of worry and especially to the confidence that God is our Father, that even permitted suffering is within the orbit of His care.
+ - Although we have responsibilities to others, we are primarily accountable to God. It is before him that we stand, and to him that one day we must give an account. We should not therefore rate human opinion too highly...
+ - Christian giving is to be marked by self-sacrifice and self-forgetfuln ess, not by self-congratula tion.
+ - There is no biblical Christianity without the cross at its center.
+ - Faith’s only function is to receive what grace offers.
+ - It is a great comfort to know that our judge will be none other than our savior.
+ - Because in no other person but the historic Jesus of Nazareth has God become man and lived a human life on earth, died to bear the penalty of our sins, and been raised from death and exalted to glory, there is no other Savior, for there is no other person who is qualified to save.
+ - Instead of inflicting upon us the judgment we deserved, God in Christ endured it in our place.
+ - A deaf church is a dead church: that is an unalterable principle.
+ - These then are the marks of the ideal Church – love, suffering, holiness, sound doctrine, genuineness, evangelism and humility. They are what Christ desires to find in His churches as He walks among them.
+ - Envy is the reverse side of a coin called vanity – Nobody is ever envious of others who is not first proud of himself.
+ - We cannot be content with an evangelism which does not lead to the drawing of converts into the church, nor with a church order whose principle of cohesion is a superficial social camaraderie instead of a spiritual fellowship with the Father and with his Son, Jesus Christ.
+ - Nothing is more important for mature Christian discipleship than a fresh, clear, true vision of the authentic Jesus.
+ - The symbol of the religion of Jesus is the cross, not the scales.
+ - We are to be strong in faith, and soft in love.
+ - I believe that to preach or to expound the scripture is to open up the inspired text with such faithfulness and sensitivity that God’s voice is heard and His people obey Him.
+ - The hallmark of an authentic evangelicalism is not the uncritical repetition of old traditions but the willingness to submit every tradition, however ancient, to fresh biblical scrutiny and, if necessary, reform.
+ - No man preaches his sermon well to others if he does not first preach it to his own heart.
+ - We should travel light and live simply. Our enemy is not possessions but excess.
+ - Indignation and compassion form a powerful combination. They are indispensable to vision, and therefore to leadership.
+ - The overriding reason why we should take other people’s cultures seriously is because God has taken ours seriously.
+ - The truth is that there are such things as Christian tears, and too few of us ever weep them.
+ - Good conduct arises out of good doctrine.
+ - We can all be stimulated to greater generosity by the known generosity of others.
+ - A gift is acceptable according to what the giver has, not according to what he has not.
+ - If Christ seldom makes offers without demands, He also seldom makes demands without offers. He offers His strength to enable us to meet His demands.
+ - The chief reason why the Christian believes in the divine origin of the Bible is that Jesus Christ Himself taught it.
+ - There is something inherently inappropriate about cherishing small ambitions for God.
+ - All worship is an intelligent and loving response to the revelation of God, because it is the adoration of His name.
+ - God condemned sin in Christ, so that holiness might appear in us.
+ - God has clothed His thoughts in words, and there is no way to know Him except by knowing the Scriptures.
+ - Circumcision stands for a religion of human achievement, of what man can do by his own good works; Christ stands for a religion of divine achievement, of what God has done through the finished work of Christ.
+ - So close was Christ’s connection with God that he equated a man’s attitude to himself with the man’s attitude to God.
+ - Theology is a serious quest for the true knowledge of God, undertaken in response to His self-revelation, illumined by Christian tradition, manifesting a rational inner coherence, issuing in ethical conduct, resonating with the contemporary world and concerned for the greater glory of God.
+ - The Christian community is a community of the cross, for it has been brought into being by the cross, and the focus of its worship is the Lamb once slain, now glorified.
+ - The incentive to peacemaking is love, but it degenerates into appeasement whenever justice is ignored. To forgive and to ask for forgiveness are both costly exercises. All authentic Christian peacemaking exhibits the love and justice-and so the pain-of the cross.
+ - Every powerful movement has had its philosophy which has gripped the mind, fired the imagination and captured the devotion of its adherents.
+ - The modern world detests authority but worships relevance. Our Christian conviction is that the Bible has both authority and relevance, and that the secret of both is Jesus Christ.
+ - Never use a gallon of words to express a spoonful of thought. Our unadorned word should be enough.
+ - The gospel creates the church, which spreads the gospel, which creates more churches, which in turn spread the gospel further ad infinitum.
+ - If we love our neighbor we shall without doubt tell him the good news of Jesus. But equally if we truly love our neighbor we shall not stop there.
+ - When the Christian loses himself, he finds himself, he discovers his true identity.
+ - The good news is the gospel of God, about Christ, according to Scripture, for the nations, unto the obedience of faith, and for the sake of the Name.
+ - The meaning of atonement is not to be found in our penitence evoked by the sight of Calvary, but rather in what God did when in Christ on the cross He took our place and bore our sin.
+ - As a body without breath is a corpse, so the church without the Spirit is dead.
+ - The essence of apostasy is changing sides from that of the crucified to that of the crucifier.
+ - Prayer is the very way God Himself has chosen for us to express our conscious need of Him and our humble dependence on Him.
+ - When Jesus is truly our Lord, He directs our lives and we gladly obey Him. Indeed, we bring every part of our lives under His lordship – our home and family, our sexuality and marriage, our job or unemployment, our money and possessions, our ambitions and recreations.
+ - Here’s how to determine God’s will for your life: Go wherever your gifts will be exploited the most.
+ - Do not be content with a static Christian life. Determine rather to grow in faith and love, in knowledge and holiness.
+ - Nobody can call himself a Christian who does not worship Jesus.
+ - God continues to speak through what He has spoken.
+ - Simplicity is the first cousin of contentment.
+ - At every step of our Christian development and in every sphere of our Christian discipleship, pride is the greatest enemy and humility our greatest friend.
+ - We have the means of evangelizing our country, but they are slumbering in the pews of our churches.
+ - We need to repent of the haughty way in which we sometimes stand in judgment upon Scripture and must learn to sit humbly under its judgment instead.
+ - God must speak to us before we have any liberty to speak to him. He must disclose to us who he is before we can offer him what we are in acceptable worship. The worship of God is always a response to the Word of God. Scripture wonderfully directs and enriches our worship.
+ - Why is it that some Christians cross land and sea, continents and cultures, as missionaries? What on earth impels them? It is not in order to commend a civilization, an institution or an ideology, but rather a person, Jesus Christ, whom they believe to be unique.
+ - Good works are indispensable to salvation – not as its ground or means, however, but as its consequence and evidence.
+ - The law requires works of human achievement; the gospel requires faith in Christ’s achievement. The law makes demands and bids us obey; the gospel brings promises and bids us believe.
+ - It is no exaggeration to say that without Scripture a Christian life is impossible.
+ - There is evidence for the deity of Jesus – good, strong, historical, cumulative evidence; evidence to which an honest person can subscribe without committing intellectual suicide.
+ - A man who loves his wife will love her letters and her photographs because they speak to him of her. So if we love the Lord Jesus, we shall love the Bible because it speaks to us of him.
+
+126 quotes

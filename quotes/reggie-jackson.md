@@ -1,0 +1,37 @@
+ - Home run hitters strike out a lot.
+ - Once you realize how good you really are, you never settle for playing less than your best.
+ - I feel that the most important requirement in success is learning to overcome failure. You must learn to tolerate it, but never accept it.
+ - Please God, let me hit one. I’ll tell everybody you did it.
+ - I’m the straw that stirs the drink.
+ - The greatest manager has a knack for making ballplayers think they are better than they think they are.
+ - I didn’t come to New York to be a star. I brought my star with me.
+ - A baseball swing is a very finely tuned instrument. It is repetition, and more repetition, then a little more after that.
+ - Sometimes I underestimate the magnitude of me.
+ - The only way I’m going to get a gold glove is with a can of spray paint.
+ - You don’t face Nolan Ryan without your rest. He’s the only guy I go against that makes me go to bed before midnight.
+ - After Jackie Robinson the most important black in baseball history is Reggie Jackson, I really mean that.
+ - It’s a fickle town, a tough town. They getcha, boy. They don’t let you escape with minor scratches and bruises. They put scars on you here.
+ - Fans don’t boo nobodies.
+ - Every hitter likes fastballs, just like everybody likes ice cream. But you don’t like it when someone’s stuffing it into you by the gallon. That’s what it feels like when Nolan Ryan’s thrown balls by you.
+ - I was reminded that when we lose and I strike out, a billion people in China don’t care.
+ - So many ideas come to you and you want to try them all, but you can’t. You’re like a mosquito in a nudist colony, you don’t know where to start.
+ - Blind people come to the park just to hear him pitch.
+ - If I played in New York, they’d name a candy bar after me.
+ - The only reason I don’t like playing in the World Series is I can’t watch myself play.
+ - People think I hate Billy Martin. I don’t. I hate some of the things he did. And I will say I don’t understand him. Billy Martin is not an intellectual, but there is a cunningness to him that is something to behold.
+ - The will to win is worthless if you don’t get paid for it.
+ - I am the best in baseball.
+ - I have a hard time believing athletes are overpriced. If an owner is losing money, give it up. It’s a business. I have trouble figuring out why owners would stay in if they’re losing money.
+ - Just like every other kid in my grade school, I was listening to my little radio plug in my ear when Mickey Mantle hit 18 post-season homers and won series after series for the Yankees. I listened and I learned from that. I think he was the original ‘Mr. October,’ but thank god it didn’t stick.
+ - I couldn’t quit, because of all the kids, and the blacks, and the little people pulling for me. I represent both the underdog and the overdog in our society.
+ - Babe Ruth was great. I’m just lucky.
+ - When you’ve played this game for ten years and gone to bat seven-thousand times and gotten two-thousand hits do you know what that really means? It means you’ve gone zero for five-thousand.
+ - I don’t mind getting beaten, but I hate to lose.
+ - The way things are going the faces on next year’s bubble-gum cards will be lawyers.
+ - When you take a pitch and line it somewhere, it’s like you’ve thought of something and put it with beautiful clarity.
+ - The reason I’m a Yankee is that George Steinbrenner out hustled everybody else.
+ - In the building I live in on Park Avenue there are ten people who could buy the Yankees, but none of them could hit the ball out of Yankee Stadium.
+ - The only difference between me and those other great Yankees is my skin color.
+ - October: that’s when they pay off for playing ball.
+
+35 quotes

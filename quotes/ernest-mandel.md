@@ -1,0 +1,25 @@
+ - Workers do not strike every day, they cannot do that the way they function in the capitalist economy. The way they have to live by selling their labor power makes that impossible.
+ - For us, Marxism is always open because there are always new experiences, there are always new facts, including facts about the past, which have to be incorporated in the corpus of scientific socialism.
+ - Socialist democracy is not a luxury but an absolute, essential necessity for overthrowing capitalism and building socialism.
+ - The only conclusion you can draw from the real historical movement is that by and large, in day-to-day life, what Lenin called trade union consciousness dominates the working class. I would call it elementary class consciousness of the working class.
+ - Precisely because Marx was convinced that the cause of the proletariat was of decisive importance for the whole future of mankind, he wanted to create for that cause not a flimsy platform of rhetorical invective or wishful thinking, but the rock-like foundation of scientific truth.
+ - You need a vanguard organization in order to overcome the dangerous potential brought about by the uneven development of class militancy and class consciousness.
+ - Factions are a sign of illness in a party.
+ - Revolution is not a goal in itself.
+ - Marxism is always open, always critical, always self-critical.
+ - Mistakes in themselves are unavoidable.
+ - Periodically, the workers do revolt against bourgeois society, not by a hundred, five hundred, or a thousand, but by the millions.
+ - You cannot make a socialist revolution without really trying.
+ - There is a process of social and of political differentiation going on in the real working class all the time.
+ - There are no conditions in which we subordinate the interests of the class as a whole to the interests of any sect, any chapel, any separate organization.
+ - For Marx, ‘pure’ economic theory, that is economic theory which abstracts from a specific social structure, is impossible.
+ - There has been hardly a single year since 1917, and in a certain sense since 1905, without a revolution somewhere in the world in which the workers participated in a rather important way.
+ - I do not believe in self-proclaimed parties.
+ - The more workers you have in your organization, the better you are implanted in the working class, the more likely you are to come up with the concrete problems of the class.
+ - And you cannot have a socialist revolution commandeered from the top, ordered around by some omniscient leader or group of leaders.
+ - On the contrary, history generally confirms that the more conscious and the better you are organized in vanguard organizations, the more constructively you operate in the mass organizations of the working class.
+ - You can have relatively high levels of class consciousness with a lower level of class militancy than one would have expected.
+ - Revolution is an instrument, like a party is an instrument.
+ - Socialist democracy is not, a luxury and its need is not limited to the most advanced industrial countries.
+
+23 quotes

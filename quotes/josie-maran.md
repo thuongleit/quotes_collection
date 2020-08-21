@@ -1,0 +1,23 @@
+ - I need a spanking. They make me feel better.
+ - I have a Volvo S60R and its a pretty fast car, the R says it all.
+ - There’s so much to appreciate about my life every single day, and I make a big point of taking time to smell the roses and noticing how lucky I am. I never want to take that for granted.
+ - I’m really shallow when I come to guys. I only date really good-looking, well-endowed guys, with great bodies. My friends are always going on at me. I’m like. ‘I can’t help it! I’m just a woman with high standards!’
+ - Modeling isn’t all that tough.
+ - Luckily, my husband is my business partner as well as my life partner, so I never had to do the heavy lifting alone, literally or figuratively.
+ - In my business, if you look good, no one is going to be checking up on whether you work out. So it’s up to me.
+ - I could lie and tell you I’m a hardcore gamer – I’m not.
+ - My fingertips are my favorite makeup brush! I especially like to apply my eye shadow with them, get it nice and smudgy. All my favorite makeup artists used their fingers to apply and their hand as a palette.
+ - I can’t help it! I’m just a woman with high standards!
+ - I do like to drive fast and I have gotten pulled over in the past. I use my skills to get out of tickets.
+ - The roughest part of that lifestyle is the travel and early mornings.
+ - I’m still figuring out why people would want to look at me. Maybe it’s generic beauty, but it’s weird to be valued for something I was born with.
+ - Having your own character in a video game is pretty cool.
+ - Like most celebrities, of course, I adore all the Mario games.
+ - I would love to play the Femme Fatale or an action role like Trinity in the Matrix or something like that. You know, a part with a lot of costume changes.
+ - I’ve been in plenty of situations where someone I’m dating had more time for a console than me.
+ - Part of the challenge of Most Wanted is trying to become the most notorious street racer on the pavement.
+ - And because performing for a game involves real acting. The way they create a game is very similar now to how they create a film. I’ve always wanted to stretch my acting skills, and the timing being what it is, I couldn’t say no.
+ - The eco-movement is growing as people all over catch on to the need to protect our precious planet, which makes the future look really bright – and makes me really happy.
+ - I would consider myself an inventor at heart, or reinventor.
+
+21 quotes

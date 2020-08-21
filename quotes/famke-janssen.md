@@ -1,0 +1,55 @@
+ - Enjoy it while it lasts.
+ - Once you achieve a certain level of success or fame, it becomes really difficult to go against type.
+ - I’m a firm believer in taking risks in life, because you’ll never get anywhere unless you do, and the more risk involved the greater the outcome – or the worse, but you never know so you’ve got to go for it.
+ - I am attracted to the dark side of life!
+ - I’m intrigued by the dark. Out of darkness comes creation.
+ - Disneyland is supposed to be the happiest place on Earth and I have to say when I’m riding around in that crazy Space Mountain ride I’m happy.
+ - I like the work that I get to do.
+ - The Dutch are a very practical people.
+ - I’m 5? 11" as I proudly say – just so I don’t have to say six feet.
+ - I know Dark Phoenix is a huge part of the X-Men saga, so I’m assuming they’re at least going to want to touch on it, but I don’t know and I don’t know whether I would want to be involved. That depends on many different things.
+ - I try not to have high expectations of people because it just sets you up for disappointment, but it’s great to work with actors who are that talented and accomplished.
+ - I love stories about two people who are doing illegal things, who we really enjoy watching despite the fact that we know they are doomed in some way.
+ - I’m honestly so incredibly grateful for every opportunity I get in film industry. Don’t forget! I was born in a tiny little country in a small town and here I am working in Canada and America and it’s incredible.
+ - I’m trying to fight typecasting as hard as I can, while I have time.
+ - In studio films, everything has to be boxed in, everybody needs to know beforehand – this is comedy, this is sci-fi, this is drama – and what’s the point of independent film if you don’t get to experiment?
+ - Triple tonguing? It was sort of invented. It wasnt in the script. It was something that I came up with.
+ - We’ve always been ready for female superheroes. Because women want to be them and men want to do them.
+ - It’s never been important to be a huge star or to have some breakout role. If you’re the lead, you get a lot more screen time and you get a lot more chances to develop that character more thoroughly than you would if you do it in a little supporting part.
+ - I live in New York. I don’t really particularly want to move to LA.
+ - I felt different born into a family with two sisters who are blonde and blue-eyed, with me being the only brunette.
+ - I look a certain way. I have a very specific kind of look.
+ - I love scary movies. The Shining and Don’t Look Now are two of the best.
+ - I think there’s a big misconception out there about actors and the choices they have.
+ - The biggest challenge is how you get money for independent films, in these ever-changing times when most people don’t really want to invest in that anymore.
+ - When somebody walks into a room they give off a certain kind of vibe or whatever and at that point that’s how you’re going to cast them.
+ - I started as a model in Holland and Chanel took me to New York when I was 19, after which I decided to stay.
+ - There’s certain things I try to avoid, as an actress, just to keep my world from being as narrow as it could be.
+ - Nobody sets out to make a bad film.
+ - I always feel like I want to do my career my own way. I never follow anybody’s path, what they’ve done.
+ - When someone holds a knife to your throat it’s easy to be scared. It’s not hard to imagine what it would be like.
+ - As a European I had fit in almost seamlessly in New York for the last 25 years, but in Oklahoma I stood out like a sore thumb.
+ - I want to work with great directors. I want to work on good material with good actors. I’ve probably done 20 movies at this point and a lot of independents. It’s been an incredible ride and I love it and I’m just going to keep going and doing what I’m doing.
+ - I don’t think about better. You just want it to work. You want it to work and you have your guide with the script. You want it to exist and complete...
+ - During my first visit, I was really struck by how deeply religious many Oklahomans are. It is a very conservative state and as somebody who grew up in a very liberal country, it was jarring to me at first.
+ - I’m very grateful for work especially in film industry. It’s highly competitive and there are a lot of people standing behind me jumping at the opportunity to only do one thing, like one movie or one TV show or one episode.
+ - My French is still good. That’s a beautiful language and I’m happy to speak it.
+ - It’s not as if you can act bigger to fit the surroundings or the budget more. Whatever, it just doesn’t work that way.
+ - Netflix is something I watch.
+ - I think there’s a big misconception out there about actors and the choices they have. I think if you’re one of a lucky five, maybe, you’re that privileged, but most of us are living paycheck to paycheck and we’re really extremely grateful for opportunities.
+ - Every single time when you act in a film, and there’s a different director, which of course as actors we’re used to experiencing that’s what we do, it’s a different experience.
+ - Ever since I started as an actress, just to catch up on some money, but not having an income for three years was tricky.
+ - I think every movie is its own little world, and a director certainly sets the tone.
+ - I keep pushing buttons and trying to grow as a person and as a filmmaker.
+ - I don’t know how to cook and there’s so much work involved you have to buy the groceries and prepare them. I like it when people cook for me, or I’ll just order some take-out.
+ - I don’t even have cable anymore, or a television. I just watch on computers. It’s clearly the future of where we’re heading.
+ - I would rather not work than play in a movie that nobody watches.
+ - I love the first two X-Men movies because I thought that Bryan Singer did such a great job. He elevated that whole genre. He’s a very talented director.
+ - Everybody gets typecast in movies, but you have to make wise choices. I’d say around 90 percent of movie casting is about the way you look, so you have to fight that. If producers had their way, I’d only be in action films, but I’m interested in a more varied career than that.
+ - I’ve lived in New York for a really long time.
+ - I personally like to do independent films.
+ - I have a friend in New York who’s a stylist and I went over to her place because she’s got a lot of clothes. I basically ended up wearing most of it. So it’s all stuff that I brought over.
+ - I like to go from mainstream movies to more artsy films. I don’t sign on for the money. Maybe I should, but I don’t. There’s always a good reason for doing something.
+ - If you do well as an actor, a good director will pick up on it, and keep it in the film.
+
+53 quotes

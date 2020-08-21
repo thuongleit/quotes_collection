@@ -1,0 +1,48 @@
+ - My Brain is the key that sets me free.
+ - Anyone who believes in magic is a fool.
+ - Look at this life – all mystery and magic.
+ - I always have on my mind the thought that next year I must do something greater, something more wonderful.
+ - I’m tired of fighting.
+ - No performer should attempt to bite off red-hot iron unless he has a good set of teeth.
+ - Never tell the auidience how good you are, they will soon find out for themselves.
+ - An old trick well done is far better than a new trick with no effect.
+ - Never try to fool children, they expect nothing, and therefore see everything...
+ - No prison can hold me; no hand or leg irons or steel locks can shackle me. No ropes or chains can keep me from my freedom.
+ - Keep up your enthusiasm! There is nothing more contagious than exuberant enthusiasm.
+ - The secret of showmanship consists not of what you really do, but what the mystery-loving public thinks you do.
+ - Some say I do it this way, others say I do it that way, but I say I do it the other way.
+ - Magic is the sole science not accepted by scientists, because they can’t understand it.
+ - I’m tired of fighting, Dash. I guess this thing is going to get me.
+ - The greatest escape I ever made was when I left Appleton, Wisconsin.
+ - A magician is only an actor – an actor pretending to be a magician.
+ - Rosabelle – answer – tell – pray, answer – look – tell – answer, answer – tell.
+ - My chief task has been to conquer fear. The public sees only the thrill of the accomplished trick; they have no conception of the tortuous preliminary self-training that was necessary to conquer fear.
+ - The great day of the Fire-eater – or, should I say, the day of the great Fire-eater – has passed.
+ - It is still an open question, however, as to what extent exposure really injures a performer.
+ - Only one man ever betrayed my confidence, and that only in a minor matter.
+ - The eating of burning brimstone is an entirely fake performance.
+ - The pickpocket is usually very well dressed and of prepossessing appearance.
+ - In all feats of fire-eating it should be noted that the head is thrown well back, so that the flame may pass out of the open mouth instead of up into the roof, as it would if the head were held naturally.
+ - What the eyes sees, the ear hears, and the mind belives.
+ - They do tricks even I can’t figure out.
+ - Pickpockets either work alone or in pairs, or what is called a mob.
+ - I think that in a year I may retire. I cannot take my money with me when I die and I wish to enjoy it, with my family, while I live. I should prefer living in Germany to any other country, though I am an American, and am loyal to my country.
+ - I am not an irretrievable skeptic. I am not hopelessly prejudiced. I am perfectly willing to believe, and my mind is wide open; but I have, as yet, to be convinced. I am perfectly willing, but the evidence must be sane and conclusive.
+ - Flames from the lips may be produced by holding in the mouth a sponge saturated with the purest gasoline.
+ - Another method of eating burning coals employs small balls of burned cotton in a dish of burning alcohol.
+ - The great trouble with magicians is the fact that they believe when they have bought a certain trick or piece of apparatus, and know the method of procedure, that they are full-fledged mystifiers.
+ - I make the most money, I think, in Russia and Paris, for the people of those countries are so willing to be amused, so eager to see something new and out of the ordinary.
+ - Fire has always been and, seemingly, will always remain, the most terrible of the elements.
+ - Eating coals of fire has always been one of the sensational feats of the Fire Kings, as it is quite generally known that charcoal burns with an extremely intense heat.
+ - My professional life has been a constant record of disillusion, and many things that seem wonderful to most men are the every-day commonplaces of my business.
+ - I do not believe that ghosts or spirits exist.
+ - I must fling myself down and writhe; I must strive with every piece of force I possess; I bruise and batter myself against the floor, the walls; I strain and sob and exhaust myself, and begin again, and exhaust myself again; but do I feel pain? Never. How can I feel pain? There is no place for it.
+ - To cause the face to appear in a mass of flame make use of the following: mix together thoroughly petroleum, lard, mutton tallow and quick lime. Distill this over a charcoal fire, and the liquid which results can be burned on the face without harm.
+ - But then, so far as I know, I am the only performer who ever pledged his assistants to secrecy, honor and allegiance under a notarial oath.
+ - It is needless to say that women make the most patient as well as the most dangerous pickpockets.
+ - But it must not be thought that I say this out of personal experience: for in the many years that I have been before the public my secret methods have been steadily shielded by the strict integrity of my assistants, most of whom have been with me for years.
+ - Disloyalty in trusted servants is one of the most disheartening things that can happen to a public performer.
+ - How the early priests came into possession of these secrets does not appear, and if there were ever any records of this kind the Church would hardly allow them to become public.
+ - My professional life has been a constant record of disillusion...
+
+46 quotes

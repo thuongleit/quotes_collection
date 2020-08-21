@@ -1,0 +1,78 @@
+ - I am proud of what I am. I am – a librarian.
+ - Eccentricity is what’s sexy in people.
+ - I’m slightly unsure as to what my goal is. I just keep doing jobs.
+ - I haven’t only been offered Hasidic roles.
+ - You never know how things will turn out. And you can’t really say it turned out wrong. Whatever happens, happens. The important thing is that you followed your gut.
+ - The happiest days of my youth were when my brother and I would run through the woods and feel quite safe.
+ - We’re on this rock and we can choose to treat each other well or we can choose to kill each other and be uncivilized. I don’t know. It’s very tragic. It’s a very tragic thing to think about.
+ - People still kill in the name of religion. We haven’t evolved to the point where we’re one tribe called humans.
+ - I don’t judge the character at all. It’s a bit like being someone’s defense lawyer – you have to believe in their innocence in order to defend them.
+ - I’m pretty private about my neuroses. You’re not neurotic if you talk to yourself – everyone does – you’re only neurotic if you hear an answer.
+ - If I’m just in dungarees, I don’t think I would intimidate anyone.
+ - Often Hollywood crews go into third world countries and I don’t believe they behave well.
+ - My real fantasy if I was to drop out would be to live in a mobile home and be a hippie and drive around festivals and have millions of children – children with dreadlocks and nose rings – and play the flute.
+ - I’m not confident around compliments or being celebrated, and I’m not comfortable with the thought of envy, which some people thrive on.
+ - I’d like to be wanted for my body, too! As an actor I want to play all different kinds of women – independent women but also very vulnerable women.
+ - Botox should be banned for actors, as steroids are for sportsmen. Acting is all about expression; why would you want to iron out a frown?
+ - To come to the Oscars for the first time and be seven months pregnant is quite a thing!
+ - The bond between mother and baby is so interesting. Women have been giving birth since the beginning of time, but when it happens to you it feels like a miracle.
+ - I was an English-literature major, and that’s all about stories and narratives.
+ - I think London’s sexy because it’s so full of eccentrics.
+ - I love the way girls in London dress; it’s so different to the American ‘blow-dry and immaculate grooming’ thing.
+ - At the end of the day, flirting is a pretty universal language. Americans are more direct. British people are more indirect about everything.
+ - As a child I was the best tree climber in our neighbourhood, I was like a little monkey. I’ve never been afraid of hurting myself or a little physical discomfort.
+ - I just think that things get easier as you get older and wiser and more experienced. You get more confident about who you are as you get older. I find that really comforting.
+ - Working with a green screen is easy. It’s just like being a kid. But it’s not nearly as satisfying.
+ - I have absolutely no empathy for camels. I didn’t care for being abused in the Middle East by those horrible, horrible, horrible creatures. They don’t like people. It’s not at all like the relationship between horses and humans.
+ - Well, I’m not at all like the tough, sexy femme fatale in Confidence but it’s fun to play people who’re really different from you, from different cultures and places. I suppose I’m a bit quieter than most of the people I play.
+ - I don’t like travelling. Which is ridiculous. And it’s not because I’m afraid of dying on the plane or anything. I just like to stay at home.
+ - Bad things happen when people work together. Everything goes out of control.
+ - I don’t know anything about science.
+ - I go and see music all the time.
+ - I love to take baths.
+ - You know, you can’t see or touch and isn’t embodied. But they were all fallible, the Gods. And they would kind of rise and fall. You know, they all, like Achilles, Icarus, you know, they all had their high points and their low points.
+ - I think mystery is kind of great. I don’t know anything about Bette Davis or Katharine Hepburn or Ava Gardner – not really – and I like that. I love watching their movies because they’re my personal movie stars. I don’t know what they eat and who their trainer is.
+ - As an actress, it’s part of your job to be able to imagine just about anything – even if it’s not within your personal experience.
+ - Because I think in order to get famous you have to be known for something. Like ‘You’re the romantic comedy girl’ or ‘You’re the Oscar-winning whatever girl.’
+ - I wasn’t a person who was longing forever to have a baby; the desire came up suddenly.
+ - I’m too disorganized.
+ - I find Hollywood really toxic.
+ - I like acting too much and it’s too, I’m just too busy doing that and I’m too hungry for it, to get behind the camera. I mean, unless I could act in it, too. I don’t think I’ve got the right brain. I’m too disorganized.
+ - I’m a storyteller, I’m an actor, an entertainer.
+ - There’s not much room for eccentricity in Hollywood, and eccentricity is what’s sexy in people.
+ - For me, being a mum has been a really, really instinctive thing.
+ - If I went out in killer heels and full makeup, blow dry, the whole thing – anyone dressed up like that could be intimidating to men and women, really. It’s so, look at me. Do you know what I mean? But I love women.
+ - Organized, yeah. And those who are so sure that their God is the right God that they believe it’s ok to kill another person who doesn’t believe in their God.
+ - I always do my interviews face to face.
+ - It is a political thriller. It’s very action packed and it’s very exciting, but at the same time it’s a very big soulful love story about longing and loss. They’re not separate, they’re completely dependent on one another.
+ - I’m thinking of doing more theatre. It makes me very happy.
+ - It’s also that comedians don’t have the kind of narcissism that actors have. They’re writers who perform their own material. It’s more interesting. And they’re sexy because they risk more. Stand-up comedians risk more than anyone.
+ - When I play a part, I never think about likability.
+ - I’ve always been fascinated by activists, people who will devote their life to a cause, people who go to India and to Africa and put their life in jeopardy to do what they believe is right.
+ - I think actors have a choice of drawing attention to themselves or living on the outskirts.
+ - I moved to New York last year and I love it. It’s a huge change and I’ve always wanted to spend time there. It’s like a more intense London, and everything’s up a few notches. The lights are brighter, the pace is faster and the food’s better.
+ - As Ralph’s character begins to discover the political thriller aspect of the film, he falls deeper in love with his wife, so the two run together. That’s the beauty of this film. It has fast pace and excitement, but it also has heart and soul.
+ - I don’t think balance is something you get from someone else; it’s something women have to find from within. For me, finding balance is still a work in progress.
+ - I didn’t think the teachers had the right to tell me what to do. I would just disobey, talk in the classroom, get very bad grades.
+ - I don’t believe your soul mate has to share your politics.
+ - I think that in big-budget movies there’s a lot of other stuff going on besides acting, like special effects.
+ - People believe in you more after you’ve won an Oscar, but it’s up to you what choices you make.
+ - I think if you ask the audience to like you, it’s all over.
+ - He really paid tribute to the people who are willing to risk their own lives to fight injustice – they are greater men and women than I.
+ - That was me under the bath and the water being held down. The director wanted it to look as real as possible so he told Keanu, in front of me, don’t go easy on her. So it was scary.
+ - You get perspective on things when you’re away from your child, and in a way, your love for them becomes even deeper.
+ - I prefer being as far from the centre of celebrity as possible.
+ - I was offered more work after the Oscar. When I was younger, I would take whatever I was offered because it was money and work and experience. In a way, choosing is the hard part. I know that’s a luxury problem, but it’s true. I try to go where passion takes me.
+ - I was advised by an American agent when I was about 19 to change my surname.
+ - You have to be quite stupid to act.
+ - I want to play interesting women.
+ - I feel like I’m one of the many working mothers. And I only have one child. I know working mums who have three or four. It’s definitely a challenge but it’s a wonderful challenge to be able to do both.
+ - The older you get the more capable you get at managing life.
+ - I think things are funny when the character is taking it totally seriously.
+ - I prefer smaller movies because they tend to be more about character than about story.
+ - The most interesting characters are those you’re drawn to, then repelled by, and then come to understand. All that tension – I live that. But I don’t plan the tension. It’s just something that should happen.
+ - I am definitely a worrier.
+ - In reality, the main thing that keeps me awake at night is probably the destruction of the planet that’s what gets me pretty upset.
+ - Fear is like the steam that fires the combustion engine. You need fear to get a performance going.
+
+76 quotes

@@ -1,0 +1,60 @@
+ - I’m a little frail girl, but I like being tied up, blindfolded and gagged so you can’t move.
+ - I love sports cars and want a Mercedes of an MG.
+ - When I was younger, I used to say, One day I’ll be famous.
+ - I think I must have a super-fast metabolism.
+ - I was a psycho woman. It felt like something in me that I had no control over.
+ - I never ask anyone for anything. I’ve just not been brought up like that.
+ - Never underestimate the Pricey.
+ - I know I will die in a car crash.
+ - I’m quite an insecure person and need reassuring all the time.
+ - Men seem to think that Page 3 girls are only interested in money. Money doesn’t impress me at all. Not in the slightest.
+ - I don’t mind anyone asking me any questions, I’ve got nothing to hide. I like it to be as real as it is, that’s what I call an interview.
+ - Some people may be famous for creating a pencil sharpener. I’m famous for my tits.
+ - I stick to my own type when I go out, and I don’t make friends with people just because they’re celebrities.
+ - You need to be able to confide in people.
+ - Hopefully I’ll be successful with the singing, but there are so many other things I want to do, like acting. I’ll do them one at a time first!
+ - I have loads of underwear, but only wear the bras because I never wear knickers.
+ - I like to spend time with my family. The majority of my time is spent in London, but I do like to escape and spend time with them in my hometown of Brighton on the south coast.
+ - All I want is a gentleman. I’m sick to bloody death of bastards.
+ - Places like Ministry of Sound are too druggie for me. Smaller, local places are where it’s at for me.
+ - I don’t really want to do topless stuff anymore.
+ - I enjoy horse riding, spending time with my dog ‘Smurf,’ and basically having a really good laugh partying and having fun!
+ - I’m not into one-night stands. I’ve only slept with three guys in my life and they all involve relationships.
+ - You do get some weirdos, but if there are any nice people out there who want to write to me pleasantly, then they’ll get a pleasant reply back!
+ - If I go out with someone I need them to sit and give me a cuddle every night. If they don’t, I wonder if they still love me.
+ - If you want to stay in the business then you’ve got to be a bit shrewd, haven’t you?
+ - When I was growing up, I said I wanted to be a model, but people said I had no chance and when I realized my ambition, people in the business still continued to state negative stuff.
+ - I’m so loud, as if I know what I’m on about, but deep inside, I’m so insecure. Just a little girl.
+ - I hate going out in Brighton now. It’s different in London. People respect you more there.
+ - All I’ve ever really done is page 3 in The Sun, and not every man reads that.
+ - People think I’m so confident. Close family members can see through that.
+ - The people who ask me for my autograph are the people who’ve put me here today, and you can’t afford to forget that.
+ - As well as being in love, we’re great friends. Warren makes me feel wanted, and that counts a lot with me.
+ - The most fascinating person I have met so far is indeed Mr. Hugh Hefner. An incredible man!
+ - To think someone can go out and sell something about you is really disgusting. I’m much more careful now.
+ - I do like my hair being pulled from time to time, it’s like a pair of reins, innit?
+ - There’s a lot of stuff that happened to me when I was kinda young. Like when I was just 12, or 13 or so. It might really shock some people. It’s an interesting part of my life, I hope it’s in the book, I didn’t check whether they put it in or not.
+ - I really hate sitcoms on television with canned laughter and stuff. What really makes me laugh is the real-life stuff. I’ve got a dry sense of humor.
+ - In my game, there are a lot of nine-hour flights here, there, and everywhere for work, so I prefer to take a shorter plane journey somewhere hot – just for fun.
+ - My main dream – and I’m trying to get ‘Living TV’ to do it – is to go into prison and interview serial killers, rapists, murderers, psychopaths.
+ - I was a real rebel. I got expelled.
+ - I didn’t fancy any of my teachers.
+ - The only ones I trust really are my Mum and Dad and those who are closest to me.
+ - I used to flirt with girls just to get the guys circling around us. I’m getting out of it now. I have to look after my reputation.
+ - The men I find myself attracted to are the ones who don’t say anything and are quite shy.
+ - I’m so interested in the brain. I read true crime.
+ - I sometimes wonder what this person or that person might be like in bed.
+ - I want to do other things like more fashion campaigns.
+ - I have a few friends who are models, but I know a lot of others as well. We usually go out for a drink or clubbing.
+ - I’m desperate to start a career in music.
+ - If there was somebody I wanted to meet, I’d like to be able to get their autograph.
+ - I like my old nose. If I could get it out the cupboard and put it on, then I would.
+ - I like protective men, the type who’ll put an arm around me so I can be smothered.
+ - There’s nothing that I buy that I don’t wear.
+ - As a child, I’ve always been in trouble with men and the police have always had to get involved, through no fault of my own.
+ - When I was 17 I sent a picture up to an agency, and within a week I was in The Sun five days in a row.
+ - When I was 15, all the boys at school had off-road motorbikes. I wasn’t allowed to have one, so I just went out and bought one. My parents took the keys.
+ - I get really saucy after a few drinks. Sexy rude, not obnoxious rude.
+ - People are people. All that celebrity tagging doesn’t bother me at all.
+
+58 quotes

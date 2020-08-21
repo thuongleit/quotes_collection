@@ -1,0 +1,39 @@
+ - To succeed in life one must have determination and must be prepared to suffer during the process. If one isn’t prepared to suffer during adversities, I don’t really see how he can be successful.
+ - The more I work and practice, the luckier I seem to get.
+ - Simply by making the effort to start something, you will be miles ahead of almost everyone else.
+ - A strong mind is one of the key components that separates the great from the good.
+ - We create success or failure on the course primarily by our thoughts.
+ - Enjoy the game. Happy golf is good golf.
+ - Golf is a puzzle without an answer. I’ve played the game for 40 years and I still haven’t the slightest idea how to play.
+ - Golf is a puzzle without an answer.
+ - It’s a marriage. If I had to choose between my wife and my putter, well, I’d miss her.
+ - I am tired of all these golfers who are happy with second place. The only one who will like you if you come in second place is your wife and your dog. And that is only if you have a good wife and a good dog.
+ - I try to work with God as a partner.
+ - When travelling, I make a point of eating a proper diet no matter where I am in the world. It is getting much easier to eat a vegetarian or vegan based diet.
+ - I don’t have any hesitation saying I’ve traveled more miles than any human being who ever lived. I’ve been doing it for 60 years.
+ - I rarely eat red meat and only occasionally eat fish. Plant based foods are my main source of nutrition along with nuts, fruits, brown breads and grains.
+ - Each shot is important.
+ - I’ve studied golf for almost 50 years now and know a hell of a lot about nothing.
+ - When you play the game for fun, it’s fun. When you play it for a living, it’s a game of sorrows.
+ - You must work very hard to become a natural golfer.
+ - The pressure gets worse the older you get. The hole starts to look the size of a Bayer aspirin.
+ - If you are going to keep company with me, don’t embarrass me.
+ - There is absolutely nothing humorous at the Masters. Here, small dogs do not bark and babies do not cry.
+ - You can always speak with great authority on how well you played today, but never on how you’ll play tomorrow.
+ - The player who expects a lesson to ‘take’ without subsequent practice just isn’t being honest with himself or fair to his professional.
+ - If you think your hands are more important in your golf swing than your legs, try walking a hole on your hands.
+ - If there’s a golf course in heaven, I hope it’s like Augusta National. I just don’t want an early tee time.
+ - The ideal build for a golfer would be strong hands, big forearms, thin neck, big thighs and a flat chest. He’d look like Popeye.
+ - That loss was to breed an independence, a toughness of spirit, and an awareness of adversity and discipline that have never left me,.
+ - I always said that if they have a golf course like this in heaven, I want to be the head pro.
+ - Wind is part of the British Open. It is an examination and it took me a long time to pass the examination. Eighty per cent of the fellows out there have not passed the test.
+ - But golf being an international game and everybody loving the game the way they do, if you want to spread the game of golf, it’s good that you have great competition.
+ - I’ve traveled more than any human being who’s ever lived.
+ - The first time I ever saw Arnold Palmer, I said, There’s a star. The first time I saw Jack Nicklaus, I said, Superstar. I feel the same way about Tiger Woods.
+ - Perhaps the most important thing I can tell you about equipment is to experiment and keep an open mind.
+ - I wish I could put a patent on that thing. That was so straight I had to lean over sideways to see the flag!
+ - When a rules man gives you a ruling, that’s it. Amen.
+ - The closer you can live to being a vegetarian the better.
+ - I think that if people would be willing to grow some of their own food or eat locally grown organic foods on a regular basis we could significantly decrease the amount of harmful chemicals we pump into our soil every day.
+
+37 quotes

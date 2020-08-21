@@ -1,0 +1,49 @@
+ - The first revolution is when you change your mind.
+ - The revolution will not be televised.
+ - Nobody can do everything, but everybody can do something.
+ - You have to learn and keep learning.
+ - The revolution that takes place in your head, nobody will ever see that.
+ - Schedule? I have no schedule. There is no hurry. I work when I want to.
+ - Our accomplishments show what kind of people we are.
+ - I am a black man dedicated to expression; expression of the joy and pride of blackness. I consider myself neither poet, composer, or musician. These are merely tools used by sensitive men to carve out a piece of beauty or truth that they hope may lead to peace and salvation.
+ - My songs were always about the tone of voice rather than the words.
+ - You know what has made me the happiest I’ve ever been? Seeing my son and daughter graduate from college. More than wanting them to be educated, I wanted them to be nice people. To see that they have become both is just a wonderful thing.
+ - Man is a complex being: he makes deserts bloom – and lakes die.
+ - Music has the power to make me feel good like nothing else does. It gives me some peace for a while. Takes me back to who I really am.
+ - I don’t suspect that in many instances the artists who are dedicated in that fashion to the progress of that community are as well protected by the community as might be necessary.
+ - If we meet somebody who has never made a mistake, lets help them start a religion. Until then, were just going to meet other humans and help to make each other better.
+ - I am honestly not sure how capable I am of love. And I’m not sure why.
+ - I would say if you are familiar with our history and the history of our art and literature that you see a clear cut pattern of people wanting to contribute, not only artistically, but in some practical purpose, for the benefits of the community.
+ - I cannot afford to watch Fox News.
+ - You never cared enough to be Black.
+ - I try not to take people who haven’t really thought out what they’re doing too seriously. I try not to let them get in the way of what I feel I need to do.
+ - Womenfolk raised me and I was full-grown before I knew I came from a broken home.
+ - I was a better writer when I was teaching. I was constantly going over the basics and constantly reminding myself, as I reminded my students, what made a good story, a good poem.
+ - Colour is not the issue in America; class is.
+ - I don’t see any independent position that I’m in; it’s rather inter-dependent.
+ - I learnt early on that your audience take the songs in the way they want to rather than the way you might want them too.
+ - Everything that’s bad for you catches on too quickly in America, because that’s the easiest thing to get people to invest in, the pursuits that are easy and destructive, the ones that bring out the least positive aspects of people.
+ - A lot of folks are so busy trying to get their groceries together that they don’t have time to do research. I have time. Maybe that’s the main difference.
+ - I don’t mind being criticized. I enjoy being criticized personally, not by rumor.
+ - I tour more than I need to, more than is good for you. But it’s my favorite part of music. I much prefer it to studio work.
+ - Every show that sells out is like a hero’s welcome for me.
+ - All the dreams you show up in are not your own.
+ - Angel dust won’t go away. Somefolks who were smoking it were going away.
+ - The way you get to know yourself is by the expressions on other people’s faces, because that’s the only thing that you can see, unless you carry a mirror about.
+ - If you aren’t having no fun, die, because you’re running a worthless program, far as I’m concerned.
+ - I’ve always had questions about what it meant to be a protester, to be in the minority. Are the people who are trying to find peace, who are trying to have the Constitution apply to everybody, are they really the radicals? We’re not protesting from the outside. We’re inside.
+ - Every once in a while, you live long enough to get the respect that people didn’t want to give while you were trying to become a senior citizen.
+ - The truth is that in this country you here you’re more likely to be harassed, hurt, or killed if you’re a minister speaking about progress for Black people than if you are a sure enough revolutionary.
+ - I find it not just strange but almost ridiculous that people could take a song like the one I was doing and interpret it is corroding anything. Folks have the feeling that oftentimes if you don’t talk about something it will go away.
+ - If someone comes to you and asks for help, and you can help them, you’re supposed to help them. Why wouldn’t you? You have been put in the position somehow to be able to help this person.
+ - I don’t think people in power have the potential to do anything like that to me. I feel as though as long as our music is available, folks are going to hear it.
+ - I was a piano player before I was a poet.
+ - I was one of the first three black students to go to an all-white school in Tennessee.
+ - I think that the more people who speak out, and say things and take stands on positions that will better our community, the better off each and every other individual artist or otherwise, will be.
+ - Oftentimes, the way it seems to be is that our artists in particular point themselves out as spokesmen for a certain constituency in a community, and thereby place themselves in that vulnerable position.
+ - I think a whole lot of stuff gets by people – I could name half a dozen groups that do songs that are openly supportive of experimentation with drugs, nobody ever said anything to them.
+ - As for money – when I have it, it’s great. When I don’t, I go get some. I’ve been a dishwasher, a gardener, a cleaner.
+ - You should be able to do anything you can afford as an adult.
+ - You can have a poem like “B-Movie” and sum up thirty conversations that people have had on the subject, but I wrote it down, and other people didn’t.
+
+47 quotes

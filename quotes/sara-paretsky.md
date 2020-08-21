@@ -1,0 +1,54 @@
+ - I’m lucky in having found the perfect partner to spend my life with.
+ - Rule number something or other – never tell anybody anything unless you’re going to get something better in return.
+ - Never underestimate a man’s ability to underestimate a woman.
+ - Sometimes life seems so painful it hurts even to move my arms.
+ - Heart surgeons do not have the world’s smallest egos: when you ask them to name the world’s three leading practitioners, they never can remember the names of the other two.
+ - The possibility of bringing white-collar criminals to justice is ever receding over the horizon.
+ - The crime novel has always been my favourite genre.
+ - I always wrote; my first story was published in the magazine The American Girl when I was 11.
+ - I grew up in conservative rural Kansas in the 1950s when it was expected that girls would not have a life outside the home, so educating them was a waste of time.
+ - Capo, my first golden retriever, so loved to swim she once jumped off a cliff to get into Lake Superior.
+ - White-collar crime gets more outrageous by the second in America.
+ - All food starting with p is comfort food: pasta, potato chips, pretzels, peanut butter, pastrami, Pizza, pastry.
+ - I realised I’d never climb Everest but thought I could still write a book.
+ - The decimation of Lebanon was showing up in Chicago as a series of restaurants and little shops, just as the destruction of Vietnam had been visible here a decade earlier. If you never read the news but ate out a lot you should be able to tell who was getting beaten up around the world.
+ - Nothing kinder than strangers. Nothing stranger than kindness.
+ - When you feel lousy, puppy therapy is indicated.
+ - I wish I could remember where I put things. I spend half my life looking for my keys. With the other half I look for my glasses.
+ - I spent 10 years as a marketing manager. I’ve found my experience in the financial world invaluable background for writing about white-collar crimes.
+ - Sometimes I think I’m a one-trick pony because I’m not very inventive about new ways of telling stories.
+ - Every writer’s difficult journey is a movement from silence to speech. We must be intensely private and interior in order to find a voice and a vision – and we must bring our work to an outside world where the market, or public outrage, or even government censorship can destroy our voice.
+ - I’m jealous of everyone discovering Lovesey and Diamond for the first time-you have a wonderful backlist to catch up on. Me, all I can do is wait for the next book.
+ - I’m at the atheist end of the agnostic spectrum.
+ - The rich are different than you and me: they have more money and they have more power.
+ - If you’re born lucky, you don’t have to be good.
+ - I live and die with the Chicago Cubs.
+ - The hope for a messiah puts too much on that one person. And you think that absolves you of personal responsibility and you don’t have to act because that person will do it for you.
+ - I love to sing. I’m a soprano.
+ - I have one vivid memory of one of the days that the marches were taking place. We were in a Catholic, predominantly Polish and Lithuanian neighborhood. Chicago is a place where people define themselves by their parish and by their ethnicity.
+ - Reviewers said Ghost Country was rich, astonishing and affecting in the way it blended comedy, magic, and a gritty urban realism in a breathtaking ride along Chicago’s mean streets.
+ - Don’t tell me I have latent sexism or racism that I need to confront. I don’t believe that. I think we are so burned by the current situation that we want somebody that it isn’t possible to have. We want someone who definitely looks like the messiah.
+ - The best source for finding an agent is called Literary Agents of North America. It’s a complete list of agents, not only by name and address, but by type of book they represent and by what their submission criteria are.
+ - I’m a grandmother, and a mighty proud one.
+ - Live disasters are wonderful attractions when you’re safe on the other side of them.
+ - I believe in the dull lie – make your story boring enough and no one will question it.
+ - But what I’ve learned is, when your adrenaline is flowing, you can do a lot. I’m not very physical, but once some punks were trying to break into my house and I chased them down.
+ - I had wanted to write Ghost Country for a long time, but it wouldn’t work.
+ - I think Peter Dickinson is hands down the best stylist as a writer and the most interesting storyteller in my genre.
+ - Most people don’t have the money to spend on advertising to create awareness among readers, nor do they have the contacts at newspapers or magazines to get their books reviewed.
+ - I’m very honoured that there is a loyal following and I hope it continues.
+ - It took me nine months to write 60 pages. It was very frustrating.
+ - People have less privacy and are crammed together in cities, but in the wide open spaces they secretly keep tabs on each other a lot more.
+ - Around the time I turned 30, I wanted to publish a novel.
+ - She knew the intensity of adolescence, and knew no cure for it except growing up. And then one has age and experience, and mourns the loss of intensity. Maybe it’s why musicians and mathmaticians are said to peak young-poetry needs the fire of an unbounded universe.
+ - I have a friend who lives in the South Side of Chicago. I helped out at a church charity there where they try to give a bit of cohesion to a desperate area. Everyone was very welcoming.
+ - I went to college at the University of Kansas, where I got a degree in political science.
+ - Write what you care about.
+ - Sisters in Crime now has more than 4,000 members worldwide.
+ - My parents were liberal intellectuals but even they expected me to stay at home and look after my younger siblings and do the housework.
+ - The day of the march, we were forbidden to go to the march site. The man I worked for, the Presbyterian minister, knew we would want to be sort of martyrs for the cause and risk arrest. He didn’t want any of that going on. So he made us stay in the neighborhood.
+ - No agent wants to see a book until he or she has decided whether to pursue the relationship.
+ - Sometimes I panic and think I can’t really write.
+ - Hard to remember who is more dangerous: the people who are attacking our liberties overseas, or those who are suppressing them at home.
+
+52 quotes

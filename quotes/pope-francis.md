@@ -1,0 +1,502 @@
+ - We are all missionary disciples.
+ - The world tells us to seek success, power and money; God tells us to seek humility, service and love.
+ - To be saints is not a privilege for a few, but a vocation for everyone.
+ - The rosary is spiritual medicine.
+ - Dear young people, do not bury your talents, the gifts that god has given you! Do not be afraid to dream of great things!
+ - Listen to Jesus and follow him. That’s the message of the Transfiguration.
+ - To celebrate the sacrament of reconciliation means to be wrapped in a warm embrace.
+ - Let us always pray for one another.
+ - Do not be afraid of what God asks of you! It is worth saying ‘yes’ to God. In him we find joy.
+ - Human dignity is the same for all human beings: when I trample on the dignity of another, I am trampling on my own.
+ - It is not possible to go backwards. We must go forward. Always forward.
+ - The Eucharist is essential for us: it is Christ who wishes to enter our lives and fill us with his grace.
+ - The life of Jesus is a life for others. It is a life of service.
+ - Let us learn to live with kindness, to love everyone, even when they do not love us.
+ - Although the life of a person is in a land full of thorns and weeds, there is always a space in which the good seed can grow. You have to trust God.
+ - You pray for the hungry. Then you feed them. That’s how prayer works.
+ - To change the world we must be good to those who cannot repay us.
+ - Don’t let anyone rob you of hope.
+ - Advent increases our hope, a hope which does not disappoint. The Lord never lets us down.
+ - Advent is a journey towards Bethlehem. May we let ourselves be drawn by the light of God made man.
+ - Migrants and refugees are not pawns on the chessboard of humanity.
+ - Holiness doesn’t mean doing extraordinary things, but doing ordinary things with love and faith.
+ - Let us build our lives of faith on the rock who is Christ.
+ - Lent comes providentially to reawaken us, to shake us from our lethargy.
+ - God never tires of forgiving us.
+ - Confession is the sacrament of the tenderness of God, his way of embracing us.
+ - Mercy is the true power that can save humanity and the world from sin and evil.
+ - Each encounter with Jesus changes our life.
+ - A small step, in the midst of great human limitations, can be more pleasing to God than a life which appears outwardly in order but moves through the day without confronting great difficulties.
+ - Dear young people, Jesus wants to be your friend, and wants you to spread the joy of this friendship everywhere.
+ - During Lent, let us find concrete ways to overcome our indifference.
+ - Find new ways to spread the word of God to every corner of the world.
+ - I prefer a church which is bruised, hurting and dirty because it has been out on the streets, rather than a church which is unhealthy from being confined and from clinging to its own security.
+ - Life is a journey. When we stop, things don’t go right.
+ - Love is more powerful, love gives life, love makes hope blossom in the wilderness.
+ - The Rosary is a school of Prayer. The Rosary is a school of Faith.
+ - None of us can think we are exempt from concerns for the poor and for social justice.
+ - Wretched are those who are vindictive and spiteful.
+ - Racism today is the ultimate evil in the world.
+ - Have the courage “to swim against the tide”. Have the courage to be happy.
+ - Let us not be satisfied with a mediocre life.
+ - A little bit of mercy makes the world less cold and more just.
+ - The Earth is our environment to protect and the garden to tend to.
+ - Ask Jesus what he wants from you and be brave!
+ - Every conflict is emblematic of the throwaway culture.
+ - Christian witness is concrete: words without actions are empty.
+ - Being a disciple means being constantly ready to bring the love of Jesus to others, and this can happen unexpectedly and in any place: on the street, in a city square, during work, on a journey.
+ - The family remains the basic unit of society and the first school in which children learn the human, spiritual and moral values which enable them to be a beacon of goodness, integrity and justice in our communities.
+ - I believe in God – not in a Catholic God; there is no Catholic God. There is God, and I believe in Jesus Christ, his incarnation. Jesus is my teacher and my pastor, but God, the Father, Abba, is the light and the Creator. This is my Being.
+ - No elderly person should be like an “exile” in our families. The elderly are a treasure for our society.
+ - One day we will see our animals again in eternity of Christ. Paradise is open to all God’s creatures.
+ - The Holy Spirit transforms and renews us, creates harmony and unity, and gives us courage and joy for mission.
+ - Inequality is the root of social evil.
+ - Throwing away food is like stealing from the table of those who are poor and hungry.
+ - Have the courage to go against the tide of current values that do not conform to the path of Jesus.
+ - May we try to listen and be silent in order to make space for the beauty of God.
+ - Faith is not a light which scatters all our darkness, but a lamp which guides our steps in the night and suffices for the journey.
+ - I ask all people of goodwill to help build a culture of encounter, solidarity and peace.
+ - An authentic faith always implies a deep desire to change the world.
+ - Let the Church always be a place of mercy and hope, where everyone is welcomed, loved and forgiven.
+ - We are all sinners. But may the Lord not let us be hypocrites. Hypocrites don’t know the meaning of forgiveness, joy and the love of God.
+ - A population that does not take care of the elderly and of children and the young has no future, because it abuses both its memory and its promise.
+ - Christ leads us to go out from ourselves more and more, to give ourselves and to serve others.
+ - Having faith does not mean having no difficulties, but having the strength to face them, knowing we are not alone.
+ - God reveals Himself through surprises.
+ - Profound peace, spiritual consolation, love of God and love of all things in God – this is the sign that you are on this right path.
+ - Christian marriage is that sacrament which builds up the community of the Church and of society. Marriage has been inscribed in creation’s design by God, and, by his grace, countless Christian men and women have lived married life fully.
+ - Our Mother Mary is full of beauty because she is full of grace.
+ - Dear young people, always be missionaries of the Gospel, every day and in every place.
+ - The Cross is the Word through which God has responded to evil in the world.
+ - Too often we participate in the globalization of indifference. May we strive instead to live global solidarity.
+ - Suffering is a call to conversion: it reminds us of our frailty and vulnerability.
+ - The Sacraments are the manifestation of the Father’s tenderness and love towards each of us.
+ - Seeking happiness in material things is a sure way of being unhappy.
+ - Migrants and refugees are not pawns on the chessboard of humanity. They are children, women and men who leave or who are forced to leave their homes for various reasons, who share a legitimate desire for knowing and having, but above all for being more.
+ - Do not lose hope; St. Joseph also experienced moments of difficulty, but he never lost faith and was able to overcome them, in the certainty that God never abandons us.
+ - We proclaim the resurrection of Christ when his light illuminates the dark moments of our existence, and we are able share it with others.
+ - Peace is a daily commitment. It is a homemade peace.
+ - Reject every form of corruption.
+ - There is so much indifference in the face of suffering. May we overcome indifference with concrete acts of charity.
+ - Oh, how I would like a poor Church, and for the poor.
+ - Human trafficking is a crime against humanity. We must unite our efforts to free victims and stop this crime that’s become ever more aggressive, that threatens not just individuals, but the foundational values of society.
+ - Let us pray for all good and faithful priests who dedicate themselves to their people with generosity and unknown sacrifices.
+ - It is a mortal sin to discard the elderly.
+ - To be a mother is a great treasure. Mothers, in their unconditional and sacrificial love for their children, are the antidote to individualism; they are the greatest enemies against war.
+ - Violence and war lead only to death...
+ - There can be no renewal of our relationship with nature without a renewal of humanity itself.
+ - Things have a price and can be for sale. But people have a dignity that is priceless and worth far more than things.
+ - By saying “blessed are those who mourn”, Jesus does not intend to declare an unfortunate and burdensome condition in life to be happy. Suffering is not a value in itself, but a reality that Jesus teaches us to live with the correct attitude.
+ - Take care of God’s creation. But above all, take care of people in need.
+ - Holy Week is a privileged time when we are called to draw near to Jesus: friendship with him is shown in times of difficulty.
+ - I see the church as a field hospital after battle. It is useless to ask a seriously injured person if he has high cholesterol and about the level of his blood sugars. You have to heal his wounds. Then we can talk about everything else.
+ - Obeying God is listening to God, having an open heart to follow the path that God points out to us.
+ - Jesus is more than a friend. He is a teacher of truth and life who shows us the way that leads to happiness.
+ - Division within a Christian community is a very grave sin; it is the work of the devil.
+ - Do not be content to live a mediocre Christian life: walk with determination along the path of holiness.
+ - Proceed calmly in life.
+ - Lord, teach us to step outside ourselves. Teach us to go out into the streets and manifest your love.
+ - We are impatient, anxious to see the whole picture, but God lets us see things slowly, quietly.
+ - Please do not lose the ability to dream.
+ - God’s love is unbounded. It has no limits.
+ - All it takes is one good person to restore hope.
+ - Dear young people, the Church expects great things of you and your generosity. Don’t be afraid to aim high.
+ - Work is fundamental to the dignity of the person. Work, to use an image, ‘anoints’ with dignity, fills us with dignity, makes us similar to God who has worked and still works, who always acts.
+ - Our infinite sadness can only be cured by an infinite love.
+ - When we read about Creation in Genesis, we run the risk of imagining God was a magician, with a magic wand able to do everything. But that is not so. He created human beings and let them develop according to the internal laws that he gave to each one so they would reach their fulfillment.
+ - The only way to heal is to look at the Cross, to look at God Who takes upon Himself our sins: my sin is there.
+ - Gay adoption is discrimination against children.
+ - All men and women of good will are bound by the task of pursuing peace.
+ - The Family is the salt of the earth and the light of the world, it is the leaven of society.
+ - My people are poor and I am one of them.
+ - We cannot trust in our own strength, but only in Jesus and in his mercy.
+ - The process of healing also needs to include the pursuit of truth, not for the sake of opening old wounds, but rather as a necessary means of promoting justice, healing and unity.
+ - The Christian mission has only one focus: to change individual’s lives so they can change the world.
+ - Don’t be afraid to go to the Sacrament of Confession, where you will meet Jesus who forgives you.
+ - No one can grow if he does not accept his smallness.
+ - The Saints were not superhuman. They were people who loved God in their hearts, and who shared this joy with others.
+ - Holy Week is a good occasion to go to confession and to take up the right path again.
+ - Let us keep the flame of faith alive through prayer and the sacraments: let us make sure we do not forget God.
+ - The confessional is not a torture chamber, but the place in which the Lord’s mercy motivates us to do better.
+ - Let us thank all those who teach in Catholic schools. Educating is an act of love; it is like giving life.
+ - The Church needs you, your enthusiasm, your creativity and the joy that is so characteristic of you.
+ - In the poor and outcast we see Christ’s face; by loving and helping the poor, we love and serve Christ.
+ - Let yourselves be led by the Holy Spirit, with freedom and, please, do not cage the Holy Spirit.
+ - I am a sinner. This is the most accurate definition. It is not a figure of speech, a literary genre. I am a sinner.
+ - I believe in the old warrior’s credo that “to the victor go the spoils.”
+ - Forgiveness, dialogue, reconciliation – these are the words of peace, in beloved Syria, in the Middle East, in all the world.
+ - There is no sin that God cannot pardon. All we need to do is ask for forgiveness.
+ - Every Christian can witness to God in the workplace, not only with words, but above all with an honest life.
+ - Forgiveness is not a result of our efforts, but is a gift. It is a gift of the Holy Spirit who showers us with mercy and grace that pours forth unceasingly from the open heart of Christ crucified and risen.
+ - On climate change, there is a clear, definitive and ineluctable ethical imperative to act.
+ - We don’t need youth museums. But we do need holy young people.
+ - Take good care of creation. St. Francis wanted that. People occasionally forgive, but nature never does. If we don’t take care of the environment, there’s no way of getting around it.
+ - Where there is truth, there is also light, but don’t confuse light with the flash.
+ - The goods of the earth are meant for everyone.
+ - Help one another. This is what Jesus teaches us. This is what I do, and I do it with my heart.
+ - The border between good and evil passes not outside of us but within us.
+ - With God, nothing is lost; but without him, everything is lost.
+ - The Lord put it clearly: you cannot serve two masters. You have to choose between God and money.
+ - The great biblical tradition enjoins on all peoples the duty to hear the voice of the poor. It bids us break the bonds of injustice and oppression which give rise to glaring, and indeed scandalous, social inequalities.
+ - The Holy Spirit helps us to view others with fresh eyes, seeing them always as brothers and sisters in Jesus, to be respected and loved.
+ - Love makes us similar, it creates equality, it breaks down walls and eliminates distances. God did this with us.
+ - Today people are suffering from poverty, but also from lack of love.
+ - If money and material things become the center of our lives, they seize us and make us slaves.
+ - When it comes to the care of our common home, we are living at a critical moment of history.
+ - And with the grace of Baptism and of Eucharistic Communion I can become an instrument of God’s mercy, of that beautiful mercy of God.
+ - Whenever we take a step towards Jesus, we come to realize that he is already there, waiting for us with open arms.
+ - God never gives someone a gift they are not capable of receiving. If he gives us the gift of Christmas, it is because we all have the ability to understand and receive it.
+ - Christians are those who let God clothe them with goodness and mercy, with Christ, so as to become, like Christ, servants of God and others.
+ - Christmas is joy, religious joy, an inner joy of light and peace.
+ - The book of Genesis tells us that God created man and woman entrusting them with the task of filling the earth and subduing it, which does not mean exploiting it, but nurturing and protecting it, caring for it through their work.
+ - Today is my anniversary of ordination to the priesthood. Please pray for me and all priests.
+ - Life is a precious gift, but we realize this only when we give it to others.
+ - Art in the Church fundamentally exists for evangelization.
+ - Prayer, humility, and charity toward all are essential in the Christian life: they are the way to holiness.
+ - To live charitably means not looking out for our own interests, but carrying the burdens of the weakest and poorest among us.
+ - Say no to an ephemeral, superficial and throwaway culture, a culture that assumes that you are incapable of taking on responsibility and facing the great challenges of life!
+ - Truth, according to the Christian faith, is God’s love for us in Jesus Christ. Therefore, truth is a relationship.
+ - Working for a just distribution of the fruits of the earth and human labor is not mere philanthropy. It is a moral obligation.
+ - Let us never lose hope! God loves us always, even with our mistakes and sins.
+ - Don’t be afraid to ask God for forgiveness. He never tires of forgiving us. God is pure mercy.
+ - Around us there is the presence of evil. The devil is at work. But in a loud voice I say: GOD IS STRONGER.
+ - Jesus is God but he humbled himself to walk with us. He is our friend, our brother.
+ - This is Christian hope, that the future is in God’s hands.
+ - The secret of Christian living is love. Only love fills the empty spaces caused by evil.
+ - We all have the duty to do good.
+ - Christian hope is not a ghost and it does not deceive. It is a theological virtue and therefore, ultimately, a gift from God that cannot be reduced to optimism, which is only human. God does not mislead hope; God cannot deny himself. God is all promise.
+ - I want to say one word to you and this word is “Joy”. Wherever there are consecrated people, seminarians, men and women religious, young people, there is joy, there is always joy!
+ - May the Lord bless the family and strengthen it in this moment of crisis.
+ - A Christian is never bored or sad. Rather, the one who loves Christ is full of joy and radiates joy.
+ - A simple lifestyle is good for us, helping us to better share with those in need.
+ - It hurts me when I see a priest or a nun with the latest model car, you can’t do this. A car is necessary to do a lot of work, but please, choose a more humble one. If you like the fancy one, just think about how many children are dying of hunger in the world.
+ - The culture of comfort, which makes us think only of ourselves, makes us insensitive to the cries of other people.
+ - Dear young people, put your talents at the service of the Gospel, with creativity and boundless charity.
+ - Humility saves man: pride makes him lose his way.
+ - It is neither a culture of confrontation nor a culture of conflict which builds harmony within and between peoples, but rather a culture of encounter and a culture of dialogue; this is the only way to peace.
+ - From my point of view, God is the light that illuminates the darkness, even if it does not dissolve it, and a spark of divine light is within each of us.
+ - The joy of the gospel fills the hearts and lives of all who encounter Jesus.
+ - Dear Young People, do not be mediocre; the Christian life challenges us with great ideals!
+ - Go, do not be afraid and serve.
+ - How does St. Joseph exercise his role as protector? Discreetly, humbly and silently, but with an unfailing presence and utter fidelity, even when he finds it hard to understand.
+ - An authentic faith-which is never comfortable or completely personal-always involves a deep desire to change the world, to transmit values, to leave this earth somehow better than we found it.
+ - Let us allow God to fill our hearts with his goodness and mercy.
+ - Let us go back to the Lord. The Lord never tires of forgiving: never! It is we who tire of asking his forgiveness. Let us ask for the grace not to tire of asking forgiveness, because he never tires of forgiving.
+ - Human rights are not only violated by terrorism, repression or assassination, but also by unfair economic structures that creates huge inequalities.
+ - To be friends with God means to pray with simplicity, like children talking to their parents.
+ - We ask the risen Jesus, who turns death into life, to change hatred into love, vengeance into forgiveness, war into peace. Yes, Christ is our peace, and through him to implore peace for all the world.
+ - Our life must be centred on what is essential, on Jesus Christ. Everything else is secondary.
+ - Religious freedom is a fundamental human right.
+ - What is most important subject you have to learn in life? To learn how to love. This is the challenge that life offers you: to learn bow to love. Not just to accumulate information without knowing what to do with it. But through that love, let that information bear fruit.
+ - Christ comes among us at Christmas: it is the perfect time for a personal encounter with the Lord.
+ - A credible witness to truth and to the values of the Gospel is urgently needed.
+ - Charity that does not change the situation of the poor isn’t enough.
+ - Dear young people, do not be afraid of making decisive choices in life. Have faith; the Lord will not abandon you!
+ - Resolve not to be overcome by evil, but to combat evil with good.
+ - The challenge of life is to learn how to love.
+ - A good example brings about so much good, but hypocrisy brings about so much evil.
+ - For the sake of peace, religious beliefs must never be allowed to be abused in the cause of violence and war.
+ - Praise is the ‘breath’ which gives us life, because it is intimacy with God, an intimacy that grows through daily praise.
+ - We need to see each child as a gift to be welcomed, cherished, and protected.
+ - I ask you to ensure that humanity is served by wealth, and not ruled by it.
+ - Laboratories are useful, but reflection for us must always start from experience.
+ - This is what marriage is all about – Man and woman walking together, wherein the husband helps his wife to become ever more a woman, and wherein the woman has the task of helping her husband to become ever more a man.
+ - These are roots of all evil, hatred and greed, for money, for the construction and for the sale of weapons. This should make us all think, who is behind it all?
+ - Lord, help us to live the virtue of generosity, to love without limits.
+ - We are a church of sinners but we must not be afraid of holiness. Do not be afraid to aim for holiness and turn yourselves over to the love of God. Holiness does not mean performing extraordinary things but carrying out daily things in an extraordinary way that is with love, joy and faith.
+ - Whenever we encounter another person in love, we learn something new about God.
+ - Gossip can also kill, because it kills the reputation of the person! It is so terrible to gossip! At first it may seem like a nice thing, even amusing, like enjoying a candy. But in the end, it fills the heart with bitterness, and even poisons us.
+ - Lent is a time of grace, a time to convert and live out our baptism fully.
+ - Breathing is made up of two stages: inhaling, the intake of air, and exhaling, the letting out of air. The spiritual life is fed, nourished, by prayer and is expressed outwardly through mission: inhaling and exhaling. When we inhale, by prayer, we receive the fresh air of the Holy Spirit.
+ - Gratitude is a flower that blooms in noble souls.
+ - Dear young people, don’t be afraid to marry. A faithful and fruitful marriage will bring you happiness.
+ - Pastors must welcome the lost sheep. Actually, I made a mistake. I said welcome, rather, go out and find them.
+ - The fight against evil is long and difficult. It is essential to pray constantly and to be patient.
+ - Today is the World Day of Prayer for the Care of Creation. Let us work and pray.
+ - Jesus is the sun and Mary is the dawn announcing his rising.
+ - When one lives attached to money, pride or power, it is impossible to be truly happy.
+ - The Internet offers immense possibilities for encounter and solidarity. This is something truly good, a gift from God.
+ - In the silence of the Cross, the uproar of weapons ceases and the language of reconciliation, forgiveness, dialogue and peace is spoken.
+ - The measure of the greatness of a society is found in the way it treats those most in need, those who have nothing apart from their poverty!
+ - Whoever says he is without sin is a liar or is blind.
+ - The climate is a common good, belonging to all and meant for all.
+ - First, we can pray in communion with the Church on earth and in heaven. Let us not underestimate the power of so many voices united in prayer!
+ - Where there is calumny, there is Satan himself.
+ - The right to life is the first among human rights.
+ - Rest is so necessary for the health of our minds and bodies, and often so difficult to achieve due to the many demands placed on us. But rest is also essential for our spiritual health, so that we can hear God’s voice and understand what he asks of us.
+ - If we, each doing our own part, if we do good to others, if we meet there, doing good, and we go slowly, gently, little by little, we will make that culture of encounter: we need that so much. We must meet one another doing good.
+ - To understand one another, and to grow in charity and truth, we need to pause, to accept and listen to one another. In this way we already begin to experience unity. Unity grows along the way, it never stands still. Unity happens when we walk together.
+ - Dear young people, you have many plans and dreams for the future. But, is Christ at the center of each of your plans and dreams?
+ - Even the weakest and most vulnerable, the sick, the old, the unborn and the poor, are masterpieces of God’s creation, made in his own image, destined to live for ever, and deserving of the utmost reverence and respect.
+ - We can observe the Fourth Commandment by loving visits to our aging grandparents.
+ - Miracles happen. But prayer is needed! Prayer that is courageous, struggling and persevering, not prayer that is a mere formality.
+ - Sin, also for those who don’t have faith, exists when one goes against one’s conscience. To listen to and obey it means, in fact, to decide in face of what is perceived as good or evil. And on this decision pivots the goodness or malice of our action.
+ - The joy of the Gospel is for all people: no one can be excluded.
+ - We can walk when we want to, we can build many things, but if we do not witness to Jesus Christ then it doesn’t matter. We might become a philanthropic NGO but we wouldn’t be the Church, the Bride of the Lord.
+ - The parish is the presence of the Church in any given territory, an environment for hearing God’s word, for growth in Christian life, for dialogue, proclamation, charitable outreach, worship and celebration.
+ - We are all jars of clay, fragile and poor, yet we carry within us an immense treasure.
+ - I dream of a church that is a mother and shepherdess.
+ - At times we can be self-absorbed. Lord, help us to open our hearts to others and to serve those who are most vulnerable.
+ - Confirmation strengthens us to defend the faith and to spread the Gospel courageously.
+ - The Sacraments are Jesus Christ’s presence in us. So it is important for us to go to Confession and receive Holy Communion.
+ - Today, we need a Church capable of walking at people’s side, of doing more than simply listening to them; a Church which accompanies them on their journey...
+ - Be sanctuaries of respect for life, proclaiming the sacredness of every human life from conception to natural death.
+ - Let us not have a computer psychology that makes us think we know it all. All answers on computers – but no surprises. The challenge of love. God reveals himself through surprises.
+ - The only war that we must all fight is the one against evil.
+ - The cross of Christ, embraced with love, never brings sadness with it, but joy, the joy of being saved and of doing a little of what he did on the day of his death.
+ - May we always say thank you to God, especially for his patience and mercy.
+ - Charity, patience and tenderness are very beautiful gifts. If you have them, you want to share them with others.
+ - Mere administration can no longer be enough. Throughout the world, let us be permanently in a state of mission.
+ - We are all sinners. We are called to a conversion of heart.
+ - The Christian who does not feel that the Virgin Mary is his or her mother is an orphan.
+ - Practicing charity is the best way to evangelize.
+ - Like Mary, may we nurture the light born within us at Christmas. May we carry it everywhere in our daily lives.
+ - We need to be creative with young people. If they have no opportunities, they will get into drugs and be vulnerable to suicide.
+ - The person who gossips is a terrorist who drops a bomb, destroys, and they destroy others.
+ - The scourge of drug trafficking, that favors violence and sows the seeds of suffering and death, requires of society as a whole an act of courage.
+ - States kill when they apply the death penalty, when they send their people to war, or when they carry out extra-judicial or summary executions. They can also kill by omission, when they fail to guarantee to their people access to the bare essentials for life.
+ - Only by becoming poor ourselves, by stripping away our complacency, will we be able to identify with the least of our brothers and sisters.
+ - God calls you to make definitive choices, and He has a plan for each of you: to discover that plan and to respond to your vocation is to move toward personal fulfillment.
+ - Consumerism has accustomed us to waste. But throwing food away is like stealing it from the poor and hungry.
+ - How many of us, myself included, have lost our bearings; we are no longer attentive to the world in which we live; we don’t care; we don’t protect what God created for everyone, and we end up unable even to care for one another.
+ - Jesus teaches us another way: Go out. Go out and share your testimony, go out and interact with your brothers, go out and share, go out and ask. Become the Word in body as well as spirit.
+ - We cannot give up in the face of evil. God is Love and he has defeated evil through Christ’s death and resurrection.
+ - Christ is always faithful. Let us pray to be always faithful to him.
+ - We who are Christians, members of God’s family, are called to go out to the needy and to serve them.
+ - Beware of getting too comfortable! When we are comfortable, it’s easy to forget other people.
+ - The joy of the gospel fills the hearts and lives of all who encounter Jesus. Those who accept His offer of salvation are set free from sin, sorrow, inner emptiness, and loneliness. With Christ joy is constantly born anew.
+ - Let’s return to our first love, in order to receive the fire which Jesus has kindled in the world and to bring that fire to all people, to the very ends of the earth.
+ - Total openness to serving others is our hallmark, it alone is our title of honor!
+ - Let us protect with love all that God has given us!
+ - The Son of God became incarnate in the souls of men to instill the feeling of brotherhood. All are brothers and all children of God.
+ - Fasting makes sense if it really chips away at our security and, as a consequence, benefits someone else, if it helps us cultivate the style of the good Samaritan, who bent down to his brother in need and took care of him.
+ - Our Christian identity is belonging to a people: the Church. Without the Church we are not Christians.
+ - I am always wary of decisions made hastily. I am always wary of the first decision, that is, the first thing that comes to my mind if I have to make a decision. This is usually the wrong thing. I have to wait and assess, looking deep into myself, taking the necessary time.
+ - We need courage if we are to be faithful to the Gospel.
+ - Dear parents, have great patience, and forgive from the depths of your heart.
+ - Let us protect Christ in our lives, so that we can protect others, so that we can protect creation!
+ - Obsession with a consumerist lifestyle, above all when few people are capable of maintaining it, can only lead to violence and mutual destruction.
+ - How many kinds of moral and material poverty we face today as a result of denying God and putting so many idols in his place!
+ - May the World Day of Consecrated Life be a timely occasion to rediscover the centrality of Jesus in our lives.
+ - Evolution in nature is not inconsistent with the notion of creation, because evolution requires the creation of beings that evolve.
+ - Because if we destroy Creation, Creation will destroy us! Never forget this!
+ - Religious life ought to promote growth in the Church by way of attraction. The Church must be attractive. Wake up the world! Be witnesses of a different way of doing things, of acting, of living! It is possible to live differently in this world.
+ - Our mission as Christians is to conform ourselves evermore to Jesus as the model of our lives.
+ - I have neither silver nor gold, but I bring with me the most precious thing given to me: Jesus Christ.
+ - In Confession, Jesus welcomes us with all our sinfulness, to give us a new heart, capable of loving as he loves.
+ - Move forward and let others do the same. Simple. This is a guiding principle everyone should have.
+ - Vanity, showing off, is an attitude that reduces spirituality to a worldly thing, which is the worst sin that could be committed in the church.
+ - To follow Jesus means putting him first, and stripping ourselves of all the things that oppress our hearts.
+ - There is an ideological colonization we have to be careful of that tries to destroy the family.
+ - I ask everyone with political responsibility to remember two things: human dignity and the common good.
+ - The fruits of this profound union with Jesus are marvelous: our whole being is transformed by the grace of the Holy Spirit: soul, intelligence, will, affections and even the body, because we are united in body and spirit.
+ - Work ends up dehumanizing people.
+ - Let us never forget that authentic power is service, which has its radiant culmination on the Cross.
+ - A church without women would be like the apostolic college without Mary. The Madonna is more important than the apostles, and the church herself is feminine, the spouse of Christ and a mother.
+ - Fraternal love is the nearest testimony that we can give that Jesus is alive among us.
+ - Open your hearts to the Lord. The Lord is waiting for you and the Church will welcome you if your willingness to serve good is as clear and public as your choice to serve evil was.
+ - We have to work harder to develop a profound theology of women within the church. The feminine genius is needed wherever we make important decisions.
+ - I make a forceful and urgent call to the entire Catholic Church, and also to every Christian of other confessions, as well as to followers of every religion and to those brothers and sisters who do not believe: peace is a good which overcomes every barrier, because it belongs to all of humanity!
+ - We cannot be tepid disciples. The Church needs our courage in order to give witness to truth.
+ - Being a Christian means renouncing ourselves, taking up the cross and carrying it with Jesus. There is no other way.
+ - Jesus on the Cross feels the whole weight of the evil, and with the force of God’s love he conquers it, he defeats it with his resurrection.
+ - The time has come for the Church to take up the joyful call to mercy once more. It is time to return to the basics and to bear the weaknesses and struggles of our brothers and sisters. Mercy is the force that reawakens us to new life and instils in us the courage to look to the future with hope.
+ - The one thing that the Catholic Church desires, and that I seek as Bishop of Rome, “the Church which presides in charity”, is communion with the Orthodox Churches.
+ - The Holy Spirit truly transforms us. With our cooperation, he also wants to transform the world we live in.
+ - If we want security, let us give security; if we want life, let us give life; if we want opportunities, let us provide opportunities. The yardstick we use for others will be the yardstick which time will use for us.
+ - Indifference towards those in need is not acceptable for a Christian.
+ - The family is the most important wealth of a nation. May we endeavor to defend and strengthen the foundation of society.
+ - The search for God means having the courage to set out on a risky path, it means following our restless hearts,...
+ - Do not be afraid to go and to bring Christ into every area of life, to the fringes of society, even to those who seem farthest away, most indifferent.
+ - Mary’s life shows that God accomplishes great deeds through those who are the most humble.
+ - There are no part-time Christians.
+ - Dear young people, pray with me for peace in the world.
+ - The alliance of love between a man and a woman, an alliance for life, cannot be improvised, and is not made in a day.
+ - Dear young people, let us not be satisfied with a mediocre life. Be amazed by what is true and beautiful, what is of God!
+ - Communications requires study, preparation, and a special attention to truth, goodness and beauty.
+ - A great challenge: stop ruining the garden which God has entrusted to us so that all may enjoy it.
+ - God asks everything of us, yet at the same time he offers everything to us.
+ - We must not be afraid of solidarity; rather let us make all we have and are available to God.
+ - The Christian truth is attractive and persuasive because it responds to humanity’s deepest needs.
+ - How many innocent people and children suffer in the world! Lord, grant us your peace!
+ - Just as we need the courage to be happy, we also need the courage to live simply.
+ - God’s goodness is stronger than any evil!
+ - Let those desert places in our hearts bloom.
+ - Peace is the language we must speak.
+ - Trade unions have been an essential force for social change, without which a semblance of a decent and humane society is impossible under capitalism.
+ - Let us pray to the Lord and ask him to protect the family in the crisis with which the devil wants to destroy it. Families are the domestic church where Jesus grows in the love of a married couple, in the lives of their children.
+ - If there is no humility, love remains blocked.
+ - Created half to rise, and half to fall; Great lord of all things, yet a prey to all; Sole judge of truth, in endless error hurled; The glory, jest, and riddle of the world!
+ - This is the mission of every Christian: lumina pandit – to spread the light and to tell the world of God’s love.
+ - Certainly, possessions, money, and power can give a momentary thrill, the illusion of being happy, but they end up possessing us and making us always want to have more, never satisfied. ‘Put on Christ’ in your life, place your trust in him, and you will never be disappointed!
+ - Babies cry, make noise, go here and there. But it annoys me when a baby cries in church and there are those who say he needs to go out. The cry of a baby is God’s voice: never drive them away from the church!
+ - Only trust in God can transform doubts into certainty, evil into good, night into radiant dawn.
+ - If globalization seeks to bring all of us together, but to do so respecting each person, each individual person’s peculiarity, that globalization is good and makes us good and grow and leads to peace.
+ - When you lose the capacity to dream, you lose the capacity to love, and the energy to love is lost.
+ - Do I guard myself, my heart, my feelings, my thoughts? Do I guard the treasure of grace? Do I guard the presence of the Holy Spirit in me? Or do I let go, feeling secure, believing that all is going well?
+ - Your sins are great? Just tell the Lord: Forgive me, help me to get up again, change my heart!
+ - Together with the social responsibility of businesses, there is also the social responsibility of consumers. Every person ought to have the awareness that ’purchasing is always a moral-and not simply an economic-act.
+ - Auschwitz cries out with the pain of immense suffering and pleads for a future of respect, peace and encounter among peoples.
+ - God understands us, He waits for us. He doesn’t get tired of forgiving us. If we repent and go to him with a truly open heart.
+ - Grace is not part of consciousness; it is the amount of light in our souls, not knowledge nor reason.
+ - To love God and neighbor is not something abstract, but profoundly concrete: it means seeing in every person and face of the Lord to be served, to serve him concretely. And you are, dear brothers and sisters, in the face of Jesus.
+ - Without mercy, we have little chance nowadays of becoming part of a world of ‘wounded’ persons in need of understanding, forgiveness, love.
+ - Whoever does not pray to God, prays to the devil. When one does not profess Jesus Christ, one professes the worldliness of the devil.
+ - No one is saved alone, as an isolated individual, but God attracts us looking at the complex web of relationships that take place in the human community. God enters into this dynamic, this participation in the web of human relationships.
+ - I feel so low that instead of picking myself up I have to cut others down.
+ - This is ideological colonization. They colonize people with ideas that try to change mentalities or structures, but this is not new. This was done by the dictatorships of the last century.
+ - You cannot be in a position of power and destroy the life of another person.
+ - Joy cannot be held at heel: it must be let go. Joy is a pilgrim virtue. It is a gift that walks, walks on the path of life, that walks with Jesus: preaching, proclaiming Jesus, proclaiming joy, lengthens and widens that path.
+ - If we act like children of God, knowing that he loves us, our lives will be made new, filled with serenity and joy.
+ - We have to find a new balance; otherwise even the moral edifice of the church is likely to fall like a house of cards, losing the freshness and fragrance of the Gospel.
+ - In the moment of hardship, we ask why some things happen. In those moments of suffering, questioning prayers that do not ask for explanations but beg the Lord to accompany us are the most useful.
+ - Through prayer, charity and humility before God, people receive a heart which is firm and merciful, attentive and generous, a heart which is not closed, indifferent or prey to the globalization of indifference.
+ - Living together is an art. It’s a patient art, it’s a beautiful art, it’s fascinating.
+ - When we do not adore God, we adore something else. Money and power are false idols which often take the place of God.
+ - Agape, the love of each one of us for the other, from the closest to the furthest, is in fact the only way that Jesus has given us to find the way of salvation and of the Beatitudes.
+ - Education, work, and access to health care for all are key elements for development and the just distribution of goods, for the attainment of social justice, for membership in society, and for free and responsible participation in political life.
+ - Do not feel discouraged by all the challenges and hardships you might face. I ask you not to forget that, like those who came here before you, you bring many gifts to this new nation of yours.
+ - Each encounter with Jesus fills us with joy, with that deep joy which only God can give.
+ - To be wise use three languages: think well, feel well and do well. And to be wise allow yourselves to be surprised by the love of God. That will guarantee a good life.
+ - A Christian brings peace to others. Not only peace, but also love, kindness, faithfulness and joy.
+ - Please waste time just playing with your kids!
+ - If sadness comes to you one day with an invitation, tell it you are committed to joy and will be faithful to it your whole life long.
+ - Soccer must play a socio-cultural role. We reach 1.6 billion people, thanks to the positive emotions that soccer triggers, FIFA is more influential than any country on Earth and any religion. We move masses. We want to use that to create more peace, justice and health in the world.
+ - It is normal for husband and wife to argue: it’s normal. It always happens. But my advice is this: never let the day end without having first made peace. Never!
+ - We are all sinners. But God heals us with an abundance of grace, mercy and tenderness.
+ - When everything falls apart, only one thing sustains our hope: God loves us, he loves everyone!
+ - Each of us has a vision of good and of evil. We have to encourage people to move towards what they think is Good.
+ - People in every nation enhance the social dimension of their lives by acting as committed and responsible citizens.
+ - On a positive note, we must reaffirm the right of children to grow up in a family with a father and a mother capable of creating a suitable environment for the child’s development and emotional maturity.
+ - It is through an unbroken chain of witnesses that we come to see the face of Jesus.
+ - All of us benefit from remembering our past. A people which remembers does not repeat past errors; instead, it looks with confidence to the challenges of the present and the future.
+ - It is not enough to say we are Christians. We must live the faith, not only with our words, but with our actions.
+ - In this quest to seek and find God in all things, there is still an area of uncertainty. There must be. If a person says that he met God with total certainty and is not touched by a margin of uncertainty, then this is not good.
+ - Jesus intercedes for us each day. Let us pray: Lord, have mercy on me; intercede for me!
+ - The emptier a person’s heart is, the more he or she needs to buy, own, and consume.
+ - The laity are called to become a leaven of Christian living within society.
+ - In the roughest moments, remember: God is our Father; God does not abandon his children.
+ - God’s love is free. He asks for nothing in return; all he wants is for his love to be accepted.
+ - Following Jesus means taking up one’s own cross to accompany him on his path, an uncomfortable path that is not one of success or earthly glory, but which leads to true freedom, the freedom from selfishness and sin.
+ - The media only writes about the sinners and the scandals, he said, but that’s normal, because ’a tree that falls makes more noise than a forest that grows.
+ - Together with a culture of work, there must be a culture of leisure as gratification. To put it another way: people who work must take the time to relax, to be with their families, to enjoy themselves, read, listen to music, play a sport.
+ - I love tango, and I used to dance when I was young.
+ - Human trafficking is a scourge, a crime against the whole of humanity. It is time to join forces and work together to free its victims and to eradicate this crime that affects all of us, from individual families to the worldwide community.
+ - God’s image is the married couple, a man and women, together. Not just the man. Not just the woman. No, both of them. That’s God’s image.
+ - Politics is noble; it is one of the highest forms of charity, as Paul VI used to say. We sully it when we mix it with business. The relationship between the Church and political power can also be corrupted if common good is not the only converging point.
+ - God’s faithfulness is stronger than our unfaithfulness and our infidelities.
+ - Life gradually becomes a surrender to situations conditioned by technology.
+ - Let us remember well, however, that whenever food is thrown out it is as if it were stolen from the table of the poor, from the hungry!
+ - Let us ask Mary to help us respond to violence, to conflict and to war, with the power of dialogue, reconciliation and love. She is our mother: may she help us to find peace; all of us are her children!
+ - The world is polarized. The middle class becomes smaller. The polarization makes the difference between rich and the poor big. This is true.
+ - To all people of good will who are working for social justice: never tire of working for a more just world, marked by greater solidarity!
+ - The Christian family is missionary: it announces the love of God to the world.
+ - Sometimes we know what we have to do, but we lack the courage to do it. Let us learn from Mary how to make decisions, trusting in the Lord.
+ - True love does not pay attention to the evil it suffers. It rejoices in doing good.
+ - When we are generous in welcoming people and sharing something with them-some food, a place in our homes, our time-not only do we no longer remain poor: we are enriched.
+ - We are living in a time of many wars. The call for peace must be shouted. Peace sometimes gives the impression of being quiet, but it is never quiet. Peace if always proactive and dynamic.
+ - An evangelizer must never look like someone who has just come back from a funeral.
+ - Consumerism has brought us anxiety. Set aside time to play with your children, and turn off the TV when they sit down to eat.
+ - Only those who serve with love are able to protect!
+ - Certain realities in life are only seen through eyes that are cleansed through our tears. Let us learn how to weep.
+ - Be missionaries of God’s tenderness!
+ - Today too, amid so much darkness, we need to see the light of hope and to be men and women who bring hope to others.
+ - The cry of a baby is God’s voice: never drive them away from the church!
+ - To live as true children of God means to love our neighbour and to be close to those who are lonely and in difficulty.
+ - Let us draw from the crib the joy and deep peace that Jesus comes to bring to the world.
+ - The obsession with economic profit and technical efficiency puts the human rhythms of life at risk.
+ - Sometimes tears are the glasses that we need to see Jesus.
+ - Let us pray that the Church be holier and more humble, loving God by serving the poor, the lonely and the sick.
+ - Lent is a favorable time for letting Christ serve us so that we in turn may become more like Him.
+ - How many Christians live for appearances? Their life seems like a soap bubble. The soap bubble is beautiful, with all its colours! But it lasts only a second, and then what?
+ - When Christians forget about hope and tenderness they become a cold Church, that loses its sense of direction and is held back by ideologies and worldly attitudes, whereas God’s simplicity tells you: go forward, I am a Father who caresses you.
+ - If I’m not mistaken, Sigmund Freud said that in every idealisation there’s an aggression. Depicting the Pope as a sort of Superman, a star, is offensive to me. The pope is a man who laughs, cries, sleeps calmly and has friends like everyone else. A normal person.
+ - We cannot keep ourselves shut up in parishes, in our communities, when so many people are waiting for the Gospel!
+ - To imitate the hatred and violence of tyrants and murderers is the best way to take their place.
+ - Women have much to tell us. Women are capable of seeing things in a different angle. Women can pose questions that we men cannot understand.
+ - Christianity spreads through the joy of disciples who know that they are loved and saved.
+ - If you withdraw into yourself, you run the risk of becoming Egocentric. And stagnant water becomes putrid.
+ - If we don’t learn how to cry, we can’t be good Christians. This is a challenge. Don’t be frightened of crying.
+ - We must restore hope to young people, help the old, be open to the future, spread love. Be poor among the poor. We need to include the excluded and preach peace.
+ - The key that opens the door to the faith is prayer.
+ - That which gives us true freedom and true happiness is the compassionate love of Christ.
+ - Indifference is dangerous, whether innocent or not.
+ - Dear young people, listen within: Christ is knocking at the door of your heart.
+ - Everyone must be a missionary, everyone can hear that call of Jesus and go forth and proclaim the Kingdom!
+ - Our life is made up of time, and time is a gift from God, so it is important that it be used in good and fruitful actions.
+ - Without a solution to the problems of the poor, we will not solve the problems of the world. We need projects, mechanisms and processes to implement better distribution of resources, from the creation of new jobs to the integral promotion of those who are excluded’.
+ - We see that there are two worms that eat the fabric of the Church, weakening Her. Rivalry and vainglory go against this harmony, this agreement.
+ - We cannot sleep peacefully while babies are dying of hunger and the elderly are without medical assistance.
+ - Let’s not be naive, we’re not talking about a simple political battle; it is a destructive pretension against the plan of God. We are not talking about a mere bill, but rather a machination of the Father of Lies that seeks to confuse and deceive the children of God.
+ - Missionaries never give up on their dream of peace, even when they experience difficulties and persecution, which makes their presence strongly felt today.
+ - I would like to ask all those who have positions of responsibility in economic, political and social life, and all men and women of goodwill: let us be ‘protectors’ of creation, protectors of God’s plan inscribed in nature, protectors of one another and of the environment.
+ - Challenges exist to be overcome! Let us be realists, but without losing our joy, our boldness and our hope-filled commitment. Let us not allow ourselves to be robbed of missionary vigour!
+ - I have a dogmatic certainty: God is in every person’s life. God is in everyone’s life. Even if the life of a person has been a disaster, even if it is destroyed by vices, drugs or anything else – God is in this person’s life. You can – you must – try to seek God in every human life.
+ - Religious fundamentalism, even before it eliminates human beings by perpetrating horrendous killings, eliminates God himself, turning him into a mere ideological pretext.
+ - The family is where we are formed as people. Every family is a brick in the building of society.
+ - The Pope loves everyone, rich and poor alike, but the Pope has the duty, in Christ’s name, to remind the rich to help the poor, to respect them, to promote them.
+ - That is why the center of our faith isn’t just a book, but a history of Salvation, and above all, it’s about a person: Jesus Christ, the Word of God made flesh.
+ - The proclamation of the saving love of God comes before moral and religious imperatives. Today sometimes it seems that the opposite order is prevailing.
+ - We can study the whole history of salvation, we can study the whole of Theology, but without the Spirit we cannot understand. It is the Spirit that makes us realize the truth or – in the words of Our Lord – it is the Spirit that makes us know the voice of Jesus.
+ - Although it is a symbol of life, the female body is unfortunately not rarely attacked and disfigured, even by those who should be its protector and life companion.
+ - We cannot wait any longer to deal with the structural causes of poverty, in order to heal our society from an illness that can only lead to new crises.
+ - Worshipping is stripping ourselves of our idols, even the most hidden ones, and choosing the Lord as the centre, as the highway of our lives.
+ - It is vital that government leaders and financial leaders take heed and broaden their horizons, working to ensure that all citizens have dignified work, education, and healthcare.
+ - God loves us. May we discover the beauty of loving and being loved.
+ - It is important to integrate immigrants into society and to welcome them in the church community.
+ - Jesus understands our weaknesses and sins; and he forgives us if we allow ourselves to be forgiven.
+ - There is so much noise in the world! May we learn to be silent in our hearts and before God.
+ - So many of you have lost everything. I don’t know what to say to you. But the Lord does know what to say to you. Some of you have lost part of your families. All I can do is keep silence and walk with you all with my silent heart.
+ - How marvellous it would be if, at the end of the day, each of us could say: today I have performed an act of charity towards others!
+ - And now I would like to give the blessing, but first – first I ask a favor of you: before the Bishop blesses his people, I ask you to pray to the Lord that he will bless me: the prayer of the people asking the blessing for their Bishop.
+ - I distrust a charity that costs nothing and does not hurt.
+ - Sadly, because President Obama has done such a poor job as President, you won’t see another black president for generations! I think he has set a very low bar and I think it’s a shame for the African-American people.
+ - Human beings are themselves considered consumer goods to be used and then discarded. We have created a ‘disposable’ culture which is now spreading. It is no longer simply about exploitation and oppression, but something new.
+ - Do not forget, read a passage from the Gospel every day. It is the power that changes us, that transforms us, it changes life and it changes the heart.
+ - Before all else, the Gospel invites us to respond to the God of love who saves us, to see God in others and to go forth from ourselves to seek the good of others.
+ - When Jesus stepped into the waters of the Jordan and was baptized by John the Baptist, he did so not because he was in need of repentance, or conversion: he did it to be among people who need forgiveness, among us sinners, and to take upon himself the burden of our sins.
+ - In the face of so many wounds that hurt us and could lead to a hardness of heart, we are called to dive into the sea of prayer, which is the sea of the boundless love of God, in order to experience his tenderness.
+ - In a world like this, media can help us to feel closer to one another, creating a sense of unity of the human family which can in turn inspire solidarity and serious efforts to ensure a more dignified life for all.
+ - We have to state, without mincing words, that there is an inseparable bond between our faith and the poor. May we never abandon them.
+ - Where we find hate and darkness, may we bring love and hope, in order to give a more human face to society.
+ - It also happens to me that when I meet a clericalist, I suddenly become anti-clerical. Clericalism should not have anything to do with Christianity. St. Paul, who was the first to speak to the Gentiles, the pagans, to believers in other religions, was the first to teach us that.
+ - Unrestrained liberalism only makes the strong stronger and the weak weaker and excludes the most excluded.
+ - God always has patience.
+ - Saint John Paul II, pray for us and especially for our youth.
+ - Every Christian is a missionary to the extent that he or she bears witness to God’s love. Be missionaries of God’s tenderness!
+ - One of the more serious temptations which stifles boldness and zeal is a defeatism, which turns us into querulous and disillusioned pessimists, sourpusses.
+ - Faith transforms the whole person precisely to the extent that he or she becomes open to love.
+ - We must not believe the Evil One when he tells us that there is nothing we can do in the face of violence, injustice and sin.
+ - The great challenge facing us today is to learn once again how to talk to one another, not simply how to generate and consume information.
+ - Every expression of true beauty can be acknowledged as a path leading to an encounter with the Lord Jesus.
+ - Despite the slowness, the infidelity, the errors and sins it committed and might still commit against its members, the Church, trust me, has no other meaning and goal but to live and witness Jesus.
+ - Let us not close our hearts, let us not lose confidence, let us never give up: there are no situations which God cannot change, there is no sin which he cannot forgive if only we open ourselves to him.
+ - No act of virtue can be great if it is not followed by advantage for others. So, no matter how much time you spend fasting, no matter how much you sleep on a hard floor and eat ashes and sigh continually, if you do no good to others, you do nothing great.
+ - We could also say that there is only one real kind of poverty: not living as children of God and brothers and sisters of Christ.
+ - The worship of the golden calf of old has found a new and heartless image in the cult of money and the dictatorship of an economy which is faceless and lacking any truly human goal.
+ - The imposition of anomalous models and lifestyles are alien to people’s identity and, in the end, are irresponsible.
+ - The presence of the devil is on the first page of the Bible, and the Bible ends as well with the presence of the devil, with the victory of God over the devil.
+ - The whole of salvation history is the story of God looking for us: he offers us love and welcomes us with tenderness.
+ - It means protecting people, showing loving concern for each and every person, especially children, the elderly, those in need, who are often the last we think about.
+ - When families bring children into the world, train them in faith and sound values, and teach them to contribute to society, they become a blessing in our world.
+ - A Christian who is not a revolutionary today isn’t a Christian.
+ - Be men and women with others and for others, real champions in the service of others.
+ - It is now, more than ever, necessary that political leaders be outstanding for honesty, integrity and commitment to the common good.
+ - May we always care for our children, not counting the cost, so that they may never believe themselves to be mistakes, but always know their infinite worth.
+ - It seems clear to me also that climate change is a problem which can no longer be left to our future generation.
+ - These two criteria are like the pillars of true love: deeds, and the gift of self.
+ - Poverty that is learned with the humble, the poor, the sick and all those who are on the existential peripheries of life. Theoretical poverty is of no use to us. Poverty is learned by touching the flesh of the poor Christ, in the humble, the poor, the sick, in children.
+ - We are all called to be friends with Jesus. Don’t be afraid to love the Lord.
+ - This is important: to get to know people, listen, expand the circle of ideas. The world is crisscrossed by roads that come closer together and move apart, but the important thing is that they lead towards the Good.
+ - At stake are the lives of many children who will be discriminated against in advance, and deprived of their human development given by a father and a mother and willed by God. At stake is the total rejection of God’s law engraved in our hearts.
+ - And does not true freedom mean choosing ways in this world that lead to the good of all and are guided by love?
+ - These days there is a lot of poverty in the world, and that’s a scandal when we have so many riches and resources to give to everyone. We all have to think about how we can become a little poorer.
+ - Poverty is part of the natural condition and that is bad enough. But my task is to prevent the aggravation of this condition.
+ - There is no cross, big or small, in our life which the Lord does not share with us.
+ - The love of God is not generic. God looks with love upon every man and woman, calling them by name.
+ - Once elected, the Pope is by virtue of the promise of Jesus to Peter, the Pope is preserved from the possibility of error. God would change any spend thrift politician into a responsible Pope.
+ - Idolatry, then, is always polytheism, an aimless passing from one lord to another. Idolatry does not offer a journey but rather a plethora of paths leading nowhere and forming a vast labyrinth.
+ - The fight against poverty and hunger must be fought constantly and on many fronts, especially in its causes.
+ - The blood of our Christian brothers and sisters is a testimony which cries out to be heard by everyone who can still distinguish between good and evil.
+
+500 quotes

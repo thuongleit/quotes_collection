@@ -1,0 +1,28 @@
+ - Christmas is a necessity. There has to be at least one day of the year to remind us that we’re here for something else besides ourselves.
+ - Tenacity is a pretty fair substitute for bravery, and the best form of tenacity I know is expressed in a Danish fur trapper’s principle: “The next mile is the only one a person really has to make.”
+ - The biggest big business in America is not steel, automobiles, or television. It is the manufacture, refinement and distribution of anxiety.
+ - Consultant: an ordinary guy more than 50 miles from home.
+ - The major cause of problems are solutions.
+ - Better to trust the man who is frequently in error than the one who is never in doubt.
+ - There are only two kinds of people in the world, suckers and people that can be had. Everyone can be had, but a sucker will always bet you $50 that he can’t be had. Maybe magicians are around to remind us we can all be had, so we don’t become suckers.
+ - Dealing with network executives is like being nibbled to death by ducks.
+ - It is only people with a sense of personal responsibility who can help others. It is only people with a sense of personal responsibility who can be helped in a lasting way.
+ - As long as we know in our hearts what Christmas ought to be, Christmas is.
+ - The five happiest people I have ever met all had this strange little quirk of referring to their jobs as a ‘calling.’
+ - No man was ever more than about nine meals away from crime or suicide.
+ - The bigger the information media, the less courage and freedom they follow. Bigness means weakness.
+ - Next to power without honor, the most dangerous thing in the world is power without humor.
+ - For children, Christmas is anticipation. For adults, Christmas is memory.
+ - I’m sort of a pessimist about tomorrow and an optimist about the day after tomorrow.
+ - The most distinguished hallmark of the American society is and always has been change.
+ - Men want power in order to do something. Boys want power in order to be something.
+ - People, if given the choice between anarchy and dictatorship, will always choose dictatorship because anarchy is the worst dictatorship of all.
+ - Brotherhood is not so wild a dream as those, who profit by postponing it, pretend.
+ - You can’t know who you are, as a nation or a people, unless you know where you’ve been.
+ - Words themselves become beings, sentences becomenatural vegetation to be guided by the gardener’s hands.
+ - With breathtaking rapidity, we are destroying all that was lovely to look at and turning America into a prison house of the spirit. The affluent society, with relentless single-minded energy, is turning our cities, most of suburbia and most of our roadways into the most affluent slum on earth.
+ - Saints are usually killed by their own people.
+ - Wisdom is essential in a president, the appearance of wisdom will do in a candidate.
+ - I have never quite grasped the worry about the power of the press. After all, it speaks with a thousand voices, in constant dissonance.
+
+26 quotes

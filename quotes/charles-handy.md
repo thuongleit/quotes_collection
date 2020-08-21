@@ -1,0 +1,37 @@
+ - Citizenship is the chance to make a difference to the place where you belong.
+ - Change is only another word for growth, another synonym for learning.
+ - A good team is a great place to be, exciting, stimulating, supportive, successful. A bad team is horrible, a sort of human prison.
+ - Instead of a national curriculum for education, what is really needed is an individual curriculum for every child.
+ - The future is not inevitable. We can influence it, if we know what we want it to be.
+ - Creativity is born of chaos, even if it is somewhat difficult to glimpse the possibilities in the midst of the confusion.
+ - We cannot wait for great visions from great people, for they are in short supply. It is up to us to light our own small fires in the darkness.
+ - We learn by reflecting on what has happened. The process seldom works in reverse, although most educational processes assume that it does. We hope that we can teach people how to live before they live, or how to manage before they manage.
+ - The best learning happens in real life with real problems and real people and not in classrooms.
+ - A leader shapes and shares a vision, which gives point to the work of others.
+ - The moment will arrive when you are comfortable with who you are, and what you are- bald or old or fat or poor, successful or struggling- when you don’t feel the need to apologize for anything or to deny anything. To be comfortable in your own skin is the beginning of strength.
+ - Forget land, buildings, or machines-the real source of wealth today is intelligence, applied intelligence. We talk glibly of “intellectual property” without taking on board what it really means. It isn’t just patent rights and brand names; it is the brains of the place.
+ - Creativity needs a bit of untidiness. Make everything too neat and there is no room for experiment.
+ - Villages are small and personal, and their inhabitants have names, characters, and personalities. What more appropriate concept on which to base our institutions of the future than the ancient social unit whose flexibility and strength substained human society through millenia?
+ - You have to stand outside the box to see how the box can be re-designed.
+ - We are all prisoners of our past. It is hard to think of things except in the way we have always thought of them. But that solves no problems and seldom changes anything.
+ - The companies that survive longest are the one’s that work out what they uniquely can give to the world-not just growth or money but their excellence, their respect for others, or their ability to make people happy. Some call those things a soul.
+ - In a knowledge economy, a good business is a community with a purpose, not a piece of property.
+ - We need to have faith in the future to make sense of the present.
+ - I believe that a lot of our striving after the symbols and levers of success is due to a basic insecurity, a need to prove ourselves. That done, grown up at last, we are free to stop pretending.
+ - Most of us prefer to walk backward into the future, a posture that may be uncomfortable but which at least allows us to keep on looking at familiar things as long as we can.
+ - Learning is experience understood in tranquility.
+ - Purpose, pattern, and people, the three P’s at the heart of life.
+ - Home is the first school for us all, a school with no fixed curriculum, no quality control, no examinations, no teacher training.
+ - If economic progress means that we become anonymous cogs in some great machine, then progress is an empty promise.
+ - The sobering thought is that individuals and societies are not, in the end, remembered for how they made their money, but for how they spent it.
+ - An economy that adds value through information, ideas, and intelligence-the Three I Economy-offers a way out of the apparent clash between material growth and environmental resources.
+ - If there is one general law of communication it is that we never communicate as effectively as we think we do.
+ - The market is a mechanism for sorting the efficient from the inefficient, it is not a substitute for responsibility.
+ - Talent comes with an individual name tag.
+ - There is as far as I know, no example in history, of any state voluntarily ceding power from the centre to its constituent parts.
+ - Passion is born of vague hopes.
+ - Profit has to be a means to other ends rather than an end in itself.
+ - The world by and large has to be reinvented.
+ - Ordinary citizens are so accepting of what is going on, grumbling when their material interests were affected, but seemingly accepting the spiritual poverty so characteristic of today.
+
+35 quotes

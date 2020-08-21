@@ -1,0 +1,36 @@
+ - Perhaps no place in any community is so totally democratic as the town library. The only entrance requirement is interest.
+ - Walk away from it until you’re stronger, All your problems will be there when you get back, but you’ll be better able to cope.
+ - The environment is where we all meet; where all have a mutual interest; it is the one thing all of us share.
+ - The way you overcome shyness is to become so wrapped up in something that you forget to be afraid.
+ - The clash of ideas is the sound of freedom.
+ - My heart found its home long ago in the beauty, mystery, order and disorder of the flowering earth. I wanted future generations to be able to savor what I had all my life.
+ - Where flowers bloom so does hope.
+ - Wildflowers are the stuff of my heart!
+ - While the spirit of neighborliness was important on the frontier because neighbors were so few, it is even more important now because our neighbors are so many.
+ - There is much the government can do and should do to improve the environment. But even more important is the individual who plants a tree or cleans a corner of neglect. For it is the individual who himself benefits, and also protects a heritage of beauty for his children and future generations.
+ - Flowers in the city are like lipstick on a woman-it just makes you look better to have a little color.
+ - Almost every person, from childhood, has been touched by the untamed beauty of wildflowers.
+ - A little stress and adventure is good for you, if nothing else, just to prove you are alive.
+ - Native plants give us a sense of where we are in this great land of ours. I want Texas to look like Texas and Vermont to look like Vermont.
+ - When I no longer thrill to the first snow of the season, I’ll know I’m growing old.
+ - The challenge we now face is to build on the record of the past, to continue accepting new responsibilities and seeking new opportunities to serve.
+ - Every politician should have been born an orphan and remain a bachelor.
+ - Any committee is only as good as the most knowledgeable, determined and vigorous person on it. There must be somebody who provides the flame.
+ - The coach has turned into a pumpkin and the mice have all run away.
+ - The first lady is, and always has been, an unpaid public servant elected by one person, her husband.
+ - It’s odd that you can get so anesthetized by your own pain or your own problem that you don’t quite fully share the hell of someone close to you.
+ - It is wonderful to be in on the creation of something, see it used, and then walk away and smile at it.
+ - How lucky we are to have such a treasure of memories.
+ - For me, books have been a life-long resource-to learning, laughter, solace, excitement, inspiration. At your library, the world awaits you, free for the asking.
+ - I was keenly aware that I had a unique opportunity, a front row seat, on an unfolding story and nobody else was going to see it from quite the vantage point that I saw it.
+ - Every living person and thing responds to beauty. We all thirst for it. We receive strength and renewal by seeing stirring and satisfying sites.
+ - Even though Christmas can be a lot of work, we all know the bustle is worth the bother.
+ - We had a delicious dinner of too much.
+ - I believe that one of the great problems for us as individuals is the depression and the tension resulting from existence in a world which is increasingly less pleasing to the eye.
+ - I have learned something about the job of being the President’s wife. She is not chosen by anyone except her husband and she really has no obligations except to him.
+ - I love Washington, but it is a self-important town.
+ - I’ve really tried to learn the art of clothes, because you don’t sell for what you’re worth unless you look good.
+ - Then there’s the joy of getting your desk clean, and knowing that all your letters are answered, and you can see the wood on it again.
+ - Science and time and necessity have propelled us, the United States, to be the general store of the world, dealers in everything. Most of all, merchants for a better way of life.
+
+34 quotes

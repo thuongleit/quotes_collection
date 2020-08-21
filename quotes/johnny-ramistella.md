@@ -1,0 +1,21 @@
+ - Beware of pretty faces that you find, a pretty face can hide an evil mind.
+ - My first really good guitar was a Gibson J-45.
+ - That rich guy you’ve been seeing, must have put you down. Welcome back baby, to the poor side of town.
+ - When I came back to California in the early ’60s I was hanging out with Jimmy Bowen, Phil Spector, and I wanted to be a record producer and work with other artists.
+ - I took care of myself. Basically I’m a vegetarian, I run every day, I exercise. I kind of control my living habits. I try to get a good night’s sleep every night, I don’t stay up all night and do all that stuff.
+ - The first amp I had back in the ’50s was a small Fender.
+ - I was rooming with Jimmy Bowen at the time, doing some gigs, then I went back to New Orleans and played there in ’62.
+ - I’d gone through periods where I didn’t work live performances for probably seven or eight months at a time.
+ - The web site and the Internet are a whole new ball game.
+ - I think after 1970 or so, after I sold Soul City, I took off for awhile and didn’t do too many gigs.
+ - About two months into the Whisky, I borrowed some money and rented a remote recording truck.
+ - One thing will lead to another and somebody will come up with a riff or a line or something we build from.
+ - I think my favorite album was probably Realization.
+ - Guys like Otis Blackwell and Bobby Darin, and all the guys who were writing songs for Elvis at the time, just hanging around, writing songs, talking about music.
+ - Even Woodstock turned out to be a disaster. Everybody was stuck in the mud and people got sick.
+ - But I always loved songs with great lyrics.
+ - What I really remember is that people camped out everywhere, and the fact everybody expected it might turn into a big nightmare with all sorts of hassles because back in those days everybody was smoking pot and taking acid.
+ - I’ve got a Fender Concert amp from the ’60s, the one Joe Osborn used. He played his bass through it.
+ - If you’re going to get into music, you’ve got to learn the 12-bar blues.
+
+19 quotes

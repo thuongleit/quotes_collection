@@ -1,0 +1,34 @@
+ - Obviously, In The Heat Of The Night was a landmark movie because the timing was perfect. It was in the middle of the Civil Rights Movement.
+ - Do what you’re told, and everything will be all right.
+ - I don’t make films to win prizes. I make films to make films.
+ - But I’ve never met a racist yet who thinks he’s a racist. That’s always the disturbing thing about when we begin to look at ourselves.
+ - We live in an age of publicity and hype. There’s something about success that dehumanizes you, whereas failure reminds you of who you really are.
+ - I try to find stories that I would think that everyone would find interesting, and just a good entertaining story, and then if I can find a story that has a raison d’etre behind it that I feel is important then that’s the best for me.
+ - We’re always on the side of the animal that’s being chased. We always seem to be on the side of the rabbit or the fox and not on the side of the hounds.
+ - I was very disappointed that Denzel didn’t win Best Actor for The Hurricane because I thought he deserved it.
+ - Look, I’m just a storyteller. When I make a film, I never want the film to become a vehicle of social propaganda.
+ - The album for Fiddler really took off. I think it was a combination of John Williams and the score. It was a very classy big album.
+ - It’s an entire industry focusing on young male viewers that want action and violence. They sell us something that isn’t valid. They’re selling films like a product.
+ - When the small independent film, which depends on its artistic appeal rather than wide commercial distribution by an MPAA member, is now denied access, the playing field becomes unfair and uneven.
+ - I don’t like to think that maybe I’m just getting old. I’m not too excited about watching a huge explosion. I’m more interested in people and characters.
+ - I think you get better as you get older.
+ - I’m in the mood for another Moonstruck experience, for another romantic comedy.
+ - Every generation deals with the breaking down of its tradition, and I think that they rediscovered the film.
+ - I work with a lot of movie stars.
+ - We also have a tendency to root for the fugitive. We’re always on the side of the animal being chased.
+ - In America there’s no rights for the artist, so whatever films I’ve made kind of belong to the studio.
+ - I still get a lot of material but I find that as one gets older you get more fussy. You know you’re going spend a year or a year and a half on this and you know there are only so many films in you so you get a little bit more selective.
+ - When you deal with a film that takes place in Europe, and you’re going to work in English, you’d better work with European actors.
+ - Michael Caine is a movie star, but he’s also a great actor. I can’t say that about every movie star. It’s the concentration he has.
+ - A lot of American actors I work with are in character all day long. You can’t talk to them. It’s Method and the whole thing.
+ - I think I’ve done pretty well. I’ve had about 46, or 47 nominations from my movies, and my films have won about 12 awards, so I don’t have any complaints.
+ - Everything Sholom Aleichem talks about in his plays and his short stories is about people, family, man’s relationship with his God, the breaking down of tradition.
+ - I mean they’re making remakes of my films and I’m not even dead yet! Why would you want to make a remake?
+ - But Madonna has a small amount of talent when it comes to movies.
+ - I think all Nazis didn’t see themselves as bad people. I’ve never met a racist yet who thought he was a racist. Or an anti-Semite who thought they were anti-Semitic.
+ - When you shoot a musical, you’re shooting to lipsynch tracks, so we had to figure out our choreography and work out what we wanted to do with each number before we did it.
+ - I was really excited to have the opportunity to make Fiddler.
+ - The eradication of anti-personnel mines around the world is one of the most important tasks facing the international community.
+ - I’m going to do an adaptation of the Italian film, Bread and Tulips. I really like that film.
+
+32 quotes

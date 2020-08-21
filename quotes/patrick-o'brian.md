@@ -1,0 +1,25 @@
+ - Jack, you’ve debauched my sloth.
+ - No man born of woman has ever understood spoken Portuguese.
+ - Wit is the unexpected copulation of ideas.
+ - There is a systematic flocci-nauci-nihili-pilification of all other aspects of existence that angers me.
+ - After all a book can be represented as a conversation with one’s demon.
+ - That would be locking the horse after the stable door is gone, a very foolish thing to do.
+ - I sew his ears on from time to time, sure.
+ - Compulsion is the death of friendship.
+ - I am opposed to authority, that egg of misery and oppression; I am opposed to it largely for what it does to those who exercise it.
+ - Never mind manoeuvres, always go at them.
+ - The Navy speaks in symbols and you may suit what meaning you choose to the words.
+ - For me the process works best with no interruptions, no breaks in the steady application, no letters to be answered, very little social life, no holidays; it is therefore a form of happy imprisonment.
+ - The sensation of falling into the past is not unlike that of coming home for the holidays.
+ - I am in favour of leaving people alone, however imperfect their polity may seem. It appears to me that you must not tell other nations how to set their house in order; nor must you compel them to be happy.
+ - We understood one another better before ever I opened my mouth.
+ - Other people’s marriages are a perpetual source of amazement.
+ - Although wealth may not bring happiness, the immediate prospect of it provides a wonderfully close imitation.
+ - When you’re taking a fence on a horse, you don’t think much; your body does all the thinking, and you’re over or you’re not over. It’s much the same when you are doing a tricky thing with a pen. There are times when I’m writing very, very fast.
+ - For a moment Jack felt the strongest inclination to snatch up his little gilt chair and beat the white-faced man down with it...
+ - We are always the most violent against those whom we have injured.
+ - I know of few men over 50 that seem to me entirely human, virtually none who has long exercised authority.
+ - Stephen had spared no expense in making himself more unhappy, his own position as a rejected lover clearer.
+ - I have often observed that extremely violent noise and activity go with good-fellowship and heightened spirits.
+
+23 quotes

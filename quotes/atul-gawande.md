@@ -1,0 +1,52 @@
+ - Better is possible. It does not take genius. It takes diligence. It takes moral clarity. It takes ingenuity. And above all, it takes a willingness to try.
+ - Coaching done well may be the most effective intervention designed for human performance.
+ - You may not control life’s circumstances, but getting to be the author of your life means getting to control what you do with them.
+ - And in stories, endings matter.
+ - No matter what measures are taken, doctors will sometimes falter, and it isn’t reasonable to ask that we achieve perfection. What is reasonable is to ask that we never cease to aim for it.
+ - Human interaction is the key force in overcoming resistance and speeding change.
+ - Practice is funny that way. For days and days, you make out only the fragments of what to do. And then one day you’ve got the thing whole. Conscious learning becomes unconscious knowledge, and you cannot say precisely how.
+ - We always hope for the easy fix: the one simple change that will erase a problem in a stroke. But few things in life work this way. Instead, success requires making a hundred small steps go right – one after the other, no slipups, no goofs, everyone pitching in.
+ - The evidence is that people who enter hospice don’t have shorter lives. In many cases they are longer.
+ - Life is choices, and they are relentless. No sooner have you made one choice than another is upon you.
+ - You know, 97 percent of the time, if you come into a hospital, everything goes well. But three percent of the time, we have major complications.
+ - No one teaches you how to think about money in medical school or residency. Yet, from the moment you start practicing, you must think about it. You must consider what is covered for a patient and what is not.
+ - Writing lets you step back and think through a problem. Even the angriest rant forces the writer to achieve a degree of thoughtfulness.
+ - Are doctors who make mistakes villains? No, because then we all are.
+ - Man is fallible, but maybe men are less so.
+ - Making systems work is the great task of my generation of physicians and scientists. But I would go further and say that making systems work – whether in healthcare, education, climate change, making a pathway out of poverty – is the great task of our generation as a whole.
+ - We yearn for frictionless, technological solutions. But people talking to people is still the way norms and standards change.
+ - This was not guilt: guilt is what you feel when you have done something wrong. What I felt was shame: I was what was wrong.
+ - I think the extreme complexity of medicine has become more than an individual clinician can handle. But not more than teams of clinicians can handle.
+ - Courage is strength in the face of knowledge of what is to be feared or hoped. Wisdom is prudent strength.
+ - Culture matters. Of course, if physicians are rewarded or penalized for their service and results, the culture will change. But the key values we doctors are being pressed to embrace are humility, teamwork, and discipline.
+ - When we lived in a society where we had large families that lived together, especially in agricultural societies like my grandfather and father grew up in, the result is you always had family around to take care of you.
+ - At times, in medicine, you feel you are inside a colossal and impossibly complex machine whose gears will turn for you only according to their own arbitrary rhythm. The notion that human caring, the effort to do better for people, might make a difference can seem hopelessly naive. But it isn’t.
+ - This is the reality of intensive care: at any point, we are as apt to harm as we are to heal.
+ - Expertise is the mantra of modern medicine.
+ - These are folks that keep people out of hospitals, out of emergency rooms, out of nursing homes. And not only that, they help people achieve more fulfilling lives.
+ - Arriving at an acceptance of one’s mortality is a process, not an epiphany.
+ - We’ve created a multitrillion-dollar edifice for dispensing the medical equivalent of lottery tickets – and have only the rudiments of a system to prepare patients for the near certainty that those tickets will not win. Hope is not a plan, but hope is our plan.
+ - The definition of what it means to be dying has changed radically. We are able to extend people’s lives considerably, including sometimes, good days.
+ - Don’t let yourself be. Find something new to try, something to change. Count how often it succeeds and how often it doesn’t. Write about it. Ask a patient or a colleague what they think about it. See if you can keep the conversation going.
+ - People who reach certain levels of frailty, more important than getting their mammogram, more important than getting their blood pressure tweaked, they’re at high risk of falling. If they fall and break their hip, they not only die sooner, they die miserably.
+ - What is the alternative to understanding the complexity of the world?
+ - I chose surgery because I thought that perhaps this would make me more like the kind of person I wanted to be.
+ - We Have Medicalized Aging, and That Experiment Is Failing Us.
+ - Our reluctance to honestly examine the experience of aging and dying has increased the harm we inflict on people and denied them the basic comforts they most need.
+ - When I do an operation, it’s half a dozen people. When it goes beautifully, it’s like a symphony, with everybody playing their part.
+ - In one study, old people assigned to a geriatrics team stayed independent for far longer, and were admitted to the hospital less.
+ - If the conversation people think is coming is the ‘death panel’ conversation, that’s a total failure.
+ - If I became just a brain in a jar – as long as I can communicate back and forth with people, that would be okay with me.
+ - In every industrialized nation, the movement to reform health care has begun with stories about cruelty.
+ - Outsiders tend to be the first to recognize the inadequacies of our social institutions. But, precisely because they are outsiders, they are usually in a poor position to fix them.
+ - I learned about a lot of things in medical school, but mortality wasn’t one of them.
+ - Having great components is not enough, and yet we’ve been obsessed in medicine with components. We want the best drugs, the best technologies, the best specialists, but we don’t think too much about how it all comes together.
+ - You can’t make a recipe for something as complicated as surgery. Instead, you can make a recipe for how to have a team that’s prepared for the unexpected.
+ - A failure often does not have to be a failure at all. However, you have to be ready for it-will you admit when things go wrong? Will you take steps to set them right?-because the difference between triumph and defeat, you’ll find, isn’t about willingness to take risks. It’s about mastery of rescue.
+ - I said there are at least two kinds of satisfaction, however, and the other has nothing to do with skill. It comes from human connection. It comes from making others happy, understanding them, loving them.
+ - Our ideas of what our priorities are shift as we come face-to-face with some of the struggles.
+ - If we took away the ability to put defibrillators in people in their last years, people would be shouting in the streets.
+ - What about regular professionals, who just want to do what they do as well as they can?
+ - As economists have often pointed out, we pay doctors for quantity, not quality. As they point out less often, we also pay them as individuals, rather than as members of a team working together for their patients. Both practices have made for serious problems.
+
+50 quotes

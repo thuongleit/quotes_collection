@@ -1,0 +1,24 @@
+ - I like stepping out of my comfort zone.
+ - I came from Canada, where it’s freezing cold for seven months out of the year.
+ - I’m just basically a workaholic.
+ - I went to McGill University, but I didn’t graduate. They won’t graduate me because I didn’t have a degree in any one thing. I studied everything and they were like, “You studied too many things, so we can’t give you a degree.”
+ - I’m always a little skeptical when I hear people promoting a film and they say it has something for everyone.
+ - I’m a workaholic because I love to play, if that makes sense.
+ - There is no substitute for a real location when you’re trying to shoot the jungle. You can’t just go anywhere. You’ve got to go where it’s lush and green and there really is those mountain ranges, the trees and the ocean.
+ - Hawaii is absolutely beautiful.
+ - My hair walks into a room before I do.
+ - Dating and getting attention from boys was something that came later to me.
+ - I drink tons of water. It always sounds like the lamest thing, but there’s a reason you keep hearing this over and over again. It really works.
+ - I’m interested in everything about what it means to be a human being, so every role is an excuse to delve into a different way of life, a different socio-economic background, and a different tragic or comedic circumstance.
+ - I’m the one with the wicked curve ball.
+ - In Hawaii, they’re happy to hear that you’re filming a show. They love it that people actually come and make use of their beautiful landscapes.
+ - I go to various boot camps 4-5 times a week, and I try to get some Pilates in there to thin and tone.
+ - A lot of our lives are about being polite.
+ - I’m always looking to do things that are really different from each other.
+ - The idea of somebody being a fan of something I can totally understand. The idea of being followed around by cameras or people taking pictures of you eating a hamburger, I kind of have trouble even imaging it.
+ - I’m obsessed with being human.
+ - Most actors will tell you that it takes a while to figure out what you want to be because we just want to do everything we see on TV and don’t know that ‘actor’ is a job yet.
+ - My awkward stage extended well into high school.
+ - I can’t play a character that I am judging.
+
+22 quotes

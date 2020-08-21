@@ -1,0 +1,32 @@
+ - Fear tolerated is faith contaminated.
+ - God loves you just as much as He loves Jesus!
+ - You can’t walk in faith and fear at the same time.
+ - Don’t try and fit your faith into your busy schedule, build your schedule around your faith.
+ - Speak God’s words over your circumstances today. Speak His words in faith and watch Him move!
+ - The Word tells us that God meets our needs according to His riches in glory by Christ Jesus. Begin to talk and act as though it is true!
+ - Everything you do and every word you say can become a ministering seed. You can be a blessing to everyone with whom you come in contact.
+ - Whatever God’s Word says I am – that’s what I am! Whatever His Word says I can do – with His help I can do! Whatever His Word says He will do – He will do!
+ - Satan conquered Jesus on the Cross and took His spirit to the dark regions of hell.
+ - Never base your faith on your feelings. Base it on God’s Word.
+ - God will dare to do the impossible in your life if you dare to step across the faith line.
+ - By getting the Word deep into your spirit and speaking it boldly out your mouth, you release spiritual power to change things in the natural circumstances.
+ - God put laws into being – we put them into motion.
+ - When you decide to walk by faith, you don’t get rid of trials. You learn to overcome them.
+ - The seeds you are harvesting today were planted by the words of your mouth yesterday.
+ - Sometimes you can tell what something is by what is isn’t.
+ - Dream big, talk big, and turn your faith loose!
+ - On the cross, Jesus won the right for believers to be born again back into the god-class. Adam was created, not subordinate to God, but as a god; he lost it, and in Christ we are taken back to the god-class.
+ - Jesus existed only as an image in the heart of God, until such time as the prophets of the Old Testament could positively confess Jesus into existence through their constant prophecies.
+ - Be BLESSED-spirit, soul, body and financially.
+ - Pray to yourself, because I’m in your self and you’re in My self. We are one Spirit, saith the Lord.
+ - God’s reason for creating Adam was the desire to reproduce himself.
+ - Words are what created our world. Words are what keep it going.
+ - Don’t answer to sick, or broke, or worn out any longer.
+ - Money is a bad god. People are a bad god. They don’t have the power to do what God can do.
+ - You don’t have a god in you, you are one.
+ - Faith was the raw material substance that the Spirit of God used to form the universe.
+ - Now Peter said by exceeding great and precious promises you become partakers of the divine class. All right, are we gods? We are a class of gods!
+ - Heaven has a north and a south and an east and a west. Consequently, it must be a planet.
+ - It’s a power that I can’t explain. As it flows and it grows and it shapes my faith. There’ve been hundreds of moments I can’t deny. When it brushe against the fire or dwelt in the Fire of God.
+
+30 quotes

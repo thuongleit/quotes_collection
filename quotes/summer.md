@@ -1,0 +1,42 @@
+ - The harder I work, the luckier I get. ~~Samuel Goldwyn
+ - Let life be beautiful like summer flowers and death like autumn leaves. ~~Rabindranath Tagore
+ - I dwell in a lonely house I know That vanished many a summer ago. ~~Robert Frost
+ - In the midst of winter, I found there was, within me, an invincible summer. And that makes me happy. For it says that no matter how hard the world pushes against me, within me, there’s something stronger – something better, pushing right back. ~~Albert Camus
+ - I almost wish we were butterflies and liv’d but three summer days – three such days with you I could fill with more delight than fifty common years could ever contain. ~~John Keats
+ - For they are the knights of summer, and winter is coming. ~~George R.R. Martin
+ - We cannot stop the winter or the summer from coming. We cannot stop the spring or the fall or make them other than they are. They are gifts from the universe that we cannot refuse. But we can choose what we will contribute to life when each arrives. ~~Gary Zukav
+ - The harshest winter finds an invincible summer in us. ~~Albert Camus
+ - What good is the warmth of summer, without the cold of winter to give it sweetness? You only truly, deeply appreciate and are grateful for something when you compare and contrast it to something worse. ~~John Steinbeck
+ - My grade point average went from a 2.2 to a 4.0 over the summer. I wanted to get straight A’s. I decided to get straight A’s. I didn’t want people to think I was dumb. And when you get straight A’s once, its easier. ~~Bill Gates
+ - I hear the birds on the summer breeze, I drive fast I am alone in the night Been trying hard not to get into trouble, but I I’ve got a war in my mind So, I just ride. ~~Lana Del Rey
+ - August rain: the best of the summer gone, and the new fall not yet born. The odd uneven time. ~~Sylvia Plath
+ - In a Wonderland they lie, Dreaming as the days go by, Dreaming as the summers die: Ever drifting down the stream- Lingering in the golden gleam- Life, what is it but a dream? ~~Lewis Carroll
+ - In the midst of winter, I find within me the invisible summer... ~~Leo Tolstoy
+ - You can hide beneath the covers and study your pain, make crosses from your lovers, throw roses in the rain. Waste your summer praying in vain, for a savior to rise from these streets. ~~Bruce Springsteen
+ - My old grandmother always used to say, Summer friends will melt away like summer snows, but winter friends are friends forever. ~~George R.R. Martin
+ - The common people pray for rain, healthy children and a summer that never ends. It is no matter to them if the high lords play their game of thrones, so long as they are left in peace. ~~George R.R. Martin
+ - These are the times that try men’s souls. The summer soldier and the sunshine patriot will, in the crisis, shrink from the service of his country; but he that stands it NOW, deserves the love and thanks of man and woman. ~~Thomas Paine
+ - If you want to imagine the future, imagine a boy and his dog and his friends. And a summer that never ends. ~~Neil Gaiman
+ - Warm summer sun, shine kindly here. Warm southern wind, blow softly here. Green sod above, lie light, lie light. Good night, dear Heart, Good night, good night. ~~Mark Twain
+ - You cannot speak of ocean to a well-frog, the creature of a narrower sphere. You cannot speak of ice to a summer insect, the creature of a season. ~~Zhuangzi
+ - In early June the world of leaf and blade and flowers explodes, and every sunset is different. ~~John Steinbeck
+ - Being an artist means, not reckoning and counting, but ripening like the tree which does not force its sap and stands confidence in the storms of spring without fear that after them may come no summer. ~~Rainer Maria Rilke
+ - Wander a whole summer if you can. Time will not be taken from the sum of life. Instead of shortening, it will definitely lengthen it and make you truly immortal. ~~John Muir
+ - If you saw a heat wave, would you wave back? ~~Steven Wright
+ - By the shore of Gitche Gumee, By the shining Big-Sea-Water, At the doorway of his wigwam, In the pleasant Summer morning, Hiawatha stood and waited. ~~Henry Wadsworth Longfellow
+ - When you have learned how to decide with God all decisions become as easy and as right as breathing. There is no effort and you will be led as gently as if you were being carried down a quiet path in summer. ~~Helen Schucman
+ - The summer night was starless and stirless, with distant spasms of silent lightning. ~~Vladimir Nabokov
+ - He who marvels at the beauty of the world in summer will find equal cause for wonder and admiration in winter. ~~John Burroughs
+ - Because one day I’ll leave you a phantom to lead you in the summer to join the black parade. ~~Gerard Way
+ - But strictly held by none, is loosely bound By countless silken ties of love and thought To everything on earth the compass round, And only by one’s going slightly taut In the capriciousness of summer air Is of the slightest bondage made aware. ~~Robert Frost
+ - The sun does not shine for a few trees and flowers, but for the wide world’s joy. ~~Henry Ward Beecher
+ - O beautiful, awful summer day, what hast thou given, what taken away? ~~Henry Wadsworth Longfellow
+ - Through buried paths, where sleepy twilight dreams The summer time away. ~~John Keats
+ - The world is mud-luscious and puddle-wonderful. ~~E.E. Cummings
+ - If you spend your whole life waiting for the storm, you’ll never enjoy the sunshine. ~~Morris L. West
+ - No spring nor summer beauty hath such grace as I have seen in one autumnal face. ~~John Donne
+ - People don’t notice whether it’s winter or summer when they’re happy. ~~Anton Chekhov
+ - Nothing is a waste of time if you use the experience wisely. ~~Auguste Rodin
+ - Look deep into nature, and then you will understand everything better. ~~Albert Einstein
+
+40 quotes

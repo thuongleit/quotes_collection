@@ -1,0 +1,42 @@
+ - All men’s miseries derive from not being able to sit in a quiet room alone. ~~Blaise Pascal
+ - Life is nothing if you’re not obsessed. ~~John Waters
+ - I tell you, we are here on Earth to fart around, and don’t let anybody tell you different. ~~Kurt Vonnegut
+ - But I don’t want comfort. I want God, I want poetry, I want real danger, I want freedom, I want goodness. I want sin. ~~Aldous Huxley
+ - Every man has inside himself a parasitic being who is acting not at all to his advantage. ~~William S. Burroughs
+ - Sometimes skulls are thick. Sometimes hearts are vacant. Sometimes words don’t work. ~~James Frey
+ - Speak softly, but carry a big can of paint. ~~Banksy
+ - Typography is what language looks like. ~~Ellen Lupton
+ - That’s the thing about pain, it demands to be felt. ~~John Green
+ - The thing about hipsters is that they take very seriously trying to make themselves look like they don’t take themselves seriously. ~~Chris Hardwick
+ - The world may be broken, but hope is not crazy. ~~John Green
+ - The visionary is the only realist. ~~Federico Fellini
+ - I don’t know the difference between a hippie and a hipster but, it’s fun to watch either one of them get beat up. ~~Norm MacDonald
+ - Civilization begins with distillation. ~~William Faulkner
+ - So I let her go, too. And I’m sorry. ~~John Green
+ - Suffering is universal. ~~John Green
+ - To whom it may concern: It is springtime. It is late afternoon. ~~Kurt Vonnegut
+ - Being a philosopher, I have a problem for every solution. ~~Robert Zend
+ - I try to live life so that I can live with myself. ~~John Green
+ - All those paper people living in their paper houses, burning the future to stay warm. ~~John Green
+ - Love is just a shout in the void. ~~John Green
+ - This star won’t go out. And it won’t. we won’t let it. ~~John Green
+ - People believed in an afterlife because they couldn’t bear not to. ~~John Green
+ - We think that we are invincible because we are. ~~John Green
+ - If I ever end up being the kind of person who has one kid and seven bedrooms. Do me a favor and shoot me. ~~John Green
+ - You may be smart, but I’ve been smart longer. ~~John Green
+ - The labyrinth blows, but I choose it. ~~John Green
+ - Life has become the future. ~~John Green
+ - To be human is to catch the falling person. ~~John Green
+ - I am so clever that sometimes I don’t understand a single word of what I am saying. ~~Oscar Wilde
+ - Here we are, trapped in the amber of the moment. There is no why. ~~Kurt Vonnegut
+ - Boring damned people. All over the earth. Propagating more boring damned people. What a horror show. The earth swarmed with them. ~~Charles Bukowski
+ - They were like the man with the dungeon stone and gloom, rising from the underground, the sordid hipsters of America, a new beat generation that I was slowly joining. ~~Jack Kerouac
+ - She was not an adventure, she was not a fine and precious thing. She was a girl. ~~John Green
+ - I leaned in toward her, suddenly overwhelmed with the feeling that we must kiss. ~~John Green
+ - He was one of the numerous and varied legion of dullards, of half-animated abortions, conceited, half-educated coxcombs, who attach themselves to the idea most in fashion only to vulgarize it and who caricature every cause they serve, however sincerely. ~~Fyodor Dostoyevsky
+ - I liked Augustus Waters. I really, really really liked him. I liked the way his story ended with someone else. I liked his voice. I liked that he took existentially-fraught free throws. ~~John Green
+ - When I see hipsters wearing Mao hats or Lenin T-shirts, I’m grateful. It’s like truth-in-labeling. For now I know you are: Woefully ignorant, morally stunted, purposively asinine, or all three. ~~Jonah Goldberg
+ - I sued American Apparel because they calculatingly took my name, my likeness and image and used them publicly to promote their business. ~~Woody Allen
+ - Every second of your definitionally temporary consciousness, you are choosing how you spend something that will not last forever. ~~John Green
+
+40 quotes

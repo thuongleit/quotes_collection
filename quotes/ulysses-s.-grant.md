@@ -1,0 +1,86 @@
+ - In every battle there comes a time when both sides consider themselves beaten, then he who continues the attack wins.
+ - I will raid the arsenal and start a war to end slavery.
+ - There are but two parties now: traitors and patriots. And I want hereafter to be ranked with the latter and, I trust, the stronger party.
+ - The friend in my adversity I shall always cherish most. I can better trust those who helped to relieve the gloom of my dark hours than those who are so ready to enjoy with me the sunshine of my prosperity.
+ - My failures have been errors in judgment, not of intent.
+ - Hold fast to the Bible as the sheet-anchor of your liberties; write its precepts in your hearts, and practice them in your lives.
+ - As soon as slavery fired upon the flag it was felt, we all felt, even those who did not object to slaves, that slavery must be destroyed. We felt that it was a stain to the Union that men should be bought and sold like cattle.
+ - Wars produce many stories of fiction, some of which are told until they are believed to be true.
+ - It is men who wait to be selected, and not those who seek, from whom we may expect the most efficient service.
+ - The art of war is simple enough. Find out where your enemy is. Get at him as soon as you can. Strike him as hard as you can, and keep moving on.
+ - God gave us Lincoln and Liberty, let us fight for both.
+ - The one thing I never want to see again is a military parade. When I resigned from the army and went to a farm I was happy. When the rebellion came, I returned to the service because it was a duty. I had no thought of rank; all I did was try and make.
+ - I leave comparisons to history, claiming only that I have acted in every instance from a conscientious desire to do what was right, constitutional, within the law, and for the very best interests of the whole people. Failures have been errors of judgment, not of intent.
+ - I have never advocated war except as a means of peace.
+ - The friend in my adversity I shall always cherish most.
+ - If men make war in slavish obedience to rules, they will fail.
+ - The fact is I think I am a verb instead of a personal pronoun. A verb is anything that signifies to be; to do; or to suffer. I signify all three.
+ - I know no method to secure the repeal of bad or obnoxious laws so effective as their stringent execution.
+ - The right of revolution is an inherent one. When people are oppressed by their government, it is a natural right they enjoy to relieve themselves of oppression, if they are strong enough, whether by withdrawal from it, or by overthrowing it and substituting a government more acceptable.
+ - The distant rear of an army engaged in battle is not the best place from which to judge correctly what is going on in front.
+ - Two commanders on the same field are always one too many.
+ - You can violate the law. The banks may violate the law and be sustained in doing so. But the President of the United States cannot violate the law.
+ - Retreat? NO. I propose to attach at daylight and whip them.
+ - It is preposterous to suppose that the people of one generation can lay down the best and only rules of government for all who are to come after them, and under unforeseen contingencies.
+ - Wherever the enemy goes let our troops go also.
+ - There are but few important events in the affairs of men brought about by their own choice.
+ - I appreciate the fact, and am proud of it, that the attentions I am receiving are intended more for our country than for me personally.
+ - I suppose this work is part of the devil that is in us all.
+ - I propose to fight it out on this line if it takes all summer.
+ - Our great modern Republic. May those who seek the blessings of its institutions and the protection of its flag remember the obligations they impose.
+ - When news of the surrender first reached our lines our men commenced firing a salute of a hundred guns in honor of the victory. I at once sent word, however, to have it stopped. The Confederates were now our prisoners, and we did not want to exult over their downfall.
+ - Although a soldier by profession, I have never felt any sort of fondness for war, and I have never advocated it, except as a means of peace.
+ - If we are to have another contest in the near future of our national existence, I predict that the dividing line will not be Mason and Dixon’s but between patriotism and intelligence on the one side, and superstition, ambition and ignorance on the other.
+ - I felt like anything rather than rejoicing at the downfall of a foe who had fought so long and valiantly, and had suffered so much for a cause, though that cause was, I believe, one of the worst for which a people ever fought, and one for which there was the least excuse.
+ - Quit thinking about what Bobby Lee’s gonna do to us and start thinking about what we’re going to do to him.
+ - Cheap cigars come in handy; they stifle the odor of cheap politicians.
+ - Lee’s army will be your objective point. Wherever Lee goes, there you will go also.
+ - The most confident critics are generally those who know the least about the matter criticized.
+ - Labor disgraces no man; unfortunately, you occasionally find men who disgrace labor.
+ - If you see the President, tell him from me that whatever happens there will be no turning back.
+ - Hold fast to the Bible. To the influence of this Book we are indebted for all the progress made in true civilization and to this we must look as our guide in the future.
+ - I will not move my army without onions.
+ - Let no guilty man escape if it can be avoided. Be specially vigilant-or instruct those engaged in the prosecution of fraud to be-against all who insinuate that they have high influence to protect-or to protect them. No personal consideration should stand in the way of performing a public duty.
+ - Venice would be a fine city if it were only drained.
+ - The Southern rebellion was largely the outgrowth of the Mexican war. Nations, like individuals, are punished for their transgressions. We got our punishment in the most sanguinary and expensive war of modern times.
+ - War is progressive because all instruments of war are progressive.
+ - Leave the matter of religion to the family altar, the church, and the private school, supported entirely by private contributions. Keep the church and state forever separate.
+ - I never knew what to do with a paper except to put it in a side pocket or pass it to a clerk who understood it better than I did.
+ - It was my fortune, or misfortune, to be called to the office of Chief Executive without any previous political training.
+ - Ah, you know my weaknesses – my children and my horses.
+ - But my later experience has taught me two lessons: first, that things are seen plainer after the events have occurred; second, that the most confident critics are generally those who know the least about the matter criticised.
+ - Whatever there is of greatness in the United States, or indeed in any other country, is due to labor. The laborer is the author of all greatness and wealth. Without labor there would be no government, no leading class, and nothing to preserve.
+ - My family is American, and has been for generations, in all its branches, direct and collateral.
+ - England and the United States are natural allies, and should be the best of friends.
+ - I desire the good-will of all, whether hitherto my friends or not.
+ - It will be all right if it turns out all right.
+ - Really, Mr. Lincoln, I have had enough of this show business.
+ - The colored man has been accustomed all his life to lean on the white man, and if a good officer is placed over him, he will learn readily and make a good soldier.
+ - The long-continued and useful public service and eminent purity of character of the deceased ex-President will be remembered.
+ - The will of the people is the best law.
+ - All secret oath-bound political parties are dangerous to any nation, no matter how pure or how patriotic the motives and principles which first bring them together.
+ - I have made it a rule of my life to trust a man long after other people gave him up, but I don’t see how I can ever trust any human being again.
+ - No other terms than unconditional and immediate surrender. I propose to move immediately upon your works.
+ - The theory of government changes with general progress.
+ - Nations, like individuals, are punished for their transgressions.
+ - Everyone has his superstitions. One of mine has always been when I started to go anywhere, accomplished.
+ - In politics I am growing indifferent – I would like it, if I could now return to my planting and books at home.
+ - The cause of the great War of the Rebellion against the United Status will have to be attributed to slavery.
+ - I believe that our Great Maker is preparing the world, in His own good time, to become one nation, speaking one language, and when armies and navies will be no longer required.
+ - The United States, knowing no distinction of her own citizens on account of religion or nationality, naturally believes in a civilization the world over which will secure the same universal laws.
+ - There is nothing more I should do to it now, and therefore I am not likely to be more ready to go than at this moment.
+ - I only knew what was in my mind, and I wished to express it clearly.
+ - I never wanted to get out of a place as much as I did to get out of the presidency.
+ - No theory of my own will ever stand in the way of my executing, in good faith, any order I may receive from those in authority over me.
+ - There never was a time when, in my opinion, some way could not be found to prevent the drawing of the sword.
+ - I’m afraid I’m elected.
+ - I know only two tunes: one of them is ‘Yankee Doodle,’ and the other isn’t.
+ - I would suggest the taxation of all property equally, whether church or corporation, exempting only the last resting place of the dead and possibly, with proper restrictions, church edifices.
+ - I feel that we are on the eve of a new era, when there is to be great harmony between the Federal and Confederate. I cannot stay to be a living witness to the correctness of this prophecy; but I feel it within me that it is to be so.
+ - Declare church and state forever separate and distinct; but each free within their proper spheres.
+ - It does look like a very good exercise. But what is the little white ball for?
+ - Jesse has a new dog. You may have noticed that his former pets have been peculiarly unfortunate. When this dog dies every employee in the White House will be at once discharged.
+ - I never was an Abolitionest, not even what could be called anti slavery, but I try to judge farely and honestly and it become patent to my mind early in the rebellion that the North and South could never live at peace with each other except as one nation, and that without Slavery.
+ - There are many men who would have done better than I did under the circumstances in which I found myself. If I had never held command, if I had fallen, there were 10,000 behind who would have followed the contest to the end and never surrendered the Union.
+
+84 quotes

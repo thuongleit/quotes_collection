@@ -1,0 +1,28 @@
+ - The best people to have power are the ones who don’t want it.
+ - You know that thing when you break up with someone and you’re walking around the town where you both live and you’re just really hoping to see them? You know that you’re not supposed to see them, but there’s nothing you want more.
+ - I try not to read the social networks too much. I find that way madness lies.
+ - Iceland, I’m in love with that country, the people are incredible.
+ - I’m very lucky, I’ve got two very loving parents, still very much together, and always been very supportive.
+ - I’ve got like a weird bond with horses. I’m kind of a horse whisperer, I don’t know what it is. I’m not great on a horse. I’m getting better, but I’m not brilliant. So yeah, I’ve spent a lot of time with horses. They’re great creatures, I love them. I do love riding them when I get the chance to.
+ - At drama school, I was always playing the 11-year-old boys.
+ - You don’t want to seem too eager, too romantic – otherwise, it just looks a bit try-hard. But I do think that a first date should be intimate. So I’d choose a nice dinner somewhere cozy, not too crowded, with good wine.
+ - I love going out. I love partying.
+ - I wear quite fitted clothing. I don’t like wearing baggy stuff.
+ - You find with the really great actors, the ones you really admire and look up to, very often they’re very giving, generous, warm people.
+ - When I’m applying for a new passport, or something, someone will call me Christopher. Other than that, no one ever calls me Christopher.
+ - It’s a nightmare if you’re working with someone you don’t get on with, especially if you have to be in love with them.
+ - I’ve always been a bit of a self-doubter, I think a lot of actors are. I still am.
+ - The more you fly, the more unsettling it is, because you realize how much more likely it will be for you to crash. I am getting better at it, though.
+ - I just don’t know anything about fashion.
+ - It’s very difficult to say anything in Icelandic. I can say “takk,” which means “thank you.” That’s about all I learned.
+ - Each project changes you a bit.
+ - Working with animals is always going to be tough because the animal doesn’t know it’s an actor.
+ - When you’re a lead role, I’m learning that you set a tone for the movie in a way, like a director does, or like other actors do. But it seems like you set a mood on set.
+ - I’m very much a “that’s so obvious, I must not mention it” kind of guy.
+ - I love action. I love doing fight scenes, I always have.
+ - Politics is a game and a profession. It doesn’t really serve the people the politicians are supposed to serve.
+ - I like playing dark, broody types.
+ - There are lots of actors out there who are hugely, hugely talented and haven’t got the breaks I’ve had.
+ - I always love costume, and I’m always heavily involved in how things should look. Or how they should feel really, because that’s part of the way I suppose I get into character in some ways. It’s a lot about costume.
+
+26 quotes

@@ -1,0 +1,44 @@
+ - I was always an outsider, proud of being an outsider. I always reveled in the outsiders.
+ - I used to look at composing music as problem solving. But as I get older, it’s not about problem solving anymore. There are no solutions, because there are no problems. You just turn the tap and it flows out.
+ - I don’t play favorites with people. My basic philosophy is that the only way to make the world a better place is by bringing something beautiful to every single person you run into at every moment of the day, so how can you play favorites with somebody?
+ - No one sits in front of a drum set and thinks they invented it all out of whole cloth. The fact that the set is there means that you’ve got some dues to pay to Baby Dodds.
+ - For about seven years. I really like it there. There are a lot of great musicians. The scene is very open. A lot of stuff going on. People’s ears are really open, they are not closed. A lot of scenes here, people just get tunnel vision and are into one thing.
+ - You can’t be idealistic in this world and not be crazy.
+ - I see myself and many artists like me as the torchbearers through these dark ages.
+ - I’m constantly tortured, and that’s why I say happiness is irrelevant. Happiness is for children and yuppies.
+ - People sometimes have a very hard time accepting change.
+ - You need to believe in something that’s bigger than yourself. I think that’s what everybody wants to believe in that.
+ - We’re not on the outside looking in, we’re on the outside looking out.
+ - If you can make art with sound, can’t you make music with objects?
+ - I have no doubts. I know what gets in the way and I know what encourages me to do more work.
+ - I have art. I have music. I have the history, this legacy behind me that I can look up to. This is what I believe in. If you want to call it God or spirituality, that’s all up to you. Basically I believe in something that’s bigger than myself, and that gives my life meaning.
+ - When I’m writing, sometimes it gets to that place where I feel like the piece is writing itself and I’m trying not to get in the way.
+ - I’m not a practicing kabbalist. I’m not a spiritual master. I’m not a rabbi. I don’t – but it’s part of who I am.
+ - I have wit in my work and a sense of humor, but I do not use irony in any way.
+ - Music is about people for me. It’s not about sounds. It’s about people; it’s about putting people into challenging situations. And for me, challenges are opportunities.
+ - I put together the influences of my life in as clear a way as I possibly can, in the same way that Beethoven or Schoenberg or Bach put their influences together.
+ - That is a lot of the reason I do what I do, to really spread the word and spread information and turn people onto different things they may not be, y’know, aware of. That is what Naked City is certainly about.
+ - The idealists will always be in society, and we will survive.
+ - It’s a blast to watch. It’s a lot more interesting live than it is on record. I mean, it really is a theatrical event. It’s a sporting event! Cause you never know what’s gonna happen.
+ - One of the reasons I started Tzadik, which is my own label, is to keep things in print. I got tired of labels dropping things out of print when they don’t sell.
+ - I have had a very combative relationship with critics because I’m very impatient with people that don’t give my work the respect I feel it deserves.
+ - Classical stuff takes a lot of rehearsal time and preparation, but with stuff that involves improvisation, you can over-rehearse it and it gets stale. You don’t want it to be too comfortable. In fact, a good sound check, a good rehearsal usually means a bad performance.
+ - You know, when we were kids, we had to go to a theater to see a movie. And then television came in and you had to wait until midnight to see the one you wanted to see. Now, all you’ve got to do is go to a store and buy it and you can watch it whenever you want!
+ - The magic that you find in surf music, I think, is really timeless. You know, when I was very young, I was in a surf band. Surf music is an instrumental music that still means a lot to me, not in an nostalgic way, but as something that really gets to the heart of the guitar itself.
+ - I feel like there are messages. I feel like there are angels. I feel that there is a legacy and an energy. And I feel that it’s possible to tap into that.
+ - Great musicians accept everything that they hear and find something good. They take what they like and they throw away what they don’t like.
+ - I create work, and I devote myself to the creative process, and I try to stay pure in that process and be worthy of the messages that I receive. You can’t sit down and write 300 compositions in a three-month period and think that you’re doing it all by yourself.
+ - My solo music – I get up onstage, I improvise and it’s my improvisation. When I get up onstage with Fred Frith and Mike Patton, then we’re improvising together. Then it’s not my music; it’s our music.
+ - It’s a matter of keeping people on a spontaneous edge.
+ - Well, in Japan, I have got a group of musicians that I have worked with a lot, that concentrate just on the hardcore stuff, say, that Naked City has been working on. We have like a repertoire of sixty songs now.
+ - One thing that I do ask myself when I’m in the creative process is, ‘Does the world need this?’
+ - Eye was a great discovery. He is one of the great vocalists of all time.
+ - As soon as you get a certain amount of attention, then everybody kinda wants to start taking pot shots at you. All your old friends that supported you don’t support you any more.
+ - I run around, I listen to a lot of music, go to a lot of concerts. And when I see someone that gases me, I try to go out of my way to involve them somehow in what I’m doing or get involved in what they’re doing.
+ - Discipline is important as long as you’re having a good time. What I always did was I did what I enjoyed, and I think that’s why I don’t have any grey hairs.
+ - I have about two or three people, we don’t have an office, we don’t even have a dedicated phone line. We do it out of our own homes, and we make it work.
+ - I have not practiced saxophone since 1980. I mean, not one note. I do not pick it up in my house, and that’s the end of it.
+ - That was my challenge as a composer. Like with anything, to keep yourself interested in doing what you do, you set yourself challenges. So I said, Okay, I’ll try to write a hundred tunes in a year.
+ - And I try to be as diplomatic as I can, but it always ends up being a psychodrama up there on stage.
+
+42 quotes

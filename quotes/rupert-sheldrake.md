@@ -1,0 +1,35 @@
+ - Science at its best is an open-minded method of inquiry, not a belief system.
+ - The Science Delusion is the belief that science already understands the nature of reality in principle leaving only the details to be filled in.
+ - Basically, morphic fields are fields of habit, and they’ve been set up through habits of thought, through habits of activity, and through habits of speech. Most of our culture is habitual...
+ - The universe is not in a steady state; there’s an ongoing creative principle in nature, which is driving things onwards.
+ - What you do, what you say and what you think can influence other people by morphic resonance. There is no immoral filter in morphic resonance, which means that we have to be more careful about what we are thinking if we are concerned about the affect we have on others.
+ - The idea is that there is a kind of memory in nature. Each kind of thing has a collective memory. So, take a squirrel living in New York now. That squirrel is being influenced by all past squirrels.
+ - Contemporary science is based on the philosophy of materialism, which claims that all reality is material or physical.
+ - I went through the standard scientific atheist phase when I was about 14. I bought into that package deal of science equals atheism.
+ - Over the course of fifteen years of research on plant development, I came to the conclusion that for understanding the development of plants, their morphogenesis, genes and gene products are not enough.
+ - Not every good idea survives. Not every new form of art is repeated. Not every new potential instinct is successful. Only the successful ones get repeated. By natural selection and then through repetition they become probable, more habitual.
+ - I think that creativity depends on having sufficient indeterminacy around for a new pattern to arise up within it.
+ - There’s a certain kind of scepticism that can’t bear uncertainty.
+ - Creativity gives new forms, new patterns, new ideas, new art forms. And we don’t know where creativity comes from. Is it inspired from above? Welling up from below? Picked up from the air? What? Creativity is a mystery wherever you encounter it...
+ - The facts of science are real enough, and so are the techniques that scientists use, and so are the technologies based on them. But the belief system that governs conventional scientific thinking is an act of faith.
+ - Matter is merely mind deadened by the development of habit to the point where the breaking up of these habits is very difficult.
+ - For more than 200 years, materialists have promised that science will eventually explain everything in terms of physics and chemistry. Believers are sustained by the faith that scientific discoveries will justify their beliefs.
+ - I think that the ‘laws of nature’ are also prone to evolve; I think they are more like habits than laws.
+ - Bad religion is arrogant, self-righteous, dogmatic and intolerant. And so is bad science. But unlike religious fundamentalists, scientific fundamentalists do not realize that their opinions are based on faith. They think they know the truth.
+ - If there is no randomness in the universe, then what do we mean by chaos?
+ - I still say the ‘Lord’s Prayer’ every day. It covers a lot of ground in our relation to the world.
+ - In both religion and science, some people are dishonest, exploitative, incompetent and exhibit other human failings.
+ - The cumulative nature of the evolutionary process, the fact that memory is preserved, means that life grows not just through a random proliferation of new forms, but there’s a kind of cumulative quality...
+ - At the moment of insight, a potential pattern of organized behavior comes into being.
+ - I have been a scientist for more than 40 years, having studied at Cambridge and Harvard. I researched and taught at Cambridge University, was a research fellow of the Royal Society, and have more than 80 publications in peer-reviewed journals. I am strongly pro-science.
+ - When people see one of these new forms of art for the first time, often they can’t make sense of it. Then, if it’s around long enough, a lot of people get used to it and it becomes assimilated into culture. So there’s a morphic field both for the kind of art and for the appreciation of it.
+ - I’m talking about science on the leading edge, where it’s not clear which way things are going be cause we don’t know, and I’m dealing with areas which we don’t know about.
+ - Unfortunately, at present, practically no one under thirty goes to workshops. It’s a system of education entirely for the middle aged.
+ - Machines are designed not to be random. When you call up a word processing program on your computer, you don’t want it to be different every time you call it up. You want it to stay the same.
+ - Because a truly skeptical position would be a very uncertain one.
+ - Most of nature is inherently chaotic. It’s not rigidly determined in the old sense. It’s not rigidly predictable.
+ - Of the seven experiments, the ones that have been most investigated so far have been the pets. The dogs who know when their masters for coming home, and the sense of being stared at.
+ - The fact that you can forge a twenty dollar bill doesn’t prove that all twenty dollar bills are forgeries.
+ - To describe the overwhelming life of a tropical forest just in terms of inert biochemistry and DNA didn’t seem to give a very full picture of the world.
+
+33 quotes

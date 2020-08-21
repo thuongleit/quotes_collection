@@ -1,0 +1,26 @@
+ - Tears were a blessing; they were a relief; they did wash the ache from the heart, ease brain strain, and encourage the soul.
+ - If you are lazy, and accept your lot, you may live in it. If you are willing to work, you can write your name anywhere you choose.
+ - Of two evils, I always choose the lesser.
+ - I don’t so much mind the falling, but I do seem to select the hardest spots to light on.
+ - The seasons run with swift feet.
+ - Money was their God; work their religion...
+ - Nature always levies her tribute.
+ - In the economy of nature nothing is ever lost. I cannot belive that the soul of man shall prove the one exception.
+ - I write as the birds sing, because I must, and usually from the same source of inspiration.
+ - When any man accumulates more than he can earn with his own hands, he begins to enrich himself at the expense of the youth, the sweat, the blood, the joy of his fellow men.
+ - Nature can be trusted to work her own miracle in the heart of any man whose daily task keeps him alone among her sights, sounds and silences.
+ - Sometimes it seems to me that the more we get hurt in this world the decenter it makes us.
+ - You cannot write on the heart of another what you do not feel yourself.
+ - How a big majority of book critics and authors have come to believe and to teach that no book is true to life unless it is true to the worst in life, God knows...
+ - To my way of thinking and working, the greatest service a piece of fiction can do any reader is to force him to lay it down with a higher ideal of life than he had when he took it up.
+ - Every intoxicating delight of early spring was in the air. The breeze that fanned her cheek was laden with subtle perfume and the crisp, fresh odor of unfolding leaves.
+ - Be sure that you are right; and then go ahead.
+ - I do not believe there is any one study that can be taken up that will broaden the imagination, that will be the source from which will spring more deep thinking and sincere research than the study of astronomy.
+ - Do you know that being a stranger is the hardest thing that can happen to any one in all this world?
+ - Being dead was one thing, getting ready for a wedding another.
+ - It really seems as if failure and hardship make more of a human being of folks than success.
+ - What was money that it should make such dreadful things of men and women?
+ - The wages of sin are the hardest debts on earth to pay, and they are always collected at inconvenient times and unexpected places.
+ - I do not know why it is the fate of the world always to want something different from what life gives them.
+
+24 quotes

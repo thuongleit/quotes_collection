@@ -1,0 +1,502 @@
+ - Believe you can and you’re halfway there.
+ - Comparison is the thief of joy.
+ - Do what you can, with what you have, where you are.
+ - Courage is not having the strength to go on; it is going on when you don’t have the strength.
+ - Keep your eyes on the stars, and your feet on the ground.
+ - No one cares how much you know, until they know how much you care.
+ - When you play, play hard; when you work, don’t play at all.
+ - Nothing in the world is worth having or worth doing unless it means effort, pain, difficulty. I have never in my life envied a human being who led an easy life. I have envied a great many people who led difficult lives and led them well.
+ - It is not the critic who counts, not the one who points out how the strong man stumbled or how the doer of deeds might have done them better. The credit belongs to the man who is actually in the arena, whose face is marred with sweat and dust and blood; who strives valiantly; who errs and comes short again and again; who knows the great enthusiasms, the great devotions, and spends himself in a worthy cause; who, if he wins, knows the triumph of high achievement; and who, if he fails, at least fails while daring greatly, so that his place shall never be with those cold and timid souls who know neither victory nor defeat.
+ - In any moment of decision, the best thing you can do is the right thing, the next best thing is the wrong thing, and the worst thing you can do is nothing.
+ - Far better it is to dare mighty things, to win glorious triumphs, even though checkered by failure, than to take rank with those poor spirits who neither enjoy much nor suffer much, because they live in the gray twilight that knows neither victory nor defeat.
+ - It is hard to fail, but it is worse never to have tried to succeed.
+ - Whenever you are asked if you can do a job, tell them, “Certainly I can!”. Then get busy and find out how to do it.
+ - The only man who never makes mistakes is the man who never does anything.
+ - Never throughout history has a man who lived a life of ease left a name worth remembering.
+ - Knowing what's right doesn't mean much unless you do what's right.
+ - Complaining about a problem without posing a solution is called whining.
+ - No man needs sympathy because he has to work, because he has a burden to carry. Far and away the best prize that life offers is the chance to work hard at work worth doing.
+ - When you're at the end of your rope, tie a knot and hold on.
+ - I am a part of everything that I have read.
+ - If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month.
+ - The credit belongs to the man who is actually in the arena; whose face is marred with dust and sweat; who strives valiantly; who errs and may fall again and again, because there is no effort without error or shortcoming.
+ - All the resources we need are in the mind. 
+ - Nothing worth having was ever achieved without effort.
+ - Do Something Now. If not you, who? If not here, where? If not now, when?
+ - Work hard at work worth doing.
+ - Get action. Do things; be sane; don’t fritter away your time; create, act, take a place wherever you are and be somebody; get action.
+ - It is not often that a man can make opportunities for himself. But he can put himself in such shape that when or if the opportunities come he is ready.
+ - With self-discipline most anything is possible.
+ - To anger a conservative, lie to him. To anger a liberal, tell him the truth.
+ - Speak softly and carry a big stick; you will go far.
+ - To educate a person in the mind but not in morals is to educate a menace to society.
+ - To announce that there must be no criticism of the President, or that we are to stand by the President, right or wrong, is not only unpatriotic and servile, but is morally treasonable to the American public.
+ - The best executive is the one who has sense enough to pick good men to do what he wants done, and self-restraint to keep from meddling with them while they do it.
+ - The joy in life is his who has the heart to demand it.
+ - It is not the critic who counts.
+ - I care not what others think of what I do, but I care very much about what I think of what I do! That is character!
+ - Here is your country. Cherish these natural wonders, cherish the natural resources, cherish the history and romance as a sacred heritage, for your children and your children’s children. Do not let selfish men or greedy interests skin your country of its beauty, its riches or its romance.
+ - It is only through labor and painful effort, by grim energy and resolute courage, that we move on to better things.
+ - The most important single ingredient in the formula of success is knowing how to get along with people.
+ - People ask the difference between a leader and a boss. The leader leads, and the boss drives.
+ - For those who fight for it life has a flavor the sheltered will never know.
+ - The wildlife and its habitat cannot speak, so we must and we will.
+ - Old age is like everything else. To make a success of it, you’ve got to start young.
+ - Character is far more important than intellect in making a man a good citizen or successful at his calling- meaning by character not only such qualities as honesty and truthfulness, but courage, perseverance and self-reliance.
+ - The only time you really live fully is from thirty to sixty. The young are slaves to dreams; the old servants of regrets. Only the middle-aged have all their five senses in the keeping of their wits.
+ - Conservation is a great moral issue, for it involves the patriotic duty of insuring the safety and continuance of the nation.
+ - Rhetoric is a poor substitute for action...
+ - Patriotism means to stand by the country. It does not mean to stand by the president.
+ - I have often been afraid, but I would not give in to it. I made myself act as though I was not afraid and gradually my fear disappeared.
+ - Courtesy is as much a mark of a gentleman as courage.
+ - I wish to preach, not the doctrine of ignoble ease, but the doctrine of the strenuous life.
+ - There is no effort without error or shortcoming.
+ - The farther one gets into the wilderness, the greater is the attraction of its lonely freedom.
+ - So that his place shall never be with those cold and timid souls who knew neither victory nor defeat.
+ - Over-sentimentality, over-softness, in fact washiness and mushiness are the great dangers of this age and of this people. Unless we keep the barbarian virtues, gaining the civilized ones will be of little avail.
+ - Success, the real success, does not depend upon the position you hold but upon how you carry yourself in that position.
+ - You can’t choose your potential, but you can choose to fulfill it.
+ - The reason fat men are good natured is they can neither fight nor run.
+ - This country will not be a good place for any of us to live in unless we make it a good place for all of us to live in.
+ - Justice consists not in being neutral between right and wrong, but finding out the right and upholding it, wherever found, against the wrong.
+ - Profanity is the parlance of the fool. Why curse when there is such a magnificent language with which to discourse?
+ - We want men who will fix their eyes on the stars, but who will not forget that their feet must walk on the ground.
+ - Honesty first; then courage; then brains – and all are indispensable.
+ - If given the choice between Righteousness and Peace, I choose Righteousness.
+ - Each man must work for himself, and unless he so works, no outside help can avail him.
+ - Courage, hard work, self-mastery, and intelligent effort are all essential to successful life.
+ - No people on earth have more cause to be thankful than ours, and this is said reverently, in no spirit of boastfulness in our own strength, but with the gratitude to the Giver of good who has blessed us.
+ - I do. That is character!
+ - Don’t foul, don’t flinch-hit the line hard.
+ - The most practical kind of politics is the politics of decency.
+ - What such a man needs is not courage but nerve control, cool headedness. This he can get only by practice.
+ - The greatest historian should also be a great moralist. It is no proof of impartiality to treat wickedness and goodness on the same level.
+ - It is impossible to win the great prizes of life without running risks, and the greatest of all prizes are those connected with the home.
+ - Cowardice in a race, as in an individual, is the unpardonable sin.
+ - Freemasonry teaches not merely temperance, fortitude, prudence, justice, brotherly love, relief, and truth, but liberty, equality, and fraternity, and it denounces ignorance, superstition, bigotry, lust tyranny and despotism.
+ - No man is above the law and no man is below it: nor do we ask any man’s permission when we ask him to obey it.
+ - Happiness lies not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. The joy and moral stimulation of work must no longer be forgotten in the mad chase of evanescent profits.
+ - We can have no ‘50-50’ allegiance in this country. Either a man is an American and nothing else, or he is not an American at all.
+ - We must all either wear out or rust out, every one of us. My choice is to wear out.
+ - The first requisite of a good citizen in this republic of ours is that he shall be able and willing to pull his own weight.
+ - All contributions by corporations to any political committee or for any political purpose should be forbidden by law.
+ - Freedom from effort in the present merely means that there has been effort stored up in the past.
+ - Perhaps there is no more important component of character than steadfast resolution.
+ - The Armenian massacre was the greatest crime of the war...
+ - Only those are fit to live who do not fear to die and none are fit to die who have shrunk from the joy of life and the duty of life.
+ - From the greatest to the smallest, happiness and usefulness are largely found in the same soul, and the joy of life is won in its deepest and truest sense only by those who have not shirked life’s burdens.
+ - I am simply unable to understand the value placed by so many people upon great wealth.
+ - No man should receive a dollar unless that dollar has been fairly earned.
+ - The mother is the one supreme asset of national life; she is more important by far than the successful statesman, or business man, or artist, or scientist.
+ - There can be no greater issue than that of conservation in this country.
+ - Society has no business to permit degenerates to reproduce their kind.
+ - Rhetoric is a poor substitute for action, and we have trusted only to rhetoric. If we are really to be a great nation, we must not merely talk; we must act big.
+ - It may be that ‘the voice of the people is the voice of God’ in fifty one cases out of a hundred, but in the remaining forty nine it is quite as likely to be the voice of the devil, of, what is still worse, the voice of a fool.
+ - Each one must do his part if we wish to show that the nation is worthy of its good fortune.
+ - There should be at least ten times the number of rifles in the country as there are now.
+ - No triumph of peace can equal the armed triumph of war.
+ - The country is the place for children, and if not the country, a city small enough so that one can get out into the country.
+ - Nowhere, not at sea, does a man feel more lonely than when riding over the far-reaching, seemingly never-ending plains...
+ - The sons of all of us will pay in the future if we of the present do not do justice in the present.
+ - The conservation of natural resources is the fundamental problem. Unless we solve that problem it will avail us little to solve all others.
+ - Behind the ostensible government sits enthroned an invisible government owing no allegiance and acknowledging no responsibility to the people.
+ - With great victory comes great sacrifice.
+ - It’s not the critic who counts, nor the man who points out how the strong man stumbles, or where the doer of the deeds could have done better.
+ - Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind.
+ - All for each, and each for all, is a good motto; but only on condition that each works with might and main to so maintain himself as not to be a burden to others.
+ - Americanism means the virtues of courage, honor, justice, truth, sincerity, and hardihood – the virtues that made America.
+ - If you’ve got them by the balls, their hearts and minds will follow.
+ - The light has gone out of my life.
+ - A thorough knowledge of the Bible is worth more than a college education.
+ - No man is above the law, and no man is below it.
+ - With a great moral issue involved, neutrality does not serve righteousness; for to be neutral between right and wrong is to serve wrong.
+ - I dream of men who take the next step instead of worrying about the next thousand steps.
+ - The truth is that any good modern rifle is good enough. The determining factor is the man behind the gun.
+ - Burning fossil fuels is like breaking up the furniture to feed the fireplace because it’s easier than going out to the woodpile.
+ - Let us rather run the risk of wearing out than rusting out.
+ - Leave it as it is. You can not improve on it. You can only mar it. The ages have been at work on it and man can only mar it. What you can do is keep it for your children, your children’s children and for all who come after you.
+ - The nation behaves well if it treats the natural resources as assets which it must turn over to the next generation increased; and not impaired in value.
+ - Leave it as it is. The ages have been at work on it and man can only mar it.
+ - A people without children would face a hopeless future; a country without trees is almost as helpless.
+ - No President has ever enjoyed himself as much as I?
+ - Americans learn only from catastrophe and not from experience.
+ - A good Navy is not a provocation to war. It is the surest guaranty of peace.
+ - The Welfare of Each of Us Is Dependent Fundamentally Upon the Welfare of All of Us.
+ - We need the iron qualities that go with true manhood. We need the positive virtues of resolution, of courage, of indomitable will, of power to do without shrinking the rough work that must always be done.
+ - Unless the man is master of his soul all other kinds of mastery amount to little.
+ - Get action. Seize the moment. Man was never intended to become an oyster.
+ - The eighth commandment reads, “Thou shalt not steal.” It does not read, “Thou shalt not steal from the rich man.” It does not read, “Thou shalt not steal from the poor man.” It reads simply and plainly, “Thou shalt not steal.”
+ - Black care rarely sits behind the rider whose pace is fast enough.
+ - Never hit if you can help it, but when you have to, hit hard. Never hit soft. You’ll never get any thanks for hitting soft.
+ - It is necessary for the welfare of the nation that men’s lives be based on the principles of the Bible. No man, educated or uneducated, can afford to be ignorant of the Bible.
+ - The joy of living is his who has the heart to demand it. Life is a great adventure, and I want to say to you, accept it in such a spirit.
+ - He who makes no mistakes makes no progress.
+ - An Airedale can do anything any other dog can do and then whip the other dog if he has to.
+ - We do not admire the man of timid peace. We admire the man who embodies victorious effort; the man who never wrongs his neighbor, who is prompt to help a friend, but who has those virile qualities necessary to win in the stern strife of actual life.
+ - In name we had the Declaration of Independence in 1776; but we gave the lie by our acts to the words of the Declaration of Independence until 1865; and words count for nothing except in so far as they represent acts.
+ - I am an American; free born and free bred, where I acknowledge no man as my superior, except for his own worth, or as my inferior, except for his own demerit.
+ - The man who really counts in the world is the doer, not the mere critic – the man who actually does the work, even if roughly and imperfectly, not the man who only talks or writes about how it ought to be done.
+ - Every person who invests in well-selected real estate in a growing section of a prosperous community adopts the surest and safest method of becoming independent, for real estate is the basis of wealth.
+ - There can be no life without change, and to be afraid of what is different or unfamiliar is to be afraid of life.
+ - It’s not having been in the Dark House, but having left it that counts.
+ - Absence and death are the same – only that in death there is no suffering.
+ - Let us speak courteously, deal fairly, and keep ourselves armed and ready.
+ - What a man does for himself, dies with him. What a man does for his community lives long after he’s gone.
+ - To waste, to destroy our natural resources, to skin and exhaust the land instead of using it so as to increase its usefulness, will result in undermining in the days of our children the very prosperity which we ought by right to hand down to them amplified and developed.
+ - Life brings sorrows and joys alike. It is what a man does with them – not what they do to him – that is the true test of his mettle.
+ - What I am to be, I am becoming.
+ - A man who has never gone to school may steal from a freight car; but if he has a university education, he may steal the whole railroad.
+ - Every man owes a part of his time and money to the business or industry in which he is engaged. No man has the moral right to withhold his support from an organization that is striving to improve conditions within his sphere.
+ - The establishment of the National Park Service is justified by considerations of good administration, of the value of natural beauty as a National asset, and of the effectiveness of outdoor life and recreation in the production of good citizenship.
+ - I never keep boys waiting. It’s a hard trial for a boy to wait.
+ - Oh, if only I could be President and Congress, too, just for ten minutes.
+ - The man who loves other countries as much as his own stands on a level with the man who loves other women as much as he loves his own wife.
+ - The woman has the right to be emancipated from the position of a drudge or a toy. She is entitled to a full equality in rights with man...
+ - Malefactors of great wealth have arrogantly ignored the public welfare.
+ - I would a great deal rather be anything, say professor of history, than vice president.
+ - There is something to be said for government by a great aristocracy which has furnished leaders to the nation in peace and war for generations; even a Democrat like myself must admit this.
+ - There is quite enough sorrow and shame and suffering and baseness in real life, and there is no need for meeting it unnecessarily in fiction.
+ - It is a bad thing for a nation to raise and to admire a false standard of success; and there can be no falser standard than that set by the deification of material well-being in and for itself.
+ - In the Grand Canyon, Arizona has a natural wonder which is in kind absolutely unparalleled throughout the rest of the world.
+ - There is but one answer to terrorism and it is best delivered with a Winchester rifle.
+ - In a civilized and cultivated country, wild animals only continue to exist at all when preserved by sportsmen.
+ - In life, as in football, the principle to follow is to hit the line hard.
+ - All daring and courage, all iron endurance of misfortune-make for a finer, nobler type of manhood.
+ - The worst of all fears is the fear of living.
+ - Not trying is the surest way of achieving nothing at all.
+ - Men can never escape being governed. Either they must govern themselves or they must submit to being governed by others.
+ - Free speech exercised both individually and through a free press, is a necessity in any country where people are themselves free.
+ - Conservation means development as much as it does protection.
+ - For us is the life of action, of strenuous performance of duty; let us live in the harness, striving mightily; let us rather run the risk of wearing out than rusting out.
+ - Let us remember that, as much has been given us, much will be expected from us, and that true homage comes from the heart as well as from the lips, and shows itself in deeds.
+ - Most of us tiptoe through life in order to make it safely to death.
+ - Don’t hit at all if it is honorably possible to avoid hitting; but never hit soft.
+ - Every man holds his property subject to the general right of the community to regulate its use to whatever degree the public welfare may require it.
+ - Men with the muckrake are often indispensable to the well-being of society, but only if they know when to stop raking the muck.
+ - The biggest corporation, like the humblest private citizen, must be held to strict compliance with the will of the people as expressed in the fundamental law.
+ - The Constitution was made for the people and not the people for the Constitution.
+ - I am only an average man but, by George, I work harder at it than the average man.
+ - Freedom means the supremacy of human rights everywhere.
+ - If a man does not have an ideal and try to live up to it, then he becomes a mean, base and sordid creature, no matter how successful.
+ - It is an incalculable added pleasure to any one’s sum of happiness if he or she grows to know, even slightly and imperfectly, how to read and enjoy the wonder-book of nature.
+ - The unforgivable crime is soft hitting. Do not hit at all if it can be avoided; but never hit softly.
+ - Of all forms of tyranny the least attractive and the most vulgar is the tyranny of mere wealth.
+ - The fool who has not sense to discriminate between what is good and what is bad is well nigh as dangerous as the man who does discriminate and yet chooses the bad.
+ - To exist as a nation, to prosper as a state, and to live as a people, we must have trees.
+ - The one thing I want to leave my children is an honorable name.
+ - It is essential that there should be organization of labor. This is an era of organization. Capital organizes and therefore labor must organize.
+ - No man is worth his salt who is not ready at all times to risk his well-being, to risk his body, to risk his life, in a great cause.
+ - We, too, born to freedom, and believing in freedom, are willing to fight to maintain freedom. We, and all others who believe as deeply as we do, would rather die on our feet than live on our knees.
+ - Avoid the base hypocrisy of condemning in one man what you pass over in silence when committed by another.
+ - A good shot must necessarily be a good man since the essence of good marksmanship is self-control and self-control is the essential quality of a good man.
+ - There are rainy days in autumn and stormy days in winter when the rocking chair in front of the fire simply demands an accompanying book.
+ - We stand at Armageddon and we battle for the Lord.
+ - It may be true that he travels farthest who travels alone, but the goal thus reached is not worth reaching.
+ - I do not intend that our natural resources shall be exploited by the few against the interests of the many.
+ - The spirit of brotherhood recognizes of necessity both the need of self-help and also the need of helping others in the only way which every ultimately does great god, that is, of helping them to help themselves.
+ - To hell with the Constitution when people want coal!
+ - The conservation of our natural resources and their proper use constitute the fundamental problem which underlies almost every other problem of our national life.
+ - This country has nothing to fear from the crooked man who fails. We put him in jail. It is the crooked man who succeeds who is a threat to this country.
+ - Argument weak; speak loudly!
+ - Give a man a soccer ball, he plays for a moment. Teach a man to play soccer, he plays for a life time.
+ - Bodily vigor is good, and vigor of intellect is even better, but far above is character.
+ - The lack of power to take joy in outdoor nature is as real a misfortune as the lack of power to take joy in books.
+ - The beauty and charm of the wilderness are his for the asking, for the edges of the wilderness lie close beside the beaten roads of the present travel.
+ - There is nothing more practical than the preservation of beauty, than the preservation of anything that appeals to the higher emotions of mankind.
+ - In the long run, the most unpleasant truth is a safer companion than a pleasant falsehood.
+ - A grove of giant redwood or sequoias should be kept just as we keep a great and beautiful cathedral.
+ - No man who is corrupt, no man who condones corruption in others, can possibly do his duty by the community.
+ - At sometime in our lives a devil dwells within us, causes heartbreaks, confusion and troubles, then dies.
+ - The boy who is going to make a great man must not make up his mind merely to overcome a thousand obstacles, but to win in spite of a thousand repulses and defeats.
+ - There is nothing brilliant or outstanding in my record, except perhaps this one thing. I do the things I believe ought to be done. And when I make up my mind to do a thing, I act.
+ - Every child has inside him an aching void for excitement and if we don’t fill it with something which is exciting and interesting and good for him, he will fill it with something which is exciting and interesting and which isn’t good for him.
+ - I put myself in the way of things happening, and they happened.
+ - We must diligently strive to make our young men decent, God-fearing, law-abiding, honor-loving, justice-doing and also fearless and strong.
+ - I feel as fit as a bull moose.
+ - Obedience of the law is demanded; not asked as a favor.
+ - I always keep my weather eye on the opposition of my seventh house Moon to my first house Mars.
+ - There are no words that can tell the hidden spirit of the wilderness, that can reveal its mystery, its melancholy and its charm.
+ - Character, in the long run, is the decisive factor in the life of an individual and of nations alike.
+ - A vote is like a rifle; its usefulness depends upon the character of the user.
+ - Americanism is a question of principle, of idealism, of character. It is not a matter of birthplace, or creed, or line of descent.
+ - Wide differences of opinion in matters of religious, political, and social belief must exist if conscience and intellect alike are not to be stunted, if there is to be room for healthy growth.
+ - There can be no fifty-fifty Americanism in this country. There is room here for only 100% Americanism, only for those who are Americans and nothing else.
+ - I do not believe there was ever a life more attractive than life on a cattle farm.
+ - Americanism is a question of spirit, of conviction and purpose, not creed or birthplaces. The test of our worth is the service we render.
+ - We fight in honourable fashion for the good of mankind; fearless of the future, unheeding of our individual fates, with unflinching hearts and undimmed eyes; we stand at Armageddon, and we battle for the Lord.
+ - By acting as if I was not afraid, I gradually ceased to be afraid.
+ - The six great gifts of an Irish girl are beauty, soft voice, sweet speech, wisdom, needlework, and chastity.
+ - The White House is a bully pulpit.
+ - No educated man can afford to be ignorant of the Bible.
+ - To sit home, read one’s favorite paper, and scoff at the misdeeds of the men who do things is easy, but it is markedly ineffective. It is what evil men count upon the good men’s doing.
+ - When money comes in at the gate, sport flies out at the window.
+ - If a man continually blusters, if he lacks civility, a big stick will not save him from trouble, and neither will speaking softly avail, if back of the softness there does not lie strength, power.
+ - There are dreadful moments when death comes very near those we love, even if for the time being it passes by. But life is a great adventure, and the worst of all fears is the fear of living.
+ - A churchless community, a community where men have abandoned and scoffed at or ignored their religious needs, is a community on the rapid downgrade.
+ - The extermination of the buffalo has been a veritable tragedy of the animal world.
+ - The wild life of today is not ours to do with as we please. The original stock was given to us in trust for the benefit both of the present and the future. We must render an accounting of this trust to those who come after us.
+ - The little owls call to each other with tremulous, quavering voices throughout the livelong night, as they sit in the creaking trees.
+ - We face the future with our past and our present as guarantors of our promises; and we are content to stand or to fall by the record which we have made and are making.
+ - Unrestrained greed means the ruin of the great woods and the drying up of the sources of the rivers.
+ - Thank God for the iron in the blood of our fathers.
+ - It is not what we have that will make us a great nation; it is the way in which we use it.
+ - Don’t hit at all if you can help it; don’t hit a man if you can possibly avoid it; but if you do hit him, put him to sleep.
+ - Certain rich men, whose lives are evil and corrupt, are the representatives of predatory wealth accumulated by all forms of inequity, from the oppression of wage workers to unfair methods of crushing out competition.
+ - Weasel words from mollycoddles will never do when the day demands prophetic clarity from greathearts. Manly men must emerge for this hour of trial.
+ - I keep my good health by having a very bad temper, kept under good control.
+ - If we are to be really great people, we must strive in good faith to play a great part in the world. We cannot avoid meeting great issues. All that we can determine for ourselves is whether we shall meet them well or ill.
+ - The human body has two ends on it: one to create with and one to sit on. Sometimes people get their ends reversed. When this happens they need a kick in the seat of the pants.
+ - There were all kinds of things I was afraid of at first, ranging from grizzly bears to ‘mean’ horses and gun-fighters; but by acting as if I was not afraid I gradually ceased to be afraid.
+ - Nothing is gained by debate on non-debatable subjects.
+ - There is no room in this country for hyphenated Americanism.
+ - The object of government is the welfare of the people. The material progress and prosperity of a nation are desirable chiefly so far as they lead to the moral and material welfare of all good citizens.
+ - The lives of truest heroism are those in which there are no great deeds to look back upon. It is the little things well done that go to make up a truly successful and good life.
+ - The foes from whom we pray to be delivered are our own passions, appetites, and follies; and against these there is always need that we should war.
+ - No ability, no strength and force, no power of intellect or power of wealth, shall avail us, if we have not the root of right living in us.
+ - From the very beginning our people have markedly combined practical capacity for affairs with power of devotion to an ideal. The lack of either quality would have rendered the other of small value.
+ - The country’s honor must be upheld at home and abroad.
+ - It is always better to be an original than an imitation.
+ - The duties are even more important than the rights; and in the long run I think that the reward is ampler and greater for duty well done, than for the insistence upon individual rights.
+ - Under government ownership corruption can flourish just as rankly as under private ownership.
+ - I want to see you game, boys, I want to see you brave and manly, and I also want to see you gentle and tender.
+ - Death by violence, death by cold, death by starvation – they are the normal endings of the stately creatures of the wilderness. The sentimentalists who prattle about the peaceful life of nature do not realize its utter mercilessness.
+ - The wolf is the arch type of ravin, the beast of waste and desolation.
+ - I don’t go so far as to think that the only good Indians are dead Indians, but I believe nine out of ten are, and I shouldn’t like to inquire too closely into the case of the tenth.
+ - Where a trust becomes a monopoly the state has an immediate right to interfere.
+ - The American people are slow to wrath, but when their wrath is once kindled it burns like a consuming flame.
+ - The worst lesson that can be taught to a man is to rely upon others and to whine over his sufferings.
+ - McKinley has no more backbone than a chocolate eclair.
+ - No, I’m not a good shot, but I shoot often.
+ - The dreams of golden glory in the future will not come true unless, high of heart and strong of hand, by our own mighty deeds we make them come true.
+ - I have always said I would not have been President had it not been for my experience in North Dakota.
+ - We have room but for one Language here and that is the English Language, for we intend to see that the crucible turns our people out as Americans of American nationality and not as dwellers in a polyglot boarding-house.
+ - In a crisis, the man worth his salt is the man who meets the needs of the situation in whatever way is necessary.
+ - To borrow a simile from the football field, we believe that men must play fair, but that there must be no shirking, and that the success can only come to the player who hits the line hard.
+ - The chase is among the best of all national pastimes; it cultivates that vigorous manliness for the lack of which in a nation, as in an individual, the possession of no other qualities can possibly atone.
+ - In popular government results worth while can only be achieved by men who combine worthy ideals with practical good sense.
+ - Practical efficiency is common, and lofty idealism not uncommon; it is the combination which is necessary, and the combination is rare.
+ - We here in America, hold in our hands the hope of the world, the fate of the coming years; and shame and disgrace will be ours if in our eyes the light of high resolve is dimmed, if we trail in the dust the golden hopes of men.
+ - This broken country extends back from the river for many miles and has been called always be Indian, French voyager and American trappers alike, the Bad Lands.
+ - The reactionary is always willing to take a progressive attitude on any issue that is dead.
+ - The labor unions shall have a square deal, and the corporations shall have a square deal, and in addition, all private citizens shall have a square deal.
+ - I hate a man who skins the land.
+ - Mother went off for three days to New York and Mame and Quentin took instant advantage of her absence to fall sick. Quentin’s sickness was surely due to a riot in candy and ice-cream with chocolate sauce.
+ - There is a delight in the hardy life of the open.
+ - The poorest way to face life is to face it with a sneer.
+ - A healthy-minded boy should feel hearty contempt for the coward and even more hearty indignation for the boy who bullies girls or small boys, or tortures animals.
+ - A just war is in the long run far better for a man’s soul than the most prosperous peace.
+ - The most successful politician is he who says what the people are thinking most often in the loudest voice.
+ - We must treat each man on his worth and merits as a man. We must see that each is given a square deal, because he is entitled to no more and should receive no less.
+ - We demand that big business give the people a square deal; in return we must insist that when any one engaged in big business honestly endeavors to do right he shall himself be given a square deal.
+ - A great democracy must be progressive or it will soon cease to be a great democracy.
+ - I think there is only one quality worse than hardness of heart and that is softness of head.
+ - There can be no effective control of corporations while their political activity remains.
+ - Order without liberty and liberty without order are equally destructive.
+ - In battle, the ONLY bullets that count are those that hit.
+ - Nothing could be more lonely and nothing more beautiful than the view at nightfall across the prairies to these huge hill masses, when the lengthening shadows had at last merged into one and the faint after-glow of the red sunset filled the west.
+ - Never trust a man who says he is only a little crooked, and that the crookedness is exercised in your interest.
+ - There is need of a sound body, and even more need of a sound mind. But above mind and above body stands character-the sum of those qualities which we mean when we speak of a man’s force and courage, of his good faith and sense of honor.
+ - The pacifist is as surely a traitor to his country and to humanity as is the most brutal wrongdoer.
+ - I wish very much that the wrong people could be prevented entirely from breeding.
+ - When they call the roll in the Senate, the Senators do not know whether to answer ‘Present’ or ‘Not guilty.’
+ - Everyone loves justice in the affairs of another.
+ - There is no moral difference between gambling at cards or in lotteries or on the race track and gambling in the stock market. One method is just pernicious to the body politic as the other kind.
+ - Alone of human beings the good and wise mother stands on a plane of equal honor with the bravest soldier; for she has gladly gone down to the brink of the chasm of darkness to bring back the children in whose hands rests the future of the years.
+ - It is difficult to make our material condition better by the best law, but it is easy enough to ruin it by bad laws.
+ - No greater wrong can ever be done than to put a good man at the mercy of a bad, while telling him not to defend himself or his fellows; in no way can the success of evil be made surer or quicker.
+ - Wild beasts and birds are by right not the property merely of the people today, but the property of the unborn generations, whose belongings we have no right to squander.
+ - A man who is good enough to shed his blood for the country is good enough to be given a square deal afterwards.
+ - My hat’s in the ring. The fight is on and I’m stripped to the buff.
+ - Every Man owes some of his time to the upbuilding of the profession to which he belongs.
+ - Power always brings with it responsibility.
+ - We can just as little afford to follow the doctrinaires of an extreme individualism as the doctrinaires of an extreme socialism.
+ - In the Western Hemisphere the adherence of the United States to the Monroe Doctrine may force the United States, however reluctantly, in flagrant cases of such wrong doing or impotence, to the exercise of an international police power.
+ - I want to see you shoot the way you shout.
+ - Even in ordinary times there are very few of us who do not see the problems of life as through a glass, darkly; and when the glass is clouded by the murk of furious popular passion, the vision of the best and the bravest is dimmed.
+ - Some men can live up to their loftiest ideals without ever going higher than a basement.
+ - Yes, my friend, and if you will steal for me then you will steal from me.
+ - Death is always, under all circumstances, a tragedy, for if it is not then it means that life has become one.
+ - The ordinary air fighter is an extraordinary man and the extraordinary air fighter stands as one in a million among his fellows.
+ - The things that will destroy America are prosperity-at-any-price, peace-at-any-price, safety-first instead of duty-first, the love of soft living, and the get-rich-quick theory of life.
+ - Silent strength is the quality of all good men and most mummies.
+ - I’m as strong as a bull moose and you can use me to the limit.
+ - Councils of War never fight.
+ - No ordinary work done by a man is either as hard or as responsible as the work of a woman who is bringing up a family of small children; for upon her time and strength demands are made not only every hour of the day but often every hour of the night.
+ - Although not a very old man, I have yet lived a great deal in my life, and I have known sorrow too bitter and joy too keen to allow me to become either cast down or elated for more than a very brief period over any success or defeat.
+ - Your attitude about who you are and what you have is a very little thing that makes a very big difference.
+ - Our chief usefulness to humanity rests on our combining power with high purpose. Power undirected by high purpose spells calamity, and high purpose by itself is utterly useless if the power to put it into effect is lacking.
+ - Freedom is not a gift which can be enjoyed save by those shown themselves worthy of it.
+ - There are some timid souls that will never know victory nor defeat.
+ - Constructive change offers the best method for avoiding destructive change.
+ - The one being abhorrent to the powers above the earth and under them is the hyphenated American.
+ - I am far from underestimating the importance of dividends, but I rank dividends below human character.
+ - The nation should be ruled by the Ten Commandments.
+ - It tires me to talk to rich men. You expect a man of millions, the head of a great industry, to be a man worthhearing; but as a rule they don’t know anything outside their own business.
+ - Laws are essential emanations from the self-poised character of God; they radiate from the sun to the circling edge of creation. Verily, the mighty Lawgiver hath subjected himself unto laws.
+ - Almost every man who has by his life-work added to the sum of human achievement of which the race is proud, of which our people are proud, almost every such man has based his life-work largely upon the teachings of the Bible.
+ - We will send ships and Marines as soon as possible for the protection of American life and property.
+ - A small politician, of low capacity and mean surroundings, proud to act as the servile tool of men worse than himself but also stronger and abler.
+ - I don’t pity any man who does hard work worth doing. I admire him. I pity the creature who does not work, at whichever end of the social scale he may regard himself as being.
+ - Every reform movement has a lunatic fringe.
+ - The dull, purblind folly of the very rich men, their greed and arrogance, and the corruption in business and politics, have tended to produce a very unhealthy condition.
+ - Let us live in the harness, striving mightily.
+ - We do not admire a man of timid peace.
+ - The settler and pioneer have at bottom had justice on their side; this great continent could not have been kept as nothing but a game preserve for squalid savages.
+ - There are many occasions when the highest praise one can receive is the attack of some given scoundrel.
+ - While President, I have been President – emphatically.
+ - The man of great wealth owes a peculiar obligation to the state because he derives special advantages from the mere existence of government.
+ - There is more fine abstract design in Navajo rugs than in all these modern paintings.
+ - More and more, as it becomes necessary to preserve the game, let us hope that the camera will largely supplant the rifle.
+ - I feel most emphatically that we should not turn into shingles a tree which was old when the first Egyptian conqueror penetrated to the valley of the Euphrates.
+ - I do not care a rap as to who gets credit for the work, provided the work is done.
+ - For unflagging interest and enjoyment, a household of children, if things go reasonably well, certainly all other forms of success and achievement lose their importance by comparison.
+ - I believe that there should be a very much heavier progressive tax on very large incomes, a tax which should increase in a very marked fashion for the gigantic incomes.
+ - Give the brethren a chance to do something, anything, no matter how small or unimportant. A brother convinced that he is helpful is enthusiastic.
+ - It is a wicked thing to be neutral between right and wrong.
+ - I took the Canal Zone and let Congress debate; and while the debate goes on, the canal does also.
+ - There are those who believe that a new modernity demands a new morality. What they fail to consider is the harsh reality that there is no such thing as a new morality. There is only one morality. All else is immorality.
+ - If a man has a very decided character, has a strongly accentuated career, it is normally the case of course that he makes ardent friends and bitter enemies.
+ - Let individuals contribute as they desire; but let us prohibit in effective fashion all corporations from making contributions for any political purpose, directly or indirectly.
+ - The greatest privilege and greatest duty for any man is to be happily married, and no other form of success or service, for either man or woman, can be wisely accepted as a substitute or alternative.
+ - Optimism is a good characteristic, but if carried to an excess, it becomes foolishness. We are prone to speak of the resources of this country as inexhaustible; this is not so.
+ - Alike for the nation and the individual, the one indispensable requisite is character.
+ - If we would have our citizens contented and law-abiding, we must not sow the seeds of discontent in childhood by denying children their birthright of play.
+ - Materially we must strive to secure a broader economic opportunity for all men, so that each shall have a better chance to show the stuff of which he is made.
+ - War is not merely justifiable, but imperative upon honorable men, upon an honorable nation, where peace can only be obtained by the sacrifice of conscientious conviction or of national welfare.
+ - We are face to face with our destiny and we must meet it with a high and resolute courage.
+ - I don’t think any President ever enjoyed himself more than I did. Moreover, I don’t think any ex-President ever enjoyed himself more.
+ - A leader is an average, everyday person who is highly motivated.
+ - A true forest is not merely a storehouse full of wood, but, as it were, a factory of wood.
+ - Germany has reduced savagery to a science, and this great war for the victorious peace of justice must go on until the German cancer is cut clean out of the world body.
+ - Never, never, you must never either of you remind a man at work on a political job that he may be President.
+ - The first duty of an American citizen, then, is that he shall work in politics.
+ - The hardest lessons to learn are those that are the most obvious.
+ - Conservation of our resources is the fundamental question before this nation, and that our first and greatest task is to set our house in order and begin to live within our means.
+ - I do not dislike but I certainly have no especial respect or admiration for and no trust in, the typical big moneyed men of my country. I do not regard them as furnishing sound opinion as respects either foreign or domestic business.
+ - I wish that all Americans would realize that American politics is world politics.
+ - Aggressive fighting for the right is the noblest sport the world affords.
+ - The vice of envy is not only a dangerous, but a mean vice; for it is always a confession of inferiority. It may promote conduct which will be fruitful of wrong to others, and it must cause misery to the man who feels it.
+ - We are the heirs of the ages.
+ - We have room in this country for but one flag, the Stars and Stripes!
+ - The chief factor in any man’s success or failure must be his own character.
+ - If I have erred, I err in company with Abraham Lincoln.
+ - No great intellectual thing was ever done by great effort.
+ - The man who holds that every human right is secondary to his profit must now give way to the advocate of human welfare.
+ - The forces that tend for evil are great and terrible, but the forces of truth and love and courage and honesty and generosity and sympathy are also stronger than ever before.
+ - I violate no secret when I say that one of the greatest values in Masonry is that it affords an opportunity for men of all walks of life to meet on common ground where all men are equal and have one common interest.
+ - The teachings of the Bible are so interwoven and entwined with our whole civic and social life that it would be literally impossible for us to figure to ourselves what that life would be if these teaching were removed.
+ - The American people abhor a vacuum.
+ - I have already lived and enjoyed as much life as any nine other men I have known.
+ - Envy is as evil a thing as arrogance.
+ - The mass of the American people are most emphatically not in the deplorable condition of which you speak.
+ - Women should have free access to every field of labor which they care to enter, and when their work is as valuable as that of a man it should be paid as highly.
+ - There is not a man of us who does not at times need a helping hand to be stretched out to him, and then shame upon him who will not stretch out the helping hand to his brother.
+ - A revolution is sometimes necessary, but if revolutions become habitual the country in which they take place is going down-hill.
+ - I have often thought that unselfishness combined in one word more of the teachings of the Bible than any other in the language.
+ - No people is wholly civilized where a distinction is drawn between stealing an office and stealing a purse.
+ - Much of the discussion about socialism and individualism is entirely pointless, because of failure to agree on terminology.
+ - There is not in all America a more dangerous trait than the deification of mere smartness unaccompanied by any sense of moral responsibility.
+ - We have duties to others, and duties to ourselves, and we cannot shirk either.
+ - It is of little use for us to pay lip-loyalty to the mighty men of the past unless we sincerely endeavor to apply to the problems of the present precisely the qualities which in other crises enabled the men of that day to meet those crises.
+ - My power vanishes into thin air the instant that my fellow citizens, who are straight and honest, cease to believe that I represent them and fight for what is straight and honest. That is all the strength that I have.
+ - The only tyrannies from which men, women and children are suffering in real life are the tyrannies of minorities.
+ - There is apt to be a lunatic fringe among the votaries of any forward movement.
+ - From its origin to the present hour, in all its vicissitudes, Masonry has been the steady unwearing friend of man.
+ - No people ever yet benefited by riches if their prosperity corrupted their virtue.
+ - What I have advocated is not wild radicalism. It is the highest and wisest kind of conservatism.
+ - I have no business to feel downcast or querulous merely because when so much as been given me I have not had even more.
+ - Don’t spread patriotism too thin.
+ - All that the law can do is to shape things so that no injustice shall be done by one to the other, and that each man shall be given the first chance to show the stuff that is in him.
+ - The performance of duty, and not an indulgence in vapid ease and vapid pleasure, is all that makes life worth while.
+ - I do not in the least object to a sport because it is rough.
+ - Yes, Haven, most of us enjoy preaching, and Ive got such a bully pulpit!
+ - Our flag is a proud flag, and it stands for liberty and civilization. Where it has once floated, there must be no return to tyranny.
+ - I never won anything without hard labor and the exercise of my best judgment.
+ - The lunatic fringe in all reform movements.
+ - Hardness of heart is a dreadful quality, but it is doubtful whether in the long run it works more damage than softness of head.
+ - When I hear of the destruction of a species, I feel just as if all the works of some great writer have perished.
+ - Ruin looks us in the face if we judge a man by his position instead of judging him by his conduct in that position.
+ - I do not believe that any man can adequately appreciate the world of to-day unless he has some knowledge of – a little more than a slight knowledge, some feeling for and of – the history of the world of the past.
+ - Nine tenths of wisdom consists in being wise in time.
+ - No man who is not willing to bear arms and to fight for his rights can give a good reason why he should be entitled to the privilege of living in a free community.
+ - No man can lead a public career really worth leading, no man can act with rugged independence in serious crises, nor strike at great abuses, nor afford to make powerful and unscrupulous foes, if he is himself vulnerable in his private character.
+ - Those who advocate total lack of regulation, those who advocate lawlessness in the business world, themselves give the strongest impulse to what I believe would be the deadening movement toward unadulterated state socialism.
+ - Every immigrant who comes here should be required within five years to learn English or leave the country.
+ - Anything that encourages pauperism, anything that relaxes the manly fiber and lowers self-respect, is an unmixed evil.
+ - We should not forget that it will be just as important to our descendants to be prosperous in their time as it is to us to be prosperous in our time.
+ - You cannot create prosperity by law. Sustained thrift, industry, application, intelligence, are the only things that ever do, or ever will, create prosperity. But you can very easily destroy prosperity by law.
+ - A President has a great chance; his position is almost that of a king and a prime minister rolled into one.
+ - Abraham Lincoln – the spirit incarnate of those who won victory in the Civil War – was the true representative of this people, not only for his own generation, but for all time, because he was a man among men.
+ - Much of the usefulness of any career must lie in the impress that it makes upon, and the lessons that it teaches to, the generations that come after.
+ - The reader, the booklover, must meet his own needs without paying too much attention to what his neighbors say those needs should be.
+ - I would rather go out of politics having the feeling that I had done what was right than stay in with the approval of all men, knowing in my heart that I have acted as I ought not to.
+ - I wish to see the Bible study as much a matter of course in the secular colleges as in the seminary.
+ - Speak softly, I’m getting my massage.
+ - The world wants the kind of men who do not shrink from temporary defeats in life; but come again and wrestle triumph from defeat.
+ - The worst thing I can do is nothing.
+ - It behooves every man to remember that the work of the critic is of altogether secondary importance, and that, in the end, progress is accomplished by the man who does things.
+ - We draw the line against misconduct, not against wealth.
+ - Our surest protection against assault from abroad has been not all our guards, gates and guns, or even our two oceans, but our essential goodness as a people. Our richest asset has been not our material wealth but our values.
+ - We sincerely and earnestly believe in peace; but if peace and justice conflict, we scorn the man who would not stand for justice though the whole world came in arms against him.
+ - We can no more and no less afford to condone evil in the man of capital than evil in the man of no capital.
+ - Nowadays the field naturalist-who is usually at all points superior to the mere closet naturalist-follows a profession as full of hazard and interest as that of the explorer or of the big-game hunter in the remote wilderness.
+ - If there is not the war, you don’t get the great general; if there is not a great occasion, you don’t get a great statesman; if Lincoln had lived in a time of peace, no one would have known his name.
+ - To divide along the lines of section or caste or creed is un-American.
+ - The decisions of the courts on economic and social questions depend on their economic and social philosophy.
+ - It is only the warlike power of a civilized people that can give peace to the world.
+ - The great virtue of my radicalism lies in the fact that I am perfectly ready, if necessary, to be radical on the conservative side.
+ - To every man who faces life with real desire to do his part in everything, I appeal for a study of the Bible.
+ - I must be wanting to be President. Every young man does. But I won’t let myself think of it; I must not, because if I do, I will begin to work for it; I’ll be careful, calculating, cautious in word and act, and so – I’ll beat myself.
+ - I have a perfect horror of words that are not backed up by deeds.
+ - No man is justified in doing evil on the ground of expedience.
+ - In this world the one thing supremely worth having is the opportunity to do well and worthily a piece of work of vital consequence to the welfare of mankind.
+ - The Bad Lands grade all the way from those that are almost rolling in character to those that are so fantastically broken in form and so bizarre in color as to seem hardly properly to belong to this earth.
+ - I believe that the next half century will determine if we will advance the cause of Christian civilization or revert to the horrors of brutal paganism.
+ - A nation that still needs to distinguish between stealing an election, and stealing a new pair of shoes, is not completely civilized yet.
+ - The Cubists are entitled to the serious attention of all who find enjoyment in the colored puzzle pictures of the Sunday newspapers.
+ - A really great people, proud and high spirited, would face all the disasters of war rather than purchase that base prosperity which is bought at the price of national honor.
+ - Then get busy and find out how to do it.
+ - What counts in a man or in a nation is not what the man or the nation can do, but what he or it actually does.
+ - It is by no means necessary that a great nation should always stand at the heroic level. But no nation has the root of greatness in it unless in time of need it can rise to the heroic mood.
+ - Want More Advice Like This?
+ - It is both foolish and wicked to teach the average man who is not well off that some wrong or injustice has been done him, and that he should hope for redress elsewhere than in his own industry, honesty, and intelligence.
+ - Rough board shelves hold a number of books, without which some of the evenings would be long indeed.
+ - I think we are warranted in contending that a society thus constituted, and which may be rendered so admirable an engine of improvement, far from meriting reproach, deserves highly of the community.
+ - In doing your work in the great world, it is a safe plan to follow a rule I once heard on the football field: Don’t flinch, don’t fall; hit the line hard.
+ - Kings and such are just as funny as politicians.
+ - My hat is in the ring.
+ - Life is as if you were traveling a ridge crest. You have the gulf of inefficiency on one side and the gulf of wickedness on the other, and it helps not to have avoided one gulf if you fall into the other.
+ - The great man is always the man of mighty effort.
+ - It is well indeed for out land that we of this generation have learned to think nationally.
+ - I believe in corporations. They are indispensable instruments of our modern civilization. But I believe they should be so regulated that they shall act for the interests of the community as a whole.
+ - I believe that the officers, and, especially, the directors, of corporations should be held personally responsible when any corporation breaks the law.
+ - While my interest in natural history has added very little to my sum of achievement, it has added immeasurably to my sum of enjoyment in life.
+ - It is a great mistake to think that the extremist is a better man than the moderate. Usually the difference is not that he is morally stronger, but that he is intellectually weaker. He is not more virtuous. He is simply more foolish.
+ - Probably the greatest harm done by vast wealth is the harm that we of moderate means do ourselves when we let the vices of envy and hatred enter deep into our own natures.
+ - Let us show, not merely in great crises, but in every day of life, qualities of practical intelligence, of hardihood and endurance, and above all, the power of devotion to a lofty ideal.
+ - All constitutions, those of the States no less than that of the nation, are designed, and must be interpreted and administered so as to fit human rights.
+ - There is superstition in science quite as much as there is superstition in theology, and it is all the more dangerous because those suffering from it are profoundly convinced that they are freeing themselves from all superstition.
+ - If a strong man has not in him the lift toward lofty things, his strength makes him only a curse to himself and his neighbor.
+ - A typical vice of American politics is the avoidance of saying anything real on real issues.
+ - It is, of course, the merest truism to say a party is of use only so far as it serves the nation.
+ - We shall make mistakes; and if we let these mistakes frighten us from our work we shall show ourselves weaklings.
+ - We want the active and zealous help of every man far-sighted enough to realize the importance from the standpoint of the nation’s welfare in the future of preserving the forests.
+ - The great corporations which we have grown to speak of rather loosely as trusts are the creatures of the State, and the State not only has the right to control them, but it is duty bound to control them wherever the need of such control is shown.
+ - Wars are, of course, as a rule to be avoided; but they are far better than certain kinds of peace.
+ - I am rather more apt to read old books than new ones.
+ - The modern naturalist must realize that in some of its branches his profession, while more than ever a science, has also become an art.
+ - The United States does not have a choice as to whether or not is will or will not play a great part in the world. Fate has made that choice for us. The only question is whether we will play the part well or badly.
+ - Massive potential you have and, in recognition of all this, would you mind having your salary halved.
+ - If there is one thing for which we stand in this country, it is for complete religious freedom, and it is an emphatic negation of this right to cross-examine a man on his religion before being willing to support him for office.
+ - I enter a most earnest plea that in our hurried and rather bustling life of today we do not lose the hold that our forefathers had on the Bible.
+ - It pays no matter what comes after it, to try and do things, to accomplish things in this life and not merely to have a soft and pleasant time.
+ - Gradually the true Mason gains experience in using these working tools and can observe subtler and subtler indications of personal flaws.
+ - After the war, and until the day of his death, his position on almost every public question was either mischievous or ridiculous, and usually both.
+ - Property belongs to man and not man to property.
+ - It either is or ought to be evident to everyone that business has to prosper before anyone can get any benefit from it.
+ - When we control business in the public interest we are also bound to encourage it in the public interest or it will be a bad thing for everybody and worst of all for those on whose behalf the control is nominally exercised.
+ - It is character that counts in a nation as in a man.
+ - The object of government is the welfare of the people.
+ - It is of far more important that a man shall play something himself, even if he plays it badly, than that he shall go with hundreds of companions to see someone else play well.
+
+500 quotes

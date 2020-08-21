@@ -1,0 +1,46 @@
+ - We meet no ordinary people in our lives. If you give them a chance, everyone has something amazing to offer.
+ - Talking is what I do, but listening is my job.
+ - With the evolution of technology, kids really need to be computer-savvy.
+ - What I love about the environment we live in and we work in, is that there are no boundaries anymore. We can do a lot of different things. It keeps us going.
+ - It’s in my blood to be on the radio every day. I’ve done it since I was 16 years old.
+ - I work best inundated with things, when it’s like raining information.
+ - I knew I could control one thing, and that is my time and my hours and my effort and my efficiency.
+ - Failure? Scared to death of it.
+ - Mine’s a pretty simple strategy: there’s not a lot of talent here, but there’s a lot of hustle. I have to be in every place I can, and be busy.
+ - Bicycles are the new rollerblades, talentless is the new talented, and I’m in hog heaven.
+ - I’d like to make time slow down.
+ - We now have contestants who will not let anything get in their way of victory. Some contestants have thrown each other under the bus this season.
+ - When I was 10, 11, 12 years old, I would pretend to be on the radio. I bought a mixer and these big, ugly headphones and I would literally broadcast the cassette tapes in my bedroom.
+ - Some people meet people in the grocery store, but I get my tomatoes and I’m out.
+ - The combination of a blazer over any T-shirt with a pair of jeans is foolproof.
+ - I’m obsessed with fresh breath.
+ - Everyone in showbiz is driven by ego, so how do you go from having loads of fame to working at 7-11? You can’t do it!
+ - I’m someone who thinks that where there’s a void, I need to fill it, but I’m trying to have patience and a little bit of discipline.
+ - Fortunately for me, I’m in this unique business of not singing, not dancing, not performing – just kind of being there.
+ - I am looking forward to being part of the E! team. This unique opportunity allows my company to take the next step in providing multimedia content.
+ - Equity, ownership, production fees, license fees: those are the vocabulary words that are exciting to me.
+ - Without someone giving you a shot, opening a door, believing that your obsession is a real thing when you’re young, you don’t get the opportunity. Every single day I’m reminded of that.
+ - I’ve never done Botox in my life. But I’ve probably tried everything else under the sun.
+ - I use every opportunity, whether on my radio show or on television, to break stereotypes.
+ - What I’ve figured out how to do is make people feel comfortable on television and on the radio, which enables me to have access to them, which is key for what I do.
+ - There’s a TV element to everything in my eyes.
+ - I could lie and pretend that I hunt and camp, but that wouldn’t be me. Clothes? Shopping? That’s stuff I like!
+ - My parents would always have us, as many times as we could, sit together for dinner and talk about what was happening in our lives, and so we created a great recipe where I could be completely honest with my mother and to an extent my father, being an attorney.
+ - I literally get up and get to do the one thing I dreamed about doing every day. And that is being a part of a television show and a radio show that is based in Hollywood.
+ - I made Simon Cowell look stupid once. He is terrified of presenting so I gave him the microphone and walked away. He hates interviewing people it means the focus is off him.
+ - One of my favorite things to cook is fondue. I’m Swiss. It’s a great social meal.
+ - I’ve dated some women who have turned me on to some funny things that are strange for men to actually do, but these things have become part of my process. I think the things I do for my appearance help make me look better. I even colour my hair because I like how it makes me look.
+ - I’m a big advocate of being around the things that you want to do eventually, and being around people who are doing them.
+ - I’m 100% better with a little bit of controlled chaos. I just know if I have three things to do, or nine things to do, I’m just better at them if I have nine.
+ - And I think more than anything else, I know when I go to bed that no one’s working harder doing what I’m doing, and I think, quite frankly, simply that hard work at some point was gonna pay off.
+ - Part of wearing a tee is saying, ‘I’m comfortable and casual.’
+ - I always just wanted to be a cheesy guy on television.
+ - If I don’t wear something for a year, I give it away.
+ - When you’re in the center of something, on a ride, I don’t think you realize what it is until it’s over.
+ - I find each project, although it’s compartmentalized, informs me in some facet. I wake up everyday wanting to be informed.
+ - I don’t Botox. I’ve never Botoxed.
+ - People bring up my hair quite a bit. It’s strategically tousled. The flatiron is the key.
+ - I want to continue to produce shows that directly effect change.
+ - As much as we all talk about the future and how so many things are merging, there is a simplicity that is crucial.
+
+44 quotes

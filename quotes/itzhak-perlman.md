@@ -1,0 +1,53 @@
+ - Sometimes it is the artist’s task to find out how much music you can still make with what you have left.
+ - One must always practice slowly. If you learn something slowly, you forget it slowly.
+ - Never miss an opportunity to teach; when you teach others, you teach yourself.
+ - For every child prodigy that you know about, at least 50 potential ones have burned out before you even heard about them.
+ - That’s the goal, to survive your gift.
+ - One of the most important elements in teaching, conducting, and performing, all three, is listening.
+ - I always say separate your abilities from your disabilities. You know, if I could play the violin, I don’t have to play it standing up. I can play it sitting down and so on.
+ - So many things can drive you mad as a child, not only music.
+ - I love to work with young kids.
+ - One of the great challenges is to know when things are not right.
+ - Sometimes you get from the mouth of kids wonderful things.
+ - When you play a concerto with a small orchestra, you don’t feel it is as important as Carnegie Hall. You try to work out all the little problems. Once that’s all done, trust comes in.
+ - The thing is that what you try to do when you play is you try to play not below a certain level. In other words, it can be a special day where it would be phenomenal, but if it’s not below a certain level, that’s the goal. You know, that’s what you want to do. That’s why you practice and so on.
+ - Perhaps our task in this shaky, fast-changing, bewildering world in which we live is to make music, at first with all that we have, and then, when that is no longer possible, to make music with what we have left.
+ - The Violin of my dreams. If you wanna play a pianissimo that is almost inaudible and yet it carries through a hall that seats 3,000 people, there’s your Strad.
+ - The most important thing to do is really listen.
+ - I’m now doing three things: concerts, conducting, and teaching, and they each support each other. I learn to see things from different perspectives and listen with different ears. The most important thing that you need to do is really listen.
+ - A lot of people like to think that polio was a inspiration in what I do. I think that music has to do with what kind of passion do you have.
+ - Competition can be the most nerve-racking experience. Some people just thrive on it.
+ - Every musical phrase has a purpose. It’s like talking. If you talk with a particular purpose, people listen to you, but if you just recite, it’s not as meaningful.
+ - I always consider myself lucky that I can actually cry listening to some music.
+ - This young wine may have a lot of tannins now, but in five or 10 years it is going to be spectacular, despite the fact that right now it tastes like crude oil. You know this is how it is supposed to taste at this stage of development.
+ - In difficult times, people just like to hear music. They like to be moved by what they hear. And music speaks different languages.
+ - I am playing the violin, that’s all I know, nothing else, no education, no nothing. You just practice every day.
+ - There are people who are uncanny, who are finished products at a young age. I wasn’t, thank God.
+ - I don’t walk on stage unless I’m playing with a orchestra. But when I play a recital, I’m sort of on a scooter, and I just scoot very quickly on stage, and they’re saying, wow, look at this. He’s so fast.
+ - I listen to kids play a lot.
+ - That makes classical music work, the ability to improvise.
+ - This machine, the wheelchair, I can go all over the place, but you need a place without stairs to get in.
+ - A sponge has that much absorbent capability and after a while you can pour water over it and nothing stays.
+ - Ask many of us who are disabled what we would like in life and you would be surprised how few would say, ‘Not to be disabled.’ We accept our limitations.
+ - Any gifted child can potentially get in real trouble because of the way they are handled.
+ - I can’t walk very well, but I’m not onstage to do walking. I’m on the stage to play.
+ - I feel that you always pay when you are a child.
+ - I couldn’t only do one thing – I don’t want the personal hell of oneness.
+ - Child prodigy is a curse because you’ve got all those terrible possibilities.
+ - Preparing for a future in music is an expensive proposition.
+ - For people who are really talented, what you don’t say becomes extremely important. You have to judge what to say and what to leave alone so you can let the talent develop.
+ - Not many people like it when they get criticism. Of course, if you have someone who does tell you and you do have a rapport, that’s great. But don’t rely on it. You have to rely on yourself.
+ - In Paris they have special wheelchairs that go through every doorway. They don’t change the doorways, they change the wheelchairs. To hell with the people! If someone weighs a couple more pounds, that’s it!
+ - Same thing with harmonies. If you hear something that harmonically is interesting, express it. So that’s what I’m saying about talking the music rather than just playing through.
+ - I look at raising funds for The Perlman Music Program as a challenge and as a way to provide opportunities for people who care about the future of classical music.
+ - Another thing that you really do when you play, that you’re supposed to do, is colors. You know, you cannot play with one color. If you play with one color, again, it’s like watching a beautiful painting, a drawing, but it’s all in blue or it’s all in red. May be very nice, but not very interesting.
+ - You decide to be a musician, you have to put in the time.
+ - There is nothing like a fine Italian sound.
+ - I do three things. I do teaching, I do conducting and I do playing. And each one of those sort of helps the other.
+ - A Century of Wisdom is universal and will enrich readers for generations to come.
+ - I’m just a one-instrument player. I have been known to play a blender, but I basically play – just play the violin.
+ - Don’t play the way it goes. Play the way it is. And the way it is every time you play it, it’s slightly different. Look for something. So that’s the challenge not to be bored.
+ - I don’t feel that the conductor has real power. The orchestra has the power, and every member of it knows instantaneously if you’re just beating time.
+ - Another thing that I don’t like to do is show too much how it goes. I do it once in a blue moon. Sometimes there are lessons when I don’t pick up a violin at all.
+
+51 quotes

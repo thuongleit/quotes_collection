@@ -1,0 +1,27 @@
+ - My illusion is to have something to transmit. If I can’t change the world, at least I want to change the way people look at it.
+ - Art should startle the viewer into thinking about the meaning of life.
+ - I never view aesthetic ideas as having an existence purely of their own but as a function they have in connection with political or moral values.
+ - The artist has to make the viewer understand that his world is too narrow, he has to open up to new perspectives.
+ - If one draws things in a manner which provides only the barest clue to their meaning, the viewer is forced to fill in the gaps by using his own imagination. He is compelled to participate in the creative act, which I consider very important.
+ - When I talk of reality, I am always thinking of essentials. Profundity is not located in some remote, inaccessible region. It is rooted in everyday life.
+ - The highest wisdom adopts the humblest of bodies.
+ - In our world, in which religious images are losing their meaning, in which our customs are getting more and more secular, we are losing our sense of the eternal. I think it’s a loss that has done a great deal of damage to modern art. Painting is a return to origins.
+ - Painting quickly is a calculated act to block out rational thought.
+ - A cross could be a shape for expressing something spacious, such as the coordinators of space. That could be called its first significance or its first relevance.
+ - The tattoo can only exist as part of the skin, as a drawing always is an incision in the material and therefore cannot be parted from it.
+ - Which country is real, mine or the teacher’s? My wish is that we might progressively lose our confidence in what we think we believe and the things we consider stable and secure, in order to remind ourselves of the infinite number of things still waiting to be discovered.
+ - I often told the fanatics of realism that there is no such thing as realism in art: it only exists in the mind of the observer. Art is a symbol, a thing conjuring up reality in our mental image. That is why I don’t see any contradiction between abstract and figurative art either.
+ - They were wrestling with canvases, using violent colors and huge brush strokes. I arrived with gray, silent, sober, oppressed paintings. One critic said they were paintings that thought.
+ - I feel the desire, or rather the intense need, to do something useful for society, and that is what stimulates me. In every situation I always look for what is positive and beneficial for my fellow citizens.
+ - I would say off the cuff that I am an anxious person. I worry about everything. I need to know everything. I tend to live in a state of anxiety with the feeling that life is some kind of great catastrophe.
+ - At lucky moments this emanation could overwhelm the spectator in such a way, that because of all sorts of associations in his thinking, he could finally be taken to those areas which also had moved me so deeply and made me think I should draw the attention of others to it.
+ - Reminding people what in reality it is all about, giving them a theme on which to ponder, creating a shock within them, pulling them out of the delusion of non authenticity, enabling them to become aware of their true possibilities.
+ - Obviously, the intention was not to go back to images traditionally valued as worthy or holy images and shapes, but exactly the opposite; its main purpose had to be to realise as sacred art, anything which so far had been regarded as of little value and pitiful.
+ - The material presence of the work only serves as a conveyer launching an invitation to the observer to take part of the comprehensive game of the thousand and one emotions and visions.
+ - An image means nothing. It is just a door, leading to the next door. It will never happen that we will find the truth we are looking for just in an image; it will happen behind the last door that the spectator discovers the truth, because of his own efforts.
+ - All my pictures are a kind of revision of my original idea. This is surely very different from the way in which Japanese or Chinese artists work: their themes are pre-ordained, whereas mine are invented at will.
+ - I am interested in study, reflection, philosophy – but always as a dilettante. I also consider myself a dilettante as a painter.
+ - The dramatic sufferings of adults and all the cruel fantasies of those of my own age, who seemed abandoned to their own impulses in the midst of so many catastrophes, appeared to inscribe themselves on the walls around me.
+ - To achieve contact with reality is not to transport oneself elsewhere; it is not transcendence but thorough immersion in one’s surroundings – a reality which is neither purely physical nor metaphysical, but both at once.
+
+25 quotes

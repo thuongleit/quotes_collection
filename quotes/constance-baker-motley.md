@@ -1,0 +1,43 @@
+ - Something which we think is impossible now is not impossible in another decade.
+ - Columbia Law School men were being drafted, and suddenly women who had done well in college were considered acceptable candidates for the vacant seats.
+ - There appears to be no limit as to how far the women’s revolution will take us.
+ - Sexism, like racism, goes with us into the next century. I see class warfare as overshadowing both.
+ - Had it not been for James Meredith, who was willing to risk his life, the University of Mississippi would still be all white.
+ - In high school, I won a prize for an essay on tuberculosis. When I got through writing the essay, I was sure I had the disease.
+ - We African Americans have now spent the major part of the 20th Century battling racism.
+ - I remember being infuriated from the top of my head to the tip of my toes the first time a screen was put around Bob Carter and me on a train leaving Washington in the 1940s.
+ - King consciously steered away from legal claims and instead relied on civil disobedience.
+ - I was born and raised in the oldest settled part of the nation and in an environment in which racism was officially mooted.
+ - Lack of encouragement never deterred me. I was the kind of person who would not be put down.
+ - When I was 15, I decided I wanted to be a lawyer. No one thought this was a good idea.
+ - The legal difference between the sit-ins and the Freedom Riders was significant.
+ - I soon found law school an unmitigated bore.
+ - Affirmitive action is extremely complex because it appears in many different forms.
+ - The middle class, in the white population, encompasses a wide swath.
+ - By 1962, King had become, by the media’s reckoning, the new civil rights leader.
+ - New Orleans may well have been the most liberal Deep South city in 1954 because of its large Creole population, the influence of the French, and its cosmopolitan atmosphere.
+ - I never thought I would live long enough to see the legal profession change to the extent it has.
+ - Today’s white majority is largely silent about the race question.
+ - How long must the American community afford special treatment to blacks?
+ - Living at the YMCA in Harlem dramatically broadened my view of the world.
+ - In high school, I discovered myself. I was interested in race relations and the legal profession. I read about Lincoln and that he believed the law to be the most difficult of professions.
+ - I grew up in a house where nobody had to tell me to go to school every day and do my homework.
+ - King thought he understood the white Southerner, having been born and reared in Georgia and trained a theologian.
+ - The women’s rights movement of the 1970s had not yet emerged; except for Bella Abzug, I had no women supporters.
+ - All Southern state colleges and universities are open to black students.
+ - The last state to admit a black student to the college level was South Carolina.
+ - Doing away with separate black colleges meets resistance from alumni and other blacks.
+ - Too many whites still see blacks as a group apart.
+ - We Americans entered a new phase in our history – the era of integration – in 1954.
+ - The fact is that racism, despite all the doomsayers, has diminished.
+ - When I went to law school, nobody heard of civil rights.
+ - Whites would rather not be involved in race matters, I think.
+ - I got the chance to argue my first case in Supreme Court, a criminal case arising in Alabama that involved the right of a defendant to counsel at a critical stage in a capital case before a trial.
+ - The black population now consists of two distinct classes-the middle class and the poor.
+ - There is no longer a single common impediment to blacks emerging in this society.
+ - In my view, I did not get to the federal bench because I was a woman.
+ - My parents never told us that our great-grandmothers had been slaves.
+ - When Thurgood Marshall became a lawyer, race relations in the United States were particularly bad.
+ - My father kept his distance from working-class American blacks.
+
+41 quotes

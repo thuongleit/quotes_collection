@@ -1,0 +1,35 @@
+ - Bobby Fischer is the greatest Chess genius of all time!
+ - Experience and the constant analysis of the most varied positions builds up a store of knowledge in a player’s mind enabling him often at a glance to assess this or that position.
+ - It is better to follow out a plan consistently even if it isn’t the best one than to play without a plan at all. The worst thing is to wander about aimlessly.
+ - Time trouble is blunder time.
+ - All candidate moves should be identified at once and listed in one’s head. This job cannot be done piecemeal, by first examining one move and then look at another.
+ - The study of typical plans is something that the leading grandmasters devote a great deal of time to. I would say that the most far-seeing of them devote as much time to this as to the study of openings.
+ - When you have finished analyzing all the variations and gone along all the branches of the tree of analysis you must first of all write the move down on your score sheet, before you play it.
+ - The rise of the Soviet school to the summit of world chess is a logical result of socialist cultural development.
+ - In order to become a grandmaster class player whose understanding of chess is superior to the thousands of ordinary players, you have to develop within yourself a large number of qualities, the qualities of an artistic creator, a calculating practitioner, a cold calm competitor.
+ - Anyone who wishes to learn how to play chess well must make himself or herself thoroughly conversant with the play in positions where the players have castled on opposite sides.
+ - In analysing complicated variations one must examine each branch of the tree once and once only.
+ - Once we have chosen the right formation in the centre we have created opportunities for our pieces and laid the foundation of subsequent victory.
+ - If you can play the first ten or fifteen moves in just as many minutes, you can be in a state of bliss for the rest of the game. If, on the other hand, Bronstein thinks for forty minutes about his first move, then time trouble is inevitable.
+ - You must not let your opponent know how you feel.
+ - After a great deal of discussion in Soviet literature about the correct definition of a combination, it was decided that from the point of view of a methodical approach it was best to settle on this definition – A combination is a forced variation with a sacrifice.
+ - I cannot think that a player genuinely loving the game can get pleasure just from the number of points scored no matter how impressive the total. I will not speak of myself, but for the masters of the older generation, from whose games we learned, the aesthetic side was the most important. -.
+ - Once there is the slightest suggestion of combinational possibilities on the board, look for unusual moves. Apart from making your play creative and interesting it will help you to get better results.
+ - The main thing that develops positional judgement, that perfects it and makes it many-sided, is detailed analytical work, sensible tournament practice, a self-critical attitude to your games and a rooting out of all the defects in your play.
+ - Just as the pianist practices the most complicated pieces to improve the technique of his fingers, so too a grandmaster must keep his vision in trim by daily analysis of positions with sharp possibilities, and this applies whether he prefers such positions in his play or not.
+ - The placing of the center pawns determines the ‘topography’ of a game of chess.
+ - Here is a definition which correctly reflects the course of thought and action of a grandmaster: – The plan in a game of chess is the sum total of successive strategical operations which are each carried out according to separate ideas arising from the demands of the position.
+ - Sit there for five hours? Certainly not! A player must walk about between moves, it helps his thinking.
+ - The masters and grandmasters can be divided into three groups – the inveterate time trouble merchants, those who sometimes get into trouble, and those for whom the phenomenon is a very rare occurence.
+ - Once upon a time supporters of the Steinitz-Tarrasch school had a very high opinion of a queen-side pawn majority. Modern strategy on the other hand categorically denies that such a majority is an independent factor of any importance.
+ - It has always been recognized that chess is an art, and its best practitioners have been described as artists.
+ - If a chess statistician were to try and satisfy his curiousity over which stage of the game proved decisive in the majority of cases, he would certainly come to the conclusion that it is the middlegame that provides the most decisive stage.
+ - If you study the classic examples of endgame play you will see how the king was brought up as soon as possible even though there seemed no particular hurry at the time.
+ - I soon realized that it is not enough for a master simply to analyse variations scrupulously just like an accountant. He must learn to work out which particular moves he should consider and then examine just as many variations as necessary – no more and no less.
+ - Go through detailed variations in your own time, think in a general way about the position in the opponent’s time and you will soon find that you get into time trouble less often, that your games have more content to them, and that their general standard rises.
+ - Drawing general conclusions about your main weaknesses can provide a great stimulus to further growth.
+ - Once in a Moscow chess club I saw how two first-category players knocked pieces off the board as they were exchanged, so that the pieces fell onto the floor. It was as if they were playing skittles and not chess!
+ - I can remember a case where Capablanca worked out an impressive combination, but then chose to make a simple move in answer to which his opponent resigned at once!
+ - There is no doubt that the reason for my awful oversight was over-confidence that sapped my sense of danger. So that is where to look for the cause of bad blunders – in the exulting feeling of self-congratulation.
+
+33 quotes

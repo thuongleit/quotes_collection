@@ -1,0 +1,26 @@
+ - Women challenge the status quo because we are never it.
+ - People love advertising in particular but they hate advertising in general.
+ - Out of discomfort comes greatness.
+ - I consider myself a rampant feminist.
+ - I had a high-flying career. Never wanted to get married. All I wanted to do was have some fun.
+ - I like to describe myself as a proudly visible member of the most invisible segments of our society – older women.
+ - I design my start-up ventures around my own personal beliefs and values.
+ - I have a low tolerance for people who complain about things but never do anything to change them. This led me to conclude that the single largest pool of untapped natural resources in this world is human good intentions that are never translated into actions.
+ - Despite their good intentions, today’s businesses are missing an opportunity to integrate social responsibility and day-to-day business objectives – to do good and make money simultaneously.
+ - There was no active, conscious decision-making point, just a gradual realization over time that I’m very happy minus children and marriage.
+ - I realized relatively early on that I had no desire to be a mother whatsoever. I actually love children, but specifically other people’s.
+ - Too many people, including the ad industry, believe the future is something that happens and just rolls them over in it’s wake.
+ - I’ve never felt any particular desire to be married.
+ - I deplore the shying away that can go on, within women, from the term ‘feminist.’ I am, absolutely, all about being a feminist.
+ - The single biggest lesson I learned was when a hire isn’t working out fire them fast. My biggest mistakes, and where I’ve seen the worst results, were when I gave someone too many chances, or let a situation drift on for too long because I couldn’t bring myself to terminate it.
+ - Client companies and advertising agencies are old-world-order places. The systems and processes and structures come from a time when you shot the TV commercial, then you did the print ads, then you did everything else – including the website. Everything has changed, but the systems haven’t.
+ - My personal cause and platform, if you like, is women’s rights and women’s issues.
+ - I realized I was an attractive older woman who never wanted to settle down.
+ - Anyone who has worked with me knows that I am extremely action-oriented. I’m all about making things happen.
+ - If I ran the world, I would find a way to bring the wealth of human good intentions and corporate good intentions together – to activate them collectively into shared action against shared objectives that produces shared hard, tangible results.
+ - It took a woman to actually do something about the lack of women in creative departments.
+ - We have to move from making good advertising, to making advertising good.
+ - When I give talks like the one I’m going to give at the Changing Advertising Summit, one of the points I often make to the audience is that I’m not one of those speakers who stands in front of the audience and pontificates – everything I talk about I’m actually doing myself. I’m living it.
+ - I like to stand out and make a statement.
+
+24 quotes

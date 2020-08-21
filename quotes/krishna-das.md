@@ -1,0 +1,40 @@
+ - The ultimate act of power is surrender.
+ - Bhakti yoga isn’t something you join, it’s love. It means falling in love.
+ - Let’s just chant and be good people, alright?
+ - Don’t wait for a Guru. Your life is your Guru.
+ - Love is what we are; we don’t get it from somebody, we can’t give it to anybody, we can’t fall in it or fall out of it. Love is our true Being.
+ - The heart is like a mirror. When we dust it off, we are able to see ourselves. The dust is all our stuff – guilt, anger – this stuff is reflected back to us. Practice removes the dust from the mirror of our hearts.
+ - To love somebody is to let them be who they are and do what they have to do.
+ - Chanting is a way of getting in touch with yourself. It’s an opening of the heart and letting go of the mind and thoughts. It deepens the channel of grace, and it’s a way of being present in the moment.
+ - Hanuman not only gives liberation, he also fulfills our beneficial desires.
+ - Bliss is easy, just take a drug. What is hard is feeling good about our real selves.
+ - You can’t think yourself out of a box that’s made of your thoughts.
+ - The repetition of the holy names reveals a presence hidden within the heart. Something begins to happen that’s very disturbing – we get happy.
+ - We instantly believe everything we think. Isn’t that insane? It’s good for us to explore the depravity of our minds, so we know we are just as crazy as everyone else!
+ - Grace removes obstacles that we don’t even know are there. Grace is what arranges our lives so we are forced to look within.
+ - Practice is not about how you feel while you are doing it. You are planting seeds.
+ - The Presence is our own presence. We are not getting anything from the outside. We already have all we need inside.
+ - On the Path, it’s impossible to know how you are doing because it’s the judger who is disappearing.
+ - There is an eighth color that we don’t have the sense apparatus to see or experience.
+ - Until you are fully enlightened, you can never know what another person’s reality is like for them.
+ - All we can know is our own subjective version of reality. That’s the way we go through our lives. Everybody.
+ - When our desires are fulfilled, and we still feel unhappy – this is the moment we begin the process of letting go.
+ - Just the slightest turn toward the inside is a very big thing.
+ - You can’t manipulate a heart open. You can only allow it to open in the right circumstances.
+ - When you meet your guru or a being who knows, who is no longer loving, but has become love, a being who is sitting in truth, and in compassion and kindness for all beings – you know. When I met my guru, I knew. And it was before I met him physically, actually.
+ - I’m reconnecting, I’m deepening, I’m opening, I’m releasing negativity and negative thoughts and all the limitations I carry around with me – again and again and again and again and again and again. And again! And that’s the only thing that keeps me alive.
+ - Ultimately when I am with you all, what I see is my Guru. And what is he? He is love.
+ - As we do practice something unexpected starts to happen-we get happy!
+ - Devotion is a way of being, it’s not something you do. It’s dedication to finding awareness and Love. Chanting is like asanas for the mind and the heart.
+ - You can never really know what a guru is as long as you are imprisoned by your own thoughts and circular ego.
+ - Surrender happens by Grace. All we’re doing is cleaning up the room so when Surrender walks in, He can sit down.
+ - It takes two to tango! I need everybody to sing with me.
+ - I mope around less. It is horrible. I miss it.
+ - Real compassion is not emotional. Real compassion is based on the experience that all beings, which might appear separate, are actually a part of my own body, and I am a part of the body of the universe. We are not separate. So if one being hurts, I also hurt.
+ - If I had been born in Germany with family of Nazis and if I had been raised with those beliefs, there was very little chance that I wouldn’t be exactly like all those guards and all those people who tortured everybody.
+ - It’s inexplicable why somebody can lose a leg and it doesn’t effect them at all emotionally; and another person can lose a foot and be destroyed for the rest of their lives.
+ - When we start to talk about gurus, we’re talking about beings who actually know what this is all about. They know who we were, where we came from, and where we’re going. They are not imprisoned in a selfish or self-centered view of the universe.
+ - Devotion is a disease. And you catch it from those people who have it.
+ - The heart in us is deeper than any emotion or psychological issue.
+
+38 quotes

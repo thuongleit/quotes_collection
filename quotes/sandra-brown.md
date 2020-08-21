@@ -1,0 +1,21 @@
+ - Life was precious. Life was fragile. Here one moment, gone the next. Every second should be milked for all it’s worth because you never know when the bottom was going to drop out.
+ - What do you want? What are you willing to give up to get it? Writing requires you make sacrifices. Be prepared to work hard to be a writer.
+ - I love being the bad guy, simply because I was always so responsible, so predictable growing up.
+ - People adjust their behavior to fit the society they live in. They integrate because they have to. But what they are on the inside doesn’t change.
+ - Be prepared to work hard to be a writer.
+ - Even knowing the ending was sad, I wouldn’t have deprived myself the beauty of the story.
+ - I don’t panic unless I have to. Wastes energy.
+ - Should men and women be equal in all things? Absolutely. But I’m old-fashioned in that I like the differences between the sexes. My male characters are neither Neanderthals nor Prince Charmings. They’re flawed.
+ - Ah, but being in love made you mean and crazy. Love made you act like a fool even when you knew you were acting like a fool and couldn’t help yourself from acting like a fool.
+ - I think of my books now as suspense novels, usually with a love story incorporated. They’re absolutely a lot harder to write than romances. They take more plotting and real character development.
+ - He won’t hurt me. I have a secret weapon.
+ - Don’t ever be afraid to live. Because though dying is easy when compared to living.
+ - If you loved people, you might hurt them, dissapoint them, anger them, but you never, ever, dishonored them.
+ - I came to write after several mini careers. I did live theatre, managed a cosmetics store and was a local television personality.
+ - Extraordinary beauty can be a curse to the one who possesses it. one pays a dear price for fame and fortune.
+ - For each book, there’s a back story of where the idea came from. Sometimes it’s derived from a current event or topic of discussion. Often it begins with a character. And often, I have NO idea what sparked the idea. It’s just there.
+ - In order to win everything, a woman must know to lose.
+ - You can only write by putting words on a paper one at a time.
+ - I made straight A’s and never got into any trouble, and I still impose those standards on myself. So writing is my chance to escape and become the sleaziest, scummiest role.
+
+19 quotes

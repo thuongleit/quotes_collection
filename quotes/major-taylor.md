@@ -1,0 +1,23 @@
+ - In closing I wish to say that while I was sorely beset by a number of white riders in my racing days, I have also enjoyed the friendship of countless thousands of white men whom I class as among my closest friends.
+ - I pray they will carry on in spite of that dreadful monster prejudice, and with patience, courage, fortitude and perseverance achieve success for themselves.
+ - Life is too short for any man to hold bitterness in his heart.
+ - Modesty should be typical of the success of a champion.
+ - It is my thought that clean living and a strict observance of the golden rule of true sportsmanship are foundation stones without which a championship structure cannot be built.
+ - Each great athlete must some day bow to that perennial old champion, Father Time, even as I, for Time eventually wins.
+ - The moral turpitude of the boys of today appears to center in their failure to concentrate on any particular objective long enough to obtain their maximum results.
+ - I would advise all youths aspiring to athletic fame or a professional career to practice clean living, fair play and good sportsmanship.
+ - I can hardly express in words my deep feeling and sympathy for them, knowing as I do, the many serious handicaps and obstacles that will confront them in almost every walk of life.
+ - I do not believe there is any royal road to success as an athlete any more than there is to others in everyday life.
+ - In a word I was a pioneer, and therefore had to blaze my own trail.
+ - There will always be that dreadful monster prejudice to do extra battle against because of their color.
+ - As a reward of their clean living and good habits these great stars have been able to withstand the rigorous test of stamina and physical exertion and have thus successfully extended their most remarkable careers over a period of many strenuous years.
+ - These rules may seem simple enough, but it will require great morale and physical courage to adhere to them. But if carried out in the strict sense of the word it will surely lead to a greater success than could otherwise be attained.
+ - An athlete must have ability to reach the top, but many who have ability and who do not live clean lives never have and never will be champions for obvious reasons.
+ - Clean living is the cardinal principle in the lives of the world’s greatest athletes, as the phenomenal performances of these outstanding characters will obviously show.
+ - I know that a good many champions have entertained the thought that the more they discourage youngsters, the longer they would reign. However, this theory never impressed me, and I always made it a point to give youths the benefit of my experience in bicycle racing.
+ - Realizing full well that fine condition and confidence will not in themselves make a champion, it is my belief, however, that they are essential factors.
+ - I have also noticed that when a rider who had confidence in his ability was defeated, after doing his level best to win, always received an ovation from the gathering.
+ - I would like to cite an instance which proves the efficacy of clean living on the part of an athlete coupled with the inspiration received from a champion which go a long way to making a champion.
+ - To these ideals which were instilled in me when I was a youth, I attribute in a large degree the success that was mine on the bicycle tracks of the world.
+
+21 quotes

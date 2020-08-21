@@ -1,0 +1,42 @@
+ - Freedom consists not in doing what we like, but in having the right to do what we ought. ~~Pope John Paul II
+ - To argue with a person who has renounced the use of reason is like administering medicine to the dead. ~~Thomas Paine
+ - Wish not so much to live long as to live well. ~~Benjamin Franklin
+ - Little strokes fell great oaks. ~~Benjamin Franklin
+ - Let us not seek the Republican answer or the Democratic answer, but the right answer. Let us not seek to fix the blame for the past. Let us accept our own responsibility for the future. ~~John F. Kennedy
+ - It is impossible to rightly govern a nation without God and the Bible. ~~George Washington
+ - Freedom is never voluntarily given by the oppressor; it must be demanded by the oppressed. ~~Martin Luther King Jr.
+ - This country will not be a good place for any of us to live in unless we make it a good place for all of us to live in. ~~Theodore Roosevelt
+ - What we obtain too cheap, we esteem too lightly; it is dearness only that gives everything its value. ~~Thomas Paine
+ - The boisterous sea of liberty is never without a wave. ~~Thomas Jefferson
+ - Discipline is the soul of an army. It makes small numbers formidable; procures success to the weak, and esteem to all. ~~George Washington
+ - Volunteers are the only human beings on the face of the earth who reflect this nation’s compassion, unselfish caring, patience, and just plain love for one another. ~~Erma Bombeck
+ - Let your heart feel for the afflictions and distress of everyone, and let your hand give in proportion to your purse. ~~George Washington
+ - My first wish is to see this plague of mankind, war, banished from the earth. ~~George Washington
+ - We hold these truths to be self-evident: that all men are created equal; that they are endowed by their Creator with certain unalienable rights; that among these are life, liberty, and the pursuit of happiness. ~~Thomas Jefferson
+ - If the freedom of speech is taken away then dumb and silent we may be led, like sheep to the slaughter. ~~George Washington
+ - Some day, following the example of the United States of America, there will be a United States of Europe. ~~George Washington
+ - What to the Slave is the 4th of July. ~~Frederick Douglass
+ - In the truest sense, freedom cannot be bestowed; it must be achieved. ~~Franklin D. Roosevelt
+ - We dare not forget that we are the heirs of that first revolution. ~~John F. Kennedy
+ - True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation. ~~George Washington
+ - Lose yourself in generous service and every day can be a most unusual day, a triumphant day, an abundantly rewarding day! ~~William Arthur Ward
+ - Happiness and moral duty are inseparably connected. ~~George Washington
+ - Better to starve free than be a fat slave. ~~Aesop
+ - An army of principles can penetrate where an army of soldiers cannot. ~~Thomas Paine
+ - Society is produced by our wants and government by our wickedness. ~~Thomas Paine
+ - There is no such thing as a little freedom. Either you are all free, or you are not free. ~~Walter Cronkite
+ - For all my life, America was the place to be. And we somehow continue to be the place where there are real opportunities to change the world for the better. ~~James D. Watson
+ - Our great modern Republic. May those who seek the blessings of its institutions and the protection of its flag remember the obligations they impose. ~~Ulysses S. Grant
+ - America is another name for opportunity. Our whole history appears like a last effort of divine providence on behalf of the human race. ~~Ralph Waldo Emerson
+ - Experience keeps a dear school, but fools will learn in no other. ~~Benjamin Franklin
+ - Early to bed and early to rise makes a man healthy, wealthy, and wise. ~~Benjamin Franklin
+ - Freedom is the oxygen of the soul. ~~Moshe Dayan
+ - I like to see a man proud of the place in which he lives. I like to see a man live so that his place will be proud of him. ~~Abraham Lincoln
+ - Life without liberty is like a body without spirit. ~~Khalil Gibran
+ - The Constitution is the guide which I never will abandon. ~~George Washington
+ - All tyranny needs to gain a foothold is for people of good conscience to remain silent. ~~Thomas Jefferson
+ - The harder the conflict, the more glorious the triumph. ~~Thomas Paine
+ - It is better to be alone than in bad company. ~~George Washington
+ - He that is good for making excuses is seldom good for anything else. ~~Benjamin Franklin
+
+40 quotes

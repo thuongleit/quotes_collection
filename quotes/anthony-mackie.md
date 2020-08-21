@@ -1,0 +1,53 @@
+ - For me, Christmas is about family, loving, forgiveness, compassion, understanding and comradery.
+ - Art-school girls are very nice.
+ - I was raised with a sense of entrepreneurship – my father owned a roofing business, and I grew up with the idea that you never want someone telling you what you can and cannot do.
+ - You never see girls running after engineers.
+ - At Juilliard, I couldn’t afford to have fun. I went to school and stayed home.
+ - So I feel like success is opportunity plus preparation, so work begets work, and as long as you’re prepared it’s going to continue to come your way.
+ - When I was in high school, I read the whole thing about Don King and he had this quote that said, “Set yourself on fire and the world will pay to watch you burn.” I thought that was the most amazing thing I’d ever heard and I wrote it on my wall.
+ - Even though homelessness reaches into the depths of despair, there’s also a pride and beauty in it, as well.
+ - Everybody knows when you’ve got a role in a Spike Lee movie, you’re gonna blow up. But I happen to be the only person who’s had the lead in the two Spike Lee movies nobody saw.
+ - I’m a firm believer in people who love what they do.
+ - There was this rapper from New Orleans, Mystikal, who when I hear his music, I hear myself. Whenever I wanna get hyped, I put on Mystikal.
+ - I’m happy to be an Avenger!
+ - As actors, the great thing about our career is we get to change from role to role. I don’t want to be known as “put him in the movie because he has nice abs” guy.
+ - I would love to be a superhero.
+ - People fight for their regulars. It gets dirty sometimes.
+ - In New Orleans, where I’m from, the average household income, with two working parents, two kids, a dog and a little fence is $16,000 a year, so $15,000 for a movie sounds pretty good.
+ - People don’t come to Marvel movies for personal life subplots, no.
+ - I work out every day just to keep in shape. I feel like I never want to get stuck in a position where when you need somebody with great arms, you call Anthony Mackie. That hasn’t been the calling card for my career, and nor do I want it to be.
+ - Every time I get mad, I grab my hammer and make a bookshelf or something.
+ - I like movies. Movies have afforded me a modicum of luxuries. The thing about the movies is, if you’re bad in a movie, you’re bad forever.
+ - The choices that we make through our lives, the people who intersect us on our path kind of change what our fated destiny is. So some of us are lucky enough for the choices that we make to keep us on our path.
+ - What was funny, going to the gym, you see all these guys who are just massive. There’s no way a person can naturally get that way. In the gym, you meet these guys and you talk to them, and everybody’s really willing and open to explain to you what cycle they’re on and to help you get on it.
+ - With being an Avenger there’s not really a hierarchy. Everybody gets to make decisions, everybody’s put in a position to save the day as opposed to standing there while one person flies in and saves the day and you’re like, “Good job!” Avengers is really a team effort.
+ - If everyone invested in the neighborhood they lived in, the United States would be a magical place.
+ - Acting is the only medium were people think they can just stand up and do it because they can say lines, but that is not so much the case. You have to study styles and techniques.
+ - The stage is my first love.
+ - The great thing about it is, in Hollywood, certain people are very good at keeping their lives and who they are very private. I’ve never met anybody as down to earth and cool in Hollywood than Matt Damon.
+ - I did this movie with Spike Lee called ‘Sucker Free City,’ and that would have to be my favorite role by far. It was just so much fun to work with Spike and shoot in San Francisco.
+ - If the acting don’t work out, I’ll have a future in construction.
+ - Most of the time when you see a movie, the best character in the movie is not “the guy,” it’s the guy next to the guy.
+ - Not too many people can say they love what they do and they really like the people they work with.
+ - If you look at the true essence of the Black Panthers, they were more of a community protection group.
+ - As an actor, the only thing we can do is play the truth at that moment. Because at any point in time if you play the future, or you play that you know something that the audience does not know, it kills the illusion of reality.
+ - Most of my movies are indies. The best scripts I can find are independent films. But I love big-budget movies, I love craft services!
+ - I’m not Martin Luther King. I can’t be Martin Luther King. The only thing I can do is present what I feel the essence of Martin Luther King is.
+ - If you want to buy a good movie, you’ll buy a good movie. If you don’t want to buy a good movie, you’ll buy a ‘Twilight’ movie.
+ - I think you can only be outgoing when the person you’re talking to is outgoing. I can be outgoing if I want to be, if you meet me halfway.
+ - I’m a poet. I’m just a renaissance man in my heart. I can build shelves and I can write poetry.
+ - I enjoy where I am and I don’t have a problem with being Steve Buscemi, Stanley Tucci, Don Cheadle, or Jeffrey Wright. They’re not the lead of every movie they’re in, but every time you see them they’re really good.
+ - I’m not Josh Brolin or Ryan Gosling. They’re more noir than I.
+ - I love what I do. If I have the opportunity to do what I do with people I admire, it’s 10 times better.
+ - I just don’t understand how people can get so caught up in having their picture taken.
+ - Instead of becoming an engineer like my brother, I moved to New York to be an actor.
+ - Playing somebody who’s real, you can bring all kind of nuances and things to him that you get from source material and things like that, but the more popular or known the person is, the more impossible it is. To get it right, that is the goal.
+ - I got a job as soon as I graduated from school. I always wanted to bartend because I love listening to people and how awful their lives are.
+ - I’m definitely not a muscle builder or a guy that’s interested in being a muscle builder. It feels good to get back down to a normal size. Not like a hipster size or a buff-guy size, but just a normal, 34-waist guy.
+ - I haven’t been able to grasp the concept of putting your life on the line for whatever reason people go into the military for. Some people just want to pay their bills, some people believe in their country and some people do it because their parents did it, but that’s rough.
+ - There are a lot of limitations and stigmas that are placed on young actors, specifically young black actors.
+ - Money always changes the game, when you let a dollar come between you and your friends, your cohorts.
+ - Do you want to be an actor, or do you want to be a celebrity? I made that decision when I went to Juilliard. I wanted to be an actor. So, if I get the opportunity to be an actor and do some cool, fun and interesting projects, I’m going to do that.
+ - Hollywood’s a business, and until someone puts their finger on you and decides you’re the guy who’s going to carry that movie, it’s not going to happen.
+
+51 quotes

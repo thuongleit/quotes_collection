@@ -1,0 +1,23 @@
+ - Treat me good, I’ll treat you better, treat me bad and I’ll treat you worse.
+ - I always look ahead, to the side, but never back.
+ - Find your speed, maintain your velocity, keep it up, keep it consistent, and stay in the pocket.
+ - Treat people the way you want to be treated. When they don’t treat you back that way, react. React to everything.
+ - Joining a band of brothers together, a group with one common interest or mission, whether as a company, a team, or a motorcycle club, requires not only a commitment to loyalty but an understanding of self-preservati on as well...
+ - The greatest thing that I have learned is probably the simplest thing any of us can learn: I am who I am.
+ - Freedom is what we all seek, but it’s what we do with that freedom that ultimately defines our character. In the end, a man’s character cements his fate, good or bad.
+ - My most basic credo is: I never said freedom was cheap. And it ain’t. Never will be. It’s been the highest priced and most precious commodity in my life.
+ - I remain committed to my core family as one I can trust and depend on. The end result is the assurance that I’m surrounded by the people who will help me, stick by me, and fight alongside me, through good and bad, life and death.
+ - When you are a member of an organization, life isn’t only about you. As part of a circle of people who depend on one another, you watch one another’s back and remain loyal to the concept of brotherhood.
+ - Try to remember the reason you started riding a motorcycle in the first place. For me, it was a couple of things but mostly rebellion.
+ - There’s the difference between hardcore motorcycle riders and people who own motorcycles. Some people ride’em and some people trailer’em.
+ - You can’t lie down when people come on to use you, you have to stand up for your rights too.
+ - I’m not a deeply religious person and I don’t really know if there’s a God or not and I don’t really even care, but something out there has got to control something. Because people can put a gun in their mouth and pull the trigger and live and someone else can slip on the curb and die.
+ - I don’t believe in God. I believe something is happening, I’m not sure what it is.
+ - I don’t think drugs should be illegal. I’m not an advocate of everybody running out and using drugs, but I think the drug wars are not working, there’s millions and millions of dollars being spent on the drug war that we’re never going to win.
+ - The ride does not require an explanation, just participants.
+ - Don’t ever hit a person first, but if anybody ever puts their hands on you, you hit them right between the eyes.
+ - If you lie down and let somebody kick you, you’re never going to get nowhere. You have to stand up.
+ - We’ve got thousands and thousands of people in jail on minor drug violations and they really don’t need to be in jail. They’re people whose lives are ruined. If drugs were legal there would be a lot less people using them.
+ - You don’t see people in prison treating each other the way people do on the outside, and the reason is that if you’re rude to somebody in prison, you get killed.
+
+21 quotes

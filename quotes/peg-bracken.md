@@ -1,0 +1,42 @@
+ - Gifts of time and love are surely the basic ingredients of a truly merry Christmas.
+ - Everything takes longer than you think it should, except for some things that don’t take as long.
+ - Quotations can be valuable, like raisins in the rice pudding, for adding iron as well as eye appeal.
+ - The same fire that hardens the egg will melt the butter; and much depends on the personality type, whether you customarily rise to a challenge or whether you sink. For as long as I can remember, I have been a sinker. One challenge, and I drop like a rock.
+ - There are worse things than being fat, and one of them is worrying about it all the time.
+ - As millions of women have done before me, I pulled domesticity over my head like a blanket and found I was still cold.
+ - It’s easier to find a traveling companion than to get rid of one.
+ - I recently adopted for my own a good motto I saw somewhere, on a barroom mirror or possibly a washroom wall: ‘The time you enjoyed wasting wasn’t wasted.’ I think I’ll have that printed some day on a T-shirt or the bedroom ceiling.
+ - Life is so very simple when you have no facts to confuse you.
+ - Why does a slight tax increase cost you two hundred dollars and a substantial tax cut save you thirty cents?
+ - People will admit to arson and mayhem sooner than no sense of humor.
+ - You may have noticed, as I have, that if ever you find yourself declaring emphatically and unequivocally that you will never do some one particular thing, chances are good that this is precisely what you will one day find yourself doing.
+ - Like a chastity belt, the package tour keeps you out of mischief but a bit restive for wondering what you missed.
+ - Many a restaurant seems to employ more copy writers than cooks.
+ - People would have more leisure time if it weren’t for all the leisure-time activities that use it up.
+ - Kitchens were different then, too – not only what came out of them, but their smells and sounds. A hot pie cooling smells different from a frozen pie thawing.
+ - One of the loveliest things about being grown up is the knowledge that never again will I have to go through the miserable business of performing in Mrs. Smedley’s Annual Piano Recital at McKinleyville’s First Presbyterian Church.
+ - You don’t get over hating to cook, any more than you get over having big feet.
+ - Every idea is my last. I feel sure of it. So, I try to do the best with each as it comes and that’s where my responsibility ends. But I just don’t wait for ideas. I look for them. Constantly. And if I don’t use the ideas that I find, they’re going to quit showing up.
+ - There was something immensely comforting, I found, about a crumpet – so comforting that I’ve never forgotten about them and have even learned to make them myself against those times when I have no other source of supply.
+ - It isn’t surprising that many children consider their parents to be a little dim, and that they sometimes try to update them. The fact that they don’t usually try too hard is just as well; a thoroughly updated parent is an unappetizing sight.
+ - It is important to remember that these are your Declining Years, in which you can jolly well decline to do what you don’t feel like doing, unless not doing it would make you feel worse than doing it.
+ - When I finally gathered, invented, stole, simplified, borrowed, and found a publisher for a clutch of reasonably foolproof recipes, I learned I had friends I hadn’t known about – more proof that a mutual dislike can be quite as sound a basis for friendship as a mutual devotion.
+ - The fact is, the cocktail party has much in its favor. Going to one is a good way of indicating that you’re still alive and about, if such is the case, and that you’re glad other people are, without having to spend an entire evening proving it.
+ - Mothers always think you are working either too hard or not hard enough.
+ - Facts must be faced. Vegetables simply don’t taste as good as most other things do.
+ - It is a rare expert who clearly realizes how inexpert someone else can be.
+ - It is always a taut moment in a foreign country waiting to see if your English-speaking guide speaks English...
+ - Cheese for dessert is rather like Paradise Lost in that everyone thinks he ought to like it, but still you don’t notice too many people actually curling up with it.
+ - I believe that one’s basic financial attitudes are – like a tendency toward fat knees – probably formed in utero, or, at the very latest, in cribbo.
+ - When you’re little, time stretches obligingly, and vacation is forever.
+ - This is your dividing line, by the way, between child and nonchild – when the first trouble happens that Mama can’t fix.
+ - When there’s a lot of it around, you never want it very much.
+ - On their return from a trip, it is wise to see friends promptly, before they’ve had time to get their pictures developed.
+ - What most of us are after, when we have a picture taken, is a good natural-looking picture that doesn’t resemble us.
+ - Peas went with carrots as infallibly as ham went with eggs. For years I thought carrots and peas grew on the same vine.
+ - I didn’t learn for years that you generally find your Self after you quit looking for it.
+ - This wild emaciated look appeals to some women, though not to many men, who are seldom seen pinning up a Vogue illustration in a machine shop.
+ - But let me say this about learning experiences: they’re weird. Or put it this way: what you learn from a learning experience is generally something else.
+ - Drinking: something to do while getting drunk.
+
+40 quotes

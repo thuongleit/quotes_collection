@@ -1,0 +1,27 @@
+ - Love is misunderstood to be an emotion; actually, it is a state of awareness, a way of being in the world, a way of seeing oneself and others.
+ - We change the world not by what we say or do, but as a consequence of what we have become.
+ - The intention manifests when the condition is appropriate.
+ - To become more conscious is the greatest gift anyone can give to the world; moreover, in a ripple effect, the gift comes back to its source.
+ - The joy of God is so exquisite that any sacrifice is worth the effort and seeming pain.
+ - The capacity to recognize significant factors in a given situation is limited by the context that arises from the level of consciousness of the observer.
+ - The decision to overlook the seeming inequities of life instead of reacting to them is a choice.
+ - Truth is verifiable only by identity with it and not by knowing about it.
+ - Every thought, action, decision, or feeling creates an eddy in the interlocking, inter-balancing energy fields of life. In this interconnected universe, every improvement we make in our private world improves the world at large for everyone.
+ - Beliefs are the determinants of what one experiences. There are no external ‘causes.’
+ - It was apparent that all of mankind is actually motivated by inner love, but has simply become unaware; most people live their lives as though they’re sleepers unawakened to the perception of who they really are.
+ - Victory over others brings us satisfaction, but victory over ourselves brings us joy.
+ - We need to explore the relationship between means and ends. Purposes grow out of situations. One may find the pursuit first and then this brings the purpose.
+ - The goal of society in general is to succeed in the world, whereas the goal of enlightenment is to transcend beyond it.
+ - All things radiate forth an intense aliveness.
+ - The main obstacle to our development is our lack of knowledge about the nature of consciousness itself.
+ - One makes a gift of one’s life and endeavors by sanctifying it with love, and devotion and selfless service. When seeking to uplift others, we are uplifted in the process. Every kind thought or smile therefore benefits oneself as well as all the world.
+ - That which is injurious loses its capacity to harm when it is brought into the light, and we attract to us that which we emanate.
+ - All of us must cross the line between ignorance and insight many times before we truly understand.
+ - The effect on human consciousness of the experience of the Presence of God is subjectively transformative and identical throughout human history. It leaves a timeless mark that is verifiable as a calibration of a recorded level of conciousness.
+ - God is both manifest as the Totality and Allness of Creation and simultaneously unmanifest as the Godhead, the Infinite Potentiality and source or ‘void-ness’ prior to form.
+ - The best companies are able to realize earnings in cash, not through calculations that belong in fantasyland.
+ - You can’t do a good job unless you’re keen on it yourself.
+ - One is not the victim of mentation but instead is the very originator by virtue of intention to extract projected value. With this understanding, one is free from being dominated by the false “I” of the experiencer.
+ - You can memorize your way through a labyrinth if it is simple enough and you have the time and urge to escape. But the learning is of no use for the next time when the exit will be differently placed.
+
+25 quotes

@@ -1,0 +1,46 @@
+ - Tomorrow, is the first blank page of a 365 page book. Write a good one.
+ - She’s not perfect, but she tries so hard for me. And I thank God, that she isn’t, cause how boring that would be.
+ - Deep down, I’m just a West Virginia hillbilly.
+ - When every memory has been made and the pages start to fade. And every prayer you ever prayed is heaven bound. When you think the ride is over, you’re back at the beginning. Love is never-ending.
+ - You can’t kill it with goodbye; It always finds a place to hide inside your heart for your whole life. Love is never-ending.
+ - I hope I’m at least half the dad that he didn’t have to be.
+ - I get to cry to Barbara Walters, when things don’t go my way. I’ll get community service no matter which laws I break.
+ - I love any and all situations where you celebrate creativity.
+ - Yea there ain’t nothing not affected when two hearts get connected. All that is will be or ever was; every single choice we make; every breath we get to take is all because two people fell in love.
+ - When a single mom goes out on a date with somebody new. It always winds up feeling more like a job interview.
+ - I can fall in and out of love, have marriages that barely last a month. When they go down the drain, I’ll blame it on the fame.
+ - That there’s no more important decision in life than who you marry.
+ - Can’t wait to date a supermodel, can’t wait to sue my Dad. Can’t wait to wreck a Ferrari, on the way to rehab.
+ - Anytime you do something from the heart, people just know it.
+ - I’m sure there are a few things in my CD collection that might surprise people. I like classical music, the blues, and I’m a big fan of alternative rock.
+ - If you’re really on top, you probably didn’t do that great, ’cause you have to water it down a bit for it to get that mass appeal.
+ - Alison Krauss is definitely my favorite singer that’s ever lived. I’ve never heard anyone like her.
+ - Even in your darkest moments, you’ll think of something that’ll crack you up.
+ - Someday I’m gonna be famous. Do I have talent, well, no. These days you really don’t need it.
+ - There ain’t a woman in the world that wants to hear the word yes when she asks if you think that she looks chubby in that dress. And if she cooks all day you better eat it with a smile; it doesn’t matter if it tastes just like bad gravy on a Goodyear tire.
+ - Country music has become the music that best represents the reality of American life.
+ - I imagine there’s a market for total depression. I grew up on George Jones and that really dark stuff.
+ - Guitar playing isn’t really for everybody.
+ - It comes down to building your own world out here on the road. It’s who you surround yourself with. My band and crew are really positive guys.
+ - You look out there and there’s people that, their day is changed because of your contribution to it.
+ - Rock Band never got anybody a date. Never.
+ - I like to look at the songs like they’re little movies.
+ - I really worked to try and be creative enough on the guitar parts so those who aren’t real educated would know that there was some difficulty in doing it.
+ - The nice thing about the world that I’ve been able to inhabit for the last couple of years is that I’m given a lot of freedom. Not all artists really get that.
+ - I have a to-do list and I have a farm I care for, and things I like to do for fun – going to movies and all that stuff. It’s a painfully normal life!
+ - If you fall in love with somebody, then you’re not even worried about your bills. Love can take your mind off of anything.
+ - As a guitar player, it’s harder for me to impress somebody than it is to write a song that they like.
+ - I don’t stare at a sheet of paper and try to think of a good word to use. I try to see where the story should go.
+ - I’m aware of the fact that a lot of talented people out there will never get this chance.
+ - Even on the most serious ballads, I’ll throw in a tongue-in-cheek remark.
+ - If I get an idea for a song, I have a melody for it. I’m a musician first. I’m not limited by the fretboard.
+ - Jackass millionaires, hey, hey, Hollywood, here we come.
+ - When they say you’re the best, I always remember that the majority of the audience probably thinks someone else should have gotten the award.
+ - Willie Nelson, out there 200 days a year, calls his band family. And it is.
+ - I’m a last-minute shopper. I end up at the mall or somewhere on Christmas Eve. It’s a shame.
+ - I changed my mindset and figured, Why not try to be really entertaining instrumentally?
+ - In the past, I tried to be more of a typical session guitarist. I wasn’t so concerned with impressing anybody.
+ - If there’s a song where there’s a possibility of guitar stuff that would be fun to listen to, go for it. Don’t worry about what anybody thinks.
+ - I go to eat dinner with my folks when I’m home. I think that’s the trick.
+
+44 quotes

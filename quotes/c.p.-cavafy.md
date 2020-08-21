@@ -1,0 +1,30 @@
+ - When you set sail for Ithaca, wish for the road to be long, full of adventures, full of knowledge.
+ - Have Ithaka always in your mind. Your arrival there is what you are destined for. But don’t in the least hurry the journey.
+ - And if you can’t shape your life the way you want, at least try as much as you can not to degrade it...
+ - And if you find her poor, Ithaca has not deceived you. Wise as you have become, with so much experience, you must already have understood what these Ithacas mean.
+ - When you set out for Ithaca, ask that your way be long.
+ - Arriving there is what you are destined for.
+ - Try to keep them, poet, those erotic visions of yours, however few of them there are that can be stilled. Put them, half-hidden, in your lines.
+ - One candle is enough. Its gentle light will be more suitable, will be more gracious when the Shades arrive, the Shades of Love.
+ - That we’ve broken their statues, that we’ve driven them out of their temples, doesn’t mean at all that the gods are dead. O land of Ionia, they’re still in love with you, their souls still keep your memory.
+ - Body, remember not only how much you were loved, not only the beds you lay on, but also those desires glowing openly in eyes that looked at you, trembling for you in voices.
+ - Guard, O my soul, against pomp and glory. And if you cannot curb your ambitions, at least pursue them hesitantly, cautiously. And the higher you go, the more searching and careful you need to be.
+ - What shall become of us without any barbarians? Those people were a kind of solution.
+ - Of what’s to come the wise perceive things about to happen. Sometimes during moments of intense study their hearing’s troubled: the hidden sound of things approaching reaches them, and they listen reverently, while in the street outside the people hear nothing whatsoever.
+ - On hearing about powerful love, respond, be moved like an aesthete. Only, fortunate as you’ve been, remember how much your imagination created for you.
+ - Roses by the head, jasmine at the feet so appear the longings that have passed without being satisfied, not one of them granted a night of sensual pleasure, or one of its radiant mornings.
+ - From my most unnoticed actions, my most veiled writing from these alone will I be understood.
+ - From all I did and all I said let no one try to find out who I was.
+ - The holy Cross goes forward; it brings joy and consolation to every quarter where Christians live; and these God-fearing people, elated, stand in their doorways and greet it reverently, the strength, the salvation of the universe, the Cross.
+ - If you are one of the truly elect, be careful how you attain your eminence.
+ - My life has been awaiting you. Your footfall was my own heart’s beat.
+ - Return often and take me, beloved sensation, return and take me – When memory of the body awakens, and old desire again runs through the blood; when the lips and skin remember, and the hands feel as if they touch again.
+ - What are we waiting for, assembled in the forum? The barbarians are due here today.
+ - A month passes by and brings another month. Easy to guess what lies ahead: all of yesterday’s boredom. And tomorrow ends up no longer like tomorrow.
+ - And from this marvellous pan-Hellenic expedition, triumphant, brilliant in every way, celebrated on all sides, glorified incomparable, we emerged: the great new Hellenic world.
+ - The days of the future stand in front of us Like a line of candles all alight Golden and warm and lively little candles.
+ - Nero wasn’t worried at all when he heard the utterance of the Delphic Oracle: “Beware the age of seventy-three.” Plenty of time to enjoy himself still. He’s thirty. The deadline the god has given him is quite enough to cope with future dangers.
+ - The frivolous can call me frivolous. I’ve always been most punctilious about important things. And I insist that no one knows better than I do the Holy Fathers, or the Scriptures, or the Canons of the Councils.
+ - I’m practically broke and homeless. This fatal city, Antioch, has devoured all my money: this fatal city with its extravagant life.
+
+28 quotes

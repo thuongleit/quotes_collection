@@ -1,0 +1,56 @@
+ - To love is simply to allow another to be, live, grow, expand, become. An appreciation that demands and expects nothing in return.
+ - During depression the world disappears. Language itself. One has nothing to say. Nothing. No small talk, no anecdotes. Nothing can be risked on the board of talk. Because the inner voice is so urgent in its own discourse: How shall I live? How shall I manage the future? Why should I go on?
+ - Intercourse is an assertion of mastery, one that announces his own higher caste and proves it upon a victim who is expected to surrender, serve, and be satisfied.
+ - With the first act of cruelty committed in the name of revolution, with the first murder, with the first purge and execution, we have lost the revolution.
+ - Monogamy and prostitution go together.
+ - Psychiatry causes so much death.
+ - How crazy craziness makes everyone, how irrationally afraid. The madness hidden in each of us, called to, identified, aroused like a lust. And against that the jaw sets. The more I fear my own insanity the more I must punish yours...
+ - I don’t believe in monogamy, possessing people, the rightness or inevitability of jealousy.
+ - Homosexuality was invented by a straight world dealing with its own bisexuality.
+ - The lesbian is the archtypical feminist, because she’s not into men – she’s the independent woman par excellence.
+ - Isn’t privacy about keeping taboos in their place.
+ - We are women. We are a subject people who have inherited an alien culture.
+ - Given the conditions under which you’re a young person in this society, many things would be at least as important to you as your sexuality.
+ - The complete destruction of traditional marriage and the nuclear family is the ‘revolutionary or utopian’ goal of feminism.
+ - Life is a publicity stunt. A shill. You’ve been had.
+ - Politics is repetition. It is not change. Change is something beyond what we call politics. Change is the essence politics is supposed to be the means to bring into being.
+ - Mystical state, madness, how it frightens people. How utterly crazy they become, remote, rude, peculiar, cruel, taunting, farouche as wild beasts who have smelled danger, the unthinkable.
+ - You may well ask how I expect to assert my privacy by resorting to the outrageous publicity of being one’s actual self on paper. There’s a possibility of it working if one chooses the terms, to wit: outshouting image-gimmick America through a quietly desperate search for self.
+ - There are only moments. Live in this one. The happiness of these days.
+ - Prostitution is really the only crime in the penal law where two people are doing a thing mutually agreed upon and yet only one, the female partner, is subject to arrest.
+ - I believe there’s a killer in all of us. I know there’s one inside me. When you know the killer in you and you know also that you do not want to kill, you have to set yourself upon a course of learning. Not to kill that killer then, but to control it.
+ - You have to be a little patient if you’re an artist. People don’t always get you the first time.
+ - Ah, but depression – that is what we all hate. We the afflicted. Whereas the relatives and shrinks, the tribal ring, they rather welcome it: you are quiet and you suffer.
+ - The great mass of women throughout history have been confined to the cultural level of animal life in providing the male with sexual outlet and exercising the animal functions of reproduction and care of the young.
+ - They are more beautiful than anything in the world, kinetic sculptures, perfect form in motion.
+ - Many women do not recognize themselves as discriminated against; no better proof could be found of the totality of their conditioning.
+ - The whole bloody system is sick: the very notion of leadership, a balloon with a face painted upon it, elected and inflated by media’s diabolic need to reduce ideas to personalities.
+ - However muted its present appearance may be, sexual dominion obtains nevertheless as perhaps the most pervasive ideology of our culture and provides its most fundamental concept of power.
+ - Hell, I don’t want to grow old at all. I never want to die.
+ - Because of our social circumstances, male and female are really two cultures and their life experiences are utterly different.
+ - Aren’t women prudes if they don’t and prostitutes if they do?
+ - It would appear that love is dead. Or very likely in a bad way.
+ - To be a rebel is not to be a revolutionary. It is more often by a way of spinning one’s wheels deeper in sand.
+ - Men and women were declared equal one morning and everybody could divorce each other by postcard.
+ - Mother had committed me for life. This is where I felt betrayed the most.
+ - I saw hell. The hospital had divided and conquered pretty successfully.
+ - What is the natural reaction when told you have a hopeless mental illness? That diagnosis does you in; that, and the humiliation of being there. I mean, the indignity you’re subjected to. My God.
+ - For it is precisely because certain groups have no representation in a number of recognized political structures that their position tends to be so stable, their oppression so continuous.
+ - This is how psychiatry has functioned-as a kind of property arm of the government, who can put you away if your husband doesn’t like you.
+ - A revolution is not the overturning of a cart, a reshuffling in the cards of state. It is a process, a swelling, a new growth in the race. If it is real, not simply a trauma, it is another ring in the tree of history, layer upon layer of invisible tissue composing the evidence of a circle.
+ - People have a right to their own lives, and if you can’t help somebody, you ought to get out of their way.
+ - You won’t do any more housework Then you go to the bin.
+ - The image of the woman as we know it is an image created by men and fashioned to suit their needs.
+ - My sister said, You’re making it hard for all us housewives in Nebraska.
+ - No one should be adored, it’s fundamentally immoral.
+ - As women, we’re probably more protective of children. Also, we’ve been minors all of our history.
+ - What is the future of the woman’s movement How in the hell do I know I don’t run it.
+ - They weren’t crazy. They were tired of being locked up. Even I could see that.
+ - In those days, when you got boxed, that was it. A lot of old people were there because somebody wanted the farm. It was about property. People are treated like property.
+ - I was supposed to be women’s lib, and now I’d exceeded it and gone over into international politics.
+ - Perhaps nothing is so depressing an index of the inhumanity of the male-supremacist mentality as the fact that the more genial human traits are assigned to the underclass: affection, response to sympathy, kindness, cheerfulness.
+ - Everybody believes in psychiatry it’s supposed to be for our own good. Let psychiatry prove that anybody has an illness, and I’d concede, but there is no physical proof.
+ - Hostility is expressed in a number of ways. One is laughter.
+ - The involuntary character of psychiatric treatment is at odds with the spirit and ethics of medicine itself.
+
+54 quotes

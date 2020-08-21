@@ -1,0 +1,164 @@
+ - I hate mornings. They start so early.
+ - Personally, I’m a lazy kind of guy, and leaving the door open on the mystical saves me work. I don’t have to stress my brain trying to explain the unexplainable. It’s magic. End of discussion.
+ - Its always nice to have a stud muffin at the table.
+ - My professional aspirations were simple – I wanted to be an intergalactic princess.
+ - If anything happened to you, I’d be so destroyed they’d have to strap me to a bed and feed me through a tube. After five or six years, I might be capable of taking care of Rex. In the interim, you should assign a guardian.
+ - I got out of the tub and had to squelch a scream when I saw my reflection in the vanity mirror. My hair looked like it had taken 2000 volts and been spray starched.
+ - Truth is, I think naked men are kind of strange looking what with their doodles and ding-dong hanging loose like they do. Nevertheless, there’s the curiosity thing. I guess it’s another one of those car crash experiences, where you feel compelled to look even if you know you’ll be horrified.
+ - Romance novels are birthday cake and life is often peanut butter and jelly. I think everyone should have lots of delicious romance novels lying around for those times when the peanut butter of life gets stuck to the roof of your mouth.
+ - My eyes rolled so far back in my head that I could see myself think.
+ - If I let her in I’m doomed. It’s like inviting a vampire into your house. Once you’ve invite them in, that’s it, you’re good as dead!
+ - Thinking very often resembles napping, but the intent is different. – Stephanie Plum.
+ - I need to look like an idiot at least twice a day to keep myself humble.
+ - Jesus, Morelli, you sound like you have PMS. You have to learn to lighten up a little. It’s just a car alarm. You should be thanking me. I had it installed with my own money.
+ - Cupcake, your middle name is trouble.
+ - Pete- What does a woman want out of marriage? Louisa- Undying devotion and a warm place to put her cold feet when she gets into bed at night.
+ - I failed math twice, never fully grasping probability theory. I mean, first off, who cares if you pick a black ball or a white ball out of the bag? And second, if you’re bent over about the color, don’t leave it to chance. Look in the damn bag and pick the color you want.
+ - Calories don’t count if they’re connected to a celebration. Everyone knows this.
+ - Wondering where Ranger was now, when I needed him. Why wasn’t he here, insisting on locking me up in a safe house? Now that my hamster’s cage was clean, I’d be happy to oblige.
+ - Okay, take a deep breath, I told myself. Don’t go all hormonal. Get the facts straight. Have a mental doughnut.
+ - You’d tell me if we were getting married, wouldn’t you? I mean, you wouldn’t just appear on my doorstep one day and say we were due at the church in an hour.
+ - Sweetie, nothing that flies looks safe, including birds.
+ - You’re a lunatic. You ran me over with a goddamn Buick.
+ - I’ve finally reached a stage in my career where I can do what I want.
+ - Any intelligent woman would have made a dignified retreat, but this was New Jersey, where dignity always runs a poor second to the pleasure of getting in someone’s face.
+ - Lula’s borderline too much of a good thing in lots of ways. It isn’t exactly that Lula is fat; it’s more that she’s too short for her weight and her clothes are too small for the volume of flesh she carries.
+ - Last time you called me late at night you were naked and chained to your shower curtain rod. I hope this isn’t going to be disappointing.
+ - I make lots of mistakes. I try hard not to make the same mistake more than three or four times.
+ - Respect and love your readers. Write for the reader.
+ - Life is about survival of the fittest, and Jersey is producing the master race.
+ - Everyone knows you can’t see death cooties. Take my word for it, that couch has the biggest, fattest death cooties that ever existed. That couch has the mother of all death cooties. – Lula.
+ - He’s going to jail. He can’t see. He can’t hear. He can’t take a leak that lasts under fifteen minutes. But he has an erection and all the other problems are small change. Next time around I’m coming back as a man. Priorities are clearly defined. Life is simple.
+ - You’re a magnet for mess. I’ve never seen anything like it. Lula to Stephanie.
+ - And when I was in the trunk, I saw Jesus. And the Virgin Mary. And Ozzy Osbourne.
+ - On the bright side, I’m sure this isn’t the last time you’ll ever get firebombed, so maybe you’ll have better luck next time.
+ - I wasn’t dating anyone. I was fornicating with Batman.
+ - I did such a gigantic eye roll I almost fell over.
+ - I am not menopausal. I just wanted half an hour alone. Is that too much to ask? A crappy half hour!
+ - My mother drove back to the intersection. “Who are you dating?” “Don’t ask,” I said. I wasn’t dating anyone. I was fornicating with Batman.
+ - Gotta protect the little dudes. I tried an AK-47, but it wouldn’t fit under my seat. I like the Uzi better, anyway. It looks better with the dress. The AK seems too casual to me.
+ - Stop the planet. I want to get off.
+ - I guessed my mother figured if my father got right down to the task of eating he wouldn’t be so inclined to jump up and strangle my grandmother.
+ - Lots of times I’m not crazy about the writing, but I keep moving ahead and somehow it gets better. The important thing is to move forward.
+ - Men drive off bridges and drink too much because of women like you.
+ - Some people learn from books, some listen to the advice of others, some learn from mistakes. I fit into the last category. So sue me.
+ - Cute? I think my testosterone level just dropped – Ranger.
+ - I’ve never been in this part of Trenton before. I don’t feel comfortable driving around buildings that haven’t got gang slogans sprayed on them. Look at this place. No boarded-up windows. No garbage in the gutter. No brothers selling goods on the street. Don’t know how people can live like this.
+ - At the other end of the room, Grandma had the lid up on Larry Lipinski. She was standing one foot on a folding chair, one foot on the edge of the casket, and she was taking pictures with a disposable camera.
+ - God’s a busy guy. He don’t have time to micromanage. What are the chances he heard that? It’s early in the morning. He’s probably having breakfast with Mrs. God.
+ - Everyone knew fear. It was the reaction that made the difference. Some people hated fear and avoided the experience. Some people endured it as a necessity. And some people became addicted to the rush.
+ - I want to be there when you get Cubbin. And I don’t want to be left out of the television show either. Little people are sexy now. Have you seen Game of Thrones? We’re hot.
+ - Cupcake, you’ve been breaking my heart for as long as I’ve known you.
+ - I disconnected and made a mental note not to call Tank unless I was bleeding profusely, and he was the only other person on earth.
+ - I wasn’t sure anymore what made a good marriage. There had to be love, of course, but there were so many different kinds of love. And clearly, some love was more enduring than others.
+ - Well, sure, but I don’t bring God into it. I think shower massage might have been invented by the devil. God invented the missionary position.
+ - I rolled my eyes so far into the top of my head I almost fell over backward.
+ - If God had wanted me to lose weight he would have made sure there was creamed spinach for dessert.
+ - I almost never shoot people.
+ - Nice dress. Take it off.
+ - I buy wine according to the bottle design. After I get down the first glass it all tastes okay to me so I figure you go for something classy to look at on the table.
+ - One Ranger is all you’ll ever need. – Ranger.
+ - Ranger plays by his own set of rules, and I don’t have a complete copy.
+ - Your life isn’t out of control. It’s expanded.
+ - How many times have I told you not to hit people in the face. You kick them in the body where it doesn’t show.
+ - As long as he has a house with two bathrooms. I swear to God, I don’t care if he’s Jack the Ripper.
+ - I’d kiss you, but you smell like a gym bag.
+ - I’d do the lifting, but I just got a manicure. And I notice you don’t have a manicure at all. Only thing noticeable about your hands is the missing tan on your ring finger that I don’t care about. -Lula.
+ - There is no such thing as a good call at 7 AM. It’s been my experience that all calls between the hours of 11 PM and 9 AM are disaster calls.
+ - Cracker Jacks don’t count as junk food because they’re corn and peanuts, which we know to be high in nutrition. And they have a prize inside.
+ - And something chocolate, of course. A meal was not a meal without some sort of chocolate for desert.
+ - Arson is a respected profession among certain subcultures in Jersey, and the good ones don’t get caught. The good ones channel lightning and mysterious acts of spontaneous combustion.
+ - A woman’s never too old to make an idiot of herself. It goes along with equality of the sexes and potty parity.
+ - Go figure that. Joseph Morelli with a house, a dog, a steady job, and an SUV. And on odd days of the month he woke up wanting to marry me. It turns out want to marry him on even days of the month, so to date we’ve been spared commitment.
+ - Sometimes it’s hard to tell what’s love and what’s only indigestion.
+ - When you get ready to write your novel, outline it first. There’s nothing worse than getting halfway through and realizing you’ve painted yourself in a plot corner.
+ - I rented Ghostbusters, my all-time favorite inspirational movie. I picked up some microwave, popcorn, a KitKat, a bag of bite-sized Reese’s peanut butter cups, and a box of instant hot chocolate with marshmallows. Do I know how to have a good time, or what?
+ - You deserved to get run over. And besides, I barely tapped you. The only reason you broke your leg was because you panicked and tripped over your own feet.
+ - Has it ever occurred to you that you might be delusional?? That’s what the psychiatrist said, but I think he’s wrong. There’s an evil flying pizza out there, and it’s got Brenda’s name on it.
+ - Just because i know how to change a guys oil doesn’t mean i want to spend the rest of my life on my back, staring up his undercarriage.
+ - Are you telling me your brain and your lady parts decided on a love fest bake-off winner?
+ - And the closest I’ve come to an out-of-body experience was when Joe Morelli took his mouth to me fourteen years ago, behind the eclair case.
+ - It was dark and raining, with bad visibility, but this was Jersey, and we don’t slow down for anything.
+ - When I was painting, I was painting stories I was telling myself. When I look back at it, moving to writing was a very natural progression for me.
+ - Concentrate on doing the job, not the fear.
+ - I don’t want my readers slowed down by long passages of narrative.
+ - The note wasn’t signed, but I could tell it was from Morelli by the way my nipples got hard.
+ - Morelli grabbed the front of my shirt, pulled me to him, and kissed me. It was a great kiss, but I didn’t know what the heck it meant. It seemed to me a breaking up kiss would have had less tongue.
+ - I mostly eat peanut butter sandwiches. Peanut butter and banana, peanut butter and jelly, peanut butter and potato chips, peanut butter and olives, and peanut butter and marshmallow goo. So sue me, I like peanut butter.
+ - I’d spent a night with Ranger a while ago, and I knew what happened when he was encouraged. Ranger knew how to make a woman want him. Ranger was magic.
+ - I may not be the most patient woman in the world, or the most glamorous, or the most athletic, but I’m right up there at the top of the line when it comes to resiliency.
+ - Ranger declined the butterscotch pudding, not wanting to disrupt the consistency of his blood sugar level. I had two puddings and coffee, choosing to keep my pancreas at peak performance. Use it or lose it is my philosophy.
+ - I exchanged my flannel shirt for a Rangers jersey and zapped the television on. Probably I should make more phone calls, but the Rangers were playing and priorities were priorities.
+ - I took all of my rejection letters – there must have been thousands of them in a huge box – and I went out on the curb and burned them all, crying.
+ - You’re such a cupcake.
+ - I’m for sure a workaholic. I’m a complete control freak and I take on way too many projects.
+ - I stuck my tongue out at him because I was feeling exceptionall mature.
+ - Transitions are critically important. I want the reader to turn the page without thinking she’s turning the page. It must flow seamlessly.
+ - I could use some help with an FTA. What’s your problem? He’s old, and I’ll look like a loser if I shoot him.
+ - I take in a lot of stuff from real life, movies, television, news and it all gets mixed in my head and somehow turns into a story idea.
+ - Lula had Eminem cranked up. He was rapping about trailer park girls and how they go round the outside, and I was wondering what the heck that meant. I’m a white girl from Trenton. I don’t know these things. I need a rap cheat sheet.
+ - Look at you! You look like Rangeman Barbie. You got a gun and everything. -Lula.
+ - I attributed the incidence to temporary insanity, and in my own defense, I’d like to say I haven’t run over anyone since.
+ - I write to entertain. When people read one of my books I want them to finish with a smile on their faces, feeling a little bit better about themselves and the people in their lives.
+ - I don’t think his elevator went all the way to the top anymore, if you know what I mean.
+ - Bob had a dog buscuit stuck to his head. “How does he always get food stuck to him?” I asked Morelli. “I don’t know,” Morelli said. “It’s a Bob mystery. I think stuff falls out of his mouth and he rolls in it. I’m not sure.” -Morelli And Stephanie.
+ - I had an alarm, I had nerve gas, I had a yogurt. What more could anyone want?
+ - Somewhere along the line, I realized that I liked telling stories, and I decided that I would try writing. Ten years later, I finally got a book published. It was hard. I had no skills. I knew nothing about the business of getting published. So I had to keep working at it.
+ - Honey, a man can’t keep his gun in a cookie jar. It just isn’t done.
+ - I don’t know if it’s a good idea to give a woman a box of bullets when she’s got a pimple.
+ - If I could just get Broom to cooperate, we could fly, Glo said. Then we wouldn’t have to worry about traffic. Harry Potter didn’t have to worry about traffic. You relize Harry Potter isn’t real, right? Of course, but he could be. I mean, maybe not Harry Potter, but someone like him. Who’s to say?
+ - He rooted for the Mets, he wore Foot of the Loom underwear, and he drove a Buick. His loyalties were carved in stone and he wasn’t about to be impressed with some upstart of a toaster salesman who drove a Bonneville.
+ - My father was in the kitchen putting a new washer in the kitchen faucet. He looked relieved to see Morelli standing in the hallway. He’d probably prefer I bring home someone useful, like a butcher or a car mechanic, but I guess cops are a step up from undertakers.
+ - That’s one of the things I like about Mary Lou. She’s willing to believe the worst about anyone.
+ - I really wouldn’t classify the books as mysteries. I prefer to say that they’re adventures.
+ - Turns out, that’s how it is with weddings. You just keep getting in deeper and deeper until you want to throw up.
+ - I knew there were no such things as death cooties. Unfortunately, that’s an intellectual fact. And death cooties are an emotional reality.
+ - I wasn’t sure exactly how prostitutes determined price, but if men bought hookers by the pound, these two would be doing okay.
+ - Truth is, I’m a good Catholic girl. The faith has always been elusive, but the guilt is intractable.
+ - My body is not designed to run. My body was designed to sit in an expensive care and drive.
+ - I got out of the elevator and confronted Mr. Wexler. “Killing is wrong.” “We kill chickens,” Mr. Wexler said. “We kill cows. We kill trees. So big deal, we kill some drug dealers.” It was hard to argue with that kind of logic because I like cows and chickens and trees much better than drug dealers.
+ - Yeah, I like that idea. Maybe he’ll shoot at us again. I was hoping someone would shoot at me today. That was the first thing I said when I got up: Boy, I hope I get shot at today.
+ - Only men you can count on these days are Ben and Jerry.
+ - Make sure your main characters are likeable. They can be flawed, but your readers need to be able to root for them.
+ - I’m done with men. I have a hamster. That’s all I need.
+ - We don’t appreciate the value of humor sometimes.
+ - Howie’s doctor told him to lose ten pounds, and since Howie’s been on a diet he’s gained three.
+ - Everyone knows that if you buy chocolate with spare change, then the calories don’t count.
+ - We don’t usually write up accidents involving rabbits. – Joe Morelli.
+ - With the exception of dessert, food is food.
+ - I think I got a bruise from landing on you. I hear bacon is real good for healing a bruise.
+ - Maybe your pregnant. Oops, hold on, you’re not pregnant, on account of you’re not gettin any.
+ - I go to bars and restaurants, and I sit and I eavesdrop on people and I watch people in shopping centers and, you know, I read the newspapers and I talk to the Trenton cops, and I just get a lot of information that comes in that somehow turns into a book.
+ - The way I see it, life is a jelly doughnut. You don’t really know what it’s about until you bite into it. And then, just when you decided it’s good, you drop a big glob of jelly on your best T-shirt.
+ - If I gave you a pity position it wouldn’t be in my office.
+ - THE NOTE said the first clue was “in the big one.” I looked at the jumble of letters that followed, and I saw no pattern. Not such a surprise, since I was missing the puzzle chromosome and couldn’t do puzzles designed for nine-year-olds.
+ - The ‘Barnaby’ books were always intended to be graphic novels.
+ - I’d hate to list our specialties. Wreck cars, eat doughnuts, create mayhem.
+ - He had a body like batman.
+ - If you want to cry, you’re not going to like my books.
+ - Omigod,? I said on a sudden flash of sleep-deprived insight. ‘You’re the big bad wolf.’ There are some similarities.
+ - By about the sixth romance I knew I wasn’t in exactly the right place. I liked writing action. And I wanted to write a book with a little more edge than I was allowed in romance.
+ - He asked me if I had adequate health insurance.
+ - It was a weird sensation. Like getting caught eavesdropping, or lying, or sitting on the toilet and having the bathroom walls suddenly drop away.
+ - When something needs to be ironed I put it in the ironing basket. If a year goes by and the item is still in the basket I throw the item away. This is a good system since eventually I end up only with clothes that don’t need ironing.
+ - Some men go a lifetime and never have their kid blow up a car, but I have a daughter who’s knocked off three cars and burned down a funeral home. Maybe that’s some kind of record.
+ - Since I write in first person and have no idea what goes on in men’s heads.
+ - I think money isn’t any good sitting around, so I spend some time in the shoe department at Saks.
+ - I don’t need shoes. I need a night scope. You think they sell night scopes someplace here?
+ - I struggled to learn basic skills, get a grip on markets, find my own unique voice, create story lines and come up to speed with the industry. I struggled for ten years before having any success.
+ - I wasn’t a fabulous cook. I didn’t have a boyfriend, much less a husband. And I wasn’t a big financial success. I could live with all those failings as long as I knew that once in a while I looked really hot.
+ - I was going to go to church, but I decided to get doughnuts instead.
+ - I’m so busy writing and editing two books a year that I don’t have time for painting anymore.
+ - Was a fast easy reading, Good to take your mind off of anything serious for a while.
+ - When people ask what you do, tell them you’re a writer. Put yourself on the line. Make a commitment.
+ - You don’t even need to go to college no more because you could learn how to do everything on YouTube.
+ - I like being able to provide consistent and frequent literary choices for my fans.
+ - I checked my phone messages. Three in all. The first was from Joe. “Hey, Cupcake.” That was it. That was the whole message. The second was from Ranger. “Yo.” Ranger made Joe look like a chatterbox.
+ - You can get through very serious and sometimes horrible and sometimes embarrassing and very awkward situations with humor. It gives us a way out.
+ - I ran three miles, staggered into the lobby, and took the elevator back to my apartment. No point to overdoing this exercise junk. – Stephanie Plum.
+ - In spite of all the sparring that went on between us, I sort of liked Morelli. Good judgment told me to stand clear of him, but then I’ve never been a slave to good judgment.
+ - I wasnt always a writer. When I went to college and majored in fine arts, I was a painter. Then I was a stay-at-home mom.
+ - I think that some books are more successful than others to certain readers. People who read my books for the humor, they’re going to love one book. People who read my books for the mystery, they might not like that book quite as much.
+ - No one expected a first year engineering student to build the perfect bridge.
+
+162 quotes

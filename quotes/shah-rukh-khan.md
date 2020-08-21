@@ -1,0 +1,110 @@
+ - Study hard. Work hard. Play harder. Don’t be bound by rules, don’t hurt anybody and never ever live somebody else’s dream.
+ - Walk on with hope in your heart, and you’ll never walk alone.
+ - Don’t become a philosopher before you become rich.
+ - If you like me, raise your hand. If you don’t, raise your standards.
+ - It’s OK to be confused. Confusion is the route to all the clarity in the world.
+ - Success and failure are both part of life. Both are not permanent.
+ - Live, laugh, love, every day to it’s fullest, for who knows, tomorrow, may not be.
+ - You never win the silver, you only lose the gold.
+ - If you don’t like something don’t do it, and if you’re doing something then you better like it. It is as simple as that.
+ - Success is not a good teacher, failure makes you humble.
+ - Healing doesn’t mean the damage never existed. It means the damage no longer controls your life.
+ - It is not special to be special, it’s special to be ordinary.
+ - Life begins when we decide it’s going to begin for us.
+ - If you want to become something, achieve something in life, then always listen to your heart.
+ - Stand by what you believe in. People who mind won’t matter and people who matter won’t mind it.
+ - I talk to Allah, I pray to him.
+ - I am like a Rolls- Royce. I can run without an engine, purely on reputation.
+ - I’d rather sink trying to be different, than stay afloat like everyone else.
+ - Live now, live today don’t be bound by rules, live your own dream.
+ - I’m not bisexual, I’m tri-sexual. I try everything.
+ - Live life to the fullest tomorrow may never be.
+ - I work hard, like I’m sure everyone else does, and I’m very honest with the work I do.
+ - Sometimes you need to let people feel important by disliking you. It’s their little happiness.
+ - Everyone has their own way of expressing happiness.
+ - When will you start asking different questions? Better questions?
+ - Whether people like it or not, my marketing thought is if you keep something in front of people for too long, they get used to it.
+ - I trust two people, myself and the other is not you, its God.
+ - I thank God for happiness and sadnessIf you are never sad you will never know how good happiness is.
+ - Im running in a race and people are on the other track, I’m running with myself.
+ - I am very shy. If I am flying British Airways and the airhostess asks me two questions, and I don’t understand her accent – I will go hungry for the entire flight.
+ - I can’t say that only the citizens litter. I must say that I have also been wrong in doing this. We need to ban plastics and be a little careful with garbage.
+ - Even though I am fantastic looking, I am still quite intelligent.
+ - You know, I think we Indians are afraid to show and celebrate our happiness, lest things change around. But I feel that it’s okay to be sad and okay to show when you are happy.
+ - Indian civilisation does not distinguish in terms of religion. We are an impossible achievement in the world and I’m very proud to be an Indian.
+ - I don’t sit around complaining about the lack of good roles. I will play Raj 85 times and still make him different.
+ - My biggest achievement is that I can make a lot of people smile just by my presence, even if it’s a Lux ad.
+ - I learnt very early in life that whenever there is a choice between peace of mind and piece of ass, go for the former.
+ - My favorite dish is tandoori chicken.
+ - I bring excitement on the sets. I’m an exciting actor, overrated, exaggerated. But I’m not an unexciting actor. I excite people. I never lose hope. If I feel that a film is going wrong somewhere, I do even better.
+ - I don’t teach my children what is Hindu and what is Muslim.
+ - Youngsters are the most discerning audience. They want entertainment, they want issues.
+ - Togetherness, passion, laughter, faith, trust, and jealousy are the essential ingredients of love.
+ - Don’t be negative. It shows on your face.
+ - I don’t write cheques anymore because I end up signing them “with love, shan rukh”
+ - Cinema in India is like brushing your teeth in the morning. You can’t escape it.
+ - I’d like to believe there’s a little of Hitler and Napoleon in me. Even if I try, I can’t be as selfless as Mahatma Gandhi and Mother Teresa.
+ - I would want my children to grow up and do what they wish to in a field that they choose to step in. They should not have to use the shadow of their father’s name. I think that is a bit of a downer for a movie star’s children.
+ - Sometimes a lot of us men think we are doing everything for the woman we love, but there is an aspect of a woman a man doesn’t understand.
+ - I have lived in Mumbai for more than 20 years, have my domicile here, my home and family here.
+ - I don’t kiss on screen. Period.
+ - It’s easy to be ignorant but it’s very intricate to be aware.
+ - I love being recognized, I love people liking me, I love the fact that people scream when I go out. I think I’ll miss all that when it’s taken away.
+ - I am like a kid. I tell my family and friends I’m like a kid.
+ - I cannot repay my fans for what they have done for me, they have given me so much love and that love has taken me to the number 1 position where I am today, the only thing I can do for my fans is to never stop working.
+ - If you ask that question again ma’am, I will have to ask you your age.
+ - No one can have two viewpoints about terrorism. There is no religion of terrorism. I am often asked my viewpoint on this, maybe because i am very proud to be a Muslim.
+ - I want people to know that movie stars live a normal, middle-class life.
+ - I’m too shy to do kissing scenes.
+ - I have never claimed to do the right kind of things and make politically correct statements.
+ - More than an actor, I am a performer. I’m a great believer.
+ - I’m try-sexual. I try anything that’s sexual.
+ - I could lie and say my wife cooks for me, but she doesn’t. My wife has never learnt cooking but she has great cooks at home.
+ - I would love to have MS Dhoni in KKR.
+ - Awards that ignore me are losers.
+ - Recently an actor asked me to teach him how to speak fast. Wasn’t I once criticised for speaking too fast? Now they’re doing it my way.
+ - Just be nice to me while I am doing the scene; that is all. I don’t want big cars, I don’t want big hotel rooms.
+ - I am not insecure enough to count the bouquets I receive on my birthday, I don’t assess my popularity by the number of magazine covers I am on, I don’t get worried if my song is on the seventh position on countdown charts.
+ - The enigma of cinema is gone because of the focus on business. As soon as you attach numbers to a film, you limit it. Films are meant to be an escape from reality.
+ - Yes I have made a lot of money and I have a lot of respect, my films have done well, and I know there are loads of loads of people who look up to me and really love me. I really just thought this is like a strange dream. I have never thought this is a success – I don’t have a standard.
+ - It’s not that I wear fantastic clothes, it’s just that clothes look fantastic on me.
+ - The collar-bone is my favourite part of the human body.
+ - It is so strange – if anyone takes my name, I have the ability to make them famous.
+ - When I asked Imran Khan for an autograph he picked up his bat to hit me.
+ - There is no religion of terrorism.
+ - Though my wife thinks I’m mad, I know I’ll drop my daughter to the parties she’s invited to. I’ll want her friends to say, “Wow what a handsome father you have!” When she’s with her boyfriend in the backseat of our car, I’ll be at the wheel, driving her around.
+ - Well Mandira, I hope not. You see, I started both their careers. And as far as i can remember, I started yours too.
+ - I’ve won many awards and I want more. If you want to call it hunger then I’m hungry for awards.
+ - When people call me God, I say, no, I’m still an angel or saint of acting. I still have a long way to go.
+ - There’s a personal me, there’s an actor me and there’s a star me.
+ - There’s a whole form of literature in India which talks about the quest for the perfect man by a woman, where every woman looks for a perfect man but only ends up with half that.
+ - I truly believe my job is to make sure people smile.
+ - I am very clear that when I work with a director what he or she says is the last word.
+ - Yes it’s going really well. We are planning on having a baby together.
+ - I personally believe the film turns out better when shot in one short schedule, plus it doesn’t stress the actors.
+ - Yeah, I treat all my heroines like children now. I pick them up, I cuddle them, I call them baby...
+ - My life may seem glamorous from the outside but off screen it’s as ordinary as anyone else’s.
+ - It is stupid on my part to think of banning the media.
+ - I am not someone who believes to doing a film just because it is off beat.
+ - People talk about Bollywood being very kitsch, and just songs and dances, and over the top and colorful.
+ - I work like a retailer. I sell my services, take my money and keep it in the bank.
+ - Maybe the country doesn’t pray for me like they do for Sachin Tendulkar, but I know I’m on a good wicket as well.
+ - Sometimes, I feel the reason I have become a star beyond my films is that I am politically incorrect.
+ - I know it’s very idealistic and utopian, but I believe we need to just let everyone not be judged in terms of religion, groups or nations or region.
+ - As a matter of fact, I find the Western cinema very fantastic.
+ - I am happy making the films I make and I would like the West to be impressed with what we do from India.
+ - If it could have happened through a film that I was associated with, it would have made be doubly proud. It makes me proud anyway. I am not disappointed.
+ - As far as the public is concerned, India is amazingly secular.
+ - Films are an art form which are sold after packaging in this commercial world.
+ - I can fight with all actors, I can face them and win, but I cannot fight aliens.
+ - I would tell the world that Shahrukh is the better actor.
+ - Like beauty, stardom too is skin-deep.
+ - For someone who doesn’t even like love stories, I’ve played an awful lot of lovers.
+ - I have no self-centeredness or ego about being a movie star.
+ - I can still love my heroine like i did when i was 26. I can still do the same action scenes...
+ - I am not confident unless I am playing someone else.
+ - We are not supposed to have an opinion. If we have an opinion, it has to be controversial – that is how we are always projected. It is difficult.
+ - I don’t really have much to prove. I can easily go in a comfort zone, make two films a year, hype them because I’ve signed them as a star, make them cheap and they will be big hits.
+ - No – Kajol can never go anywhere. Kajol is absolutely hearts and minds and memories and silloys for ever and ever. I think if I was to, I wouldn’t be exaggerating I if say in our times of film-making she’s a beautiful living legend.
+
+108 quotes

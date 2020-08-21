@@ -1,0 +1,49 @@
+ - I am strong, I am invincible, I am woman.
+ - I am woman, hear me roar.
+ - I am woman, hear me roar, in numbers too big to ignore, and I know too much to go back and pretend.
+ - You can bend but never break me. Cause it only serves to make me more determined to achieve my final goal.
+ - I’m still an embryo with a long long way to go.
+ - Sometimes it seems like you and me against the world.
+ - There is a wealth of twentieth century music that is being re-discovered by a generation that hasnt heard it.
+ - It’s so nice to be insane, no one asks you to explain.
+ - I’ve been in a serious conversation with one of my children, and a fan has come up. I’ve been in a public bathroom and had the hand come under the stall with a paper and pen. That sort of thing anybody can live without.
+ - The most exciting thing about women’s liberation is that this century will be able to take advantage of talent and potential genius that have been wasted because of taboos.
+ - Please don’t ask me any questions about the politics of 30 years ago.
+ - If you tell people your ambitions, they usually laugh at you. When I told my girlfriends when I was 12 that I was going to Hollywood, they all laughed. And here I am!
+ - I believe wholeheartedly in marriage. I don’t exclusively mean a marriage with a legal contract, but any relationship that constitutes a marriage because of the quality of their relationship.
+ - I’m a very private person, and when I leave the stage, I leave the stage.
+ - There is no magic person out there, no perfect human being out there waiting for you.
+ - I thought Erica Jongs Fear of Flying was one of the biggest pieces of crap that Ive ever read in my life.
+ - Hindsight is wonderful. It’s always very easy to second guess after the fact.
+ - I wanted control over the merchandising, the actual packaging of the product. That was a big factor. The only way for me to exercise control on all those levels was to start my own label.
+ - Stop living a day at a time and stop worrying about age.
+ - A lot of women are turned off by the physical appearance of some of the first feminists.
+ - Three-quarters of the world’s population doesn’t have enough to eat!
+ - I don’t think any one person is the cause of all of someone else’s problems.
+ - You’re not going to find a man whose socks don’t get dirty or who doesn’t snore.
+ - I like music to soothe me.
+ - My audience is the baby-boomers, the bulk of the population. This is also a group that is being ignored by most record companies because they’re not the Top 40 hit singles market. They forget these people still listen to music.
+ - I think that two people who decide to live together in a marriage situation, they have an obligation to make the marriage work for them.
+ - Stopping at her house is a neighbor boy with evil on his mind, cause he’s been peeking in Angie’s room at night through her window blind.
+ - I couldn’t do anything. I’d work in a department store for a couple of weeks, but I couldn’t hack it. I couldn’t even type! I had no skills whatsoever outside of show business.
+ - Yoga is wonderful. It clears up most health problems. It also gives you an overview.
+ - In the ’50s, a lot of girls never saw beyond the wedding day.
+ - I don’t know if it’s a sign of all the chaos that is happening out there or not, but I’ve lately craved the structure and order of classical music, the balance and symmetry.
+ - Depression, as far as I’m concerned, is just a waste of time.
+ - If you had told me when I was 18 that I wouldn’t have made it until I was 29, I would have said, Forget it.
+ - I was very strongly influenced by women’s magazines and I really believed tha a woman could not be married and raise a family and have a successful career all at the same time.
+ - It took so long to make it in America. The year I arrived was a bad year for women singers, the record company told me. So I starved. I lived in a hotel so dreadful I can’t even talk about it.
+ - To this day I get mail from women who say, I went to law school because of your song. But I would hate to think out of the wide spectrum of things I have done in my career, that’s all I would be remembered for.
+ - Most of the people I know in show business don’t need anybody pushing them at all. They’re extremely aggressive.
+ - I had a career for 25 years in Australia before I ever came to the United States.
+ - If I have to, I can do anything.
+ - It took me a year to really learn the American lingo. I really feel for people who are coming here and don’t speak English at all. It must be hell.
+ - Women today have more of an overview of their lives and how marriage is or is not a part of it.
+ - I worked with my parents on the stage in production numbers since I was 4, but I never really gave much thought to being a performer on my own until I was 12 or 13.
+ - I did my own music videos, my own TV commercials.
+ - I always believed that I could make it or I would never have spent so many years trying to get here.
+ - My audience are the same people who bought my albums years ago. These people are now married, with their own homes, their own families. If I’m in concert, I get people now who bring their kids.
+ - Women temper men. We have a good influence on them.
+ - Believe it or not, most people think of me as a recording artist, but actually the way I think of myself and the way I earn my living is as a performing artist.
+
+47 quotes

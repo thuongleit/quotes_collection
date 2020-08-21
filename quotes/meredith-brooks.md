@@ -1,0 +1,54 @@
+ - I think we’re heading into the Creative Age. We’ve passed through the Agricultural and then the Industrial and then the Information Age.
+ - I grabbed my drummer’s cymbal in my teeth just as he crashed down on it with his sticks-I blacked out. I was a punk in those days. It was in Seattle. I still have all my teeth too, it’s amazing.
+ - I classify myself as a student and a teacher. This year, I’m back into the student. I try to stay balanced. I learn so much every time I walk about my door.
+ - I don’t mean that to be egotistical, but I’m not writing fluff. I’m not writing for 8-year-olds. I’m a woman and I’m a rock girl.
+ - Find your authentic voice, become vulnerable, and then put yourself out there.
+ - I quickly learned to take anger and use it to motivate me. My sister ran away from home, and she was my world. And that was that. The guitar became my world.
+ - My eyes change colors, which is why you guys have never been able to figure it out.
+ - My favorite movie is The Wizard of Oz. I love the fairy tale of it. And Gone With the Wind was always one of my favorites because it’s so dramatic and stunning.
+ - I had a very sexual experience onstage once. But I won’t go there.
+ - My worst vice is also my best vice. It’s my empathy and my love for people-it can wear me out. I rarely can turn a person in need down or because I love people, I love energy.
+ - Twenty years from now, I hope I’m consistently in my life, in the zone. I have seen the next year before.
+ - I’m a humanist. I’m an observer. I have a very scientific mind. I believe metaphysics and science absolutely blended are more the truth for me. It doesn’t work just believing in what somebody says.
+ - I have so many plans! Sometimes it’s hard to keep up because at this point it’s just been me and the little bit of help my label gives me.
+ - A long term goal is to encourage students to start doing concerts in which I or the other artists will come back at the end of the school year to see their concerts.
+ - I like my lyrics to feel conversational and truthful, as if we’re having real talk. I don’t really like generic lyrics.
+ - If a person ever came to me as a fan and tried to go out on a date, I wouldn’t. I’ve had enough kind of crazy experiences in that department.
+ - I was either going onstage or going into an interview or getting on a plane. You can’t really feel everything fully when you don’t have the time to process.
+ - I believe you can remember the future as much as the past.
+ - The Graces was a great experience; it’s great working with women, but we weren’t put together in an organic way, and I think that’s why we didn’t stay together. There wasn’t that natural friendship.
+ - The most spiritual place you can be in your life is when youre being very real, when youre not allowing everybody and everything to influence your decisions and your moods, and whats morally right or ethically right.
+ - My favorite color is purple. I have a huge velvet purple comforter on my bed.
+ - I love Chrissie Hynde and Mick Jagger. Someone at Capitol pointed out how much my inflections are similar to Jagger’s.
+ - If we didn’t live in a society that told us we’re not OK if we’re not making 100 grand a year, I think we’d all be a lot happier.
+ - I think if you’re doing alcohol and drugs, the chances of you surviving this kind of a pace are next to nothing. I live an extremely healthy life.
+ - I think people are basically unhappy working their jobs, and we all need to have that thing that gets our juices flowing.
+ - The Eagles, let’s face it, they were a pretty cool group, Fleetwood Mac, Blondie. I had this really eclectic background in music.
+ - Everything I read about me is what I say. The way I’ve come across is exactly who I am. So far, they haven’t skewed it to be one way or another too much.
+ - My mentoring program is pretty specific, it’s about self-empowerment, about being able to find solutions through teamwork. That’s one of my first goals.
+ - I want to break the old paradigm of thinking that if you’re successful, you have to crash and burn-that all of this won’t be there tomorrow.
+ - Everything I’m doing now is something I did before, only it’s bigger now.
+ - You don’t realize ’till you get here what a moment in history you’re a part of.
+ - I want to embrace all of this: touring, going to Europe, Canada, Australia. I want to travel the world, just have a great hang, and hopefully, be a messenger.
+ - Growing up in the Northwest, I did play in an all-girl band. I snuck into clubs. No one ever questioned or thought twice about it.
+ - I can write songs without a guitar.
+ - When I lived in Seattle and Oregon, we partied, which is a large reason I don’t know drugs or alcohol now because I saw the Destruction of so many great musicians and artists.
+ - I know my ambitions are big, but you’ve got to have something after rock and roll.
+ - When I was a kid in Eugene, Oregon, there was this fantastic guitar player who went out on the tables, chairs, out in the audience and played. So I started taking my guitar in the audience. I tripped, fell backwards and ripped my pants.
+ - I’ve started a project called Planet Art. The purpose will be to remind people where I really believe we came from, which was a creative planet, and that everybody can be autonomous through their art.
+ - There are very few interviews I turn down, because I really dig talking to people and hanging out.
+ - My parents always saw me as an artist, and that greatly influenced me.
+ - I don’t think science is totally true, because I’ve seen miracles happen through prayer.
+ - I have a lot of survivor insticts, and I know when to quit. I know when to go forward it my life, but not everybody does.
+ - Whatever it is that you love to do, be it collect comic books or play the guitar, that you can make a living at it, do it.
+ - I would hope that wherever Sheryl Crow, Paula Cole, and Fiona get played is where I’d be played. And right now that seems to be the modern Adult Contemporary market.
+ - Stop thinking you have to go to big industry to have a big life, because it’s not the truth.
+ - It’s just that only now are women coming around, and when someone as striking as Alanis or Sheryl Crow comes out, the public just needs something to compare it to.
+ - I’ve also been writing for other artists, producing other artists, doing some country stuff. Those lyrics I tend to leave more universal.
+ - I first met Hanson over in Japan and they gave me some great advice about the fans and they seem real down to earth. They’re great.
+ - I had my dysfunctions, but music gave me peace and joy. I never felt in tune with the world. My parents always saw me as an artist, and that greatly influenced me. My art was my autonomy.
+ - Mackie is an electronics recording company backing me, and they’re willing to invest giving equipment to schools that I choose, and they’ve already started doing that.
+ - Psychology Today is probably one of my favorite magazines, Guitar, Guitar World. People.
+ - I’ve come up against a few challenges. I’ve just taken them on with a really pure energy. I’m not out to change people’s minds. I’m out to maybe educate and inspire.
+
+52 quotes

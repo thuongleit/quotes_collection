@@ -1,0 +1,42 @@
+ - Laziness may appear attractive, but work gives satisfaction. ~~Anne Frank
+ - It is the working man who is the happy man. It is the idle man who is the miserable man. ~~Benjamin Franklin
+ - Dreams don’t work unless you do. ~~John C. Maxwell
+ - If it wasn’t hard, everyone would do it. It’s the hard that makes it great. ~~Tom Hanks
+ - He who seeks rest finds boredom. He who seeks work finds rest. ~~Dylan Thomas
+ - The best preparation for good work tomorrow is to do good work today. ~~Elbert Hubbard
+ - Love and work, work and love... that’s all there is. ~~Sigmund Freud
+ - People might not get all they work for in this world, but they must certainly work for all they get. ~~Frederick Douglass
+ - Work harder on yourself than you do on your job. ~~Jim Rohn
+ - Pray as though everything depended on God. Work as though everything depended on you. ~~Saint Augustine
+ - We work to become, not to acquire. ~~Elbert Hubbard
+ - Rest in reason. Move in Passion. ~~Khalil Gibran
+ - My mind rebels at stagnation. Give me problems, give me work, give me the most abstruse cryptogram, or the most intricate analysis, and I am in my own proper atmosphere. But I abhor the dull routine of existence. I crave for mental exaltation. ~~Arthur Conan Doyle
+ - Love and work are the cornerstones of our humanness. ~~Sigmund Freud
+ - Progress is not an illusion, it happens, but it is slow and invariably disappointing. ~~George Orwell
+ - What you do is infinitely more important than how you do it. ~~Tim Ferriss
+ - If a thing is worth doing, it is worth doing badly. ~~Gilbert K. Chesterton
+ - I learned the value of hard work by working hard. ~~Margaret Mead
+ - Spending time with God is the key to our strength and success in all areas of life. Be sure that you never try to work God into your schedule, but always work your schedule around Him. ~~Joyce Meyer
+ - A different language is a different vision of life. ~~Federico Fellini
+ - Everyone enjoys doing the kind of work for which he is best suited. ~~Napoleon Hill
+ - One of the symptoms of an approaching nervous breakdown is the belief that one’s work is terribly important. ~~Bertrand Russell
+ - For us, there is only the trying. The rest is not our business. ~~T. S. Eliot
+ - Such is the supreme folly of man that he labours so as to labour no more. ~~Leonardo da Vinci
+ - It is neither wealth nor splendor; but tranquility and occupation which give you happiness. ~~Thomas Jefferson
+ - Passion will move men beyond themselves, beyond their shortcomings, beyond their failures. ~~Joseph Campbell
+ - There’s nothing of any importance in life-except how well you do your work. ~~Ayn Rand
+ - Trust only movement. Life happens at the level of events, not of words. Trust movement. ~~Alfred Adler
+ - Housekeeping ain’t no joke. ~~Louisa May Alcott
+ - My work is a game, a very serious game. ~~M.C. Escher
+ - Without work, all life goes rotten. But when work is soulless, life stifles and dies. ~~Albert Camus
+ - We’re all working together; that’s the secret. ~~Sam Walton
+ - There is only one boss: the customer. And he can fire everybody in the company, from the chairman on down, simply by spending his money somewhere else. ~~Sam Walton
+ - Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard. ~~Colin Powell
+ - No man goes before his time – unless the boss leaves early. ~~Groucho Marx
+ - It is not the failure of others to appreciate your abilities that should trouble you, but rather your failure to appreciate theirs. ~~Confucius
+ - Fun things happen when you earn dollars, live on pesos, and compensate in rupees. ~~Tim Ferriss
+ - Don’t suffer fools or you’ll become one. ~~Tim Ferriss
+ - Doing what you love is the cornerstone of having abundance in your life. ~~Wayne W. Dyer
+ - Just a few words on time management: forget all about it. ~~Tim Ferriss
+
+40 quotes

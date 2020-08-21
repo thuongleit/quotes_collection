@@ -1,0 +1,28 @@
+ - The fixed stars signify the angel in man. That is why man orients himself by them; and that is why women have no appreciation for the starry sky; because they have no sense of the angel in man.
+ - It is not the fear of death which creates the desire for immortality, but the desire for immortality which causes the fear of death.
+ - Universality is the distinguishing mark of genius. There is no such thing as a special genius, a genius for mathematics, or for music, or even for chess, but only a universal genius. The genius is a man who knows everything without having learned it.
+ - The Jew is an inborn Communist.
+ - Colour-blindness always extends to the complementary colours. Those who are red blind are also green blind; those who are blind to blue have no consciousness of yellow. This law holds good for all mental phenomena; it is a fundamental condition of consciousness.
+ - In those rare individual cases where women approach genius they also approach masculinity.
+ - All genius is a conquering of chaos and mystery.
+ - Logic and ethics are fundamentally the same, they are no more than duty to oneself.
+ - Woman, in short, has an unconscious life, man a conscious life, and the genius the most conscious life.
+ - A creature that cannot grasp the mutual exclusiveness of A and not A has no difficulty in lying; more than that, such a creature has not even any consciousness of lying, being without a standard of truth.
+ - Man is alone in the world, in tremendous eternal isolation. He has no object outside himself; lives for nothing else; he is far removed from being the slave of his wishes, of his abilities, of his necessities; he stands far above social ethics; he is alone. Thus he becomes one and all.
+ - No men who really think deeply about women retain a high opinion of them; men either despise women or they have never thought seriously about them.
+ - A man is himself important precisely in proportion that all things seem important to him.
+ - In the case of complex personalities the matter stands thus: one of these can understand other men better than they can understand themselves, because within himself he has not only the character he is grasping, but also its opposite. Duality is necessary for observation and comprehension.
+ - Every true, eternal problem is an equally true, eternal fault; every answer an atonement, every realisation an improvement.
+ - Fate determines many things, no matter how we struggle.
+ - Among the notable things about fire is that it also requires oxygen to burn – exactly like its enemy, life. Thereby are life and flames so often compared.
+ - To understand a man is really to be that man.
+ - Everything evil is revenge.
+ - An individual’s arrogance is always in proportion to his lack of self-assurance.
+ - A man is first reverent about himself, and self-respect is the first stage in reverence for all things.
+ - Genius declares itself to be a kind of higher masculinity.
+ - The genius which runs to madness is no longer genius.
+ - In order to depict a man one must understand him, and to understand him one must be like him; in order to portray his psychological activities one must be able to reproduce them in oneself. To understand a man one must have his nature in oneself.
+ - Not only virtue, but also insight, not only sanctity but also wisdom, are the duties and tasks of mankind.
+ - The deepest, the intelligible, part of the nature of man is that part which does not take refuge in causality, but which chooses in freedom the good or the bad.
+
+26 quotes

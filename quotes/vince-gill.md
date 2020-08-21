@@ -1,0 +1,48 @@
+ - There ain’t no future in the past.
+ - Success is always temporary. When all is said and one, the only thing you’ll have left is your character.
+ - When you ask a songwriter, “What’s your favorite song?” he goes, “The next one.”
+ - I don’t chase what everyone else is looking for. Being creative is all about you.
+ - I do not like being famous. I like being normal.
+ - I would love to hear someone write a song like ‘He Stopped Loving Her Today’ rather than ‘You’re hot. I’m hot. We’re in a truck.’ It’s just mind-numbing to me.
+ - When you lose people that are close to you it brings everything into focus, and the rest kind of gets put on the back burner.
+ - I don’t want to impress somebody, I want to move somebody. Say the most with the least.
+ - The real beauty of it – key to my life was playing key chords on a banjo. For somebody else it may be a golf club that mom and dad put in their hands or a baseball or ballet lessons. Real gift to give to me and put it in writing.
+ - At the end of the day, all people want to do is hear a great singer sing a great song. They don’t care about what vocal changes it went through. You can’t screw up a great song and a great singer.
+ - My mom said, “What I want is a happy kid, not a rich kid. That’s what I root for.” She saw how much joy I got from playing music, and those years were leaner than lean!
+ - You can’t define the ache that’s in George’s voice. It’s just something inherently him. It doesn’t need definition. It doesn’t need clarification. It doesn’t need a lot of things. You just sit back and appreciate it. It’s just greatness.
+ - I had just lost my dad and I remembered all the songs we used to go and hear at concerts, and the records around the house and sometimes we’d play together.
+ - With The Key, it was, I had gone through a divorce and losing my father, and just kinda really reminiscing about how much I loved the traditional side of country music, so I made a record that was really traditional from start to finish.
+ - This is just strictly me wanting to make a record that is the real deal. It is all the stuff that I have learned and know that I remember. It’s what I perceive as country music is about.
+ - I am responsible for me. I can kind of take care of what I need to do and should do what I like to do.
+ - We all get caught up in the process, especially when you have a wave of success. But to me, being creative is not about rehashing everything you’ve done over and over. It’s to continue to grow, continue to get better.
+ - Yes, the companionship is amazing. You know, you can get that physical attraction that happens is great, but then there’s an awful lot of time and the rest of the day that you have to fill.
+ - Through music you learn not to care about the color of someone’s skin.
+ - It’s so much more interesting when you’re human. I hate making mistakes, but I’m not afraid of ’em.
+ - Whether it is successful or not is not the exercise for me. It is not up to me. It is out of my hands now. I am not going to in two years have hindsight and say I made a big mistake.
+ - My last two records that I made were both quite pointed in one direction and I think I do my best stuff when it’s all over the map, when there’s a couple traditional things, a couple pretty rocking things.
+ - I am not struggling. What I do, it is what I do.
+ - I’ve always felt like every note of a song is of equal value.
+ - I’ve always been more drawn to being normal than being famous.
+ - So I didn’t have anything to do with picking the songs, but I got to musically take them in places I thought might be interesting, so it was a real neat collaboration among the three of us.
+ - The real amazing thing about all of this is I think I’ve maintained the mentality of a musician throughout it all, which I’m proudest of. And I’m still playing on people’s records and singing on people’s records.
+ - I’m a musician, so for the most part I’ve always thought that the musicians were equally as inspiring to listen to – maybe more so, in some cases – in addition to the artists.
+ - It really does take a lot of time to make records, to be in the studio and do all that stuff.
+ - A lot of people play to impress, but the really gifted ones play to move. That’s the greatest point of ever doing this.
+ - I never aspired to be up front. When I was a kid, I didn’t ever look in the mirror with a hairbrush going, “Hey, I’m Elvis!”
+ - The funny thing is, people’s perceptions of what a song is about is usually wrong a majority of the time. But they’re still going to read what they want to into it.
+ - You learn a whole lot more about a person if they have bad breaks and all those kind of things.
+ - I made records in the past that are as traditional as any other country records that have been made, but at the same time the records have a contemporary slant on it too.
+ - I formally proposed. I’m a good Southern gentleman.
+ - Whether I’m making my own record, or playing a guitar part, I want what I do to have an impact.
+ - I’ve always been the high harmony singer. It’s never my job to know the verses! But I know the chorus of every song ever made.
+ - And from my place, and from the time that I went through my divorce, I also had my father pass away in the middle of all that. And it kind of made everything else just kind of like the back burner, you know.
+ - I’m the guy who loves being in the supporting cast.
+ - I’ve never been in the studio where it felt like I didn’t have a voice. Whether I was co-producing or producing by myself, this community is the one place where I really see democracy at its purest.
+ - When I look back, I don’t remember the best of the best. I don’t remember arena shows with 20,000 people. I remember funky little bar gigs where nobody shows up. The weirdest of the weird are what you retain.
+ - Music is like having a conversation. All musicians inspire each other, and they’re all geared to play something that matters.
+ - It would be fun to go back and see where all my songs stopped, because I think I’d have every number in the top 100. It never ceases to amaze me. It still hurts when one doesn’t work, because you put your heart and soul into it.
+ - It is not that I don’t like contemporary country music because I do. I love it. I have recorded a lot and have had great success recording records that have not been very traditional country records.
+ - It is not fun singing about losing somebody like that, but at the same time it was easy to write because the memories were so real and vivid and so much a part of who I am.
+ - Everything I’ve done feels like I’m just as much a part of it as if I was the producer. It’s still the same job: all of us together figuring out the common good for a song. That’s the only thing that matters. It’s not like, “I’m the boss, and I’m gonna tell you what to play.”
+
+46 quotes

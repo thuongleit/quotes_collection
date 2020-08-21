@@ -1,0 +1,25 @@
+ - Make curiosity a wonder-ful habit.
+ - At the heart of great leadership is a curious mind, heart, and spirit.
+ - In general, I’m not much into etiquette and am a rule-breaker and rebel by nature.
+ - Feeling good about your life, but not expressing a heartfelt ‘thank you,’ is like wrapping a gift for someone and never giving it to them.
+ - Younger people tend to associate happiness more with excitement and the future, while older people tend to associate happiness with peacefulness in the present.
+ - Social scientists have found that the fastest way to feel happiness is to practice gratitude.
+ - Those of us who have been lucky enough to experience a calling in our work have a certain faith and peace of mind that it’s exactly when we’re supposed to be doing.
+ - When the world is in the midst of change, when adversity and opportunity are almost indistinguishable, this is the time for visionary leadership and when leaders need to look beyond the survival needs of those they’re serving.
+ - Maybe its time we get a toolbox that doesnt just count whats easily counted, the tangible in life, but actually counts what we most value, the things that are intangible.
+ - Many people do not distinguish between something that happens to them and their reaction to it. Yet it isn’t the event or situation that holds the emotional charge; it’s our beliefs that create our response.
+ - The more we ignore our emotions, the more likely they are to wield a powerful influence over us.
+ - Great leaders help their people see how they can directly impact the company’s objectives and their own personal goals.
+ - Conventional wisdom suggests the primary motivator for entrepreneurs is money or wealth creation and, in fact, much of the political debate tends to center around what kind of tax or regulatory policy changes will turn corporate suits into small business adventurers overnight.
+ - When any of us thinks of ourselves as a role model – whether thats as a parent being observed by their kids or a leader under the microscope of their followers – it creates a natural stepping up of how we carry ourselves and what we expect from ourselves.
+ - Isn’t it ironic that pay, perks, and benefits all cost your company at the bottom line, but authentic recognition, especially when it’s most unexpected, costs very little and gives the most impressive return on investment?
+ - Letting an emotion move through you is healthy. Letting an emotion define you is not.
+ - As leaders, we understand that intangibles are important, but we don’t have a clue how to measure them.
+ - What one thing can you start counting today that will actually be meaningful in your life?
+ - We rigidify our self-image to portray a certain identity to the world, which is one of the key impediments to authenticity.
+ - Companies and leaders are role models – not just with the business community – but in the broader world.
+ - Every five years, I like to do a big birthday party. I had my 45th birthday with 75 friends in Marrakesh, Morocco.
+ - Someone could be amazing at what they do, but if you don’t like them, why bother hiring them?
+ - Whether we’re conscious of it or not, our work and personal lives are made up of daily rituals, including when we eat our meals, how we shower or groom, or how we approach our daily descent into the digital world of email communication.
+
+23 quotes

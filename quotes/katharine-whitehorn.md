@@ -1,0 +1,50 @@
+ - Find out what you like doing best, and get someone to pay you for it.
+ - The wind of change, whatever it is, blows most freely through an open mind...
+ - I am all for people having their heart in the right place; but the right place for a heart is not inside the head.
+ - A good listener is not someone with nothing to say. A good listener is a good talker with a sore throat.
+ - Things a mother should know: how to comfort a son without exactly saying Daddy was wrong.
+ - The easiest way for your children to learn about money is for you not to have any.
+ - Spring makes everything look filthy.
+ - One reason you are stricken when your parents die is that the audience you’ve been aiming at all your life – shocking it, pleasing it – has suddenly left the theater.
+ - As I look around the West End these days, it seems to me that outside every thin girl is a fat man, trying to get in.
+ - There’s comfort to an awful old dressing-gown a pretty peignoir is powerless to provide, and aging bra elastic, is, I suspect, as near to liberation as most women ever get.
+ - The disease is painless; it’s the cure that hurts.
+ - A good marriage is like Dr Who’s Tardis: small and banal from the outside but spacious and interesting from within.
+ - Being young is not having any money; being young is not minding not having any money.
+ - Does anybody who gave up smoking to save a pound a week have a pound at the end of the week? Not on your life.
+ - The main purpose of children’s parties is to remind you that there are children more awful than your own.
+ - It’s a pity more men are not bastards by birth instead of vocation.
+ - As anyone who has ever fallen foul of an airport, a conventional hospital or a bad restaurant knows, misery is made up of little things...
+ - Perennials are the ones that grow like weeds, biennials are the ones that die this year instead of next and hardy annuals are the ones that never come up at all.
+ - I just wish, when neither of us has written to my husband’s mother, I didn’t feel so much worse about it than he does.
+ - Why do born-again people so often make you wish they’d never been born the first time?
+ - Filing is concerned with the past; anything you actually need to see again has to do with the future.
+ - No nice men are good at getting taxis.
+ - Hats divide generally into three classes: offensive hats, defensive hats, and shrapnel.
+ - I used to think the only use for sport was to give small boys something else to kick besides me.
+ - And what would happen to my illusion that I am a force for order in the home if I wasn’t married to the only man north of the Tiber who is even untidier than I am?
+ - Have you ever taken anything out of the clothes basket because it had become, relatively, the cleaner thing?
+ - The rule is not to talk about money with people who have much more or much less than you.
+ - From a commercial point of view, if Christmas did not exist it would be necessary to invent it.
+ - A food is not necessarily essential just because your child hates it.
+ - In hell they will bore you, in heaven you will bore them.
+ - I wouldn’t say when you’ve seen one Western you’ve seen the lot; but when you’ve seen the lot you get the feeling you’ve seen one.
+ - Any committee that is the slightest use is composed of people who are too busy to want to sit on it for a second longer than they have to.
+ - I cannot for the life of me see why the umpires, the only two people on a cricket field who are not going to get grass stains on their knees, are the only two people allowed to wear dark trousers.
+ - It would be nice to think that a censor could allow a genuine work of artistic seriousness and ban a titillating piece of sadism, but it would take a miracle to make such a distinction stick.
+ - When it comes to housework the one thing no book of household management can ever tell you is how to begin. Or maybe I mean why.
+ - Newish friends, if they get ghastly, can be weighed and found wanting, but you’d never do a thing like that to old ones; their terrible habits are just part of the universe.
+ - I suppose we all share this pipe-dream of being able to reach out a hand and find anything at will; what is amazing is that we think that good filing could somehow make it comes true. On the contrary: putting a letter into a filing system is like releasing your ferret in the Hampton Court maze.
+ - American patriotism is generally something that amuses Europeans, I suppose because children look idiotic saluting the flag and because the constitution contains so many cracks through which the lawyers may creep.
+ - Americans, indeed, often seem to be so overwhelmed by their children that they’ll do anything for them except stay married to the co-producer.
+ - There are some circles in America where it seems to be more socially acceptable to carry a hand-gun than a packet of cigarettes.
+ - It beats me how Freud could say “What do women want?” as if we all must want the same thing.
+ - As ridiculous to approve of property and let a few men have a grossly unfair share of it, as say you are all for marriage, and then let one man have all the wives.
+ - Next and hardy annuals are the ones that never come up at all.
+ - It is a pity that so often the only way to treat girls like people seems to be to treat them like boys.
+ - The Life and Soul, the man who will never go home while there is one man, woman or glass of anything not yet drunk.
+ - I yield to no one in my admiration for the office as a social center, but it’s no place actually to get any work done.
+ - It has long been my boast that I can read or eat anything. But unfortunately, although I eat like a Hoover, I read so slowly that I am always on the smart book three years after everyone else has finished.
+ - In my next life I want to be a pessimist. Then other people could spend all their time cheering me up.
+
+48 quotes

@@ -1,0 +1,38 @@
+ - I believe destiny and hard work go hand in hand.
+ - I think it’s great to be flawed. I am hugely flawed, and I like it this way. That’s the fun of life. You fall, get up, make mistakes, learn from them, be human and be you.
+ - I am a very private person. No one ever knows anything about me as I don’t think it is necessary. I tell people as much as I want them to know about me.
+ - I don’t like guys who are conventional. I’m an achiever; he has to be an achiever. I admire drive, I admire ambition. I like a guy who keeps my on my toes.
+ - I am a little old fashioned. I believe that in a relationship a man and a woman are never equal.
+ - As a girl, I am this stupid, emotional, very loyal, sort of believe-in-values-and-principals sort of girl.
+ - For me exotic means beaches, palm trees and sand and frolicking in the ocean.
+ - I’ve been the saddest while I’ve been the most successful, strangely.
+ - Flying is my favorite time in the world. When I’m sitting in a plane, it’s amazing because it’s quiet and there’s no cell phones and no one to talk to you. It’s my favorite time. I read all my scripts. I catch up on my movies. I sleep. It’s the best. There’s no one telling you, “Time to go!”
+ - I owe 90 per cent of my life to people because I am a public figure, but 10 per cent is private to me. And I am not saying it in a defensive way. I feel my life has been made into a TV serial.
+ - I know I’m flawed – but perfect is boring anyway! Flawed is good!
+ - I live with romance in my brain. I’m a true-blue Cancerian like that.
+ - Mary Kom is a woman who stood up alone in a male-dominated field and fought for her rights and what she believed in. Her story is an inspiration for every young person out there.
+ - I am just a hard-working 23-year-old. When Maxim asked me to be on their cover, I was quite surprised. Of course, I was happy about it.
+ - I adore watching movies; movie marathons are my favorite pastime. I can watch up to five movies back to back. I also love music and like reading whenever I get the time.
+ - I was obsessed with Tupac – like eat, sleep, breathe Tupac. During this obsessive love affair, I dressed the part.
+ - People keep speculating about my personal life because I am evasive about it.
+ - It’s okay to be you. You don’t have to try to be anybody else. Whatever you are, however you are, it’s fine. Nobody’s perfect.
+ - There are cliques in Bollywood, and people stick together, but I have always tried to stick to my work. As an industry, Bollywood is very competitive, and I’m very competitive as a person, but I’ve never been a part of any clique, and I’ve always worked with all actors and directors, all camps.
+ - If more girls are educated, all of India stands to gain. The Girl Rising campaign aims to address that through various innovative initiatives that will not only help create awareness but also create a tangible platform to effect change.
+ - I love what I do, and for me, acting can be anything. It could be in America. It could be in India. It could be in England. It could be anything. As long as it’s an interesting part and an interesting opportunity, I would love to do it.
+ - If my film does not do well, it really hurts me. But by God’s grace, even if some of my films may not have done well, people have still liked my work in it.
+ - I got into the movies by accident. When I got an offer, I thought, ‘Let’s try this, too.’ Everything in my life has happened by trial and error. I didn’t even think I would win the Miss India title, so where’s the question of thinking I’d come this far.
+ - When I became Miss World, I couldn’t believe I had won it. I used to sleep with my crown because I was scared someone would steal it. In a minute the world changed for me.
+ - I love dabbling in different genres, and I like being good at different genres of cinema.
+ - My father is conservative but has always supported my decisions. He lets me take my own decisions. His only condition while allowing me to come to Mumbai was that my mother must accompany me.
+ - I eat right and ensure that I burn it all by working out equally as much as I eat.
+ - If two of your films don’t do well, people say you’re out in the cold and your career is over. One film does well, and you’ve had the best year of your life! I don’t believe in all that’s written.
+ - I wasn’t even prepared to be an actress. I was 17 when I came out of high school, and suddenly became Miss World and then I became an actress.
+ - I never had any awkward situations with Shah Rukh.
+ - My ambition when I was four years old was to be married.
+ - I live cinema and passionately love music, and my efforts in both these crafts are unfolding.
+ - As a musician, I know that it’ll take time for me to get to the ranks of an established artiste. Nevertheless, I’m very happy that people are appreciating my music.
+ - I have a very eclectic taste when it comes to music.
+ - I was also told some years ago that I shouldn’t ‘waste my time’ with female-centric films because the audience was not ready for it.
+ - I like bad boys, and I like to take them home to my mom.
+
+36 quotes

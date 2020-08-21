@@ -1,0 +1,262 @@
+ - We live for books.
+ - To survive, you must tell stories.
+ - I always assume that a good book is more intelligent than its author. It can say things that the writer is not aware of.
+ - I write what I write.
+ - Translation is the art of failure.
+ - A great problem of the internet is how to filter information, how to discard what is not relevant or what is silly and to keep only the important information.
+ - What is life if not the shadow of a fleeting dream?
+ - Love is wiser than wisdom.
+ - As the man said, for every complex problem there’s a simple solution, and it’s wrong.
+ - I have come to believe that the whole world is an enigma, a harmless enigma that is made terrible by our own mad attempt to interpret it as though it had an underlying truth.
+ - Someone said that patriotism is the last refuge of cowards; those without moral principles usually wrap a flag around themselves, and those bastards always talk about the purity of race.
+ - When your true enemies are too strong, you have to choose weaker enemies.
+ - Books are not made to be believed, but to be subjected to inquiry. When we consider a book, we mustn’t ask ourselves what it says but what it means...
+ - All the blogs, Facebook, Twitter are made by people who want to show their own private affairs at the price of making fakes, to try to appear such as they are not, to construct another personality, which is a veritable loss of identity.
+ - Hypotyposis is the rhetorical effect by which words succeed in rendering a visual scene.
+ - Listening doesn’t mean trying to understand. Anything, however trifling, may be of use one day. What matters is to know something that others don’t know you know.
+ - Absence is to love as wind is to fire: it extinguishes the little flame, it fans the big.
+ - The good of a book lies in its being read.
+ - I felt no passion, no jealousy, no nostalgia. I was hollow, clear-headed, clean, and as emotionless as an aluminum pot.
+ - I believe that what we become depends on what our fathers teach us at odd moments, when they aren’t trying to teach us. We are formed by little scraps of wisdom.
+ - A secret is powerful when it is empty.
+ - There are four kinds of people in this world: cretins, fools, morons, and lunatics.
+ - Books always speak of other books.
+ - But laughter is weakness, corruption, the foolishness of our flesh.
+ - I write stories about conspiracies and paranoid characters while I am, in fact, a very skeptical person.
+ - Captain Cook discovered Australia looking for the Terra Incognita. Christopher Columbus thought he was finding India but discovered America. History is full of events that happened because of an imaginary tale.
+ - The truth is an anagram of an anagram.
+ - I felt like poisoning a monk.
+ - I don’t know, maybe we’re always looking for the right place, maybe it’s within reach, but we don’t recognize it. Maybe to recognize it, we have to believe in it.
+ - We were clever enough to turn a laundry list into poetry.
+ - The light in her eyes was beyond description, yet it did not instill improper thoughts: it inspired a love tempered by awe, purifying the hearts it inflamed.
+ - Beauty is boring because it is predictable.
+ - A secret is powerful when it is empty. People often mention the “Masonic secret.” What on earth is the Masonic secret? No one can tell. As long as it remains empty it can be filled up with every possible notion, and it has power.
+ - National identity is the last bastion of the dispossessed. But the meaning of identity is now based on hatred, on hatred for those who are not the same.
+ - Any fact becomes important when it’s connected to another.
+ - A narrator should not supply interpretations of his work; otherwise he would have not written a novel, which is a machine for generating interpretations.
+ - You are always born under the wrong sign, and to live in this world properly you have to rewrite your own horoscope day by day.
+ - Never affirm, always allude: allusions are made to test the spirit and probe the heart.
+ - Narrativity presumes a special taste for plot. And this taste for plot was always very present in the Anglo-Saxon countries and that explains their high quality of detective novels.
+ - You can be obsessed by remorse all your life, not because you chose the wrong thing- you can always repent, atone : but because you never had the chance to prove to yourself that you would have chosen the right thing.
+ - There are four types: the cretin, the imbecile, the stupid and the mad. Normality is a balanced mixture of all four.
+ - It is a myth of publishers that people want to read easy things.
+ - To read a paper book is another experience: you can do it on a ship, on the branch of a tree, on your bed, even if there is a blackout.
+ - A transposable aphorism is a malaise of the urge to be witty, or in other words, a maxim that is untroubled by the fact that the opposite of what it says is equally true so long as it appears to be funny.
+ - I wrote a novel because I had a yen to do it. I believe this is sufficient reason to set out to tell a story.
+ - It is necessary to meditate early, and often, on the art of dying to succeed later in doing it properly just once.
+ - It is sometimes hard to grasp the difference between identifying with one’s own roots, understanding people with other roots, and judging what is good or bad.
+ - For the enemy to be recognized and feared, he has to be in your home or on your doorstep.
+ - A mystic is a hysteric who has met her confessor before her doctor.
+ - The Internet gives us everything and forces us to filter it not by the workings of culture, but with our own brains. This risks creating six billion separate encyclopedias, which would prevent any common understanding whatsoever.
+ - Being a professional philosopher is, I would say, feeling natural to think about small and great problems. It is the only pleasure.
+ - You cannot escape one infinite, I told myself, by fleeing to another. You cannot escape the revelation of the identical by taking refuge in the illusion of the multiple.
+ - I do not remember where I read that there are two kinds of poets: the good poets, who at a certain point destroy their bad poems and go off to run guns in Africa, and the bad poets, who publish theirs and keep writing more until they die.
+ - A democratic civilization will save itself only if it makes the language of the image into a stimulus for critical reflection – not an invitation for hypnosis.
+ - A novel is a machine for generating interpretations.
+ - If you want to use television to teach somebody, you must first teach them how to use television.
+ - There are two kinds of friendship: one is genuine affection, the other is inability to refuse.
+ - The pleasures of love are pains that become desirable, where sweetness and torment blend, and so love is voluntary insanity, infernal paradise, and celestial hell – in short, harmony of opposite yearnings, sorrowful laughter, soft diamond.
+ - Nothing is more fleeting than external form, which withers and alters like the flowers of the field at the appearance of autumn.
+ - We are always remaking history. Our memory is always an interpretive reconstruction of the past, so is perspective.
+ - Not that the incredulous person doesn’t believe in anything. It’s just that he doesn’t believe in everything.
+ - I was in a maze. No matter which way I turned, it was the wrong way.
+ - We have a limit, a very discouraging, humiliating limit: death. That’s why we like all the things that we assume have no limits and, therefore, no end. It’s a way of escaping thoughts about death. We like lists because we don’t want to die.
+ - The step between ecstatic vision and sinful frenzy is all too brief.
+ - Yesterday’s rose endures in its name, we hold empty names.
+ - What does culture want? To make infinity comprehensible.
+ - Yes, I know, it’s not the truth, but in a great history little truths can be altered so that the greater truth emerges.
+ - The only truth lies in learning to free ourselves from insane passion for the truth.
+ - By means of the sign, man frees himself from the here and now for abstraction.
+ - Libraries can take the place of God.
+ - Beauty has never been absolute and immutable but has taken on different aspects depending on the historical period and the country.
+ - The Devil is not the Prince of Matter; the Devil is the arrogance of the spirit, faith without smile, truth that is never seized by doubt. The Devil is grim because he knows where he is going, and, in moving, he always returns whence he came.
+ - How beautiful was the spectacle of nature not yet touched by the often perverse wisdom of man!
+ - One can be a great poet and be politically stupid.
+ - All of us were slowly losing that intellectual light that allows you always to tell the similar from the identical, the metaphorical from the real.
+ - Monsters exist because they are part of the divine plan, and in the horrible features of those same monsters the power of the creator is revealed.
+ - He had prepared his death much earlier, in his imagination, unaware that his imagination, more creative than he, was planning the reality of that death.
+ - Rem tene, verba sequentur: grasp the subject, and the words will follow. This, I believe, is the opposite of what happens with poetry, which is more a case of verba tene, res sequenter: grasp the words, and the subject will follow.
+ - We like lists because we don’t want to die.
+ - People are never so completely and enthusiastically evil as when they act out of religious conviction.
+ - A library’s ideal function is to be a little bit like a bouquiniste’s stall, a place for trouvailles.
+ - Each of us is sometimes a cretin, a fool, a moron, or a lunatic. A normal person is just a reasonable mix of these components, these four ideal types.
+ - Whenever a poet or preacher, chief or wizard spouts gibberish, the human race spends centuries deciphering the message.
+ - Whoever reflects on four things I would be better if he were never born: that which is above, that which is below, that which is before, that which is after.
+ - Conspiracies do exist. Probably in this moment in New York there is an economic group making a conspiracy in order to buy three banks. But if they succeed, they are immediately discovered.
+ - We are never racist against somebody who is very far away. I don’t know any racism against the Eskimos. To have a racist feeling, there must be an other who is slightly different from us – but is living close to us.
+ - How clear everything becomes when you look from the darkness of a dungeon.
+ - Homer’s work hits again and again on the topos of the inexpressible. People will always do that.
+ - If photography is to be likened to perception, this is not because the former is a natural process but because the latter is also coded.
+ - Every great thinker is someone else’s moron.
+ - The author should die once he has finished writing. So as not to trouble the path of the text.
+ - American coffee can be a pale solution served at a temperature of 100oC.
+ - Simple mechanisms do not love.
+ - The ideology of this America wants to establish reassurance through Imitation. But profit defeats ideology, because the consumers want to be thrilled not only by the guarantee of the Good but also by the shudder of the Bad.
+ - I would define the poetic effect as the capacity that a text displays for continuing to generate different readings, without ever being completely consumed.
+ - The truth is a young maiden as modest as she is beautiful, and therefore she is always seen cloaked.
+ - In the United States there’s a Puritan ethic and a mythology of success. He who is successful is good. In Latin countries, in Catholic countries, a successful person is a sinner.
+ - Fools are in great demand, especially on social occasions. They embarrass everyone but provide material for conversation. In their positive form, they become diplomats.
+ - It is clear that when you write a story that takes place in the past, you try to show what really happened in those times. But you are always moved by the suspicion that you are also showing something about our contemporary world.
+ - We know that sensory phenomena are transcribed in the photographic emulsion in such a way that even if there is a causal link with the real phenomena, the graphic images can be considered as wholly arbitrary with respect to these phenomena.
+ - Conspiracies and all the theories of conspiracy are a part of the canon of fakes. And I’m involved, in all of my writings, the theoretical ones as well as the novels, with the production of fakes.
+ - But Italy is not an intellectual country. On the subway in Tokyo everybody reads. In Italy, they don’t. Don’t evaluate Italy from the fact that it produced Raphael and Michelangelo.
+ - The French, the Italians, the Germans, the Spanish and the English have spent centuries killing each other.
+ - I think a book should be judged 10 years later, after reading and re-reading it.
+ - The problem with the Internet is that it gives you everything – reliable material and crazy material. So the problem becomes, how do you discriminate?
+ - Show not what has been done, but what can be. How beautiful the world would be if there were a procedure for moving through labyrinths.
+ - My collection of rare books concerns only books that don’t tell the truth.
+ - Is it worth it to be born if you cannot remember it later? And, technically speaking, had I ever been born? Other people, of course, said that I was. As far as I know, I was born in late April, at sixty years of age, in a hospital room.
+ - Every time that I write a novel I am convinced for at least two years that it is the last one, because a novel is like a child. It takes two years after its birth. You have to take care of it. It starts walking, and then speaking.
+ - The only truths that are useful are instruments to be thrown away.
+ - To establish what is true is very difficult. Frequently it is easier to establish what is false. And, passing through the false, it’s possible to understand something about truth.
+ - Man’s principle trait is a readiness to believe anything. Otherwise, how could the Church have survived for almost two thousand years in the absense of universal gullibility?
+ - In other words, although I don’t like them, we do need noble-spirited souls.
+ - It is psychologically very hard to go through life without the justification, and the hope, provided by religion.
+ - I started to work in television for three or four years, in 1954. There was one channel of television, black and white. But it could be entertaining and educational. During the evening they showed important plays, opera or Shakespeare’s tragedies.
+ - Memory is a stopgap for humans, for whom time flies and what is passed is passed.
+ - The poets did not win; the philosophers surrendered.
+ - We invented the car, and it made it easier for us to crash and die. If I gave a car to my grandfather, he would die in five minutes, while I have grown up slowly to accept speed.
+ - The followers must feel besieged.
+ - My poetry had the same functional origin and the same formal configuration as teenage acne.
+ - That day, I began to be incredulous. Or, rather, I regretted having been credulous. I regretted having allowed myself to be borne away by a passion of the mind. Such is credulity.
+ - When we traded the results of our fantasies, it seemed to us-and rightly-that we had proceeded by unwarranted associations, by shortcuts so extraordinary that, if anyone had accused us of really believing them, we would have been ashamed.
+ - The Roseicrucians were everywhere, aided by the fact that they didn’t exist.
+ - He who laughs does not believe in what he laughs at, but neither does he hate it. Therefore, laughing at evil means not preparing oneself to combat it, and laughing at good means denying the power through which good is self-propagating.
+ - All poets write bad poetry. Bad poets publish them, good poets burn them.
+ - Ugliness is more inventive than beauty. Beauty always follows certain camps. I think it’s more amusing – ugliness – than beauty.
+ - Two cliches make us laugh. A hundred cliches move us. For we sense dimly that the cliches are talking among themselves, and celebrating a reunion.
+ - How does a person feel when looking at the sky? He thinks that he doesn’t have enough tongues to describe what he sees. Nevertheless, people have never stopping describing the sky, simply listing what they see.
+ - Nothing can shake my belief that this world is the fruit of a dark god whose shadow I extend.
+ - When men stop believing in God, it isn’t that they then believe in nothing: they believe in everything.
+ - The real hero is always a hero by mistake; he dreams of being an honest coward like everybody else.
+ - Where else? I belong to a lost generation and am comfortable only in the company of others who are lost and lonely.
+ - I am not on Facebook and on Twitter because the purpose of my life is to avoid messages. I receive too many messages from the world, and so I try to avoid that.
+ - A dream is a scripture, and many scriptures are nothing but dreams.
+ - We are formed by little scraps of wisdom.
+ - The United States needed a civil war to unite properly.
+ - Writing doesn’t mean necessarily putting words on a sheet of paper. You can write a chapter while walking or eating.
+ - Fear prophets and those prepared to die for the truth, for as a rule they make many others die with them, often before them, at times instead of them.
+ - Poetry is not a matter of feelings, it is a matter of language. It is language which creates feelings.
+ - Better reality than a dream: if something is real, then it’s real and you’re not to blame.
+ - If you interact with things in your life, everything is constantly changing. And if nothing changes, you’re an idiot.
+ - All the theories of conspiracy were always a way to escape our responsibilities. It is a very important kind of social sickness by which we avoid recognizing reality such as it is and avoid our responsibilities.
+ - I have lost the freedom of not having an opinion.
+ - The more elusive and ambiguous a symbol is, the more it gains significance and power.
+ - I’ve always said that I learned the English I know through two sources – Marvel Comics and Finnegans Wake.
+ - I’m always fascinated by losers. Also, in my “Foucault’s Pendulum,” the main characters, who are in a way losers, they are more interesting than the winners.
+ - To imagine secret societies and conspiracy is a way not to react to the social and political life. Because you say, “We don’t know who they are. We cannot react without reasoning.” So it is a way to keep people far from the political environment.
+ - If two things don’t fit, but you believe both of them, thinking that somewhere, hidden, there must be a third thing that connects them, that’s credulity.
+ - We have a limit, a very discouraging, humiliating limit: death.
+ - The wise man does not discriminate; he gathers all the shreds of light, from wherever they may come...
+ - I am a professor who writes novels on Sundays.
+ - In the Middle Ages, cathendrals and convents burned like tinder; imagining a medieval story without a fire is like imagining a World War II movie in the Pacific without a fighter plane shot down in flames.
+ - A sure sign of a lunatic is that sooner or later, he brings up the Templars.
+ - I love the secrecy of writing fiction. When I write a novel, I don’t tell anybody what I’m doing. I’m living in my private world. And it’s a great sensation.
+ - True learning must not be content with ideas, which are, in fact, signs, but must discover things in their individual truth.
+ - Semiotics is in principle the discipline studying everything which can be used in order to lie. If something cannot be used to tell a lie, conversely it cannot be used to tell the truth: it cannot in fact be used “to tell” at all.
+ - Every European goes on the streets and sees medieval churches. Not if you live in Indianapolis. The most exciting letters I received were from people in places like that.
+ - This, in fact, is the power of the imagination, which, combining the memory of gold with that of the mountain, can compose the idea of a golden mountain.
+ - Nothing gives a fearful man more courage than another’s fear.
+ - When you are on the dancefloor, there is nothing to do but dance.
+ - I developed a passion for the Middle Ages the same way some people develop a passion for coconuts.
+ - Is it possible to say “It was a beautiful morning at the end of November” without feeling like Snoopy?
+ - The comic is the perception of the opposite; humor is the feeling of it.
+ - The Enlightenment, the Age of Reason, is seen as the beginning of modern depravity.
+ - There is only one thing that you write for yourself, and that is a shopping list.
+ - There is no great sport in having bullets flying about one in every direction, but I find they have less horror when among them than when in anticipation.
+ - The belief that time is a linear, directed sequence running from A to B is a modern illusion. In fact, it can also go from B to A, the effect producing the cause.
+ - I don’t miss my youth. I’m glad I had one, but I wouldn’t like to start over.
+ - The Art of the Romance, though warning us that it is providing fictions, opens a door into the Palace of Absurdity, and when we have lightly stepped inside, slams it shut behind us.
+ - Authors frequently say things they are unaware of; only after they have gotten the reactions of their readers do they discover what they have said.
+ - The good of a book lies in its being read. A book is made up of signs that speak of other signs, which in their turn speak of things. Without an eye to read them, a book contains signs that produce no concepts; therefore it is dumb.
+ - Jacopo Belbo didnt understand that he had had his moment and that it would have to be enough for him, for all his life. Not recognizing it, he spent the rest of his days seeking something else, until he damned himself.
+ - It was awkward, revisiting a world you have never seen before: like coming home, after a long journey, to someone else’s house.
+ - The most interesting letters I received about ‘The Name of the Rose’ were from people in the Midwest that maybe didn’t understand exactly, but wanted to understand more and who were excited by this picture of a world which was not their own.
+ - I am an old consumer of papers. I cannot avoid reading my newspapers every morning.
+ - If somebody writes a book and doesn’t care for the survival of that book, he’s an imbecile.
+ - Naturally, everything depends on one’s background books and on what one is looking for.
+ - The question of manuscript changes is very important for literary criticism, the psychology of creation and other aspects of the study of literature.
+ - My father was an accountant and his father was a typographer.
+ - Perhaps the mission of those who love mankind is to make people laugh at the truth, to make truth laugh, because the only truth lies in learning to free ourselves from insane passion for the truth.
+ - From lies to forgeries the step is not so long, and I have written technical essays on the logic of forgeries and on the influence of forgeries on history.
+ - Books are menaced by books. Any excess of information produces silence.
+ - I have a good memory. But I would be interested in memory even if I had a bad memory, because I believe that memory is our soul. If we lose our memory completely, we are without a soul.
+ - The more things you know, or pretend to know, the more powerful you are. It doesn’t matter if the things are true. What counts, remember, is to possess a secret.
+ - Once you reach your fifties, you have to stop being interested in the present and write only on Elizabethan poets.
+ - The cultivated person’s first duty is to be always prepared to rewrite the encyclopedia.
+ - History is a blood-drenched enigma and the world an error.
+ - Love flourishes in expectation. Expectation strolls through the spacious fields of Time towards Opportunity.
+ - Creativity can only be anarchic, capitalist, Darwinian.
+ - The author may not interpret. But he must tell why and how he wrote his book.
+ - Media populism means appealing to people directly through media. A politician who can master the media can shape political affairs outside of parliament and even eliminate the mediation of parliament.
+ - All the religious wars that have caused blood to be shed for centuries arise from passionate feelings and facile counter-positions, such as Us and Them, good and bad, white and black.
+ - The print does not always have the same shape as the body that impressed it, and it doesn’t always derive from the pressure of a body. At times it reproduces the impression a body has left in our mind: it is the print of an idea.
+ - There are more books in the world than hours in which to read them. We are thus deeply influenced by books we haven’t read, that we haven’t had the time to read.
+ - The Fundamental Principle that governs – or ought to govern -human affairs if we wish to avoid misunderstandings, conflicts, or pointless utopias, is negotiation.
+ - As an adolescent I wrote comic books, because I read lots of them, and fantasy novels set in Malaysia and Central Africa.
+ - The hand of God creates; it does not conceal.
+ - Entering a novel is like going on a climb in the mountains: You have to learn the rhythms of respiration – acquire the pace. Otherwise you stop right away.
+ - That is a real attitude – to see everything as being meaningful, even the less important things, to prove something, even the greater problems of life.
+ - Because of lies, we can produce and invent a possible world.
+ - The order that our mind imagines is like a net, or like a ladder, built to attain something. But afterward you must throw the ladder away, because you discover that, even if it was useful, it was meaningless.
+ - The real hero is always a hero by mistake.
+ - I was a fervent Catholic, and I belonged to the national organizations, even becoming one of the national leaders, until the age of 21, 22.
+ - I consider always the adult life to be the continuous retrieval of childhood.
+ - And so I fell devoutly asleep and slept a long time, because young people seem to need sleep more than the old, who have already slept so much and are preparing to sleep for all eternity.
+ - I could work in the shower if I had plastic paper.
+ - As a scholar I am interested in the philosophy of language, semiotics, call it what you want, and one of the main features of the human language is the possibility of lying.
+ - After years of practice, I can walk into a bookstore and understand its layout in a few seconds. I can glance at the spine of a book and make a good guess at its content from a number of signs.
+ - Every man is obsessed by the memories of his own youth.
+ - Followers of the occult believe in only what they already know, and in those things that confirm what they have already learned.
+ - For such is the fate of parody: it must never fear exaggerating. If it strikes home, it will only prefigure something that others will then do without a smile – and without a blush – in steadfast virile seriousness.
+ - Our most noted satirists are true columnists, and their opinions can be worth more than any well-documented expose.
+ - I suspect that there is no serious scholar who doesn’t like to watch television. I’m just the only one who confesses.
+ - I don’t want to write a novel per year. I know that I need a break of one or two years. So maybe I invent some new, urgent activity so I don’t fall into the trap of starting a new novel.
+ - I feel that I am a scholar who only with the left hand writes novels.
+ - Contemporary societies have lost the sense of the feast but have kept the obscure drive for it.
+ - One of the problems I have always discussed is the refusal to distinguish between comment and fact. The newspaper wraps every fact into a comment. It is impossible to give mere fact without establishing point of view.
+ - Even today, I frequently meet scientists who, outside their own narrow discipline, are superstitious.
+ - He who falls in love in bars doesn’t need a woman all his own. He can always find one on loan.
+ - I believe that you can reach the point where there is no longer any difference between developing the habit of pretending to believe and developing the habit of believing.
+ - In the United States, politics is a profession, whereas in Europe it is a right and a duty .
+ - But it has often happened that I have found the most seductive depictions of sin in the pages of those very men of incorruptible virtue who condemned their spell and their effects.
+ - For many years I have devoted articles and essays to newspapers, from the inside. So criticism of the newspapers was a topic that I practiced for a long time.
+ - You tell me these two were my parents, so now I know but it’s a memory that you’ve given me. I’ll remember the photo from now on, but not them.
+ - When I went from being an academic to being a member of the community of writers some of my former colleagues did look on me with a certain resentment.
+ - And what would we be, we sinful creatures, without fear, perhaps the most foresighted, the most loving of the divine gifts?
+ - An idea you have might not be original. But by creating a novel out of that idea you can make it original.
+ - We are a pluralist civilisation because we allow mosques to be built in our countries, and we are not going to stop simply because Christian missionaries are thrown into prison in Kabul. If we did so, we, too, would become Taliban.
+ - I enjoyed your article, but I preferred my own.
+ - It is obvious that the newspaper produces the opinion of the readers.
+ - Mystical additions and subtractions always come out the way you want.
+ - My grandfather had a particularly important influence on my life, even though I didn’t visit him often, since he lived about three miles out of town and he died when I was six. He was remarkably curious about the world, and he read lots of books.
+ - In short, Roberto privately concluded, if you would avoid wars, never make treaties of peace.
+ - Your masters at Oxford have taught you to idolize reason, drying up the prophetic capacities of your heart!
+ - I like nicotine because it excites my brain and helps me work.
+ - Since I became a novelist I have discovered that I am biased. Either I think a new novel is worse than mine and I don’t like it, or I suspect it is better than my novels and I don’t like it.
+ - I seal that which was not to be said in the tomb that I become.
+ - Daytime sleep is like the sin of the flesh; the more you have the more you want, and yet you feel unhappy, sated and unsated at the same time.
+ - Sometimes my characters are not myself.
+ - We live for books. A sweet mission in this world dominated by disorder and decay.
+ - The function of memory is not only to preserve, but also to throw away. If you remembered everything from your entire life, you would be sick.
+ - I think of myself as a serious professor who, during the weekend, writes novels.
+ - But the purpose of a story is to teach and to please at once, and what it teaches is how to recognize the snares of the world.
+ - When one starts writing a book, especially a novel, even the humblest person in the world hopes to become Homer.
+ - What we honor as prudence in our elders is simply panic in action.
+ - In the construction of Immortal Fame you need first of all a cosmic shamelessness.
+ - A book is a fragile creature. It suffers the wear of time, it fears rodents, the elements, clumsy hands.
+ - Deciding what is being talked about is a kind of interpretive bet.
+ - If western culture is shown to be rich, it is because, even before the Enlightenment, it has tried to ‘dissolve’ harmful simplifications through inquiry and the critical mind.
+ - People are tired of simple things. They want to be challenged.
+ - Reflecting on these complex relationships between reader and story, fiction and life, can constitute a form of therapy against the sleep of reason, which generates monsters.
+ - When the poet is in love, he is incapable of writing poetry on love. He has to write when he remembers that he was in love.
+ - I lacked the courage to investigate the weaknesses of the wicked, because I discovered they are the same as the weaknesses of the saintly.
+ - I have to admit that I only read ‘War and Peace’ when I was 40. But I knew the basics before then.
+ - I have always been fascinated by paranoid people imagining conspiracies. I am fascinated by this in a critical way.
+ - There are more people than you think who want to have a challenging experience, in which they are obliged to reflect about the past.
+ - It comes down to a question of attention: it’s difficult to use the Net distractedly, unlike the television or the radio.
+ - I don’t see the point of having 80 million people online if all they are doing in the end is talking to ghosts in the suburbs.
+ - Perhaps I am not as wise as I like to think I am.
+ - New Orleans is not in the grip of a neurosis of a denied past; it passes out memories generously like a great lord; it doesn’t have to pursue “the real thing.”
+
+260 quotes

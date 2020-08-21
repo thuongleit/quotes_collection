@@ -1,0 +1,26 @@
+ - I would rather try a shot to win than play safe and finish second.
+ - I try to respect everybody out here: players, caddies, fans, media.
+ - The object of golf is not just to win. It is to play like a gentleman, and win.
+ - I think it’s more than whether or not you win or lose. It’s having that opportunity on that final round, final nine, to come down the stretch with a chance to win.
+ - I have not found my perspective on my career change. What I have found is that my life in general has been more fulfilling. To be able to influence an individual’s life and on who they become as a person is a very rewarding feeling.
+ - It should almost be a prerequisite to play Castle Stuart before you’re allowed to design golf courses nowadays.
+ - A great shot is when you pull it off. A smart shot is when you don’t have the guts to try it.
+ - I think a college education is important no matter what you do in life.
+ - The only way to win tournaments is with the short game. Over half your shots out here are within 30 or 40 yards. Ballstriking is where I’m trying to improve, yes, but more to eliminate big numbers than make birdies.
+ - My style of play won’t ever change, because I enjoy that aggressive style of golf. It allows me to play my best. When I attack pins, I stay more focused. I get more into the shot and, consequently, I get more out of the shot and out of my game by playing aggressive.
+ - Where you can make up ground is if the wind blows and your opponents make big numbers. I think you can shoot three, four, five-under par. But to make up a six, seven or eight-shot lead, that will be tough without the leaders coming back.
+ - I remember when I first came out on tour, it was Greg Norman and Nick Price. We forget how big Norman was, what a presence he was. I remember one of my first tournaments, Greg threw an orange peel down on the ground and some fan ran over and grabbed it. ‘This is Greg Norman’s orange peel!’
+ - Changing would not give me the best chance to win. I need to have fun. I need to attack.
+ - Its just as disappointing as it was thrilling to win the Masters. To come very close, to play so hard for 72 holes and play better than everybody but one guy is disappointing.
+ - The more you study the course, the more you appreciate what a great test it is.
+ - My kids and I sometimes will just sit in my office and talk about what the world was like 68 million years ago. Amanda, our oldest daughter, wanted to be a paleontologist for a long time.
+ - It’ll be nice not to have to use my fake IDs anymore.
+ - The winner of this tournament doesn’t just win a major. He become a part of the history of the game.
+ - I have come to understand and appreciate writers much more recently since I started working on a book last fall. Before that, I thought golf writers got up every morning, played a round of golf, had lunch, showed up for our last three holes and then went to dinner.
+ - My family has reduced the effect of my career on my self-esteem. When I’m with them, they make me feel special regardless of how I play.
+ - I hate to play a tournament in which I’m not contending. It’s just not any fun for me.
+ - Well, you know, I don’t really want to trade next year. I certainly enjoyed having the jacket put on me rather than putting it on.
+ - If you add up all the federal and you look at the disability and the unemployment and the Social Security and the state, my tax rate’s 62, 63 percent. So I’ve got to make some decisions on what I’m going to do.
+ - I don’t think my style of play is what has prevented me from winning major championships. I think that execution has been more of a factor.
+
+24 quotes

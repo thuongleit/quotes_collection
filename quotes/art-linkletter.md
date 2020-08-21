@@ -1,0 +1,32 @@
+ - The four stages of man are infancy, childhood, adolescence, and obsolescence.
+ - If anything is worth trying at all, it’s worth trying at least 10 times.
+ - Do a little more than you’re paid to. Give a little more than you have to. Try a little harder than you want to. Aim a little higher than you think possible, and give a lot of thanks to God for health, family, and friends.
+ - Kids do say the darndest things.
+ - I stand fearlessly for small dogs, the American Flag, motherhood and the Bible. That’s why people love me.
+ - I’ve learned it’s always better to have a small percentage of a big success, than a hundred percent of nothing.
+ - Posterity is the patriotic name for grandchildren.
+ - No one can keep from aging, but there is no need to grow old.
+ - I eat a lowfat diet, think positively, get exercise every day.
+ - Children have an unerring instinct for knowing when they are being patronized. They go immediately on the defensive against head-patting adults who treat them like strange beings.
+ - Yes, I backed the hula hoop. And I had a lot of other people come to me with ideas that turned out well.
+ - Just smiling goes a long way toward making you feel better about life. And when you feel better about life, your life is better. With an optimistic, positive attitude toward life, the possibilities for your second prime are tremendous.
+ - In the Top 40, half the songs are secret messages to the teen world to drop out, turn on, and groove with the chemicals and light shows at discotheques.
+ - I grew up poor. I never had any money. I was a hobo, you know, ride the freights.
+ - Radio was so important to everybody back then; there was no TV. Columbia Square was the epitome of radio. Everything was modern. It was beautiful.
+ - Sometimes I’m asked by kids why I condemn marijuana when I haven’t tried it. The greatest obstetricians in the world have never been pregnant.
+ - My age now, like my age 20 years ago, marks the year in which I was born. That’s all.
+ - Diplomacy: the art of jumping into trouble without making a splash.
+ - Being alive at 87 is quite an accomplishment if you’re curious, interested, seeing the fun out of life, doing things, having a purpose.
+ - Each generation has been an education for us in different ways. The first child-with-bloody-nose was rushed to the emergency room. The fifth child-with-bloody-nose was told to go to the yard immediately and stop bleeding on the carpet.
+ - The depths of the Depression. You didn’t ask what the job was, what the pay was, you didn’t ask about stock options, or – you said yes.
+ - If you don’t go far enough back in memory or far enough ahead in hope, your future will be impoverished.
+ - People find gold in fields, veins, river beds, and pockets. Whichever, it takes work to get it out.
+ - One of the wonderful things about going to a small college is you can get into everything.
+ - My philosophy is to do the best you can for somebody. Help. It’s not just what do you for yourself. It’s how you treat people decently. The golden rule. There isn’t big anything better than the golden rule. It’s in every major religion in one language or another.
+ - I like what I’m doing. Today at 88, I wouldn’t think of quitting because I can’t think of anything else I would rather do. And now with my lectures on all the charitable things that I do, just as you do, I think that what I’m doing matters.
+ - And keep a sense of humor. It doesn’t mean you have to tell jokes. If you can’t think of anything else, when you’re my age, take off your clothes and walk in front of a mirror. I guarantee you’ll get a laugh.
+ - A finished product is one that has already seen its better days.
+ - Troubadours travelled from town to town. They didn’t really sing too good, which is the main reason they kept going.
+ - The two best interview subjects are children under 10 and people over 70 for the same reason: they say the first thing that comes to their mind. The children don’t know what they’re saying and the old folks don’t care.
+
+30 quotes

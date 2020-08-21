@@ -1,0 +1,25 @@
+ - If you are losing at a game, change the game.
+ - I don’t get even, I get odder.
+ - They will do anything for the worker, except become one.
+ - The biggest mistake is being too afraid of making one.
+ - To shine is better than to reflect.
+ - Passion is inversely proportional to the amount of real information available.
+ - When the chemistry is right, all the experiments work.
+ - In a tough situation, don’t avoid acting just because it’s easier or comfortable. Don’t lapse into a passive state. People who give up, die.
+ - No matter how much you plan for it, the real thing seems curiously, well, unreal.
+ - Once you’ve grown up in space, moving on means moving out, not going back to Earth. Nobody wants to be a groundpounder.
+ - People fear their hidden selves, afraid that they will burst out.
+ - Everybody feels he has a right to a life of luxury – or at least comfort – so there’s a lot of frustration and resentment when the dream craps out.
+ - Science is like literature, a continuing dialog among diverse and conflicting voices, no one ever wholly right or wholly wrong, but a steady conversation forever provisional and personal and living.
+ - Religions do not teach doubt.
+ - Ugliness is nature’s contraceptive.
+ - Disintegration of structure equals information loss.
+ - Any technology that does not appear magical is insufficiently advanced.
+ - The peers just fill the air with their speeches.“”And from what I’ve seen, vice versa.
+ - Modern economics and the welfare state borrowed heavily on the future.
+ - It was getting the results that made science worth doing; the accolades were a thin, secondary pleasure.
+ - Peter Watts delivers-solid, inventive hard sf about the deep sea, but as we’ve never seen before. This moves like the wind.
+ - At least being prosperous set one apart in England; here it guaranteed nothing, not even taste.
+ - The personal was, compared with the tides of great nations, a bothersome detail.
+
+23 quotes

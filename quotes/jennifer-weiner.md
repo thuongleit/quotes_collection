@@ -1,0 +1,65 @@
+ - Divorce isn’t such a tragedy. A tragedy’s staying in an unhappy marriage, teaching your children the wrong things about love. Nobody ever died of divorce.
+ - Things happen, and you can’t make them unhappen. You don’t get do-overs, you can’t roll back the clock, and the only thing you can change, and the only thing it does any good to worry about, is how you let them affect you.
+ - God grant me the serenity to accept the things I cannot change, courage to change the things I can, and the patience not to strangle my mother-in-law, chop her into little pieces, and dump them down a sewer.
+ - Tell the story that’s been growing in your heart, the characters you can’t keep out of your head, the tale story that speaks to you, that pops into your head during your daily commute, that wakes you up in the morning.
+ - And then he left, and came back, and our lives fell apart, like a well-loved book that you’d read and read again, until one night you picked it up to read yourself to sleep and the binding collapsed, sending dozens of pages spiraling toward the floor.
+ - I’ve learned that some broken things stay broken, and I’ve learned that you can get through bad times and keep looking for better ones, as long as you have people who love you.
+ - If you wish for something hard enough, the fairy tales teach us, you can get it in the end. But it’s hardly ever the way you thought it would be, and the endings aren’t always happy ones.
+ - The difference between people who believe they have books inside of them and those who actually write books is sheer cussed persistence – the ability to make yourself work at your craft, every day – the belief, even in the face of obstacles, that you’ve got something worth saying.
+ - He loved me. He loved me, but he doesn’t love me anymore, and it’s not the end of the world.
+ - So here I am. Twenty-eight years old, with thirty looming on the horizon. Drunk. Fat. Alone. Unloved. And, worst of all, a cliche, Ally McBeal and Bridget Jones put together, which was probably about how much I weighed...
+ - I will love myself, and my body, for what it can do- because it is strong enough to lift, to walk, to ride a bicyle up a hill, to embrace the people I love and hold them fully, and to nurture a new life. I will love myself because I am sturdy. Because I did not -will not- break.
+ - I think it’s a very old and deep-seated double standard that holds that when a man writes about family and feelings, it’s literature with a capital L, but when a woman considers the same topics, it’s romance, or a beach book – in short, it’s something unworthy of a serious critic’s attention.
+ - Whenever people with money have power over people with less money, you have the potential for exploitation.
+ - I didn’t feel anything but a bone-deep weariness. Like I was suddenly a hundred years old, and I knew at that moment I would have to live a hundred more years, carrying my grief around like a backpack full of stones.
+ - Maybe it was inertia -or worse, fear- that was keeping me in the same place.
+ - The condom broke. I know how stupid that sounds. It’s the reproductive version of the dog ate my homework.
+ - I was an English major in college, took a ton of creative writing courses, and was a newspaper reporter for 10 years.
+ - Everyone has sorrow. Everyone has obligations. Everyone keeps going. You lean on the people who love you. You do the best you can, and you keep going.
+ - I’m not in charge of my life.
+ - I don’t trust happiness. I turn it over as if it were a glass at a flea market or a rug at a souk, looking for chipped rims or loose threads.
+ - There’s all kinds of love in the world, and not all of it looks like the stuff in greeting cards.
+ - People say I’m not good at writing about men. My dad left when I was 16. Give me a break. I’m doing the best I can.
+ - Regular women carry pictures of their babies, their husbands, their summer houses. Fat ladies carry pictures of themselves at their skinniest.
+ - If a writer writes poems and short stories and novels, but nobody ever reads them, is she really a writer?
+ - If you write thrillers or mysteries or horror fiction or quote-unquote speculative fiction, men might read you, and the ‘Times’ might notice you.
+ - I get really starstruck and tongue tied when I’m around other writers and the conversation tends not to go well.
+ - But what we’re really trapped by is perceptions. You think you need to lose weight for someone to love you. I think if I gain weight, no one will love me. What we really need is to just stop thinking of ourselves as bodies and start thinking of ourselves as people.
+ - My book sales make ‘real writers’ possible.
+ - I went to Princeton, I minored in women’s studies.
+ - Many writers secretly long to be performers. You always get the ‘if you weren’t a writer’ question. I would be a back-up singer, to stand in the back and go like ’do, do, do.
+ - People are always coming up to me with my books and saying, ‘You write these things I think but I could never say,’
+ - When I was five I learned to read. Books were a miracle to me – white pages, black ink, and new worlds and different friends in each one. To this day, I relish the feeling of cracking a binding for the first time, the anticipation of where I’ll go and whom I’ll meet inside.
+ - I’m not cut out to be a famous person; I can’t do my hair and makeup well enough.
+ - Every mother I’ve ever met, pretty much without exception, is doing the best job she can ever do.
+ - Character is character and voice is voice, which translates nicely from writing novels to writing TV. But the process is different. You have a writer’s room, people pitch you jokes and you collaborate.
+ - She hated the implied familiarity when customers requested things from her by name...
+ - Read everything. Read fiction and non-fiction, read hot best sellers and the classics you never got around to in college.
+ - I wrote my first books when I was single and then I got married and then had a kid and there were different things happening in my life.
+ - You should be concerned about the state of your soul, not the state of your bank account.
+ - My feeling about my own work is, I could be writing ‘The Aeneid’ and they would still have to call it chick lit or mommy lit or menopausal old hag lit.
+ - I wonder if novels work for women because they give us a safe place to talk about our ish.
+ - I don’t like futons. They can’t commit. I’m a bed! I’m a couch! I’m a bed! I’m a couch!
+ - They say – “they” being the great philosophers, or possibly the cast of Seinfeld – that breaking up is like pushing over a Coke machine. You can’t just do it, you have to set the thing in motion, rock it back and forth a few times.
+ - Hefty? I’d railed to Peter, waving the clipping for emphasis. Hefty? For the record ‘Hefty’ is a trash bag. I’m festively plump.
+ - There’s something really nice about writing something on Wednesday and watching it being performed live for a studio audience on Tuesday. You never really get that with novels.
+ - You move forward because thats the way it works; thats the only place you can go.
+ - If there had been an exercise I’d liked, would I have gotten this big in the first place?
+ - Having a day job again I found really kind of fueled my fiction, because it became almost this forbidden thing where I had to sneak off and do it in private.
+ - Found, I told myself. Try to get found.
+ - I also believe that if you’re really a writer, you’ll write, and that nobody could stop you.
+ - As many times as I told her she was beautiful, I know that she never believed me. As many times as I said it didn’t matter, I knew that to her it did.
+ - Women are far and away the bigger consumers of fiction than men, but men are still far and away the more reviewed, the more critically esteemed, the more respected. That can get frustrating.
+ - I don’t particularly like being angry about stuff. I’d rather hang out with my daughter and write my little books.
+ - Right now women are using surrogates because they can’t be pregnant. What worries me is the possibility that soon they’ll use surrogates because they don’t want to be pregnant.
+ - There are two kinds of houses in the neighborhood where I grew up-the ones where the parents stayed married, and the ones where they didn’t.
+ - I can carry a tune with a three-note range. Once I’m out of that range, I’m in trouble.
+ - It’s like if a young woman writes it, then it’s chick lit. We don’t care if she’s slaying vampires or working as a nanny or living in Philadelphia. It’s chick lit, so who cares? You know what we call what men write? Books.
+ - I don’t write literary fiction – I write books that are entertaining, but are also, I hope, well-constructed and thoughtful and funny and have things to say about men and women and families and children and life in America today.
+ - I want to live in a world where people are judged by who they are instead of what size they wear.
+ - Being a novelist is hard for anyone – male or female. You don’t get to quit your day job.
+ - If you write chick lit, and if you’re a New Yorker, and if your book becomes the topic of pop-culture fascination, the paper might make dismissive and ignorant mention of your book. If you write romance, forget about it. You’ll be lucky if they spell your name right on the bestseller list.
+ - It’s as if the fasion designers decided that once a woman hit a certain weight, she’d have no need for business suits, for skirts and blazers, for anything except glorified sweatsuits, and they tried to apologize for dressing us like overaged Teletubbies by silk-screening daisies on the tops.
+ - I like blogs. they’re good times.
+
+63 quotes

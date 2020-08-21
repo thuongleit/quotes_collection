@@ -1,0 +1,31 @@
+ - Acknowledgement is the only way to keep love alive.
+ - Love is all around you like the air, and is the very breath of your being.
+ - Feelings are constantly changing. None is dependable for long. You can love someone intensely today, and tomorrow or next month not feel a thing. Except perhaps for the feeling of doubt or depression that what was so beautiful could change so quickly.
+ - Truth cannot be taught but it is quickly recognised by the person ready to discover it.
+ - The whole purpose of existence is to bring love into existence where it is needed.
+ - When you observe yourself you must not condemn or approve what you see. If you tell a lie there is no need to judge your-self.
+ - Beauty is and always is. You are absent. Why are you absent? Again your robot mind is the problem. It will not stay still and you cannot make it stay still. It is your master and it separates you from beauty and God.
+ - We can rarely see things from the point of view of another person because we look at the facts through the screen of an impression or an interest which distorts our view; and then there are accusations, quarrels and misunderstandin g.
+ - When the robot mind is mastered, undisciplined thinking ceases and is replaced by awareness. Awareness can know love.
+ - Love is beyond description; but not beyond demonstrating. Love is beyond the mind because it is always new. Any product of the mind is a reaction of the past, a synthesis of what is old. So the mind is a modifier, a reactor; a renovator, but it cannot create the new.
+ - Love is the state of enlightenment and enlightenment is the state of love. You can’t make any separation between them. Enlightenment is the state of no feelings and pure knowledge and so is love.
+ - Love is a power, a mighty principle that exists in its own right independent of any individual. Man changes, but the principle of love does not and cannot. Love does not leave men and women. Men and women leave love.
+ - All love – love of children, love of parents, love of God or life – comes out of making physical love. Without the making of love there is no body to love anything.
+ - Nothing is true in self-discovery unless it is true in your own experience. This is the only protection against the robot levels of the mind.
+ - To experience beauty, love, truth and peace, or God, your mind has to be stilled.
+ - You can only get next to God through the effort of preparation. To experience the uncreated, the state of awareness will have to be held for several minutes. You are then between time and the time-less – waiting for the unknown, which will come but cannot be willed.
+ - You must not believe anyone in the search for truth; you have to find out for yourself. But although you are on your own, help will come when it is really needed.
+ - You think, you become that thought. And consciousness, or the state of pure awareness, is lost.
+ - All is energy and there is no energy higher than right love, which has no object.
+ - WE HAVE SEEN that hunger and breathing are desires of the body. There are other desires that are not of the body, but again man seldom pauses to observe these desires in himself.
+ - You can’t realise love or yourself until you are still enough to drop down through the restlessness and frustrations into that deeper level of your being.
+ - You can experience consciousness now by experiencing the fact that you exist.
+ - No man can teach another self-knowledge. He can only lead him or her up to self-discovery – the source of truth.
+ - It is a little known fact that truth cannot be memorized. Truth has to be discovered now, from moment to moment. It is always fresh, always new, always there for the still, innocent mind that has experienced life without needing to hold on to what has gone before.
+ - Anything that is said is not the truth. It is a statement of truth, and no statement is the truth.
+ - The only way we can ever get through to the truth is by finding out what we are not. We do that by looking, by observation.
+ - No religion knows the truth. Only he or she who lives it knows.
+ - Any product of the mind is a reaction of the past, a synthesis of what is old.
+ - There is a notion that existence is an illusion. Existence is not an illusion. Existence is a projection from the inner through the brain producing the outer sensory world of what is – an amazing complete mystery.
+
+29 quotes

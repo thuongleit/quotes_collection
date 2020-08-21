@@ -1,0 +1,31 @@
+ - If we take care of our mental health like our dental health; we’ll be ok.
+ - We were a very small circle of writers. Everybody brought to the table their own life experience.
+ - I’m from Canada, so Thanksgiving to me is just Thursday with more food. And I’m thankful for that.
+ - Bobby’s World touched a lot of people. That’s why the family’s last name is Generic. Uncle Ted is based on uncles we’ve all had.
+ - I don’t know if I’m teaching my kids right, but you have to go with your own instincts. You can’t be so sure that other people are going to do right by you.
+ - I’ve decided to get into shape, and the shape I’ve selected is a triangle.
+ - People who annoy people are the luckiest people in the world.
+ - My perspective on my mother has changed immensely. She was a lot taller when I was younger.
+ - My whole life is a practical joke. Every evening and every show has really become about entertaining me. I was always like that. And now I’ve come full circle because that’s what the TV show is too.
+ - You release these things, and if they fly then you have more.
+ - I can go to a lot of games, but I’m not a player. I’m kind of an observer. That’s why I think I do what I do in life. I just observe. That’s what I find fascinating.
+ - Everything runs its course. We had told a lot of stories that happened in our life. My kid was getting older, and we were running out of stories to tell.
+ - When I went into Bobby’s World, I had no idea it would be a success. I had been doing the Bobby voice as part of my nightclub adult act for years.
+ - We sat down and told stories that happened to us in our childhood, to our children. They were all basically based on the truth. These stories were funny and poignant to us. They just took off. These are all stories from my life.
+ - Now I have new stories and I feel refreshed. There is talk of Bobby’s World eventually coming back. I would be happy to do that.
+ - If I’m a game show host, will someone buy a ticket to see me do standup? To do a dramatic role in a movie?
+ - I’ve had people come up to me, as home viewers, and tell me they were screaming at the TV, yelling at each other, yelling at the contestants.
+ - I’ve been chased. I’ve been pushed. I’ve been screamed at. I’ve been verbally abused. I’ve been afraid for my safety. But I did it all in the name of entertainment.
+ - There were 84 original episodes. It was rated No. 1 and No. 2 on the Fox Children’s Network. We figured it was time to make it available to people who have never watched it.
+ - I needed time to stand back and go through a lot more experience in life. Then I have something to write about, joke or to animate.
+ - The success of any stand-up act comes out of life experience.
+ - After being on the road so much I want to spend more time with my family, who I hear are wonderful people.
+ - I’m fascinated by mankind. I grew up watching ‘Candid Camera’ and thought it was funnier than any standup, any joke, anything that could possibly be written because you’re dealing with humanity. And people can relate to that. It touches everybody who sees it. It hits a nerve.
+ - I was totally involved in Bobby’s World from the time we started the idea to sitting with the artists on how he would look, to the script meetings, the music, the lyrics, the songs.
+ - It’s really not that hard. If I do a Tonight Show, it’s six or seven minutes. If I do a concert, it’s 90 minutes. If I do an interview, that’s 15 minutes. So by the end of the day I’ve done three hours worth of work.
+ - I am beloved by millions.
+ - My point of reference is life, in everything that I do.
+ - You can go home with a lot of money with absolutely no skill.
+ - There’s no skill. You can be a rock and move into another tax bracket.
+
+29 quotes

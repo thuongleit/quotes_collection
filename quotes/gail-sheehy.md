@@ -1,0 +1,43 @@
+ - If we don’t change, we don’t grow. If we don’t grow, we aren’t really living.
+ - Growth demands a temporary surrender of security.
+ - No sooner do we think we have assembled a comfortable life than we find a piece of ourselves that has no place to fit in.
+ - A seasoned woman is spicy. She has been marinated in life experiences. Like a complex wine, she can be alternately sweet, tart, sparkling, mellow. She is both maternal and playful. Assured, alluring, and resourceful.
+ - If we don’t change, we don’t grow. If we don’t grow, we are not really living. Growth demands a temporary surrender of security. If we don’t change, we don’t grow. If we don’t grow, we are not really living. Growth demands a temporary surrender of security.
+ - With each passage of human growth we must shed a protective structure. We are left exposed and vulnerable – but also yeasty and embryonic again, capable of stretching in ways we hadn’t known before.
+ - The secret of a leader lies in the tests he has faced over the whole course of his life and the habit of action he develops in meeting those tests.
+ - Being a pathfinder is to be willing to risk failure and still go on.
+ - Changes are not only possible and predictable, but to deny them is to be an accomplice to one’s own unnecessary vegetation.
+ - The source of continuing aliveness was to find your passion and pursue it, with whole heart and single mind.
+ - Democratization is not democracy; it is a slogan for the temporary liberalization handed down from an autocrat. Glasnost is not free speech; only free speech, constitutionally guaranteed, is free speech.
+ - Husbands come and go; children come and eventually they go. Friends grow up and move away. But the one thing that’s never lost is your sister.
+ - The present never ages. Each moment is like a snowflake, unique, unspoiled, unrepeatable, and can be appreciated in its surprisingness.
+ - If every day is an awakening, you will never grow old. You will just keep growing.
+ - The delights of self-discovery are always available.
+ - The perceptions of middle age have their own luminosity.
+ - Frustration is the mother of risk.
+ - A restless vitality wells up as we approach 30.
+ - It is a paradox that as we reach out prime, we also see there is a place where it finishes.
+ - To be tested is good. The challenged life may be the best therapist.
+ - Transformation also means looking for ways to stop pushing yourself so hard professionally or inviting so much stress.
+ - If menopause is the silent passage, ‘male menopause’ is the unspeakable passage. It is fraught with secrecy, shame, and denial. It is much more fundamental than the ending of the fertile period of a woman’s life, because it strikes at the core of what it is to be a man.
+ - You may never know when things start to go bad, but when things are worse you know it.
+ - As we reach midlife in the middle thirties or early forties, we are not prepared for the idea that time can run out on us, or for the startling truth that if we don’t hurry to pursue our own definition of a meaningful existence, life can become a repetition of trivial maintenance duties.
+ - Speed as a drug disorganizes the personality; speed as the goal of information dissemination commits a subtler crime. People are mainlining our words. We rarely read of the rational alternatives, only of the commands that all must change or else. This is a prescription for public panic.
+ - When men reach their sixties and retire, they go to pieces. Women go right on cooking.
+ - When you have self-respect, you have enough.
+ - Would that there were an award for people who come to understand the concept of enough. Good enough. Successful enough. Thin enough. Rich enough. Socially responsible enough. When you have self-respect, you have enough.
+ - The one thing prostitution is not is a ‘victimless crime.’ It attracts a wide species of preying criminals and generates a long line of victims, beginning with the most obvious and least understood – the prostitute herself.
+ - The secret in the search for meaning is to find your passion and pursue it.
+ - Adolescents are like cockroaches: They come out the minute you leave town, crawl the walls, feed indiscriminately, reproduce alarmingly unless drugged, and will certainly outlast you.
+ - Whether one has natural talent or not, any learning period requires the willingness to suffer uncertainty and embarrassment.
+ - There is no more defiant denial of one man’s ability to possess one woman exclusively than the prostitute who refuses to redeemed.
+ - My mother had demonstrated that the best way to defeat the numbing ambivalence of middle age is to surprise yourself – by pulling off some cartwheel of thought or action never even imagined at a younger age.
+ - With the only certainty in our daily existence being change, and a rate of change growing always faster in a kind of technological leapfrog game, speed helps people think they are catching up.
+ - In my memoir, I admit that I’ve been as fearful of success as of failure. In fact, when ‘Passages’ was published, I so dreaded bad reviews that I ran away to Italy with a girlfriend and our children to hide out.
+ - Leaders are people we as followers want to regard with awe as the fullest flowering of our own possibilities.
+ - Men are not given awards and promotions for bravery in intimacy.
+ - By listening, by caring, by playing you back to yourself, friends ratify your better instincts and endorse your unique worth. Friends validate you.
+ - To hear how special and wonderful we are is endlessly enthralling.
+ - The fundamental steps of expansion that will open a person, over time, to the full flowering of his or her individuality are the same for both genders. But men and women are rarely in the same place struggling with the same questions at the same age.
+
+41 quotes

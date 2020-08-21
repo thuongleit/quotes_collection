@@ -1,0 +1,29 @@
+ - Book lovers will understand me, and they will know too that part of the pleasure of a library lies in its very existence.
+ - Kashmir has always been more than a mere place. It has the quality of an experience, or a state of mind, or perhaps an ideal.
+ - The genius of Canada remains essentially a deflationary genius.
+ - There are only two rules. One is E. M. Forster’s guide to Alexandria; the best way to know Alexandria is to wander aimlessly. The second is from the Psalms; grin like a dog and run about through the city.
+ - Venice is a cheek-by-jowl, back-of-the-hand, under-the-counter, higgledy-piggledy, anecdotal city, and she is rich in piquant wrinkled things, like an assortment of bric-a-brac in the house of a wayward connoisseur, or parasites on an oyster-shell.
+ - I know well the delectable thrill of moving into a new house somewhere altogether else, in somebody else’s county, where the climate is different, the food is different, the light is different, where the mundane preoccupations of life at home don’t seem to apply and it is even fun to go shopping.
+ - Worldwide travel is not compulsory. Great minds have been fostered entirely by staying close to home. Moses never got further than the Promised Land. Da Vinci and Beethoven never left Europe. Shakespeare hardly went anywhere at all-certainly not to Elsinore or the coast of Bohemia.
+ - The city bursts with ideas as with traffic, a swirl of newness and surprise. Who can be bored in a city? If you are tired of one activity you can try something else, change your job, take your custom to another restaurant.
+ - Indians love to reduce the prosaic to the mystic.
+ - Basque is one of the world’s more alarming languages. Only a handful of adult foreigners, they say, have ever managed to learn it. The Devil tried once and mastered only three words – profanities, I assume.
+ - There is always a sneer in Las Vegas. The mountains around it sneer. The desert sneers. And arrogant in the middle of its wide valley, dominating those diligent sprawling suburbs, the downtown city sneers like anything.
+ - I half cherish the hope that the end of history will be Swissness.
+ - The more I was treated as a woman, the more woman I became. A adapted willy-nilly. If I was assumed to be incompetent at reversing cars, or opening bottles, oddly incompetent I found myself becoming. If a case was thought too heavy for me, inexplicably I found it so myself.
+ - Wherever you go in life, you will feel somewhere over your shoulder a pink, castellated shimmering presence, the domes and riggings and crooked pinacles of the Serenissima.
+ - If I was an aspirant litterateur, I was also an aspirant anarchist. I have disliked Authority always, though sometimes seduced by its resplendence.
+ - I’ve become obsessed with the idea of reconciliation, particularly reconciliation with nature but with people too, of course. I think that travel has been a kind of search for that, a pursuit for unity and even an attempt to contribute to a sense of unity.
+ - To the stern student of affairs, Beirut is a phenomenon, beguiling perhaps, but quite, quite impossible.
+ - Australia is a country not so much of fulfillment as of theatrical expectation.
+ - I believe the transsexual urge, at least as I have experienced it, to be far more than a social compulsion, but biological, imaginative, and essentially spiritual, too.
+ - To me gender is not physical at all, but is altogether insubstantial. It is soul, perhaps, it is talent, it is taste, it is environment, it is how one feels, it is light and shade, it is inner music.
+ - The language itself, whether you speak it or not, whether you love it or hate it, is like some bewitchment or seduction from the past, drifting across the country down the centuries, subtly affecting the nations sensibilities even when its meaning is forgotten.
+ - I am when the Chinese, who know everything, build a house, they consult the precepts of an ancient science, Feng Shui, which tells them exactly how, when, and where the work must be done, and so brings good fortune to the home forever.
+ - Travel, which was once either a necessity or an adventure, has become very largely a commodity, and from all sides we are persuaded into thinking that it is a social requirement, too.
+ - It was an American who said that while a Frenchman’s truth was akin to a straight line, a Welshman’s truth was more in the nature of a curve, and it is a fact that Welsh affairs are entangled always in parabola, double-meaning and implication. This makes for a web-like interest...
+ - Vermonters, it seems to me, are like ethnics in their own land. They are exceedingly conscious of their difference from other Americans, and they talk a great deal about outsiders, newcomers, and people from the south.
+ - Movement was the essence of Manhattan. It had always been so, and now its sense of flow, energy, openness, elasticity as Charles Dickens had called it, was headier than ever. Half the city’s skill and aspirations seemed to go into the propagation of motion.
+ - I resist the idea that travel writing has got to be factual.
+
+27 quotes

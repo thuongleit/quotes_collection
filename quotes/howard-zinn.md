@@ -1,0 +1,130 @@
+ - You can’t be neutral on a moving train.
+ - There is no flag large enough to cover the shame of killing innocent people.
+ - We don’t have to engage in grand, heroic actions to participate in the process of change. Small acts, when multiplied by millions of people, can transform the world.
+ - Dissent is the highest form of patriotism.
+ - Historically, the most terrible things – war, genocide, and slavery – have resulted not from disobedience, but from obedience.
+ - To be hopeful in bad times is not just foolishly romantic. It is based on the fact that human history is a history not only of cruelty but also of compassion, sacrifice, courage, kindness.
+ - If you join a fight for social justice you may win or lose, but just by being part of the struggle, you win, and your life will be better for it.
+ - History is important. If you don’t know history it is as if you were born yesterday. And if you were born yesterday, anybody up there in a position of power can tell you anything, and you have no way of checking up on it.
+ - Civil disobedience is not something outside the realm of democracy. Democracy requires civil disobedience. Without civil disobedience democracy does not exist.
+ - The future is an infinite succession of presents, and to live now as we think human beings should live, in defiance of all that is bad around us, is itself a marvelous victory.
+ - Civil disobedience is not our problem. Our problem is civil obedience.
+ - Protest beyond the law is not a departure from democracy; it is absolutely essential to it.
+ - Education can, and should be, dangerous.
+ - Use the Day of Atonement not to pray for the dead but to act for the living, to rescue those about to die.
+ - There is no act too small, no act too bold. The history of social change is the history of millions of actions, small and large, coming together at critical points to create a power that governments cannot suppress.
+ - Pessimism becomes a self-fulfilling prophecy; it reproduces itself by crippling our willingness to act.
+ - How can you have a war on terrorism when war itself is terrorism?
+ - The rule of law does not do away with the unequal distribution of wealth and power, but reinforces that inequality with the authority of law. It allocates wealth and poverty in such calculated and indirect ways as to leave the victim bewildered.
+ - And in such a world of conflict, a world of victims and executioners, it is the job of thinking people, as Albert Camus suggested, not to be on the side of the executioners.
+ - Education becomes most rich and alive when it confronts the reality of moral conflict in the world.
+ - Voting is easy and marginally useful, but it is a poor substitute for democracy, which requires direct action by concerned citizens.
+ - If there is going to be change, real change, it will have to work its way from the bottom up, from the people themselves. That’s how change happens.
+ - War is terrorism, magnified a hundred times.
+ - We all have an enormous responsibility to bring to the attention of others information they do not have, which has the potential of causing them to rethink long-held ideas.
+ - The term ‘just war’ is an internal contradiction. War is inherently unjust, and the great challenge of our time is how to deal with evil, tyranny and oppression without killing huge numbers of people.
+ - The cry of the poor is is not always just, but if you don’t listen to it, you will never know what justice is.
+ - Yes, we’re dreamers. We want it all. We want a peaceful world. We want an egalitarian world. We don’t want war. We don’t want capitalism. We want a decent society.
+ - The only way things will happen is if people get over the notion that they must see immediate success. If they get over that notion and persist, then they will see things happen before they even realize it.
+ - The power of a bold idea uttered publicly in defiance of dominant opinion cannot be easily measured. Those special people who speak out in such a way as to shake up not only the self-assurance of their enemies, but the complacency of their friends, are precious catalysts for change.
+ - What we have is a more sophisticated form of imperialism, which is economic. But lurking in the background, always ready to go, is an armed force.
+ - The challenge remains. On the other side are formidable forces: money, political power, the major media. On our side are the people of the world and a power greater than money or weapons: the truth.
+ - When you fight a war against a tyrant, who do you kill? You kill the victims of the tyrant.
+ - Crosses and gallows – that deadly historic juxtaposition.
+ - Capitalism has always been a failure for the lower classes. It is now beginning to fail for the middle classes.
+ - We need to decide that we will not go to war, whatever reason is conjured up by the politicians or the media, because war in our time is always indiscriminate, a war against innocents, a war against children.
+ - George Orwell said, “Whoever controls the past controls the future,” by which he meant that history is incredibly important in shaping the world view of the next generation of people.
+ - They have the guns, we have the poets. Therefore, we will win.
+ - Music can be a distraction and an escape. Sometimes a welcome escape. You need it. But music can also serve a very important social function because music can do things that mere prose, mere ordinary political agitation can’t do.
+ - Let us in the name of the Holy Trinity go on sending all the slaves that can be sold.
+ - The power of a bold idea uttered publicly in defiance of dominant opinion cannot be easily measured.
+ - If you don’t know history, it is as if you were born yesterday.
+ - I believe the American people have the capacity to create a new movement, which would change the direction of our nation from being a military power to being a peaceful nation, using our enormous wealth for human needs, here and abroad.
+ - It must surely be a tribute to the resilience of the human spirit that even a small number of those men and women in the hell of the prison system survive it and hold on to their humanity.
+ - Terrorism and war have something in common. They both involve the killing of innocent people to achieve what the killers believe is a good end.
+ - I am not an absolute pacifist, because I can’t rule out the possibility that under some, carefully defined circumstances, some degree of violence may be justified, if it is focused directly at a great evil.
+ - In war, good guys always become bad guys.
+ - In the United States today, the Declaration of Independence hangs on schoolroom walls, but foreign policy follows Machiavelli.
+ - I suggest that if you know history, then you might not be so easily fooled by the government when it tells you you must go to war for this or that reason -that history is a protective armor against being misled.
+ - In a two-party system, if both parties ignore public opinion, there is no place voters can turn.
+ - I am supposing, or perhaps only hoping, that our future may be found in the past’s fugitive moments of compassion rather than in its solid centuries of warfare.
+ - Why do we have to be a military superpower? Why can’t we be a humanitarian superpower?
+ - War itself is the enemy of the human race.
+ - Since war itself is the most extreme form of terrorism, a war on terrorism is profoundly self-contradictory.
+ - If the gods had intended for people to vote, they would have given us candidates.
+ - Tyranny is Tyranny, let it come from whom it may.
+ - I do take the threat of terrorism seriously. You cannot eliminate that threat or diminish that threat by bombing a country.
+ - The resources of a university, of a college, should not be wasted in merely academic pursuits.
+ - But remember, this power of the people on top depends on the obedience of the people below. When people stop obeying, they have no power.
+ - When people don’t understand that the government doesn’t have their interests in mind, they’re more susceptible to go to war.
+ - The establishment, whatever rewards it gives us, will also, if necessary to maintain it’s control, kill us.
+ - Very important thing to keep in mind, that when justice comes and when injustices are remedied, they’re not remedied by the initiative of the national government or the politicians. They only respond to the power of social movements.
+ - Perhaps the most important thing I learned was about democracy, that democracy is not our government, our constitution, our legal structure. Too often they are enemies of democracy.
+ - But by this time I was acutely conscious of the gap between law and justice. I knew that the letter of the law was not as important as who held the power in any real-life situation.
+ - One certain effect of war is to diminish freedom of expression. Patriotism becomes the order of the day, and those who question the war are seen as traitors, to be silenced and imprisoned.
+ - I was a bombadier in WW 2. When you are up 30,000 feet you do not hear the screams or smell the blood or see those without limbs or eyes. It was not til I read Hersey’s Hiroshima that I realized what bomber pilots do.
+ - To ward off alienation and gloom, it is only necessary to remember the unremembered heroes of the past, and to look around us for the unnoticed heroes of the present.
+ - Diverse audiences can be just as misled as homogenous audiences.
+ - We must transfer our anger to the brutalities of our time.
+ - Even if you assume presidents were democratically elected they still have no right to keep secrets from the American people.
+ - The Roman Empire came to an end, but the Roman people didn’t come to an end, so I see the American Empire coming to an end just as other empires have come to an end.
+ - When we organize with one another, when we get involved, when we stand up and speak out together, we can create a power no government can suppress.
+ - Memorial Day should be a day for putting flowers on graves and planting trees. Also, for destroying the weapons of death that endanger us more than they protect us, that waste our resources and threaten our children and grandchildren.
+ - Before God and high heaven, is there a law for one man which is not a law for every other man?
+ - In between war and passivity, there are a thousand possibilities.
+ - When a nation issues ultimatums, it leaves no room for compromise and ensures that war will continue.
+ - Politics is pointless if it does nothing to enhance the beauty of our lives.
+ - People who have no respect for human life or for freedom or justice have taken over this beautiful country of ours. It will be up to the American people to take it back.
+ - What matters most is not who is sitting in the White House, but “who is sitting in” – and who is marching outside the White House, pushing for change.
+ - If what your country is doing seems to you practically and morally wrong, is dissent the highest form of patriotism?
+ - Sometimes it’s a short step from banning to burning.
+ - The strike, the boycott, the refusal to serve, the ability to paralyze the functioning of a complex social structure-these remain potent weapons against the most fearsome state or corporate power.
+ - The historian’s distortion is more than technical, it is ideological; it is released into a world of contending interest, where any chosen emphasis supports some kind of interest, whether economic or political or racial, or national or sexual.
+ - I wanted to be a part of history and not just a recorder and teacher of history. So that kind of attitude towards history, history itself as a political act, has always informed my writing and my teaching.
+ - They didn’t give their lives for their country! their lives were taken from them by their government.
+ - Being fired has some of the advantages of dying without its supreme disadvantages. People say extra-nice things about you, and you get to hear them.
+ - I have no regrets about my political activity, only that I sometimes got carried away with it and didn’t find the right balance between obligations to my family and my need to be involved in social movements.
+ - I am an anarchist, and according to anarchist principles nation states become obstacles to a true humanistic globalization.
+ - Group meditation according to Jon Kabat.
+ - That’s generally true of people who drop bombs from high altitudes. You don’t know what’s going on below. You don’t see the human consequences of what you’re doing.
+ - The only hope lies in the fact that the American people – like people everywhere – are basically decent people with common sense.
+ - There is civil disobedience against the military machine, protest against police brutality directed especially at people of color.
+ - Meditation is simply about being yourself and knowing about who that is. It is about coming to realize that you are on a path whether you like it or not, namely the path that is your life. – Jon Kabat.
+ - When the United States fought in Vietnam, it was organized modern technology versus organized human beings, and the human beings won.
+ - Charles Beard warned us that governments-inc luding the government of the United States-are not neutral, that they represent the dominant economic interests, and that their Constitutions are intended to serve these interests.
+ - But human beings are not machines, and however powerful the pressure to conform, they sometimes are so moved by what they see as injustice that they dare to declare their independence. In that historical possibility lies hope.
+ - These people – the employed, the somewhat privileged – are drawn into alliance with the elite. They become the guards of the system, buffers between the upper and lower classes. If they stop obeying, the system falls.
+ - One certain effect of war is to diminish freedom of expression.
+ - Most wars, after all, present themselves as humanitarian endeavors to help people.
+ - The future is an infinite succession of presents.
+ - We better rethink the position of the United States in the world and whether we want to be an empire. Being an empire puts all of us in jeopardy. The American Empire, while it was just wreaking havoc on other nations, didn’t bother us.
+ - Control in modern times requires more than force, more than law. It requires that a population dangerously concentrated in cities and factories, whose lives are filled with cause for rebellion, be taught that all is right as it is.
+ - Are terrorists going to be deterred – are terrorists going to be scared if we react violently? No. They love it. That’s what they dote on. They dote on violence. They dote on having more reasons to commit more terrorism.
+ - Strike is always a form of direct action. With the strike, too, you are not asking government to make things easier for you by passing legislation, you are taking a direct action against the employer.
+ - I had volunteered for the Air Force and was an enthusiastic bombardier. While dropping bombs on Europe, I generally didn’t understand what I was doing.
+ - The fact that war belongs to the past, does not mean it has to be part of the future.
+ - One of the problems with dealing with anarchism is that there are many people whose ideas are anarchist, but who do not necessarily call themselves anarchists.
+ - It’s a strange thing, we think that law brings order. Law doesn’t. How do we know that law does not bring order? Look around us. We live under the rule of law. Notice how much order we have?
+ - If you want to end terrorism, you have to stop being terrorists.
+ - The awful scenes of death and suffering we were witnessing on our television screens have been going on in other parts of the world for a long time, and only now can we begin to know what people have gone through, often as a result of our policies.
+ - Will Iraq be a democracy? The question is, ‘Will America be a democracy?’
+ - Again and again, Americans have voted for a president to keep them out of a war, only to see the “peace” candidate elected who then brings the nation into war.
+ - It was an old lesson learned by governments: that war solves problems of control.
+ - People should go where they are not supposed to go, say what they are not supposed to say, and stay when they are told to leave.
+ - What motivates me is the desire to bring up a whole new generation of active citizens who believe in peace and social justice and will work for it.
+ - I wonder how the foreign policies of the United States would look if we wiped out the national boundaries of the world, at least in our minds, and thought of all children everywhere as our own.
+ - The memory of oppressed people is one thing that cannot be taken away, and for such people, with such memories, revolt is always an inch below the surface.
+ - They were not mentioned in the Declaration of Independence, they were absent in the Constitution and they were invisible in the new political democracy. They were the women of early America.
+ - That chain of relationships made me think of how connections are made – you read a book, you meet a person, you have a single experience, and your life is changed in some way. No act, therefore, however small, should be dismissed or ignored.
+ - If racism can’t be shown to be natural then it is the result of certain conditions, and we are impelled to eliminate those conditions.
+ - When in all the nations of the world the rule of law is the darling of the leaders and the plague of the people, we ought to begin to recognize this.
+ - Any humane and reasonable person must conclude that if the ends, however desireable, are uncertain and the means are horrible and certain, these means must not be employed.
+ - The United States builds weapons presumably secretly, and then it sells them to other countries. So the whole business of secrecy is kind of a fake issue because hardly anything technological remains a secret for very long.
+ - There has always been, and there is now, a profound conflict of interest between the people and the government of the United States.
+ - I try to tell each group that it is not alone, and that the very people who are disheartened by the absence of a national movement are themselves proof of the potential for such a movement.
+ - If those in charge of our society – politicians, corporate executives, and owners of press and television – can dominate our ideas, they will be secure in their power. They will not need soldiers patrolling the streets. We will control ourselves.
+ - I always emphasize the historic role of people of color in organizing and protesting to achieve justice.
+ - I didn’t want to spent a lot of close time with someone who believed that fun is a bourgeois indulgence.
+ - It is no longer simply the merchant prince, or the aristocratic monopoly, or even the employing class, that is exploiting the world: it is the nation, a new democratic nation composed of united capital and labor.
+
+128 quotes

@@ -1,0 +1,234 @@
+ - If the world were merely seductive, that would be easy. If it were merely challenging, that would be no problem. But I arise in the morning torn between a desire to improve the world and a desire to enjoy the world. This makes it hard to plan the day.
+ - I get up every morning determined to both change the world and have one hell of a good time. Sometimes this makes planning my day difficult.
+ - Every morning I awake torn between a desire to save the world and an inclination to savor it. This makes it hard to plan the day. But if we forget to savor the world, what possible reason do we have for saving it? In a way, the savoring must come first.
+ - A schoolchild should be taught grammar – for the same reason that a medical student should study anatomy.
+ - Never hurry and never worry!
+ - Always be on the lookout for the presence of wonder.
+ - The best writing is rewriting.
+ - I would really rather feel bad in Maine than feel good anywhere else.
+ - I have one share in corporate Earth, and I am nervous about the management.
+ - Safety is all well and good: I prefer freedom.
+ - Good deeds never go unpunished.
+ - It is not often that someone comes along who is a true friend and a good writer.
+ - You’re terrific as far as I am concerned.
+ - A writer who waits for ideal conditions under which to work will die without putting a word to paper.
+ - Geese are friends to no one, they bad mouth everybody and everything. But they are companionable once you get used to their ingratitude and false accusations.
+ - After all, what’s a life, anyway? We’re born, we live a little while, we die.
+ - Genius is more often found in a cracked pot than in a whole one.
+ - Creation is in part merely the business of forgoing the great and small distractions.
+ - Although there is no substitute for merit in writing, clarity comes closest to being one.
+ - I would feel more optimistic about a bright future for man if he spent less time proving that he can outwit Nature and more time tasting her sweetness and respecting her seniority.
+ - Trust me, Wilbur. People are very gullible. They’ll believe anything they see in print.
+ - The rat had no morals, no conscience, no scruples, no consideration, no decency, no milk of rodent kindness, no compunctions, no higher feeling, no friendliness, no anything.
+ - Humour plays close to the big, hot fire, which is the truth, and the reader feels the heat.
+ - Be obscure clearly.
+ - It is deeply satisfying to win a prize in front of a lot of people.
+ - Habitually creative people are prepared to be lucky.
+ - Analyzing humor is like dissecting a frog. Few people are interested and the frog dies of it.
+ - Hang on to your hat. Hang on to your hope. And wind the clock, for tomorrow is another day.
+ - Nauseous. Nauseated. The first means “sickening to contemplate”; the second means “sick at the stomach.” Do not, therefore, say “I feel nauseous,” unless you are sure you have that effect on others.
+ - Loneliness is a strange gift.
+ - A despot doesn’t fear eloquent writers preaching freedom- he fears a drunken poet who may crack a joke that will take hold.
+ - There’s no limit to how complicated things can get, on account of one thing always leading to another.
+ - I am pessimistic about the human race because it is too ingenious for its own good. Our approach to nature is to beat it into submission. We would stand a better chance of survival if we accommodated ourselves to this planet and viewed it appreciatively instead of skeptically and dictatorially.
+ - Children almost always hang onto things tighter than their parents think they will.
+ - I always write a thing first and think about it afterward, which is not a bad procedure because the easiest way to have consequential thoughts is to start putting them down.
+ - The world is full of people who have never, since childhood, met an open doorway with an open mind.
+ - Life is like writing with a pen. You can cross out your past but you can’t erase it.
+ - Luck is not something you can mention in the presence of self-made men.
+ - Writing is an act of faith, not a trick of grammar.
+ - I’ve got a new friend, all right. But what a gamble friendship is! Charlotte is fierce, brutal, scheming, bloodthirsty – everything I don’t like. How can I learn to like her, even though she is pretty and, of course, clever?
+ - All that I hope to say in books, all that I ever hope to say, is that I love the world.
+ - Writing is hard work and bad for the health.
+ - Wilbur never forgot Charlotte. Although he loved her children and grandchildren dearly, none of the new spiders ever quite took her place in his heart. She was in a class by herself. It is not often that someone comes along who is a true friend and a good writer. Charlotte was both.
+ - The essayist is a self-liberated man, sustained by the childish belief that everything he thinks about, everything that happens to him, is of general interest.
+ - A really companionable and indispensable dog is an accident of nature. You can’t get it by breeding for it, and you can’t buy it with money. It just happens along.
+ - To achieve style, begin by affecting none.
+ - Writing is not an exercise in excision, it’s a journey into sound.
+ - I don’t know which is more discouraging, literature or chickens.
+ - Einstein is loved because he is gentle, respected because he is wise. Relativity being not for most of us, we elevate its author to a position somewhere between Edison, who gave us a tangible gleam, and God, who gave us the difficult dark and the hope of penetrating it.
+ - A library is a good place to go when you feel bewildered or undecided, for there in a book, you may have your question answered.
+ - His words span rivers and mountains, but his thoughts are still only six inches long.
+ - You can dissect a joke just as you can a frog. But it tends to die on you.
+ - I have just been refining the room in which I sit, yet I sometimes doubt that a writer should refine or improve his workroom by so much as a dictionary: one thing leads to another and the first thing you know he has a stuffed chair and is fast asleep in it.
+ - Sometimes a writer, like an acrobat, must try a trick that is too much for him.
+ - Writing is both mask and unveiling.
+ - In a free country it is the duty of writers to pay no attention to duty.
+ - Use the smallest word that does the job.
+ - Commas in The New Yorker fall with the precision of knives in a circus act, outlining the victim.
+ - You have been my friends. That in itself is a tremendous thing.
+ - I have yet to see a piece of writing, political or non-political, that does not have a slant. All writing slants the way a writer leans, and no man is born perpendicular.
+ - Television will enormously enlarge the eye’s range, and, like radio, will advertise the Elsewhere. Together with the tabs, the mags, and the movies, it will insist that we forget the primary and the near in favor of the secondary and the remote.
+ - A writer should tend to lift people up, not lower them down.
+ - An editor is a person who knows more about writing than writers do but who has escaped the terrible desire to write.
+ - I have always felt that the first duty of a writer was to ascend – to make flights, carrying others along if you can manage it. To do this takes courage, even a certain conceit.
+ - When my wife’s Aunt Caroline was in her nineties, she lived with us, and she once remarked: ‘Remembrance is sufficient of the beauty we have seen.’ I cherish the remembrance of the beauty I have seen. I cherish the grave, compulsive word.
+ - Commuter – one who spends his life In riding to and from his wife; A man who shaves and takes a train And then rides back to shave again.
+ - By helping you, perhaps I was trying to lift up my life a trifle. Heaven knows anyone’s life can stand a little of that.
+ - It is a miracle that New York works at all. The whole thing is implausible.
+ - Wilbur didn’t want food, he wanted love.
+ - Too many things on my mind, said Wilbur. Well, said the goose, that’s not my trouble. I have nothing at all on my mind, but I’ve too many things under my behind.
+ - America is now liberty-conscious. In a single generation it has progressed from being toothbrush-conscious, to being air-minded, to being liberty-conscious.
+ - Democracy is a request from a War Board, in the middle of a morning in the middle of a war, wanting to know what democracy is.
+ - If a man is to be obsessed by something, I suppose a boat is as good as anything, perhaps a bit better than most.
+ - I guess I remembered clearest of all the early mornings, when the lake was cool and motionless, remembered how the bedroom smelled of the lumber it was made of and of the wet woods whose scent entered through the screen.
+ - The circus comes as close to being the world in microcosm as anything I know; in a way, it puts all the rest of show business in the shade.
+ - Before the seed there comes the thought of bloom.
+ - A poem compresses much in a small space and adds music, thus heightening its meaning.
+ - Life is always rich and steady time when you are waiting for something to happen or to hatch.
+ - An unhatched egg is to me the greatest challenge in life.
+ - Books are good company, in sad times and happy times, for books are people – people who have managed to stay alive by hiding between the covers of a book.
+ - Liberty is never out of bounds or off limits; it spreads wherever it can capture the imagination of men.
+ - I am still encouraged to go on. I wouldn’t know where else to go.
+ - Commuters give the city its tidal restlessness, natives give it solidity and continuity, but the settlers give it passion.
+ - I am often mad, but I would hate to be nothing but mad: and I think I would lose what little value I may have as a writer if I were to refuse, as a matter of principle, to accept the warming rays of the sun, and to report them, whenever, and if ever, they.
+ - Most people think of peace as a state of Nothing Bad Happening, or Nothing Much Happening. Yet if peace is to overtake us and make us the gift of serenity and well-being, it will have to be the state of Something Good Happening.
+ - The world likes humor, but it treats it patronizingly. It decorates its serious artists with laurel, and its wags with Brussels sprouts.
+ - No one can write decently who is distrustful of the reader’s intelligence or whose attitude is patronizing.
+ - Familiarity is the thing-the sense of belonging. It grants exemption from all evil, all shabbiness.
+ - Life’s meaning has always eluded me and I guess always will. But I love it just the same.
+ - I see nothing in space as promising as the view from a Ferris wheel.
+ - I admire anybody who has the guts to write anything at all.
+ - As long as there is one upright man, as long as there is one compassionate woman, the contagion may spread and the scene is not desolate. Hope is the thing that is left us in a bad time.
+ - Salutations; it’s just my fancy way of saying hello or good morning.
+ - The main thing I try to do is write as clearly as I can. I rewrite a good deal to make it clear.
+ - Everything in life is somewhere else, and you get there in a car.
+ - By comparison with other less hectic days, the city is unconfortable and inconvenient; but New Yorkers tempramentally do not crave comfort and convenience – if they did they would live elsewhere.
+ - New York is part of the natural world. I love the city, I love the country, and for the same reasons. The city is part of the country. When I had an apartment on East Forty-Eighth Street, my backyard during the migratory season yielded more birds than I ever saw in Maine.
+ - When you say something, make sure you have said it. The chances of your having said it are only fair.
+ - The young writer should learn to spot them: words that at first glance seem freighted with delicious meaning, but that soon burst in the air, leaving nothing but a memory of bright sound.
+ - I am always humbled by the infite ingenuity of the Lord, who can make a red barn cast a blue shadow.
+ - Books are the door of escape from the forest.
+ - This is what youth must figure out: Girls, love, and living. The having, the not having, The spending and giving, And the meloncholy time of not knowing. This is what age must learn about: The ABC of dying. The going, yet not going, The loving and leaving, And the unbearable knowing and knowing.
+ - A good farmer is nothing more nor less than a handy man with a sense of humus.
+ - No matter what changes take place in the world, or in me, nothing ever seems to disturb the face of spring.
+ - Democracy is the recurrent suspicion that more than half of the people are right more than half of the time.
+ - We should all do what, in the long run, gives us joy, even if it is only picking grapes or sorting the laundry.
+ - It is Sunday, mid-morning-Sunday in the living room, Sunday in the kitchen, Sunday in the woodshed, Sunday down the road in the village: I hear the bells, calling me to share God’s grace.
+ - I can still see my first dog. For six years he met me at the same place after school and convoyed me home – a service he thought up himself. A boy doesn’t forget that sort of association.
+ - It is by all odds the loftiest of cities. It even managed to reach the highest point in the sky at the lowest moment of the depression.
+ - A candidate could easily commit political suicide if he were to come up with an unconventional thought during a presidential tour.
+ - In the nature of things, a person engaged in the flimsy business of expressing himself on paper is dependent on the large general privilege of being heard. Any intimation that this privilege may be revoked throws a writer into panic.
+ - The crickets felt it was their duty to warn everybody that summertime cannot last for ever. Even on the most beautiful days in the whole year – the days when summer is changing into autumn – the crickets spread the rumor of sadness and change.
+ - The H-bomb rather favors small nations that doesn’t as yet possess it; they feel slightly more free to jostle other nations, having discovered that a country can stick its tongue out quite far these days without provoking war, so horrible are war’s consequences.
+ - The critic leaves at curtain fall To find, in starting to review it, He scarcely saw the play at all For starting to review it.
+ - Early summer days are a jubilee time for birds. In the fields, around the house, in the barn, in the woods, in the swamp – everywhere love and songs and nests and eggs.
+ - In a free country it is the duty of writers to pay no attention to duty. Only under a dictatorship is literature expected to exhibit an harmonious design or an inspirational tone.
+ - Be obscure clearly! Be wild of tongue in a way we can understand.
+ - The world organization debates disarmament in one room and, in the next room, moves the knights and pawns that make national arms imperative.
+ - Advice to young writers wo want to get ahead without any annoying delays: don’t write about Man, write about a man.
+ - Children hold spring so tightly in their brown fists-just as grownups, who are less sure of it, hold it in their hearts.
+ - The living language is like a cowpath: it is the creation of the cows themselves, who, having created it, follow it or depart from it according to their whims or their needs. From daily use, the path undergoes change. A cow is under no obligation to stay.
+ - There is nothing more likely to start disagreement among people or countries than an agreement.
+ - Just to live in the country is a full-time job. You don’t have to do anything. The idle pursuit of making a living is pushed to one side, where it belongs, in favor of living itself, a task of such immediacy, variety, beauty, and excitement that one is powerless to resist its wild embrace.
+ - Oh, I never look under the hood.
+ - It was the best place to be, thought Wilbur, this warm delicious cellar, with the garrulous geese, the changing seasons, the heat of the sun, the passage of swallows, the nearness of rats, the sameness of sheep, the love of spiders, the smell of manure, and the glory of everything.
+ - Home was quite a place when people stayed there.
+ - The first day of spring was once the time for taking the young virgins into the fields, there in dalliance to set an example in fertility for nature to follow. Now we just set the clocks an hour ahead and change the oil in the crankcase.
+ - It is quite possible that an animal has spoken to me and that I didn’t catch the remark because I wasn’t paying attention.
+ - When an American family becomes separated from its toothbrushes and combs and pajamas for a few hours it considers that it has had quite an adventure.
+ - Writers do not merely reflect and interpret life, they inform and shape life.
+ - When a man hangs from a tree it doesn’t spell justice unless he helped write the law that hanged him.
+ - One of the most time-consuming things is to have an enemy.
+ - Humor can be dissected as a frog can, but the thing dies in the process and the innards are discouraging to any but the pure scientific mind.
+ - In middle life, the human back is spoiling for a technical knockout and will use the flimsiest excuse, even a sneeze, to fall apart.
+ - Dentistry is more impressive in town-what the rural man calls cleaning the teeth is called “prophylaxis” in New York.
+ - We stand or fall by television.
+ - There is a decivilizing bug somewhere at work; unconsciously persons of stern worth, by not resenting and resisting the small indignities of the times, are preparing themselves for the eventual acceptance of what they themselves know they don’t want.
+ - Once in everyone’s life there is apt to be a period when he is fully awake, instead of half-asleep.
+ - English usage is sometimes more than mere taste, judgment and education – sometimes it’s sheer luck, like getting across the street.
+ - When I was a child people simply looked about them and were moderately happy; today they peer beyond the seven seas, bury themselves waist deep in tidings, and by and large what they see and hear makes them unutterably sad.
+ - Don’t write about Man; write about a man.
+ - Life’s accumulation is more discouraging than life itself, when stirred up.
+ - Even now; with a thousand little voyages notched in my belt. I still feel a memorial chill on casting off.
+ - Not even a collapsing world looks dark to a man who is about to make his fortune.
+ - The so-called science of poll-taking is not a science at all but mere necromancy. People are unpredictable by nature, and although you can take a nation’s pulse, you can’t be sure that the nation hasn’t just run up a flight of stairs.
+ - The time not to become a father is eighteen years before a war.
+ - I discovered, though, that once having given a pig an enema there is no turning back, no chance of resuming one of life’s more stereotyped roles.
+ - Our vegetable garden is coming along well, with radishes and beans up, and we are less worried about revolution that we used to be.
+ - A right is a responsibility in reverse.
+ - New York is to the nation what the white church spire is to the village – the visible symbol of aspiration and faith, the white plume saying the way is up!
+ - All writing is communication; creative writing is communication through revelation-it is the Self-escaping into the open.
+ - There is another sort of day which needs celebrating in song – the day of days when spring at last holds up her face to be kissed, deliberate and unabashed. On that day no wind blows either in the hills or in the mind.
+ - A good many of the special words of business seem designed more to express the user’s dreams than to express a precise meaning.
+ - There is nothing harder to estimate than a writer’s time, nothing harder to keep track of. There are moments – moments of sustained creation – when his time is fairly valuable; and there are hours and hours when a writer’s time isn’t worth the paper he is not writing anything on.
+ - The whole problem is to establish communication with ones self.
+ - But real life is only one kind of life – there is also the life of the imagination.
+ - Shocking writing is like murder: the questions the jury must decide are the questions of motive and intent.
+ - In a man’s middle years there is scarcely a part of the body he would hesitate to turn over to the proper authorities.
+ - In a sense the world dies every time a writer dies, because, if he is any good, he has been a wet nurse to humanity during his entire existence and has held earth close around him, like the little obstetrical toad that goes about with a cluster of eggs attached to his legs.
+ - People are, if anything, more touchy about being thought silly than they are about being thought unjust.
+ - Much of our adult morality, in books and out of them, has a stuffiness unworthy of childhood. Our grown-up conclusions often rest on perilously soft bottom.
+ - Is there anything in the universe more beautiful and protective than the simple complexity of a spider’s web?
+ - Fern was up at daylight, trying to rid the world of injustice. As a result, she now has a pig. A small one to be sure, but nevertheless a pig. It just shows what can happen if a person gets out of bed promptly.
+ - A single overstatement, wherever or however it occurs, diminishes the whole, and a carefree superlative has the power to destroy, for the reader, the object of the writer’s enthusiasm.
+ - Necessity first mothered invention. Now invention has little ones of her own, and they look just like grandma.
+ - I have occasionally had the exquisite thrill of putting my finger on a little capsule of truth, and heard it give the faint squeak of mortality under my pressure.
+ - It sometimes takes days, even weeks, before a dog’s nerves tire. In the case of terriers it can run into months.
+ - The most puzzling thing about TV is the steady advance of the sponsor across the line that has always separated news from promotion, entertainment from merchandising. The advertiser has assumed the role of originator, and the performer has gradually been eased into the role of peddler.
+ - I seldom went to bed before two or three o’clock in the morning, on the theory that if anything of interest were to happen to a young man it would almost certainly happen late at night.
+ - Children are game for anything. I throw them hard words, and they backhand them over the net. They love words that give them a hard time, provided they are in a context that absorbs their attention.
+ - Thus I, gone forth, as spiders do, In spider’s web a truth discerning, Attach one silken strand to you For my returning.
+ - I can only assume that your editorial writer tripped over the First Amendment and thought it was the office cat.
+ - When you consider that there are a thousand ways to express even the simplest idea, it is no wonder writers are under a great strain. Writers care greatly how a thing is said – it makes all the difference. So they are constantly faced with too many choices and must make too many decisions.
+ - If sometimes there seems to be a sort of sameness of sound in The New Yorker, it probably can be traced to the magazine’s copydesk, which is a marvelous fortress of grammatical exactitude and stylish convention.
+ - A writer is like a bean plant – he has his little day, and then gets stringy.
+ - There is no trick to it. If you like to write and want to write, you write, no matter where you are or what else you are doing or whether anyone pays any heed.
+ - Diplomacy is the lowest form of politeness because it misquotes the greatest number of people. A nation, like an individual, if it has anything to say, should simply say it.
+ - When snow accumulates week after week, month after month, it works curious miracles.
+ - Advice from this elderly practitioner is to forget publishers and just roll a sheet of copy paper into your machine and get lost in your subject.
+ - The only sense that is common in the long run, is the sense of change and we all instinctively avoid it.
+ - The terror of the atom age is not the violence of the new power but the speed of man’s adjustment to it, the speed of his acceptance.
+ - I believe in dreams. People should have faith in the songs poets sing.
+ - Only a person who is congenially self-centered has the effrontery and the stamina to write essays.
+ - It seemed to me that I should have a desk, even though I had no real need for a desk. I was afraid that if I had no desk in my room my life would seem too haphazard.
+ - There is simply a better chance of doing well if the writer holds a steady course, enters the stream of English quietly, and does not thrash about.
+ - Humor is like a frog. You can dissect it to see how it works, but by then, it’s dead.
+ - In dialogue, make sure that your attributives do not awkwardly interrupt a spoken sentence. Place them where the breath would come naturally in speech-that is, where the speaker would pause for emphasis, or take a breath. The best test for locating an attributive is to speak the sentence aloud.
+ - Prejudice is a great time saver. You can form opinions without having to get the facts.
+ - The whole duty of a writer is to please and satisfy himself, and the true writer always plays to an audience of one.
+ - The siren south is well enough, but New York, at the beginning of March, is a hoyden we would not care to miss – a drafty wench, her temperature up and down, full of bold promises and dust in the eye.
+ - Thurber did not write the way a surgeon operates, he wrote the way a child skips rope, the way a mouse waltzes.
+ - Computing machines perhaps can do the work of a dozen ordinary men, but there is no machine that can do the work of one extraordinary man.
+ - Security, for me, took a tumble not when I read that there were Communists in Hollywood but when I read your editorial in praise of loyalty testing and thought control. If a man is in health, he doesn’t need to take anybody else’s temperature to know where he is going.
+ - A breezy style is often the work of an egocentric, the person who imagines that everything that pops into his head is of general interest and that uninhibited prose creates high spirits and carries the day.
+ - As a writing man, or secretary, I have always felt charged with the safekeeping of all unexpected items of worldly and unworldly enchantment, as though I might be held personally responsible if even a small one were to be lost.
+ - I have no warm up exercises, other than to take an occasional drink.
+ - Whatever else an American believes or disbelieves about himself, he is absolutely sure he has a sense of humor.
+ - Why is it, do you suppose, that an Englishman is unhappy until he has explained America?
+ - It isn’t silence you can cut with a knife any more, it’s interchange of ideas. Intelligent discussion of practically everything is what is breaking up modern marriage.
+ - From three to four, he planned to stand perfectly still and think of what it was like to be alive.
+ - It is easier for a man to be loyal to his club than to his planet; the bylaws are shorter, and he is personally acquainted with the other members.
+ - The trouble with the profit system has always been that it was highly unprofitable to most people.
+ - Semi-colons only prove that the author has been to college.
+ - Books hold most of the secrets of the world, most of the thoughts that men and women have had. And when you are reading a book, you and the author are alone together-just the two of you.
+ - Extreme cold when it first arrives seems to generate cheerfulness and sociability. For a few hours all life’s dubious problems are dropped in favor of the clear and congenial task of keeping alive.
+ - It is at a fair that man can be drunk forever on liquor, love, or fights; at a fair that your front pocket can be picked by a trotting horse looking for sugar, and your hind pocket by a thief looking for his fortune.
+ - I have a spaniel that defrocked a nun last week. He took hold of the cord. I had hold of the leash. It was like elephants holding tails. Imagine me undressing a nun, even second hand.
+ - Half a man’s life is devoted to what he calls improvements, yet the original had some quality which is lost in the process.
+ - As in the sexual experience, there are never more than two persons present in the act of reading-the writer, who is the impregnator, and the reader, who is the resspondent. This gives the experience of reading a sublimity and power unequalled by any other form of communication.
+ - To perceive Christmas through its wrappings becomes more difficult with every year.
+ - When I get sick of what men do, I have only to walk a few steps in another direction to see what spiders do. Or what the weather does. This sustains me very well indeed.
+ - In order to read one must sit down, usually indoors. I am restless and would rather sail a boat than crack a book. I’ve never had a very lively literary curiosity, and it has sometimes seemed to me that I am not really a literary fellow at all. Except that I write for a living.
+ - Democracy is itself, a religious faith. For some it comes close to being the only formal religion they have.
+ - Reading is the work of the alert mind, is demanding, and under ideal conditions produces finally a sort of ecstasy.
+ - The bonus is really one of the great give-aways in business enterprise. It is the annual salve applied to the conscience of the rich and the wounds of the poor.
+ - Television should be our Lyceum, our Chautauqua, our Minsky’s and our Camelot.
+ - It can destroy an individual, or it can fulfill him, depending a good deal on luck. No one should come to New York to live unless he is willing to be lucky.
+ - I don’t understand it, and I don’t like what I don’t understand.
+ - In every queen there’s a touch of floozy.
+ - Sailors have an expression about the weather: they say the weather is a great bluffer. I guess the same is true of our human society – things can look dark, then a break shows in the clouds, and all is changed.
+ - The vision of milk and honey, it comes and goes. But the odor of cooking goes on forever.
+ - Anyone who writes down to children is simply wasting his time. You have to write up, not down.
+ - A man who publishes his letters becomes a nudist – nothing shields him from the world’s gaze except his bare skin. A writer, writing away, can always fix things up to make himself more presentable, but a man who has written a letter is stuck with it for all time.
+ - Make the work interesting and the discipline will take care of itself.
+ - Writing is one way to go about thinking, and the practice and habit of writing not only drain the mind but supply it, too.
+ - The theme of ‘Charlotte’s Web’ is that a pig shall be saved, and I have an idea that somewhere deep inside me there was a wish to that effect.
+ - The city is like poetry; it compresses all life, all races and breeds, into a small island and adds music and the accompaniment of internal engines.
+ - Write about it by day and dream about it by night.
+ - Old age is a special problem for me because I’ve never been able to shed the mental image I have of myself – a lad of about 19.
+ - A poet’s pleasure is to withhold a little of his meaning, to intensify by mystification. He unzips the veil from beauty, but does not remove it.
+ - All we need is a meteorologist who has once been soaked to the skin without ill effect. No one can write knowingly of the weather who walks bent over on wet days.
+ - There is a period near the beginning of every man’s life when he has little to cling to except his unmanageable dream, little to support him except good health, and nowhere to go but all over the place.
+
+232 quotes

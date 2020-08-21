@@ -1,0 +1,475 @@
+ - There are no strangers here; Only friends you haven’t yet met.
+ - Education is not the filling of a pail, but the lighting of a fire.
+ - But I, being poor, have only my dreams; I have spread my dreams under your feet; Tread softly because you tread on my dreams.
+ - The world is full of magic things, patiently waiting for our senses to grow sharper.
+ - Happiness is neither virtue nor pleasure nor this thing nor that but simply growth, We are happy when we are growing.
+ - Things fall apart; the center cannot hold...
+ - Do not wait to strike till the iron is hot; but make it hot by striking.
+ - Think where man’s glory most begins and ends, and say my glory was I had such friends.
+ - Think like a wise man but communicate in the language of the people.
+ - Come away, O human child! To the waters and the wild With a faery, hand in hand, For the world’s more full of weeping than you can understand.
+ - Let us go forth, the tellers of tales, and seize whatever prey the heart long for, and have no fear. Everything exists, everything is true, and the earth is only a little dust under our feet.
+ - There is another world, but it is in this one.
+ - The best lack all conviction, while the worst are full of passionate intensity.
+ - The innocent and the beautiful have no enemy but time.
+ - How many loved your moments of glad grace, And loved your beauty with love false or true; But one man loved the pilgrim soul in you, And loved the sorrows of your changing face.
+ - It takes more courage to dig deep in the dark corners of your own soul and the back alleys of your society than it does for a soldier to fight on the battlefield.
+ - Too long a sacrifice can make a stone of the heart. O when may it suffice?
+ - When you are old and gray and full of sleep, and nodding by the fire, take down this book and slowly read, and dream of the soft look your eyes had once, and of their shadows deep.
+ - We can make our minds so like still water that beings gather about us that they may see, it may be, their own images, and so live for a moment with a clearer, perhaps even with a fiercer life because of our quiet.
+ - Everything in nature is resurrection.
+ - Myself I must remake.
+ - The visible world is no longer a reality and the unseen world no longer a dream.
+ - Any fool can fight a winning battle, but it needs character to fight a losing one, and that should inspire us; which reminds me that I dreamed the other night that I was being hanged, but was the life and soul of the party.
+ - Now that my ladder’s gone, I must lie down where all my ladders start, In the foul rag-and-bone shop of the heart.
+ - How far away the stars seem, and how far is our first kiss, and ah, how old my heart.
+ - Tread softly, for you tread on my dreams.
+ - If what I say resonates with you, it’s merely because we’re branches of the same tree.
+ - Being Irish, he had an abiding sense of tragedy, which sustained him through temporary periods of joy.
+ - Hammer your thoughts into unity.
+ - The years like great black oxen tread the world, and God, the herdsman goads them on behind, and I am broken by their passing feet.
+ - Cast a cold eye on life, on death Horseman pass by.
+ - In dreams begins responsibility.
+ - And wisdom is a butterfly And not a gloomy bird of prey...
+ - The falcon cannot hear the falconer.
+ - It is one of the great troubles of life that we cannot have any unmixed emotions. There is always something in our enemy that we like, and something in our sweetheart that we dislike.
+ - The winds that awakened the stars Are blowing through my blood.
+ - What man does not understand, he fears; and what he fears, he tends to destroy.
+ - I heard the old, old, men say ‘all that’s beautiful drifts away, like the waters.’
+ - And pluck till time and times are done the silver apples of the moon the golden apples of the sun.
+ - Talent perceives differences; genius, unity.
+ - All empty souls tend toward extreme opinions.
+ - Wine comes in at the mouth And love comes in at the eye; That’s all we shall know for truth Before we grow old and die.
+ - I know that I shall meet my fate somewhere among the clouds above; those that I fight I do not hate, those that I guard I do not love.
+ - Though leaves are many, the root is one; Through all the lying days of my youth I swayed my leaves and flowers in the sun Now I may wither into the truth.
+ - I hear it in the deep heart’s core.
+ - Life is a long preparation for something that never happens.
+ - One man loved the pilgrim soul in you, And loved the sorrows of your changing face.
+ - Too many things are occurring for even a big heart to hold.
+ - I bring you with reverent hands The books of my numberless dreams.
+ - And what rough beast, its hour come round at last, Slouches toward Bethlehem to be born?
+ - We can only begin to live when we conceive life as Tragedy.
+ - My temptation is quiet. Here at life’s end Neither loose imagination Nor the mill of the mind Consuming its rag and bone, Can make the truth known.
+ - The tragedy of sexual intercourse is the perpetual virginity of the soul.
+ - Come Fairies, take me out of this dull world, for I would ride with you upon the wind and dance upon the mountains like a flame!
+ - Do you not hear me calling, white deer with no horns? I have been changed to a hound with one red ear; I have been in the Path of Stones and the Wood of Thorns...
+ - Our words must seem to be inevitable.
+ - Hearts are not had as a gift, But hearts are earned...
+ - What can be explained is not poetry.
+ - There midnight’s all a glimmer, and noon a purple glow, And evening full of the linnet’s wings.
+ - Thought is a garment and the soul’s a bride That cannot in that trash and tinsel hide: Hatred of God may bring the soul to God.
+ - I dreamed that I stood in a valley, and amid sighs, For happy lovers passed two by two where I stood; And I dreamed my lost love came stealthily out of the wood With her cloud-pale eyelids falling on dream-dimmed eyes...
+ - Death and life were not Till man made up the whole, Made lock, stock and barrel Out of his bitter soul.
+ - Sweetheart, do not love too long: I loved long and long, And grew to be out of fashion Like an old song.
+ - Man can embody truth but he cannot know it.
+ - Come near, that no more blinded by man’s fate, I find under the boughs of love and hate, In all poor foolish things that live a day, Eternal beauty wandering on her way.
+ - How but in custom and in ceremony are innocence and beauty born?
+ - We taste and feel and see the truth. We do not reason ourselves into it.
+ - Love is based on inequality as friendship is on equality.
+ - By logic and reason we die hourly; by imagination we live.
+ - The Muse is mute when public men Applaud a modern throne.
+ - Mere anarchy is loosed upon the world, the blood-dimmed tide is loosed, and everywhere the ceremony of innocence is drowned.
+ - Come near; I would, before my time to go, Sing of old Eire and the ancient ways: Red Rose, proud Rose, sad Rose of all my days.
+ - A line will take us hours maybe; Yet if it does not seem a moment’s thought, our stitching and unstitching has been naught.
+ - Man is in love and loves what vanishes, What more is there to say?
+ - I have nothing more to give you than my heart. Spanish saying Hearts are not to be had as a gift hearts are to be earned...
+ - All dreams of the soul End in a beautiful man’s or woman’s body.
+ - Why should we honour those that die upon the field of battle? A man may show as reckless a courage in entering into the abyss of himself.
+ - Sometimes my feet are tired and my hands are quiet, but there is no quiet in my heart.
+ - Cuchulain stirred, Stared on the horses of the sea, and heard The cars of battle and his own name cried; And fought with the invulnerable tide.
+ - I cast my heart into my rhymes, That you, in the dim coming times, May know how my heart went with them After the red-rose-bordered hem.
+ - I think all happiness depends on the energy to assume the mask of some other life, on a re-birth as something not one’s self.
+ - For wisdom is the property of the dead, A something incompatible with life; and power, Like everything that has the stain of blood, A property of the living; but no stain Can come upon the visage of the moon When it has looked in glory from a cloud.
+ - When a man grows old his joy Grows more deep day after day, His empty heart is full at length But he has need of all that strength Because of the increasing Night That opens her mystery and fright.
+ - A drunkard is a dead man And all dead men are drunk.
+ - What if I bade you leave The cavern of the mind? There’s better exercise In the sunlight and wind.
+ - Come let us mock at the great That had such burdens on the mind And toiled so hard and late To leave some monument behind, Nor thought of the leveling wind.
+ - We have fallen in the dreams the ever-living Breathe on the tarnished mirror of the world, And then smooth out with ivory hands and sigh.
+ - The wind blows out of the gates of the day, The wind blows over the lonely of heart, And the lonely of heart is withered away.
+ - It’s certain that fine women eat A crazy salad with their meat.
+ - Everything that man esteems Endures a moment or a day.
+ - The chief imagination of Christendom, Dante Alighieri, so utterly found himself That he has made that hollow face of his More plain to the mind’s eye than any face But that of Christ.
+ - I hear lake water lapping with low sounds by the shore; While I stand on the roadway, or on the pavements gray, I hear it in the deep heart’s core.
+ - The old priest Peter Gilligan Was weary night and day; For half his flock were in their beds, Or under green sods lay.
+ - Consume my heart away, sick with desire And fastened to a dying animal It knows not what it is, and gather me Into the artifice of eternity.
+ - Being young you have not known The fool’s triumph, nor yet Love lost as soon as won, Nor the best labourer dead And all the sheaves to bind.
+ - Only God, my dear, Could love you for yourself alone And not your yellow hair.
+ - I have read somewhere that in the Emperor’s palace at Byzantium was a tree made of gold and silver, and artificial birds that sang.
+ - The Land of Faery, Where nobody gets old and godly and grave, Where nobody gets old and crafty and wise, Where nobody gets old and bitter of tongue.
+ - All things fall and are built again, And those that build them again are gay.
+ - Heaven blazing into the head: Tragedy wrought to its uttermost. Though Hamlet rambles and Lear rages And all the drop-scenes drop at once Upon a hundred thousand stages It cannot grow by an inch or an ounce.
+ - But O, sick children of the world, Of all the many changing things In dreary dancing past us whirled, To the cracked tune that Chronos sings, Words alone are certain good.
+ - The world being illusive, one must be deluded in some way if one is to triumph in it.
+ - I think you can leave the arts, superior or inferior, to the conscience of mankind.
+ - If suffering brings wisdom, I would wish to be less wise.
+ - Come swish around my pretty punk And keep me dancing still That I may stay a sober man Although I drink my fill.
+ - The labor of the alchemists, who were called artist in their day, is a befitting comparison for a deliberate change of style.
+ - A thought Of that late death took all my heart for speech.
+ - How can we know the dancer from the dance?
+ - When an immortal passion breathes in mortal clay; Our hearts endure the scourge, the plaited thorns, the way Crowded with bitter faces, the wounds in palm and side, The vinegar-heavy sponge, the flowers by Kedron stream...
+ - A lonely impulse of delight.
+ - I have often had the fancy that there is some one Myth for every man, which, if we but knew it, would make us understand all he did and thought.
+ - Shakespearean fish swam the sea, far away from land; Romantic fish swam in nets coming to the hand...
+ - Great Powers of falling wave and wind and windy fire, With your harmonious choir Encircle her I love and sing her into peace, That my old care may cease...
+ - The true poet is all the time a visionary and whether with friends or not, as much alone as a man on his death bed.
+ - Overcome the Empyrean; hurl Heaven and Earth out of their places, That in the same calamity Brother and brother, friend and friend, Family and family, City and city may contend.
+ - Gaze no more in the bitter glass The demons, with their subtle guile, Lift up before us when they pass, Or only gaze a little while...
+ - When I play on my fiddle in Dooney Folk dance like a wave on the sea.
+ - The mystical life is at the centre of all that I do and all that I think and all that I write.
+ - Literature is always personal, always one man’s vision of the world, one man’s experience, and it can only be popular when men are ready to welcome the visions of others.
+ - Who dreamed that beauty passes like a dream?
+ - The intellect of man is forced to choose Perfection of the life, or of the work And if it take the second must refuse A heavenly mansion, raging in the dark.
+ - Between extremities Man runs his course; A brand, or flaming breath, Comes to destroy All those antinomies Of day and night...
+ - Nor seek, for this is also sooth, To hunger fiercely after truth, Lest all thy toiling only breeds New dreams, new dreams; there is no truth Saving in thine own heart.
+ - I would that I were an old beggar Rolling a blind pearl eye, For he cannot see my lady Go gallivanting by.
+ - A living man is blind and drinks his drop. What matter if the ditches are impure? What matter if I live it all once more?
+ - Yet they that know all things but know That all this life can give us is A child’s laughter, a woman’s kiss.
+ - BELOVED, gaze in thine own heart, The holy tree is growing there;.
+ - Everything exists, everything is true and the earth is just a bit of dust beneath our feet.
+ - Because I helped to wind the clock, I come to hear it strike.
+ - I made my song a coat Covered with embroideries Out of old mythologies From heel to throat But the fools caught it, Wore it in the world’s eyes As though they’d wrought it. Song, let them take it, For there’s more enterprise In walking naked.
+ - Out-worn heart, in a time out-worn, Come clear of the nets of wrong and right; Laugh, heart, again in the grey twilight, Sigh, heart, again in the dew of the morn.
+ - In the great cities we see so little of the world, we drift into our minority. In the little towns and villages there are no minorities; people are not numerous enough. You must see the world there, perforce. Every man is himself a class.
+ - Ecstasy is from the contemplation of things vaster than the individual and imperfectly seen perhaps, by all those that still live.
+ - Once out of nature I shall never take My bodily form from any natural thing, But such a form as Grecian goldsmiths make.
+ - Florence Farr once said to me, If we could say to ourselves, with sincerity, ‘this passing moment is as good as any I shall ever know,’ we could die upon the instant and be united with God.
+ - One should not lose one’s temper unless one is certain of getting more and more angry to the end.
+ - Many times man lives and dies Betweeen his two eternities, That of race and that of soul, And ancient Ireland knew it all. Whether man die in his bed Or the rifle knocks him dead.
+ - I say that Roger Casement Did what he had to do, He died upon the gallows But that is nothing new.
+ - No art can conquer the people alone-the people are conquered by an ideal of life upheld by authority.
+ - The uncontrollable mystery on the bestial floor.
+ - Man has created death.
+ - And God would bid His warfare cease, Saying all things were well; And softly make a rosy peace, A peace of Heaven with Hell.
+ - I spit into the face of time that has transfigured me.
+ - Why should the imagination of a man Long past his prime remember things that are Emblematical of love and war?
+ - I am content to live it all again And yet again, if it be life to pitch Into the frog-spawn of a blind man’s ditch.
+ - I kiss you and kiss you, With arms around my own, Ah, how shall I miss you, When, dear, you have grown.
+ - A statesman is an easy man, he tells his lies by rote. A journalist invents his lies, and rams them down your throat. So stay at home and drink your beer and let the neighbors vote.
+ - Both nuns and mothers worship images, But those the candles light are not as those That animate a mother’s reveries, But keep a marble or a bronze repose.
+ - Though logic-choppers rule the town, And every man and maid and boy Has marked a distant object down, An aimless joy is a pure joy...
+ - You think it horrible that lust and rage Should dance attention upon my old age; They were not such a plague when I was young; What else have I to spur me into song?
+ - The light of lights looks always on the motive, not the deed, the shadow of shadows on the deed alone.
+ - Earth in beauty dressed Awaits returning spring. All true love must die, Alter at the best Into some lesser thing. Prove that I lie.
+ - He Who is wrapped in purple robes, With planets in His care, Had pity on the least of things Asleep upon a chair.
+ - I knew a phoenix in my youth, so let them have their day.
+ - What if the Church and the State Are the mob that howls at the door! Wine shall run thick to the end, Bread taste sour.
+ - Every conquering temptation represents a new fund of moral energy. Every trial endured and weathered in the right spirit makes a soul nobler and stronger than it was before.
+ - And a softness came from the starlight and filled me full to the bone.
+ - Whatever flames upon the night Man’s own resinous heart has fed.
+ - From our birthday, until we die, Is but the winking of an eye.
+ - Come, heart, where hill is heaped upon hill: For there the mystical brotherhood Of sun and moon and hollow and wood And river and stream work out their will...
+ - All the wild-witches, those most notable ladies For all their broom-sticks and their tears, Their angry tears, are gone.
+ - On the grey rock of Cashel I suddenly saw A Sphinx with woman breast and lion paw, A Buddha, hand at rest, Hand lifted up that blest; And right between these two a girl at play That, it may be, had danced her life away...
+ - And the merry love the fiddle, and the merry love to dance.
+ - We had fed the heart on fantasies, The heart’s grown brutal from the fare, More substance in our enmities Than in our love.
+ - I have heard that hysterical women say They are sick of the palette and fiddle-bow, Of poets that are always gay.
+ - We make out of the quarrel with others, rhetoric, but of the quarrel with ourselves, poetry.
+ - Beloved, let your eyes half close, and your heart beat Over my heart, and your hair fall over my breast, Drowning love’s lonely hour in deep twilight of rest...
+ - Once more the storm is howling, and half hid Under this cradle-hood and coverlid My child sleeps on.
+ - If there’s no hatred in a mind Assault and battery of the wind Can never tear the linnet from the leaf.
+ - True love is a discipline in which each divines the secret self of the other and refuses to believe in the mere daily self.
+ - I thought of rhyme alone, For rhyme can beat a measure out of trouble And make the daylight sweet once more...
+ - For those that love the world serve it in action, Grow rich, popular, and full of influence; And should they paint or write still is it action, The struggle of the fly in marmalade.
+ - Much did I rage when young, Being by the world oppressed, But now with flattering tongue It speeds the parting guest.
+ - Why should I seek for love or study it? It is of God and passes human wit; I study hatred with great diligence, For that’s a passion in my own control, A sort of besom that can clear the soul Of everything that is not mind or sense.
+ - It is love that I am seeking for, But of a beautiful, unheard-of kind That is not in the world.
+ - That toil of growing up; The ignominy of boyhood; the distress Of boyhood changing into man; The unfinished man and his pain.
+ - No man has ever lived that had enough of children’s gratitude or woman’s love.
+ - The only enemy of innocence and beauty is time.
+ - Odor of blood when Christ was slain Made all Platonic tolerance vain And vain all Doric discipline.
+ - O cloud-pale eyelids, dream-dimmed eyes, The poets labouring all their days To build a perfect beauty in rhyme Are overthrown by a woman’s gaze...
+ - A mermaid found a swimming lad, Picked him up for her own, Pressed her body to his body, Laughed; and plunging down Forgot in cruel happiness That even lovers drown.
+ - Maybe the bride-bed brings despair, For each an imagined image brings And finds a real image there...
+ - I see a schoolboy when I think of him, With face and nose pressed to a sweet-shop window...
+ - I sat on cushioned otter-skin: My word was law from Ith to Emain, And shook at Invar Amargin The hearts of the world-troubling seamen, And drove tumult and war away...
+ - Life moves out of a red flare of dreams Into a common light of common hours, Until old age brings the red flare again.
+ - Never shall a young man, Thrown into despair By those great honey-coloured Ramparts at your ear, Love you for yourself alone And not your yellow hair.
+ - Wine enters through the mouth, Love, the eyes. I raise the glass to my mouth, I look at you, I sigh.
+ - I know of the leafy paths that the witches take Who come with their crowns of pearl and their spindles of wool, And their secret smile, out of the depths of the lake...
+ - Mock mockers after that That would not lift a hand maybe To help good, wise or great To bar that foul storm out, for we Traffic in mockery.
+ - We are happy when for everything inside us there is a corresponding something outside us.
+ - Because of something told under the famished horn Of the hunter’s moon, that hung between the night and the day, To dream of women whose beauty was folded in dismay, Even in an old story, is a burden not to be borne.
+ - Only that which does not teach, which does not cry out, which does not condescend, which does not explain, is irresistible.
+ - Out of Ireland have we come, great hatred, little room, maimed us at the start. I carry from my mother’s womb a fanatic heart.
+ - A speckled cat and a tame hare Eat at my hearthstone And sleep there; And both look up to me alone For learning and defence As I look up to Providence.
+ - The living can assist the imagination of the dead...
+ - Bodily decrepitude is wisdom; young We loved each other and were ignorant.
+ - Does the imagination dwell the most Upon a woman won or a woman lost?
+ - Supreme art is a traditional statement of certain heroic and religious truth, passed on from age to age, modified by individual genius, but never abandoned.
+ - Evil comes to all us men of imagination wearing as its mask all the virtues.
+ - Take, if you must, this little bag of dreams, Unloose the cord, and they will wrap you round.
+ - What made us dream that he could comb gray hair?
+ - Everything that man esteems Endures a moment or a day. Love’s pleasure drives his love away, The painter’s brush consumes his dreams.
+ - Nothing that we love overmuch Is ponderable to our touch.
+ - Grant me an old man’s frenzy, Myself must I remake Till I am Timon and Lear Or that William Blake Who beat upon the wall Till Truth obeyed his call.
+ - My wretched dragon is perplexed.
+ - O heart, be at peace, because Nor knave nor dolt can break What’s not for their applause, Being for a woman’s sake.
+ - The friends that have I do it wrong Whenever I remake a song, Should know what issue is at stake: It is myself that I remake.
+ - Eyes spiritualised by death can judge, I cannot, but I am not content.
+ - God guard me from those thoughts men think In the mind alone.
+ - All hatred driven hence, The soul recovers radical innocence And learns at last that it is self-delighting, Self-appeasing, self-affrighting, And that its own sweet will is Heaven’s will.
+ - Oh, Love is the crooked thing, there is nobody wise enough to find out all that is in it, for he will be thinking about love til the stars run away and the shadows eaten the moon...
+ - For he would be thinking of love Till the stars had run away And the shadows eaten the moon.
+ - Hope and Memory have one daughter and her name is Art, and she has built her dwelling far from the desperate field where men hang out their garments upon forked boughs to be banners of battle. O beloved daughter of Hope and Memory, be with me for a while.
+ - I broke my heart in two So hard I struck. What matter? for I know That out of rock, Out of a desolate source, Love leaps upon its course.
+ - Who dreamed that beauty passes like a dream? For these red lips, with all their mournful pride, Mournful that no new wonder may betide, Troy passed away in one high funeral gleam, And Usna’s children died.
+ - The house ghost is usually a harmless and well-meaning creature. It is put up with as long as possible. It brings good luck to those who live with it.
+ - People who lean on logic and philosophy and rational exposition end by starving the best part of the mind.
+ - The only business of the head in the world is to bow a ceaseless obeisance to the heart.
+ - I balanced all, brought all to mind, the years to come seemed waste of breath, a waste of breath the years behind, in balance with this life, this death.
+ - There is no release In a bodkin or disease, Nor can there be a work so great As that which cleans man’s dirty slate.
+ - I have nothing but the embittered sun; Banished heroic mother moon and vanished, And now that I have come to fifty years I must endure the timid sun.
+ - Nor law, nor duty bade me fight, Nor public men, nor cheering crowds, A lonely impulse of delight Drove to this tumult in the clouds.
+ - Never to have lived is best, ancient writers say. Never to have drawn the breath of life, never to have looked into the eye of day; The second best’s a gay goodnight and quickly turn away.
+ - The soldier takes pride in saluting his Captain, The devotee proffers a knee to his Lord, Some back a mare thrown from a thoroughbred, Troy backed its Helen, Troy died and adored; Great nations blossom above, A slave bows down to a slave.
+ - Imagining in excited reverie That the future years had come, Dancing to a frenzied drum, Out of the murderous innocence of the sea.
+ - We only believe in those thoughts which have been conceived not in the brain but in the whole body.
+ - Locke sank into a swoon; The Garden died; God took the spinning-jenny Out of his side.
+ - One had a lovely face, And two or three had charm, But charm and face were in vain. Because the mountain grass Cannot keep the form Where the mountain hare has lain.
+ - O but we dreamed to mend Whatever mischief seemed To afflict mankind, but now That winds of winter blow Learn that we were crack-pated when we dreamed.
+ - What were all the world’s alarms To mighty Paris when he found Sleep upon a golden bed That first dawn in Helen’s arms?
+ - Civilisation is hooped together, brought Under a rule, under the semblance of peace By manifold illusion...
+ - Everything that’s lovely is But a brief, dreamy kind of delight.
+ - The winds awaken, the leaves whirl round, Our cheeks are pale, our hair is unbound, Our breasts are heaving, our eyes are agleam, Our arms are waving, our lips are apart...
+ - One should say before sleeping: I have lived many lives. I have been a slave and a prince. Many a beloved has sat upon my knee and I have sat upon the knees of many a beloved. Everything that has been shall be again.
+ - I thought no more was needed Youth to prolong Than dumb-bell and foil To keep the body young. O who could have foretold That the heart grows old?
+ - A mouth that has no moisture and no breath Breathless mouths may summon; I hail the superhuman; I call it death-in-life and life-in-death.
+ - I wonder anybody does anything at Oxford but dream and remember.
+ - Things said or done long years ago Or things I did not do or say But thought that I might say or do, Weigh me down, and not a day But something is recalled, My conscience or my vanity appalled.
+ - But Love has pitched his mansion in the place of excrement. For nothing can be sole or whole that has not been rent.
+ - For men were born to pray and save: Romantic Ireland’s dead and gone, It’s with O’Leary in the grave.
+ - Things thought too long can be no longer thought, For beauty dies of beauty, worth of worth, And ancient lineaments are blotted out.
+ - If I make the lashes dark And the eyes more bright And the lips more scarlet, Or ask if all be right From mirror after mirror, No vanity’s displayed: I’m looking for the face I had Before the world was made.
+ - The night can sweat with terror as before We pieced our thoughts into philosophy, And planned to bring the world under a rule, Who are but weasels fighting in a hole.
+ - The hare grows old as she plays in the sun And gazes around her with eyes of brightness; Before the swift things that she dreamed of were done She limps along in an aged whiteness...
+ - I would have touched it like a child But knew my finger could but have touched Cold stone and water. I grew wild, Even accusing heaven because It had set down among its laws: Nothing that we love over-much Is ponderable to our touch.
+ - An aged man is but a paltry thing, a tattered coat upon a stick, unless soul clap its hands and sing, and louder sing for every tatter in its mortal dress.
+ - All things can tempt me from this craft of verse: One time it was a woman’s face, or worse – The seeming needs of my fool-driven land; Now nothing but comes readier to the hand Than this accustomed toil.
+ - The nation that will insist upon drawing a broad line of demarcation between the fighting man and the thinking man is liable to find its fighting done by fools and its thinking by cowards.
+ - Style, personality – deliberately adopted and therefore a mask – is the only escape from the hot-faced bargainers and money-changers.
+ - Your hooves have stamped at the black margin of the wood, Even where horrible green parrots call and swing. My works are all stamped down into the sultry mud.
+ - Fairies in Ireland are sometimes as big as we are, sometimes bigger, and sometimes, as I have been told, about three feet high.
+ - Somewhere beyond the curtain Of distorting days Lives that lonely thing That shone before these eyes Targeted, trod like Spring.
+ - Come let us mock at the good That fancied goodness might be gay, And sick of solitude Might proclaim a holiday: Wind shrieked and where are they?
+ - Laughter not time destroyed my voice And put that crack in it, And when the moon’s pot-bellied I get a laughing fit...
+ - Test every work of intellect or faith, And everything that your own hands have wrought And call those works extravagance of breath That are not suited for such men as come Proud, open-eyed and laughing to the tomb.
+ - Homer is my example and his unchristened heart.
+ - Rose of all Roses, Rose of all the World! You, too, have come where the dim tides are hurled. Upon the wharves of sorrow, and heard ring The bell that calls us on; the sweet far thing.
+ - I pray-for fashion’s word is out And prayer comes round again- That I may seem, though I die old, A foolish, passionate man.
+ - Where the world ends The mind is made unchanging, for it finds Miracle, ecstasy, the impossible hope, The flagstone under all, the fire of fires, The roots of the world.
+ - I went out to the hazelwood because a fire was in my head.
+ - And God stands winding His lonely horn, And time and the world are ever in flight.
+ - Land of Heart’s Desire Where beauty has no ebb, decay no flood, But joy is wisdom, time an endless song.
+ - For to articulate sweet sounds together Is to work harder than all these, and yet Be thought an idler by the noisy set Of bankers, schoolmasters, and clergymen The martyrs call the world.
+ - Nothing but stillness can remain when hearts are full Of their own sweetness, bodies of their loveliness.
+ - The brawling of a sparrow in the eaves The brilliant moon and all the milky sky And all that famous harmony of leaves Had blotted out man’s image and his cry.
+ - How can they know Truth flourishes where the student’s lamp has shone, And there alone, that have no solitude? So the crowd come they care not what may come. They have loud music, hope every day renewed And heartier loves; that lamp is from the tomb.
+ - And when you sigh from kiss to kiss I hear white Beauty sighing, too, For hours when all must fade like dew...
+ - Only the dead can be forgiven; But when I think of that my tongue’s a stone.
+ - When I clamber to the heights of sleep, Or when I grow excited with wine, suddenly I meet your face.
+ - And God, the herdsman, goads them on behind.
+ - I carry from my mother’s womb a fanatic’s heart.
+ - Acquaintance; companion; One dear brilliant woman; The best-endowed, the elect, All by their youth undone, All, all, by that inhuman Bitter glory wrecked.
+ - In life courtesy and self-possession, and in the arts style, are the sensible impressions of the free mind, for both arise out of a deliberate shaping of all things and from never being swept away, whatever the emotion into confusion or dullness.
+ - On limestone quarried near the spot By his command these words are cut: Cast a cold eye On life, on death. Horseman, pass by!
+ - My soul had found All happiness in its own cause or ground. Godhead on Godhead in sexual spasm begot Godhead. Some shadow fell. My soul forgot Those amorous cries that out of quiet come And must the common round of day resume.
+ - Lionel Johnson comes the first to mind, That loved his learning better than mankind, Though courteous to the worst; much falling he Brooded upon sanctity...
+ - The wrong of unshapely things is a wrong too great to be told; I hunger to build them anew and sit on a green knoll apart...
+ - Farewell – farewell, For I am weary of the weight of time.
+ - As man, as beast, as an ephemeral fly begets, Godhead begets Godhead, For things below are copies, the Great Smaragdine Tablet said. Yet all must copy copies, all increase their kind...
+ - I know, although when looks meet I tremble to the bone, The more I leave the door unlatched The sooner love is gone...
+ - Come, fix upon me that accusing eye. I thirst for accusation. All that was sung. All that was said in Ireland is a lie Breed out of the contagion of the throng, Saving the rhyme rats hear before they die.
+ - All the stream that’s roaring by Came out of a needle’s eye...
+ - For such, Being made beautiful overmuch, Consider beauty a sufficient end, Lose natural kindness and maybe The heart-revealing intimacy That chooses right, and never find a friend. r.
+ - Love is created and preserved by intellectual analysis, for we love only that which is unique, and it belongs to contemplation, not to action, for we would not change that which we love.
+ - All men live in suffering I know as few can know, Whether they take the upper road Or stay content on the low...
+ - I have known more men destroyed by the desire to have wife and child and to keep them in comfort than I have seen destroyed by drink and harlots.
+ - If Michael, leader of God’s host When Heaven and Hell are met, Looked down on you from Heaven’s door-post He would his deeds forget.
+ - This melancholy London – I sometimes imagine that the souls of the lost are compelled to walk through its streets perpetually. One feels them passing like a whiff of air.
+ - Where there is nothing, there is God.
+ - Time drops in decay Like a candle burnt out. And the mountains and woods Have their day, have their day; But, kindly old rout Of the fire-born moods, You pass not away.
+ - Though pedantry denies, It’s plain the Bible means That Solomon grew wise While talking with his queens...
+ - While on that old grey stone I sat Under the old wind-broken tree, I knew that One is animate, Mankind inanimate phantasy.
+ - I weave the shoes of Sorrow: Soundless shall be the footfall light In all men’s ears of Sorrow, Sudden and light.
+ - For how can you compete Being honour bred, with one Who, were it proved he lies, Were neither shamed in his own Nor in his neighbour’s eyes?
+ - Poetry and music I have banished, But the stupidity Of root, shoot, blossom or clay Makes no demand. I bend my body to the spade Or grope with a dirty hand.
+ - Only the wasteful virtues earn the sun...
+ - What the world’s million lips are searching for, must be substantial somewhere.
+ - Let the new faces play what tricks they will In the old rooms; night can outbalance day, Our shadows rove the garden gravel still, The living seem more shadowy than they.
+ - Cast your mind on other days that we in coming days may be still the indomitable Irishry.
+ - All think what other people think; All know the man their neighbor knows. Lord, what would they say Did their Catullus walk that way?
+ - I rise in the dawn, and I kneel and blow Till the seed of the fire flicker and glow; And then I must scrub and bake and sweep Till the stars are beginning to blink and peep; And the young lie long and dream in their bed...
+ - Once you attempt legislation upon religious grounds, you open the way for every kind of intolerance and religious persecution.
+ - A passion-driven exultant man sings out Sentences that he has never thought...
+ - Books are but waste paper unless we spend in action the wisdom we get from thought – asleep. When we are weary of the living, we may repair to the dead, who have nothing of peevishness, pride, or design in their conversation.
+ - For the world’s more full of weeping than you can understand.
+ - I, too, await The hour of thy great wind of love and hate. When shall the stars be blown about the sky, Like the sparks blown out of a smithy, and die?
+ - You know what the Englishman’s idea of compromise is? He says, Some people say there is a God. Some people say there is no God. The truth probably lies somewhere between these two statements.
+ - When Walt Whitman writes in seeming defiance of tradition, he needs tradition for his protection, for the butcher and the baker and the candlestick-maker grow merry over him when they meet his work by chance.
+ - The poet is a good citizen turned inside out.
+ - Players and painted stage took all my love, And not those things that they were emblems of.
+ - Although our love is waning, let us stand by the lone border of the lake once more, together in that hour of gentleness. When the poor tired child, passion, falls asleep.
+ - Dream, dream, for this is also sooth.
+ - Love comes in at the eye.
+ - It’s certain there are trout somewhere – And maybe I shall take a trout – but I do not seem to care.
+ - I have believed the best of every man. And find that to believe is enough to make a bad man show him at his best, or even a good man swings his lantern higher.
+ - O would, beloved, that you lay Under the dock-leaves in the ground, While lights were paling one by one.
+ - God spreads the heavens above us like great wings, And gives a little round of deeds and days.
+ - There is only one romance the Soul’s.
+ - I hate journalists. There is nothing in them but tittering jeering emptiness. They have all made what Dante calls the Great Refusal. The shallowest people on the ridge of the earth.
+ - All that I have said and done, Now that I am old and ill, Turns into a question till I lie awake night after night And never get the answers right.
+ - All through the years of our youth Neither could have known Their own thought from the other’s, We were so much at one.
+ - Who mocks at music mocks at love.
+ - Him who trembles before the flame and the flood, And the winds that blow through the starry ways, Let the starry winds and the flame and the flood Cover over and hide, for he has no part With the lonely, majestical multitude.
+ - What can I but enumerate old themes?
+ - And many a poor man that has roved Loved and thought himself beloved From a glad kindness cannot take his eyes.
+ - Whence had they come The hand and lash that beat down frigid Rome? What sacred drama through her body heaved When world-transforming Charlemagne was conceived?
+ - I thought it out this very day, Noon upon the clock, A man may put pretence away Who leans upon a stick, May sing, and sing until he drop, Whether to maid or hag...
+ - The worst thing about some men is that when they are not drunk they are sober.
+ - I would that there was nothing in the world But my beloved that night and day had perished, And all that is and all that is to be, All that is not the meeting of our lips.
+ - It’s certain there is no fine thing Since Adam’s fall but needs much laboring.
+ - An age is the reversal of an age: When strangers murdered Emmet, Fitzgerald, Tone, We lived like men that watch a painted stage. What matter for the scene, the scene once gone: It had not touched our lives.
+ - A tree there is that from its topmost bough Is half all glittering flame and half all green Abounding foliage moistened with the dew; And half is half and yet is all the scene; And half and half consume what they renew...
+ - Because this age and the next age Engender in the ditch, No man can know a happy man From any passing wretch, If Folly link with Elegance No man knows which is which...
+ - Endure what life God gives and ask no longer span; Cease to remember the delights of youth, travel-wearied aged man; Delight becomes death-longing if all longing else be vain.
+ - Test every work of intellect or faith and everything that your own hands have wrought.
+ - When such as I cast out remorse; So great a sweetness flows into the breast; We must laugh and we must sing, We are blest by everything, Everything we look upon is blessed.
+ - The soul of man is of the imperishable substance of the stars!
+ - Bodies of holy men and women exude Miraculous oil, odour of violet. But under heavy loads of trampled clay Lie bodies of the vampires full of blood; Their shrouds are bloody and their lips are wet.
+ - Nor dread nor hope attend a dying animal; a man awaits his end dreading and hoping all.
+ - Art bids us touch and taste and hear and see the world, and shrinks from what Blake calls mathematic form, from every abstract form, from all that is of the brain only.
+ - Words alone are certain good.
+ - What can be shown? What true love be? All could be known or shown If Time were but gone.
+ - Designs in connection with postage stamps and coinage may be described, I think, as the silent ambassadors on national taste.
+ - While man can still his body keep Wine or love drug him to sleep, Waking he thanks the Lord that he Has body and its stupidity...
+ - We are fastened to a dying animal.
+ - Pale brows, still hands and dim hair, I had a beautiful friend And dreamed that the old despair Would end in love in the end...
+ - When we are high and airy hundreds say That if we hold that flight they’ll leave the place, While those same hundreds mock another day Because we have made our art of common things...
+ - Longfellow has his popularity, in the main, because he tells his story or his idea so that one needs nothing but his verses to understand it.
+ - My chair was nearest to the fire In every company That talked of love or politics, Ere Time transfigured me.
+ - Boughs have their fruit and blossom At all times of the year; Rivers are running over With red beer and brown beer.
+ - A pity beyond all telling is hid in the heart of love.
+ - Words are always getting conventionalized to some secondary meaning. It is one of the works of poetry to take the truants in custody and bring them back to their right senses.
+ - Neither Christ nor Buddha nor Socrates wrote a book, for to do so is to exchange life for a logical process.
+ - What portion in the world can the artist have, Who has awakened from the common dream, But dissipation and despair?
+ - O heart! O heart! if she’d but turn her head You’d know the folly of being comforted.
+ - My father was an angry and impatient teacher and flung the reading book at my head.
+ - Irish poets, learn your trade, sing whatever is well made, scorn the sort now growing up all out of shape from toe to top.
+ - I call on those that call me son, Grandson, or great-grandson, On uncles, aunts, great-uncles or great-aunts, To judge what I have done. Have I, that put it into words, Spoilt what old loins have sent?
+ - What’s memory but the ash That chokes our fires that have begun to sink?
+ - I wonder anybody does anything at Oxford but dream and remember, the place is so beautiful. One almost expects the people to sing instead of speaking. It is all like an opera.
+ - And that enquiring man John Synge comes next, That dying chose the living world for text And never could have rested in the tomb But that, long travelling, he had come Towards nightfall upon certain set apart In a most desolate stony place...
+ - Because the priest must have like every dog his day Or keep us all awake with baying at the moon, We and our dolls being but the world were best away.
+ - But bear in mind your lover’s wage Is what your looking-glass can show, And that he will turn green with rage At all that is not pictured there.
+ - How could passion run so deep Had I never thought That the crime of being born Blackens all our lot?
+ - A strange thing surely that my Heart, when love had come unsought Upon the Norman upland or in that poplar shade, Should find no burden but itself and yet should be worn out. It could not bear that burden and therefore it went mad.
+ - Now must we sing and sing the best we can, But first you must be told your character: Convicted cowards all, by kindred slain.
+ - But was there ever dog that praised his fleas?
+ - The poor have very few hours in which to enjoy themselves; they must take their pleasure raw; they haven’t the time to cook it.
+ - Accursed who brings to light of day the writings I have cast away.
+ - Education is not filling.
+ - O what fine thought we had because we thought that the worst rogues and rascals had died out.
+ - Those men that in their writings are most wise Own nothing but their blind, stupefied hearts.
+ - This great purple butterfly, In the prison of my hands, Has a learning in his eye Not a poor fool understands.
+ - It was my first meeting with a philosophy that confirmed my vague speculations and seemed at once logical and boundless.
+ - What shall I do for pretty girls Now my old bawd is dead?
+ - Give to these children, new from the world, Rest far from men. Is anything better, anything better? Tell us it then...
+ - People are responsible for their opinions, but Providence is responsible for their morals.
+ - We have lit upon the gentle, sensitive mind And lost the old nonchalance of the hand; Whether we have chosen chisel, pen or brush, We are but critics, or but half create.
+ - No man, even though he be Shakespeare, can write perfectly when his web is woven of threads that have been spun in many lands.
+ - There where the course is, Delight makes all of the one mind, The riders upon the galloping horses, The crowd that closes in behind...
+ - All that could run or leap or swim Whether in wood, water or cloud, Acclaiming, proclaiming, declaiming Him.
+ - And there’s a score of duchesses, surpassing womankind, Or who have found a painter to make them so for pay And smooth out stain and blemish with the elegance of his mind: I knew a phoenix in my youth, so let them have their day.
+ - I knew that I had seen, had seen at last That girl my unremembering nights hold fast Or else my dreams that fly If I should rub an eye, And yet in flying fling into my meat A crazy juice that makes the pulses beat...
+ - The common breeds the common, A lout begets a lout, So when I take on half a score I knock their heads about.
+ - Englishmen are babes in philosophy and so prefer faction-fighting to the labor of its unfamiliar thought.
+ - To be born woman is to know – although they do not speak of it at school – women must labor to be beautiful.
+ - Shakespeare cared little for the State, the source of all our judgments, apart from its shows and splendours, its turmoils and battles, its flamings out of the uncivilized heart.
+ - When all is said and done, how do we know but that our own unreason may be better than another’s truth? for it has been warmed on our hearths and in our souls, and is ready for the wild bees of truth to hive in it, and make their sweet honey.
+ - How can I, that girl standing there, My attention fix On Roman or on Russian Or on Spanish politics?
+ - O heart the winds have shaken, the unappeasable host Is comelier than candles at Mother Mary’s feet.
+ - I have mummy truths to tell Whereat the living mock, Though not for sober ear, For maybe all that hear Should laugh and weep an hour upon the clock.
+ - Men come, men go, all things remain in God.
+ - The women that I picked spoke sweet and low And yet gave tongue. “Hound voices” were they all.
+ - I gave what other women gave That stepped out of their clothes But when this soul, its body off Naked to naked goes, He it has found shall find therein What none other knows.
+ - If a poet interprets a poem of his own he limits its suggestibility.
+ - The true faith discovered was When painted panel, statuary, Glass-mosaic, window-glass, Amended what was told awry By some peasant gospeler.
+ - The Danaan children laugh, in cradles of wrought gold, And clap their hands together, and half close their eyes, For they will ride the North when the ger-eagle flies, With heavy whitening wings, and a heart fallen cold...
+ - The Irishman sustains himself during brief periods of joy by the knowledge that tragedy is just around the corner.
+ - I long for truth, and yet I cannot stay from that My better self disowns, For a man’s attention Brings such satisfaction To the craving in my bones.
+ - My curse on plays That have to be set up in fifty ways, On the day’s war with every knave and dolt, Theater business, management of men.
+ - I – love’s skein upon the ground, My body in the tomb – Shall leap into the light lost In my mother’s womb.
+ - An aged man is but a paltry thing, a tattered coat upon a stick.
+ - Women are hard and proud and stubborn-hearted, Their heads being turned with praise and flattery; And that is why their lovers are afraid To tell them a plain story.
+ - I bear a burden that might well try Men that do all by rule, And what can I That am a wandering-witted fool But pray to God that He ease My great responsibilities?
+ - Though I have many words, What woman’s satisfied, I am no longer faint Because at her side? O who could have foretold That the heart grows old?
+ - Hurrah for revolution and cannon come again! The beggars have changed places, but the lash goes on.
+ - His element is so fine Being sharpened by his death, To drink from the wine-breath While our gross palates drink from the whole wine.
+ - O heart, we are old; The living beauty is for younger men: We cannot pay its tribute of wild tears.
+ - But stories that live longest Are sung above the glass, And Parnell loved his country And Parnell loved his lass.
+ - It is not permitted to a man, who takes up pen or chisel, to seek originality, for passion is his only business, and he cannot but mould or sing after a new fashion because no disaster is like another.
+ - Though leaves are many, the root is one.
+ - What is literature but the expression of moods by the vehicle of symbol and incident?
+ - O sweet everlasting Voices, be still; Go to the guards of the heavenly fold And bid them wander obeying your will, Flame under flame, till Time be no more...
+ - I – though heart might find relief Did I become a Christian man and choose for my belief What seems most welcome in the tomb – play a predestined part. Homer is my example and his unchristened heart.
+ - I summon to the winding ancient stair; Set all your mind upon the steep ascent.
+ - A spot whereon the founders lived and died Seemed once more dear than life; ancestral trees, Or gardens rich in memory glorified Marriages, alliances, and families, And every bride’s ambition satisfied.
+ - The blessed spirits must be sought within the self which is common to all.
+ - Some moralist or mythological poet Compares the solitary soul to a swan; I am satisfied with that, Satisfied if a troubled mirror show it, Before that brief gleam of its life be gone...
+ - The woods of Arcady are dead, And over is their antique joy; Of old the world on dreaming fed Gray Truth is now her painted toy.
+ - Even the wisest man grows tense With some sort of violence Before he can accomplish fate, Know his work or choose his mate. Poet and sculptor, do the work, Nor let the modish painter shirk.
+ - Nor bird nor beast Could make me wish for anything this day, Being old, but that the old alone might die, And that would be against God’s Providence.
+ - And learn that the best thing is To change my loves while dancing And pay but a kiss for a kiss.
+ - I am of a healthy long lived race, and our minds improve with age.
+ - We must not make a false faith by hiding from our thoughts the causes of doubt, for faith is the highest achievement of the human intellect, the only gift man can make to God, and therefore it must be offered in sincerity.
+ - Everything we look upon is blest.
+ - The creations of a great writer are little more than the moods and passions of his own heart, given surnames and Christian names, and sent to walk the earth.
+ - In luck or out the toil has left its mark: That old perplexity an empty purse, Or the day’s vanity, the night’s remorse.
+ - All the great masters have understood that there cannot be great art without the little limited life of the fable, which is always better the simpler it is, and the rich, far-wandering, many-imaged life of the half-seen world beyond it.
+ - An intellectual hatred is the worst.
+ - Swift has sailed into his rest; Savage indignation there Cannot lacerate his breast Imitate him if you dare, World-besotted traveler; he Served human liberty.
+ - There are a few of the open-air spirits; the more domestic of their tribe gather within-doors, plentiful as swallows under southern eaves.
+ - For what but eye and ear silence the mind With the minute particulars of mankind?
+ - While they danced they came over them the weariness with the world, the melancholy, the pity one for the other, which is the exultation of love.
+ - I can exchange opinion with any neighbouring mind, I have as healthy flesh and blood as any rhymer’s had, But O! my Heart could bear no more when the upland caught the wind; I ran, I ran, from my love’s side because my Heart went mad.
+ - Time can but make her beauty over again.
+ - I can forgive even that wrong of wrongs, Those undreamt accidents that have made me Seeing that Fame has perished this long while, Being but a part of ancient ceremony Notorious, till all my priceless things Are but a post the passing dogs defile.
+ - The Father and His angelic hierarchy That made the magnitude and glory there Stood in the circuit of a needle’s eye.
+ - Is it not certain that the Creator yawns in earthquake and thunder and other popular displays, but toils in rounding the delicate spiral of a shell? -Yeats, The Trembling of the Veil.
+ - Choose your companions from the best; Who draws a bucket with the rest soon topples down the hill.
+ - There’s keen delight in what we have: The rattle of pebbles on the shore Under the receding wave.
+ - All art is in the last analysis an endeavor to condense as out of the flying vapor of the world an image of human perfection, and for its own and not for the art’s sake.
+ - May we two stand, When we are dead, beyond the setting suns, A little from other shades apart, With mingling hair, and play upon one lute.
+ - We poets would die of loneliness but for women, and we choose our men friends that we may have somebody to talk about women with. Letter to Olivia Shakespeare, 1936.
+ - He only can create the greatest imaginable beauty who has endured all imaginable pangs, for only when we have seen and foreseen what we dread shall we be rewarded by that dazzling unforeseen wing-footed wanderer.
+ - Tis the eternal law, That first in beauty should be first in might.
+ - The women take so little stock In what I do or say They’d sooner leave their cosseting To hear a jackass bray...
+ - So long as all is ordered for attack, and that alone, leaders will instinctively increase the number of enemies that they may give their followers something to do.
+ - The desire that is satisfied is not a great desire, nor has the shoulder used all its might that an unbreakable gate has never strained.
+ - It seems to me that love, if fine, is essentially a discipline.
+ - My father upon the Abbey stage, before him a raging crowd. “This Land of Saints,” and then as the applause died out, “Of plaster Saints;” his beautiful mischievous head thrown back.
+ - Mysticism has been in the past and probably ever will be one of the great powers of the world and it is bad scholarship to pretend the contrary.
+ - While Michael Angelo’s Sistine roof, His “Morning” and his “Night” disclose How sinew that has been pulled tight, Or it may be loosened in repose, Can rule by supernatural right Yet be but sinew.
+ - Not a man alive has so much luck that he can play with it.
+ - I am still of opinion that only two topics can be of the least interest to a serious and studious mood – sex and the dead.
+ - Our own acts are isolated and one act does not buy absolution for another.
+ - All that we did, all that we said or sang must come from contact with the soil.
+ - What do we know but that we face one another in this place?
+ - I have grown to believe that there is no dangerous idea, which does not become less dangerous when written out in sincere and careful English.
+ - It is so many years before one can believe enough in what one feels even to know what the feeling is.
+ - I think it better that in times like these a poet’s mouth be silent, for in truth we have no gift to set a statesman right.
+ - For Death who takes what man would keep, Leaves what man would lose.
+ - There is no deformity But saves us from a dream.
+ - If soul my look and body touch, Which is the more blest?
+ - Be secret and exult, Because of all things known That is most difficult.
+ - And if joy were not on the earth, There were an end of change and birth, And Earth and Heaven and Hell would die, And in some gloomy barrow lie Folded like a frozen fly...
+ - I agree about Shaw – he is haunted by the mystery he flouts. He is an atheist who trembles in the haunted corridor.
+ - You ask what I have found and far and wide I go, Nothing but Cromwell’s house and Cromwell’s murderous crew, The lovers and the dancers are beaten into the clay, And the tall men and the swordsmen and the horsemen where are they?
+ - Who understood Whatever has been said, sighed, sung, Howled, miau-d, barked, brayed, belled, yelled, cried, crowed...
+ - I always think a great speaker convinces us not by force of reasoning, but because he is visibly enjoying the beliefs he wants us to accept.
+ - In mockery I have set A powerful emblem up, And sing it rhyme upon rhyme In mockery of a time Half dead at the top.
+ - It is most important that we should keep in this country a certain leisured class. I am of the opinion of the ancient Jewish book which says there is no wisdom without leisure.
+ - But boys and girls, pale from the imagined love Of solitary beds, knew what they were, That passion could bring character enough And pressed at midnighht in some public place Live lips upon a plummet-measured face.
+ - The fascination of what’s difficult Has dried the sap out of my veins, and rent Spontaneous joy and natural content Out of my heart.
+
+473 quotes

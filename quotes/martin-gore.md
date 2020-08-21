@@ -1,0 +1,56 @@
+ - Songwriting is a mysterious art. When I sit down to write a song, the end result should be mysterious and have this dark quality.
+ - As part of Depeche Mode, I don’t think it’s right for me to be using my own songs for a solo project. I’m not a very prolific songwriter, so I keep those for Depeche Mode.
+ - There are Depeche Mode parties around the world where people listen to our music all night long. The more remixes we can give them, the more interesting those nights have got to be.
+ - I don’t think I’ve ever tried to be anything other than a weirdo.
+ - I don’t write poems and put them to music. Just let things flow.
+ - I’m not particularly prolific.
+ - I don’t think I ever worry too much about what our target audience is, what we should be releasing. I just write naturally and organically and try to write from the heart.
+ - I always hate explaining away songs, because for me they mean something, and for other people, they’ll mean something absolutely different.
+ - It creates a conflict of interest – what songs would I use for me, and what would I use for the band.
+ - Our music over the years has been very cinematic. It’s surprising we never really got into film soundtracks.
+ - I live in Santa Barbara. My wife’s American, and she lived in England for 11 years and then told me she’d had enough.
+ - All of my kids are into music. My older daughter plays guitar, piano, sings. My young son, he sings.
+ - I lead two totally separate lives. There are times when I have to slip into rock star mode.
+ - I want people to feel good about listening to this record, to get some kind of peace. It’s just got something magical about it.
+ - I knew at quite a young age that I had an issue with drinking.
+ - I love being in the studio. If I’m at home, I will go to the studio pretty much every day anyway. It’s just something that I like to do.
+ - Kids today don’t know that much about vinyl.
+ - For years, I was stuck behind a keyboard rig. When I started playing guitar onstage, it was a bit of a release – not to be stuck in one spot the whole night. It’s really enjoyable having the freedom to move around. You just have to remember to end up somewhere near a microphone.
+ - God knows why – no pun intended – but every time I write a song, I feel a need to touch on religion.
+ - When I write love songs, people think they’re really soppy – but I see love as a consolation for the boredom of life.
+ - If you repeat yourself, then I think you’re in danger of losing that fan base, because if you’re not interesting yourselves, you’re not interesting your audience.
+ - If you took music out of my life, I don’t know what I’d do. It’s the one thing that I have a real passion for.
+ - When people meet me I think they’re surprised to find out I’m not always angst-ridden.
+ - The majority of the time I’m at home with my family, I play football three times a week.
+ - When you first sit down to write the first song, until you’ve maybe got three or four under your belt, it’s always, to me, like a mountain to climb. You look at that one blank piece of paper and you think, ‘God, how many songs do I have to write here?’ It always feels like pressure.
+ - You make one solo album, and some people swear you’re about to leave the band or there are creative differences.
+ - I wasn’t ever a massive David Essex fan, but I liked a few of his tracks, and Stardust was one of them.
+ - I tend to like songs that are very emotional, that strike a chord with me emotionally.
+ - I started getting back into buying old analog gear while we were recording. Lots of old drum machines and synths. It wasn’t a conscious thing. I didn’t consider myself a collector, but boxes of vintage gear would turn up virtually every day.
+ - I studied German at school. I lived in Berlin for two years and had a German girlfriend for five years, so I don’t find speaking German particularly difficult. Singing was slightly more difficult.
+ - I don’t know if it’s cool to say this anymore, but I grew up listening to Gary Glitter. A majority of his songs were in that shuffle-blues beat, and I think that’s probably why I tend to write like that.
+ - I didn’t write songs for a very long time.
+ - I find it odd seeing a DJ playing to huge audiences. I know that people have been doing it for a while, but the fact that it’s been embraced so much in America now and it’s become like this new, big thing, I find it slightly odd.
+ - Anything that I write comes from the soul.
+ - Record covers helped me discover a lot of music that I wasn’t aware of.
+ - I loathe the idea of going onstage in a T-shirt and jeans.
+ - I don’t like to think 10 years down the road.
+ - I do a cover of a Velvet Underground song, and they were one of the most important bands, for me.
+ - When I write a song, I always start on acoustic guitar, because that’s a good test of a song, when it’s really open and bare. You can often mislead yourself if you start with computers and samples and programming because you can disguise a bad song.
+ - I’m not advocating violence but I think somebody should shoot Simon Cowell.
+ - More than accepted, it’s encouraged for rock stars to be out of control.
+ - Once I’d chosen the songs, it seemed like it would just be a question then of recording them. But it’s a case of trying to re-invent the songs; taking them in different directions.
+ - I wanted to keep the music very electronic, very filmic, and give it an almost sci-fi like quality. Music is a necessity for me. I go into the studio at least five days a week, every week, so once I had the idea and the template, the process was quick and fun.
+ - I like their darkness but I also like the pop-side of the Velvet Underground.
+ - I sit down and create atmospheres, start playing guitar or piano and just sing whatever comes out of my mouth.
+ - Music is really all about experimentation and lots of trial and error. It’s just mind-numbingly boring until you hit on something that works well.
+ - The only things we have to worry about are really stupid things...
+ - I think being in a band is probably the only job when you’re actively encouraged to be out of it most of the time.
+ - I didn’t expect us to be around after 25 years.
+ - There haven’t been many credible electronic covers records.
+ - There’s something insane about this business – about the cycle of making albums and going on tour to promote them.
+ - People are People still gets played to death on ’80s stations. It was our first big break in America. It’s not exactly my favorite song.
+ - I try to get a degree of realism in my music.
+ - I will be the focal point for however long I decide to play. Half of me likes that idea and half of me doesn’t, but once the adrenaline kicks in, I’ll probably really enjoy it.
+
+54 quotes

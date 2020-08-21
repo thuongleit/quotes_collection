@@ -1,0 +1,27 @@
+ - If no one else has ever told you this before, I will tell it to you one more time and hope you believe it and never forget it for the rest of your life: You deserve to be treated well.
+ - I feel very emotional and party.
+ - It’s usually better to focus on partying and let the other stuff take care of itself.
+ - If pizza brings you joy, then by all means, love that pizza like your life depends on it. Because it does.
+ - Your love is the ultimate love that empowers all your efforts, a true love for what is indestructibly and perpetually you.
+ - It is OK to be happy in life. Even through all the strife, maybe especially during times of great pain and suffering. We still have to be able to stay close to that joy because we can’t save the world in a bad mood.
+ - We do what we like, and we like what we do.
+ - When people do things to make your dream come true, you owe them in one way or another. Everyone understands that for every dream that comes true for you, there might not be a dream coming true for someone else. When we trade one wish for another, there’s a price to pay. It works like that.
+ - Anyone who says that money cannot buy happiness has clearly never spent their money on pizza.
+ - I have met people that said when their friend was dying, they made them promise that their funeral would be a party without people sitting in silence and in sadness. They want to celebrate their life and the life they lived and I try to adhere to that more.
+ - I really like dark music and darkness in general and cynicism and pessimism and negativity because it allows you to create an even bigger contrast.
+ - You always have to take responsibility for the choices you made. Once you can come to that truth, it’s a very satisfying and relieving feeling. You don’t have to fight anymore, you just get to do.
+ - Sometimes you have to open yourself to the random possibilities of, I guess, destiny.
+ - At least once in their life, every man should feel what it’s like to wear high heels.
+ - I’ve always been stimulated by the sense of challenge.
+ - That I ever think for one minute that I should ever feel lonely is obscene and unreasonable.
+ - There’s no drug that I would never take again.
+ - The most influential time in my life musically was definitely those piano lessons.
+ - Someone who claims to know what happens after death is probably someone we should be suspicious of – they might be a ghost.
+ - Festivals are unique. They can be the best of times or the worst. You’re not playing to the converted. But those are the best shows – to see if you can make new friends and entertain them.
+ - I always liked major-key music quite a bit, and that might have something to do with so many of the musical experiences of my childhood being based around the piano. On piano, it is very easy to move between major and minor and to really see how it looks and to feel how it sounds.
+ - I have listened to college radio quite a lot. I never went to college, so actually the college radio station is sort of like the closest I got to some kind of college experience.
+ - We can only learn so much about our minds, because we are using our minds to do so.
+ - Everything is always going through changes in terms of attitudes or mood.
+ - They teach real young kids and when I was about five my Mom took me to enroll in this thing and they said I could do it. It was definitely my choice, but I would have never thought of it. There’s pictures of me playing piano when I’m real, real little, that kind of stuff.
+
+25 quotes

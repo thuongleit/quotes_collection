@@ -1,0 +1,57 @@
+ - God save us from religion.
+ - I want a sword not a knitting needle -Kalen.
+ - Impatience is a poor substitute for a well-considered plan.
+ - It’s gaudy, ugly, and in terribly bad taste. It does, however, suit my personality almost perfectly.
+ - Once you’ve decided that something’s absolutely true, you’ve closed your mind on it, and a closed mind doesn’t go anywhere. Question everything. That’s what education’s all about.
+ - The unfortunate thing about working for yourself is that you have the worst boss in the world. I work every day of the year except at Christmas, when I work a half day.
+ - Why me?
+ - When love is involved no sacrifice is too great.
+ - It’s one of the advantages of being a woman. I get to do all sorts of unfair things, and you have to accept them because you’re too polite not to. – Polgara.
+ - When ignorance is bliss, there’s folly in wisdom.
+ - Women are almost always angry with men for one reason or another. It’s one of things you’ll have to get used to, as you get older.
+ - Consistency is the defense of a small mind.
+ - But there’s a world beyond what we can see and touch, and that world lives by its own laws. What may be impossible in this very ordinary world is very possible there, and sometimes the boundaries between the two worlds disappear, and then who can say what is possible and impossible?
+ - Now’s the time to be alive – to see it all happen, to be a part of it. That makes the blood race, and each breath is an adventure.
+ - As long as I know that my motives are good, I’m Seldom very concerned with the opinions of others. -Mandorallen, Baron of Vo Mandor.
+ - If you’re going to maintain any kind of self-respect, you’re going to have to keep secrets from yourself.
+ - Now do you see why war irritates me? It’s always the same. A lot of people get killed, but in the end, the whole thing is settled at the conference table. The notion of having the conference first doesn’t seem to occur to people.
+ - Keep working. Keep trying. Keep believing. You still might not make it, but at least you gave it your best shot. If you don’t have calluses on your soul, this isn’t for you. Take up knitting instead.
+ - Don’t be afraid to discard work you know isn’t up to standard. Don’t save junk, just because it took you a long time to write it.
+ - I’m a storyteller, not a prophet. I’m just interested in a good story.
+ - You’ll drive yourself crazy if you start trying to pry the meaning out of every gust of wind or rain squall. I’m not denying that there might actually be a few signs that you won’t want to miss. Knowing the difference is the tricky part.
+ - The whole world is beautiful, Belgarion’ Eriond assured him in response to that unspoken thought. ‘You just have to know how to look at it.
+ - Isn’t it odd how the little things can change a man’s entire life?
+ - The notion that any one person can describe ‘what really happened’ is an absurdity. If ten – or a hundred – people witness an event, there will be ten – or a hundred – different versions of what took place. What we see and how we interpret it depends entirely upon our individual past experience.
+ - As soon as a friendship passed a certain point – some obscure and secret boundary – a woman quite automatically became overwhelmed by a raging compulsion to complicate things.
+ - It’s the nature of man to ask questions. – Belgarath.
+ - Vanity’s ridiculous, be we all fall prey to it from time to time.
+ - Events are like horses. Sometimes they run away. After they’ve run for a while, though, they’ll start to walk again. Then there’ll be a time to put everything together.
+ - Listen to the way people talk. If your characters sound real the rest is easy.
+ - If you’d just try, I’m sure you’d be able to fly.
+ - Someday I’d like to see something rise up out of the earth –just for the sake of variety.
+ - All social workers want is to get everyone involved in a programme. Because a programme provides full employment for three generations of social workers. And they mess up.
+ - Nobles and peasants marry early. Businessmen tend to wait.
+ - Nothing that ever happens is so unimportant that it doesn’t change things.
+ - Everything is idiocy if you choose to look at it in the proper perspective.
+ - I have an unconscious burglar living in my mind: If I read something, it’s mine. I can read Middle English stories, Geoffrey Chaucer or Sir Thomas Malory, but once I start moving in the direction of contemporary fantasy, my mind begins to take over.
+ - Isn’t it easier to forgive than to hate? -Eriond.
+ - Reed College required a thesis for a Bachelor’s degree. Normally a Bachelor’s is sort of like being stamped ‘Prime US Beef.’ They just walk you through, hand out the diplomas and you fill in your name later on.
+ - The one of us who lies the best will get the better of the bargain. It’s a game. A very exciting game that’s played all over the world. Good players got rich, and bad players don’t.
+ - The dullest man in the world is charming beyond belief when he’s pouring gold coins from one hand to the other.
+ - It’s all very well to put the government in the hands of the perfect man, but what do you do when the perfect man gets a bellyache?
+ - We’re all entitled to a little stupidity now and then. – Beldin.
+ - I taught in a small teacher’s college for three or four years, at which point all the administrators got a pay raise and the teaching faculty didn’t.
+ - I’m never going to be in danger of getting the Nobel Prize for literature.
+ - All I knew was that I would die if he sent me away. He shrugged. You can cut a man’s heart out with a shrug, did you know that?
+ - I hesitate to predict whether this theory is true. But if the general opinion of Mankind is optimistic then we’re in for a period of extreme popularity for science fiction.
+ - As soon as somebody falls in love, all the wits seem to dribble out of the bottom of his head.
+ - I’ve fallen back on this periodically, although I must say that getting out of the grocery business ranked right up there with getting out of the army as one of the happier experiences of my life.
+ - I wrote a novel for my degree, and I’m very happy I didn’t submit that to a publisher. I sympathize with my professors who had to read it.
+ - No day in which you learn something is a complete loss.
+ - This is terrible, when a writer is bored by his own work, but it was a real bomb and had reached the point where I couldn’t even stand to look at it any more.
+ - Young people, however, tend to ignore the customs of their elders. Adolescent rebellion has been responsible for all manner of absurd costumes. The more ridiculous a certain fashion is, the more adolescents will cling to it.
+ - Call it my little gesture toward social conscience, but I like to think I’m teaching a certain number of people to read. Now that sounds pretentious!
+ - If the general opinion is pessimistic, fantasy is going to hold its own.
+ - I get up at an unholy hour in the morning my work day is completed by the time the sun rises. I have a slightly bad back which has made an enormous contribution to American literature.
+
+55 quotes

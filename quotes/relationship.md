@@ -1,0 +1,60 @@
+ - The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. ~~Bob Marley
+ - When you stop expecting people to be perfect, you can like them for who they are. ~~Donald Miller
+ - A man who wants to make a relationship work will move mountains to keep the woman he loves. ~~Greg Behrendt
+ - The meeting of two personalities is like the contact of two chemical substances: if there is any reaction, both are transformed. ~~C.G. Jung
+ - It’s better to be unhappy alone than unhappy with someone. ~~Marilyn Monroe
+ - Nobody can hurt me without my permission. ~~Mahatma Gandhi
+ - Death ends a life, not a relationship. ~~Mitch Albom
+ - Love is that condition in which the happiness of another person is essential to your own. ~~Robert A. Heinlein
+ - Man may have discovered fire, but women discovered how to play with it. ~~Candace Bushnell
+ - Remember that the best relationship is one in which your love for each other exceeds your need for each other. ~~Dalai Lama XIV
+ - Love is when you meet someone who tells you something new about yourself. ~~André Breton
+ - When in a relationship, a real man doesn't make his woman jealous of others, he makes others jealous of his woman. ~~Steve Maraboli
+ - One of the cruelest things you can do to another person is pretend you care about them more than you really do. ~~Douglas Coupland
+ - Assumptions are the termites of relationships. ~~Henry Winkler
+ - We have to recognise that there cannot be relationships unless there is commitment, unless there is loyalty, unless there is love, patience, persistence. ~~Cornel West
+ - Everyone sees what you appear to be, few experience what you really are. ~~Niccolò Machiavelli
+ - All a girl really wants is for one guy to prove to her that they are not all the same. ~~Marilyn Monroe
+ - Trust is the fruit of a relationship in which you know you are loved. ~~Wm. Paul Young
+ - When someone loves you, the way they talk about you is different. You feel safe and comfortable. ~~Jess C. Scott
+ - It is a truth universally acknowledged, that a single man in possession of a good fortune, must be in want of a wife. ~~Jane Austen
+ - Try to be a rainbow in someone’s cloud. ~~Maya Angelou
+ - You can close your eyes to the things you don’t want to see, but you can’t close your heart to the things you don’t want to feel. ~~Johnny Depp
+ - Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world. ~~Lucille Ball
+ - The greatest weakness of most humans is their hesitancy to tell others how much they love them while they’re alive. ~~O. A. Battista
+ - My pain may be the reason for somebody’s laugh. But my laugh must never be the reason for somebody’s pain. ~~Charlie Chaplin
+ - I like to listen. I have learned a great deal from listening carefully. Most people never listen. ~~Ernest Hemingway
+ - The best way to find out if you can trust somebody is to trust them. ~~Ernest Hemingway
+ - A successful marriage requires falling in love many times, always with the same person. ~~Mignon McLaughlin
+ - Ever has it been that love knows not its own depth until the hour of separation. ~~Khalil Gibran
+ - If you want others to like you, if you want to develop real friendships, if you want to help others at the same time as you help yourself, keep this principle in mind: Become genuinely interested in other people. ~~Dale Carnegie
+ - What counts in making a happy marriage is not so much how compatible you are but how you deal with incompatibility. ~~Leo Tolstoy
+ - Kindness is a language which the deaf can hear and the blind can see. ~~Mark Twain
+ - Live so that when your children think of fairness, caring, and integrity, they think of you. ~~H. Jackson Brown Jr.
+ - He who cannot forgive breaks the bridge over which he himself must pass. ~~George Herbert
+ - The single biggest problem in communication is the illusion that it has taken place. ~~George Bernard Shaw
+ - The good life is one inspired by love and guided by knowledge. ~~Bertrand Russell
+ - When someone shows you who they are believe them; the first time. ~~Maya Angelou
+ - To live in this world, you must be able to do three things: to love what is mortal; to hold it against your bones knowing your own life depends on it; and, when the time comes to let it go, to let it go. ~~Mary Oliver
+ - It is better to know some of the questions than all of the answers. ~~James Thurber
+ - Kindness is the light that dissolves all walls between souls, families, and nations. ~~Paramahansa Yogananda
+ - Love unlocks doors and opens windows that weren’t even there before. ~~Mignon McLaughlin
+ - Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing. ~~Elie Wiesel
+ - One person caring about another represents life’s greatest value. ~~Jim Rohn
+ - Trust is the glue of life. It’s the most essential ingredient in effective communication. It’s the foundational principle that holds all relationships. ~~Stephen R. Covey
+ - Laugh and the world laughs with you, snore and you sleep alone. ~~Anthony Burgess
+ - If you can give your child only one gift, let it be enthusiasm. ~~Bruce Barton
+ - Could a greater miracle take place than for us to look through each other’s eyes for an instant? ~~Henry David Thoreau
+ - The deepest principle in human nature is the craving to be appreciated. ~~William James
+ - If you enter this world knowing you are loved and you leave this world knowing the same, then everything that happens in between can be dealt with. ~~Michael Jackson
+ - I swear, by my life and my love of it, that I will never live for the sake of another man, nor ask another man to live for mine. ~~Ayn Rand
+ - Don’t smother each other. No one can grow in the shade. ~~Leo Buscaglia
+ - Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. ~~Albert Schweitzer
+ - Our children are our only hope for the future, but we are their only hope for their present and their future. ~~Zig Ziglar
+ - There is no more lovely, friendly and charming relationship, communion or company than a good marriage. ~~Martin Luther
+ - Science may have found a cure for most evils; but it has found no remedy for the worst of them all – the apathy of human beings. ~~Helen Keller
+ - I have realized that the past and future are real illusions, that they exist in the present, which is what there is and all there is. ~~Alan Watts
+ - You can take my factories, burn up my buildings, but give me my people and I’ll build the business right back again. ~~Henry Ford
+ - Happiness equals reality minus expectations. ~~Tom Magliozzi
+
+58 quotes

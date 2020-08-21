@@ -1,0 +1,31 @@
+ - I never look back, I look forward.
+ - You can’t measure success if you have never failed.
+ - You can’t measure success if you have never failed. My father has taught me that if you really do want to reach your goals, you can’t spend any time worrying about whether you’re going to win or lose. Focus only on getting better.
+ - I never hanker after the past – I prefer to devote myself to new tasks.
+ - As long as I can focus on enjoying what I’m doing, having fun, I know I’ll play well.
+ - I don’t like the word ‘businesswoman.’ Perhaps ‘committed mother’ would be the best description.
+ - It doesn’t hurt to lose my crown, it hurts to lose.
+ - My big dream was to work as a photographer for ‘National Geographic.’
+ - When you lose a couple of times, it makes you realize how difficult it is to win.
+ - I’ve thrown away lots of my old diaries – you never know who might get their hands on them. But I have kept a few notes on the good old days.
+ - There is no relief at it being over. There is the joy of winning it.
+ - You can have a certain arrogance, and I think that’s fine, but what you should never lose is the respect for the others.
+ - I am a person who sticks to her word.
+ - I suppose it’s amazing how quick life goes by when you have children.
+ - Sometimes I wish I could have been a bit more relaxed, but then I wouldn’t have been the same player.
+ - If you go to a big city anywhere in the world and you need a doctor, just ask me. I can tell you who’s good and who’s bad. I’ve even considered writing a guidebook.
+ - I have always been guided by striving to show the best that I could. That is what kept me going in tennis and it is the same now.
+ - It shifted attention away from that and Ive never been someone who liked the attention from the media anyway.
+ - I don’t wake up every day and think about which tournaments I won and which titles I hold. It’s something I don’t care about.
+ - I appreciate very much being injury-free.
+ - I think it takes people to get to know you and the recognition comes over time.
+ - The tennis wasn’t really very much on my mind, so it wasn’t like I was thinking about it all the time.
+ - You cannot compare your athletic achievement to the importance of children and giving them a safe environment in which to grow up and enjoy life.
+ - Ive been taught very early on that if you want to win a tournament youve got to beat anybody, and hopefully I play well and enjoy it.
+ - I knew that maybe I couldn’t be playing again, but I just wanted to get in physical shape.
+ - Tennis has always been a big challenge to me and to be able to play that kind of tennis – well, only tennis can produce these feelings for me.
+ - It’s so difficult to find time besides the tennis.
+ - Grass is a surface I have always loved, Wimbledon is a tournament I have always loved.
+ - Age, what is it? It’s not a figure that has ever meant anything to me.
+
+29 quotes

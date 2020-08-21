@@ -1,0 +1,21 @@
+ - Once the grammar has been learned, writing is simply talking on paper and in time learning what not to say.
+ - Everything else you grow out of, but you never recover from childhood.
+ - The sun burnt on, drugging everything with warmth.
+ - What we remember is probably fiction anyway.
+ - The older one becomes the quicker the present fades into sepia and the past looms up in glorious technicolour.
+ - I am of the firm belief that everybody could write books and I never understand why they don’t. After all, everybody speaks. Once the grammar has been learnt it is simply talking on paper and in time learning what not to say.
+ - The vital accessories to my work are my reference books, such as the complete Shakespeare and a prayer book, and a large refuse bin.
+ - There are many things in this life capable of throwing people off course – the death of someone close, the loss of income or health, the realisation that cherished hopes cannot always be fulfilled.
+ - There is nothing more guaranteed to reduce a man to the essentials than to live beneath the sky.
+ - It is the generation of the unemphatic. Steal, kill, lie, fornicate, but beware of indulging with conviction.
+ - It seems to me that a mutually beneficial relationship between a man and woman requires the man to be dominant. A sensible woman will allow the man to think he is the most important partner.
+ - Women are programmed to love completely, and men are programmed to spread it around. We are fools to think it’s any different.
+ - I’ve never been drawn to the feminist movement. I was brought up to believe that men had little to do with the home or children – except to bring in the money.
+ - Moonlight lined the windowsills like a fall of snow.
+ - Well, I woke up one morning around Christmas, went as far as the shops, and when I got to the corner I felt this violent pain in me left leg. I mentioned it to my daughter and she took me instantly to the hospital. It turned out it was vasculitis. In other words, you can have your leg off.
+ - When passion is mutual, there is always the danger of the fire burning to ashes.
+ - Emotions weren’t like washing. There was no call to peg them out for all the world to view.
+ - Being constantly with children was like wearing a pair of shoes that were expensive and too small. She couldn’t bear to throw them out, but they gave her blisters.
+ - The prize I value most was given to me 60 years ago. I was named the girl with the cleanest fingernails.
+
+19 quotes

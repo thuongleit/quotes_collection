@@ -1,0 +1,28 @@
+ - Fall in love. Every day. With everything. With life. If you can fall in love, you can be a photographer. I think that is absolutely essential.
+ - Everything is one and I am one with it.
+ - The ground we walk on, the plants and creatures, the clouds above constantly dissolving into new formations – each gift of nature possessing its own radiant energy, bound together by cosmic harmony.
+ - There is nothing unimportant in the universe.
+ - It is so basic. A human being is an innocent part of nature. Our civilization has distorted this universal quality that allows us to feel at home in our skin. Other animals have coats that they accept, but the human race has yet to come to terms with being nude.
+ - What the human eye sees is an illusion of what is real. The black and white image transforms illusions into another reality.
+ - If you are not willing to see more than is visible, you won’t see anything.
+ - I always said ‘yes’ to everything.
+ - If youre not interested in life, then photography has no meaning.
+ - Never ever say the word shoot when you are taking a picture with a camera because a camera is not a violent weapon.
+ - Photography is art when it’s used by an artist.
+ - The human body represents to me the same universal innocence, timelessness and purity of all seed pods, suggesting the mother as well as the child, the parental as well as the descendant, conceived according to nature’s longings.
+ - There is no such thing as taking too much time, because your soul is in that picture.
+ - Light is my inspiration, my paint and brush. It is as vital as the model herself. Profoundly significant, it caresses the essential superlative curves and lines. Light I acknowledge as the energy upon which all life on this planet depends.
+ - I never question what to do, it tells me what to do. The photographs make themselves with my help.
+ - Woman has been the target of much that is sordid and cheap, especially in photography. To raise, to elevate, to endorse with timeless reverence the image of woman, has been my mission.
+ - You have to follow your instinct all the time. Otherwise you don’t make it.
+ - My quest, through the magic of light and shadow, is to isolate, to simplify and to give emphasis to form with the greatest clarity. To indicate the ideal proportion, to reveal sculptural mass and the dominating spirit is my goal.
+ - Often I have struggled for days to get the image of the photograph to overlap the spirit I see. It is an awesome responsibility, and a lonely one.
+ - A person cannot learn to be a photographer. He can only cultivate what he already has. I try to make people aware that they have something very precious to cultivate.
+ - Every day I am aware of the flow and constant change; perhaps I am at the edge of discovering what more our bodies might be able to teach about the spirit of life. At least, I am always exploring and trying to understand our relationship to the whole universe.
+ - Light is my inspiration. My photographic images search for dimensions that words cannot touch- the result of intense responses to personal experiences. I do not wish to “record,” but rather to touch upon the illusive meanings which I perceive and try to comprehend in this limitless universe.
+ - I never look for a photograph. The photograph finds me and says, I’m here! and I say, Yes, I see you. I hear you.
+ - If you can’t make the image bigger or more important than what you see, then don’t push the button.
+ - I expect photographs to find me. I never thought of looking for them. I instinctively put them there. My intellect had nothing to do with it.
+ - If you are not passionately devoted to an idea, you can make very pleasant pictures but they won’t make you cry.
+
+26 quotes

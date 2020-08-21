@@ -1,0 +1,88 @@
+ - That’s my secret Cap: I’m always angry.
+ - You can tell a lot about a person by what’s on their playlist.
+ - Climate change is the greatest threat to our existence in our short history on this planet. Nobody’s going to buy their way out of its effects.
+ - Also, stick around. Don’t lose your heart, just keep going, keep at it.
+ - Love conquers all – love is the grace that transcends any kind of injustice in the end.
+ - I became an actor so I didn’t have to be myself.
+ - Burning natural gas will not save us from climate change. It’s the same as burning any other carbon-based fuel.
+ - I have a carpool with a corrections officer and a construction worker. My kids get to see that we’re not segregated based on wealth or standing. It’s very cool.
+ - I think of marriage as a garden. You have to tend to it. Respect it, take care of it, feed it. Make sure everyone is getting the right amount of, um, sunlight.
+ - Even if my movies weren’t big blockbusters, directors generally liked me, so they would fight for me.
+ - I always like having kid energy around. I think it’s good for a movie, even when you’re doing dramatic stuff.
+ - After the brain tumor happened, I realized I love acting, I’ve always loved it, I may never get a chance to do it again.
+ - I grew up on Lake Michigan during the PCB explosion, and I remember seeing the sick, dead fish with tumors, the weird deformed seagulls, the scum and the filth floating. We couldn’t go swimming.
+ - Whoever controls your energy controls your destiny. 100 percent renewable energy is 100 percent American.
+ - People who are slavish to a fantasy ideology become very lonely in the world. It’s very alienating and sometimes reality is very threatening to this magical way of thinking. On the other hand, if it is a politician or leader that chooses for whatever reason to remain.
+ - My kids get very upset with me when I leave to do film work, but they have a lot of patience with me when I leave to do environmental work.
+ - People are like, ‘How does Julianne Moore look naked?’ I don’t know. She was pressed up against me the whole time. I couldn’t look at her.
+ - Climate change is not going away. It will only get more extreme and more dangerous with time. There is no hiding from it. Yes, those living in poverty today will be hit first and the hardest, but we are all going to feel it and see it. We already are.
+ - It is a fact that many of the wars and conflicts happening all over the world are aggravated or fought strictly for geopolitical fossil fuel energy interests, and many of the world’s most dangerous regimes are funded by fossil fuel dollars.
+ - People say funny things all the time during really serious moments in life.
+ - I don’t understand how people can take a gentle, loving life and treat it with such cruelty.
+ - It’s easy to do nothing, but your heart breaks a little more every time you do.
+ - Graduates, I’m asking each of you, at some point, to act up, be misbehaved. Buck the system. Fight for what you believe in. This is the time to do it. You’re the ones to do it. Your world, is like no other generation, you actually get to create the world that you can imagine.
+ - We’re clearly coming to the end of the fossil fuel era. We have the technology to shift to renewable energy, we have the will of the people. The only thing that’s keeping us back is the fossil fuel industry’s hold on our political system. That’s what we need to change.
+ - I’d never seen anyone do a rebuttal review to some of the reviews.
+ - There’s a misperception about actors that we actually choose the roles we end up doing – it’s more that we’re chosen for them.
+ - My own mother fought to make herself more than a possession; she lived her life as a mother who chose when she would have children, and a wife who could earn a living if she so chose. I want my daughters to enjoy that same choice.
+ - I didn’t like the distance between my family and myself that I was experiencing from having to work all the time.
+ - I live a bourgeois life.
+ - It is a fact that, up to seven million people a year are dying from fossil fuel pollution. It is a fact that we are already dealing with the catastrophe of climate change in places like California, where people have been burnt out of their homes and where they are dealing with record droughts.
+ - The idea of selling is a projection that people create about people that is more of a reflection of who they are than what is actually happening in front of them with the artist.
+ - And my mother caught wind of this. She never had really tried to guide my career or really had any say in my life as an adult, but this was the one time she said she would never speak to me again if I quit acting.
+ - Commercials that are geared towards kids. I think they should just, like, wipe them out.
+ - The problem to me is violence. It’s not cool to kill somebody or hurt people.
+ - The biggest industry hoax is that the United States can’t move to renewable energy now. It’s a lie.
+ - A leader in America or anyone who says they truly care about this nation without taking some kind of action is either a liar or insane. In either case, they are unfit to lead.
+ - I enjoyed growing up part of my life in Virginia Beach. We had the ocean and the beach and a beautiful landscape.
+ - My belief about acting in one foot on a banana peel and the other one in the grave.
+ - As an actor, you want to remain vulnerable. You don’t want to always have all the answers and you want to be fine doing things in the moment with your fellow actors.
+ - Trying to find the story within the story was hard. Filmmaking is such a reductive process in a strange way and you keep whittling away to what is essential.
+ - My dad sent me a text saying, ‘You know who you should play? Columbo. That’s your Academy Award.’
+ - I like to disappear in the parts I play.
+ - Each role, I feel like takes you on a different journey based on who that character is.
+ - I haven’t had such an overwhelmingly positive response as I have from The Normal Heart directly to me. And it’s a blessing. If this is it, if I have a piano dropped on me tomorrow, then I would go down thinking, You know what, I did okay as far as my career goes, because that’s a gift. That’s rare.
+ - We are turning our grief into winnable actions.
+ - But, the relationships that I see work – As long as they’re telling the truth, and saying the things that you don’t ever want to have to say to another human being.
+ - When you have to fight for the things you love, you have to measure the value of those things in ways you may not in any other way.
+ - Tom McCarthy said to me, ‘Buddy, you got an Oscar nomination through that haircut! That’s the real feat, man.’
+ - I ran to my marriage, I was happily ready to take on marriage.
+ - I remember riding my bike down the boardwalk with nowhere to go and looking at the girls. It was really innocent.
+ - That was an interesting aspect: to go to war with the Church to fight for the very thing that the Church was meant to give to people.
+ - There’s a level of trust that you have to have with somebody.
+ - By electrifying our lives, we reduce our energy costs by 39 percent, which is a huge savings in itself.
+ - I do readings at the public library. I just did a benefit scene night for my old acting teacher.
+ - I’m very nervous in the beginning and then I get in there and start doing my work and I feel more comfortable.
+ - My first cut was three hours and 17 minutes. And then I just became very shrewd about the editing.
+ - Nothing anyone says in a bar is true.
+ - I don’t want to feel like I’m stuck doing one-stock performances.
+ - Studio movies are looking more like independent movies and independent movies are looking more like studio movies, and I think cinema is better now because of it.
+ - I know what it’s like to have these big multinational corporations invade your land and promise jobs and promise it’s gonna be safe, and then you see the consequences.
+ - Actors, you kind of have these ebbs and flows. These moments where you’re in your glory – where you’re really cracking – and moments where you’re not.
+ - I became really aware that when you’re making a movie, you’re making it three times. You’re making it when you’re writing it. You’re making it when you’re shooting it. And then you’re remaking it again when you’re editing it.
+ - I’ve just been more interested in doing film right now and I don’t want to go away from my family for six months, which was what I would have had to have done if I did the play on Broadway.
+ - I got into acting because I wanted to act and I love acting. That’s my true north: to be creative and to be challenged in what I love to do.
+ - As an actor, I started using dreams more, which is not mystical or anything like that. I just found that I’ve been using that as a tool to give me another point of view towards the work. It’s often surprising but really helpful.
+ - I like extremes. I like to change things up and keep from getting complacent or stale.
+ - Some of my favorite scenes aren’t in the movie. Because you, at some point, realize that your responsibility as director is purely to the story. It’s not to your pleasure.
+ - It’s a point of pride that no one would treat me any differently because I’m an actor than if I was a gardener.
+ - I still feel like I’m trying to make it. It’s hard to shed the struggling actor thing.
+ - Literally, I think I’ve quit acting three or four times, only for a few days. Maybe for a few weeks.
+ - Artists have always been the front line; that’s part of our responsibility. But a lot of the big actors come out, they get slammed, and then they retreat.
+ - Do theater. Because you’ll develop a craft that you’ll always have. It’ll give you a chance to really learn how to act and you won’t go into the world with a few measly tricks that will only carry you so far.
+ - Most great parts for guys in wheelchairs tend to go to actors who walk.
+ - When you’re trying to do character work that’s different from what people expect from you, you’re sort of in territory that is uncharted, and you don’t know how it’s playing all the time.
+ - I come from a traditional theater background.
+ - I have a bag full of stuff that I give to people when they come to my house.
+ - I love acting and I love it in all its different manifestations.
+ - I don’t know, one out of every two marriages ends up in divorce so there’s a lot of great people out there who people aren’t happy with.
+ - When you’re on the road, you sort of go crazy and being away from your family you get stir-crazy and lonely, so I try to keep myself involved as much as possible.
+ - Certainly, it’s very easy to fall in love with cash. If you’re going to make all your decisions based on cash, you’re going to have a pretty naffy career.
+ - Yeah, there’s a tendency to get pigeonholed in Hollywood.
+ - I like to think the movies that I’ve picked have something worthwhile to say. Something relevant.
+ - I had to work on a Marlin boat, like gutting fish, like as the bait boy.
+ - I think people ought to realize that if you’re doing investigative reporting, you’re putting something on your newspaper or on your website that no one can get anywhere else, and theoretically at least, that should make people subscribe.
+ - I didn’t really have any interest in producing anything.
+ - I try to do the things that speak to me in one way or another, and sometimes I’m even drastic.
+
+86 quotes

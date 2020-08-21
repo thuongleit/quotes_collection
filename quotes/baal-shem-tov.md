@@ -1,0 +1,29 @@
+ - Fear builds walls to bar the light.
+ - Everybody is unique. Compare not yourself with anybody else lest you spoil God’s curriculum.
+ - There is no room for God in the man who is filled with himself.
+ - Before you can find God, you must lose yourself.
+ - Mind is the foundation of man.
+ - Forgetfulness leads to exile while remembrance is the secret of redemption.
+ - Everything above and below is one unity.
+ - For my sake, the entire world was created.
+ - As man acts, God reacts.
+ - Whenever feeling downcast, each person should vitally remember, “For my sake, the entire world was created.”
+ - Telling the proper stories is as if you were approaching the throne of Heaven in a fiery chariot.
+ - The world is new to us every morning – and every man should believe he is reborn each day.
+ - Your fellow man is your mirror. If your own face is clean, the image you perceive will also be flawless. But should you look upon your fellow man and see a blemish, it is your own imperfection that you are encountering – you are being shown what it is that you must correct within yourself.
+ - He who is full of joy is full of love.
+ - To pull a friend out of the mire, don’t hesitate to get dirty.
+ - Unless we believe that God renews creation every day, our prayers grow habitual and tedious.
+ - From every human being there rises a light.
+ - If a man has beheld evil, he may know that it was shown to him in order that he learn his own guilt and repent; for what is shown to him is also within him.
+ - A broom sweeps clean, and itself becomes soiled; cleanse yourself of those offenses of which you may feel guilty.
+ - If the Bible didn’t show us the weaknesses, the vulnerabilities, the sins of our heroes, we might have deep questions about their true virtue.
+ - Pleasures are manifestations of God’s name.
+ - I am going out one door, and shall go through another.
+ - The central aspect of worship is the feeling of being at one with God.
+ - When a father complains that his son has taken to evil ways, what should he do? Love him more than ever.
+ - The ideal of man is to be a revelation himself, clearly to recognize himself as a manifestation of God.
+ - For any of us to come to the understanding that we are common and unlearned is the accomplishment of a lifetime.
+ - People should allow themselves the opportunity to really know what the unity of God means. To grasp a part of the nondivisible union is to grasp the whole.
+
+27 quotes

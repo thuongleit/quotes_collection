@@ -1,0 +1,81 @@
+ - When fascism comes to the United States it will be wrapped in the American flag and will claim the name of 100-percent Americanism.
+ - Under a tyranny, most friends are a liability. One quarter of them turn “reasonable” and become your enemies, one quarter are afraid to speak, and one quarter are killed and you die with them. But the blessed final quarter keep you alive.
+ - It is impossible to discourage the real writers – they don’t give a damn what you say, they’re going to write.
+ - I love America, but I don’t like it.
+ - He who has seen one cathedral ten times has seen something; he who has seen ten cathedrals once has seen but little; and he who has spent half an hour in each of a hundred cathedrals has seen nothing at all.
+ - Men die, but the plutocracy is immortal; and it is necessary that fresh generations should be trained to its service.
+ - We’d get sick on too many cookies, but ever so much sicker on no cookies at all.
+ - It is, I think, an error to believe that there is any need of religion to make life seem worth living.
+ - Intellectually I know that America is no better than any other country; emotionally I know she is better than every other country.
+ - The most important part of living is not the living but the pondering upon it.
+ - It’s one of our favorite American myths that broad plains necessarily make broad minds, and high mountains make high purpose.
+ - There are so many people in the world who are eager to do for you things that you do not wish done, provided only that you will do for them things that you don’t wish to do.
+ - Curiously, neither God nor the devil may wear modern dress, but must retain Grecian vestments.
+ - In fact, the whole thing about prohibition is this: it isn’t the initial cost, it’s the humidity.
+ - There are two insults which no human being will endure: The assertion that he hasn’t a sense of humor, and the doubly impertinent assertion that he has never known trouble.
+ - Every man is a king so long as he has someone to look down on.
+ - It isn’t what you earn but how spend it that fixes your class.
+ - Cure the evils of Democracy by the evils of Fascism! Funny therapeutics! I’ve heard of their curing syphilis by giving the patient malaria, but I’ve never heard of their curing malaria by giving the patient syphilis.
+ - Winter is not a season, it’s an occupation.
+ - She was snatched back from a dream of far countries, and found herself on Main Street.
+ - Advertising is a valuable economic factor because it is the cheapest way of selling goods, particularly if the goods are worthless.
+ - Vast is the power of cities to reclaim the wanderer.
+ - NOW is a fact that cannot be dodged.
+ - Most troubles are unnecessary. We have Nature beaten; we can make her grow wheat; we can keep warm when she sends blizzards. So we raise the devil just for pleasure – wars, politics, race-hatreds, labor-disputes.
+ - People will buy anything that is one to a customer.
+ - What is love? It is the morning and the evening star.
+ - You’re so earnest about morality that I hate to think how essentially immoral you must be underneath.
+ - The greatest mystery about a human being is not his reaction to sex or praise, but the manner in which he contrives to put in twenty-four hours a day. It is this which puzzles the longshoreman about the clerk, the Londoner about the bushman.
+ - The Maker of the universe with stars a hundred thousand light-years apart was interested, furious, and very personal about it if a small boy played baseball on Sunday afternoon.
+ - Thus Carol hit upon the tragedy of old age, which is not that it is less vigorous than youth, but that it is not needed by youth...
+ - Every compulsion is put upon writers to become safe, polite, obedient, and sterile. In protest, I declined election to the National Institute of Arts and Letters some years ago, and now I must decline the Pulitzer Prize.
+ - There is no greater compliment to the Jews than the fact that the degree of their unpopularity is always the scientific measure of the cruelty and silliness of the regime under which they live.
+ - Love is the one thing that can really sure-enough lighten all of life’s dark clouds.
+ - Pugnacity is a form of courage, but a very bad form.
+ - Since dictating the Bible, and hiring a perfect race of ministers to explain it, God has never done much but creep around and try to catch us disobeying it.
+ - In other countries, art and literature are left to a lot of shabby bums living in attics and feeding on booze and spaghetti, but in America the successful writer or picture-painter is indistinguishable from any other decent businessman.
+ - Do you think it’s so snobbish, to want to see something besides one’s fellow citizens abroad?
+ - The one thing that can be more disconcerting than intelligent hatred is demanding love.
+ - So much in a revolution is nothing but waiting.
+ - Every compulsion is put upon writers to become safe, polite, obedient, and sterile.
+ - Is it possible that nobody has ever known that there never has been a completely civilized man, and won’t be for another thousand years?
+ - Unhappy women are given to protecting their sensitiveness by cynical gossip, by whining, by high-church and new-thought religions, or by a fog of vagueness.
+ - Damn the great executives, the men of measured merriment, damn the men with careful smiles, damn the men that run the shops, oh, damn their measured merriment.
+ - Writers have a rare power not given to anyone else: we can bore people long after we are dead.
+ - In everything was the spirit of children’s play – not the rule-ridden, time-killing play of adults that is a preparation for death, but the busy and credulous play of children that is a preparation for life.
+ - A sensational event was changing from the brown suit to the gray the contents of his pockets. He was earnest about these objects. They were of eternal importance, like baseball or the Republican Party.
+ - She did her work with the thoroughness of a mind which reveres details and never quite understands them.
+ - Whatever the misery, he could not regain contentment with a world which, once doubted, became absurd.
+ - Think how much better it is to criticize conventional customs if you yourself live up to them, scrupulously.
+ - To a true-blue professor of literature in an American university, literature is not something that a plain human being, living today, painfully sits down to produce. No; it is something dead.
+ - There are dozens of young poets and fictioneers most of them a little insane in the tradition of James Joyce, who, however insane they may be, have refused to be genteel and traditional and dull.
+ - It is one of the major tragedies that nothing is more discomforting than the hearty affection of the Old Friends who never were friends.
+ - Funny how the world always praises its opera-singers so much and pays ’em so well and then starves its shoemakers, and yet it needs good shoes so much more than it needs opera – or war or fiction.
+ - On the whole, with scandalous exceptions, Democracy has given the ordinary worker more dignity than he ever had.
+ - Our American professors like their literature clear and cold and pure and very dead.
+ - He loved the people just as much as he feared and detested persons.
+ - Writers kid themselves-about themselves and other people. Take the talk about writing methods. Writing is just work-there’s no secret. If you dictate or use a pen or type with your toes-it is just work.
+ - Indians, of course, have no “theology,” and indeed no word for the system of credulity in which the white priests arrange for God, who must be entirely bewildered by it, a series of excuses for his failures.
+ - You have more people that love you than you know.
+ - I have faith in Faith, I have reverence for all true Reverence.
+ - The middle class, that prisoner of the barbarian 20th century.
+ - Except for half a dozen in each town the citizens are proud of that achievement of ignorance which is so easy to come by. To be ‘intellectual’ or ‘artistic’ or, in their own word, to be ‘highbrow,’ is to be priggish and of dubious virtue.
+ - When audiences come to see us authors lecture, it is largely in the hope that we’ll be funnier to look at than to read.
+ - Winter is not a season in the North Middlewest; it is an industry.
+ - It has not yet been recorded that any human being has gained a very large or permanent contentment from meditation upon the fact that he is better off than others.
+ - Don’t be a writer. Writing is an escape from something. You be a scientist.
+ - I must say I’m not very fond of oratory that’s so full of energy it hasn’t any room for facts.
+ - I was brought up to believe that the Christian God wasn’t a scared and compromising public servant, but the creator of the whole merciless truth, and I reckon that training spoiled me – I actually took my teachers seriously!
+ - That nation is proudest and noblest and most exalted which has the greatest number of really great men.
+ - There was much conversation, most of which sounded like the rest of it.
+ - Why is it that traveling Americans are always so dreadful?
+ - I can not understand why ministers presume to deliver sermons every week at appointed hours because it is humanly impossible for inspirations to come with clock-like regularity.
+ - People read fiction for emotion-not information.
+ - Sleep with me sleep with my dogs-.
+ - When you think that most of us are doomed by divine grace to roast in hell, to say nothing of mortgages and hail and bad crops and extravagant womenfolks, ’tain’t any laughing matter!
+ - It might be the doing of Satan, in whom Aaron anxiously believed with all of his being except, perhaps, his mind.
+ - What are these unheard of sins you condemn so much – and like so well?
+ - Being a man given to oratory and high principles, he enjoyed the sound of his own vocabulary and the warmth of his own virtue.
+ - Fine, large, meaningless, general terms like romance and business can always be related. They take the place of thinking, and are highly useful to optimists and lecturers.
+
+79 quotes

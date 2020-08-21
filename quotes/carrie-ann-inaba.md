@@ -1,0 +1,24 @@
+ - One of the best gifts you can give to an animal is a donation of a blanket to your local animal shelter during the winter months.
+ - I come from a dancing background, and I know it’s stereotypical, but I would dance because I wasn’t comfortable speaking to people.
+ - My poor vision gives me a soft-focus morning. For the first half hour, I kind of wander through my house, and everything is a blur. I put my contacts in when I’m ready to deal with the world.
+ - I love fresh fruit and vegetables. I’m not a strict dieter. I don’t think that anything in life should be so regimented that you’re not having fun or can’t enjoy like everybody else. Just know that fresh food is always going to be better for you.
+ - I started my career as a singer in Japan, but left it all behind to focus on my dancing career.
+ - During the first couple of years of ‘Dancing with the Stars,’ I would go to Jack in the Box in my ball gown after the shows and get the Taco Nachos with cheese as my reward.
+ - JLo and I did not get along well when we worked together. I don’t think there’s love lost. I don’t know if there was a lot of love from the very beginning.
+ - I love soup ’cause I don’t like to cook. It’s so easy to prepare, and it fills you up and gives you all the nutrients you need. It’s a well-balanced meal, but you don’t have to do a lot of preparation.
+ - I have arthritis. The space around my spinal cord has become compressed.
+ - I wasn’t a ballet baby. My first dance class was in an outdoor pavilion when I was three. It was called ‘creative movement.’ The teacher gave us chiffon scarves in beautiful colors. She turned on some music and said, ‘Now go dance.’ So for me, dance has always been about self-expression.
+ - Love is the one thing in life that makes everything worthwhile.
+ - I’ve always gone out with much younger guys. But I rushed into relationships before really getting to know the person. What would come up as a warning sign within the first two weeks of dating would usually be the exact reason the relationship would end!
+ - I love pets and I love animals, and I just got a new puppy, a new rescue named Peanut. She’s a tiny little Chihuahua mix.
+ - I’ve really become super active in rescuing animals, and it has made my life feel so much better. I can’t even express to you how happy it has made me.
+ - I’ve never been supercritical about my body.
+ - I’m considering going back to school to become a registered dance therapist.
+ - I really do want to have a child.
+ - Somehow when I express my voice, I feel that much more vulnerable. For instance, if I used the wrong word, or if I said something and somebody could take the word and misinterpret it.
+ - I don’t need that much to live – we don’t need that much to have a wonderful life. I learned that from animals.
+ - I love the show ‘Damages!’ I am truly addicted.
+ - I went through this phase where I thought pink and purple matched. To dance class, I’d wear purple tights and pink leg warmers and paint my shoes purple. It was really odd.
+ - I’m very lucky because I love fruit and to this day, that has saved me because I’d much rather have fruit than cookies.
+
+22 quotes

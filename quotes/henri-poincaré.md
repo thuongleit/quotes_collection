@@ -1,0 +1,78 @@
+ - The scientist does not study nature because it is useful; he studies it because he delights in it, and he delights in it because it is beautiful.
+ - It is through science that we prove, but through intuition that we discover.
+ - Mathematics is the art of giving the same name to different things.
+ - Mathematicians are born, not made.
+ - Geometry is the art of correct reasoning from incorrectly drawn figures.
+ - How is error possible in mathematics?
+ - It is far better to foresee even without certainty than not to foresee at all.
+ - There are no solved problems; there are only problems that are more or less solved.
+ - Science is built up of facts, as a house is with stones. But a collection of facts is no more a science than a heap of stones is a house.
+ - Doubting everything and believing everything are two equally convenient solutions that guard us from having to think.
+ - It is by logic that we prove, but by intuition that we discover. To know how to criticize is good, to know how to create is better.
+ - Thought is only a flash between two long nights, but this flash is everything.
+ - Intuition is more important to discovery than logic.
+ - If nature were not beautiful, it would not be worth knowing, and if nature were not worth knowing, life would not be worth living.
+ - Geometry is not true, it is advantageous.
+ - Often when works at a hard question, nothing good is accomplished at the first attack. Then one takes a rest, long or short, and sits down anew to the work. During the first half-hour, as before, nothing is found, and then all of a sudden the decisive idea presents itself to the mind.
+ - What is it indeed that gives us the feeling of elegance in a solution, in a demonstration?
+ - Mathematicians do not study objects, but relations among objects; they are indifferent to the replacement of objects by others as long the relations don’t change. Matter is not important, only form interests them.
+ - It is the harmony of the diverse parts, their symmetry, their happy balance; in a word it is all that introduces order, all that gives unity, that permits us to see clearly and to comprehend at once both the ensemble and the details.
+ - Most striking at first is the appearance of sudden illumination, a manifest sign of long unconscious prior work.
+ - Guessing before proving! Need I remind you that it is so that all important discoveries have been made?
+ - A small error in the former will produce an enormous error in the latter.
+ - Mathematics has a threefold purpose. It must provide an instrument for the study of nature. But this is not all: it has a philosophical purpose, and, I daresay, an aesthetic purpose.
+ - Point set topology is a disease from which the human race will soon recover.
+ - Every good mathematician should also be a good chess player and vice versa.
+ - The mind uses its faculty for creativity only when experience forces it to do so.
+ - It may happen that small differences in the initial conditions produce very great ones in the final phenomena.
+ - Thought must never submit, neither to a dogma, nor to a party, nor to a passion, nor to an interest, nor to a preconceived idea, nor to whatever it may be, save to the facts themselves, because, for thought, submission would mean ceasing to be.
+ - Experiment is the sole source of truth.
+ - One geometry cannot be more true than another; it can only be more convenient.
+ - All that is not thought is pure nothingness; since we can think only thoughts, and all the words we use to speak of things can express only thoughts, to say there is something other than thought is therefore an affirmation which can have no meaning.
+ - Pure logic could never lead us to anything but tautologies; it can create nothing new; not from it alone can any science issue.
+ - Sociology is the science with the greatest number of methods and the least results.
+ - We also know how cruel the truth often is, and we wonder whether delusion is not more consoling.
+ - Experiment is the sole source of truth. It alone can teach us something new; it alone can give us certainty.
+ - The task of the educator is to make the child’s spirit pass again where its forefathers have gone, moving rapidly through certain stages but suppressing none of them. In this regard, the history of science must be our guide.
+ - A very small cause, which escapes us, determines a considerable effect which we cannot ignore, and we say that this effect is due to chance.
+ - A cat is witty, he has nerve, he knows how to do precisely the right thing at the right moment.
+ - Analyse data just so far as to obtain simplicity and no further.
+ - What is a good definition? For the philosopher or the scientist, it is a definition which applies to all the objects to be defined, and applies only to them; it is that which satisfies the rules of logic. But in education it is not that; it is one that can be understood by the pupils.
+ - If we knew exactly the laws of nature and the situation of the universe at the initial moment, we could predict exactly the situation of the same universe at a succeeding moment.
+ - Ideas rose in clouds; I felt them collide until pairs interlocked, so to speak, making a stable combination.
+ - Mathematicians do not study objects, but relations between objects.
+ - But for harmony beautiful to contemplate, science would not be worth following.
+ - It is not order only, but unexpected order, that has value.
+ - A scientist worthy of his name, about all a mathematician, experiences in his work the same impression as an artist; his pleasure is as great and of the same nature.
+ - If one looks at the different problems of the integral calculus which arise naturally when one wishes to go deep into the different parts of physics, it is impossible not to be struck by the analogies existing.
+ - A sane mind should not be guilty of a logical fallacy, yet there are very fine minds incapable of following mathematical demonstrations.
+ - The mathematical facts worthy of being studied are those which, by their analogy with other facts, are capable of leading us to the knowledge of a physical law. They reveal the kinship between other facts, long known, but wrongly believed to be strangers to one another.
+ - Einstein does not remain attached to the classical principles, and when presented with a problem in physics he quickly envisages all of its possibilities. This leads immediately in his mind to the prediction of new phenomena which may one day be verified by experiment.
+ - If we wish to foresee the future of mathematics, our proper course is to study the history and present condition of the science.
+ - The aim of science is not things themselves, as the dogmatists in their simplicity imagine, but the relation between things.
+ - The subliminal self is in no way inferior to the conscious self. It knows how to choose and to divine.
+ - Doubt everything or believe everything: these are two equally convenient strategies. With either we dispense with the need for reflection.
+ - All of mathematics is a tale about groups.
+ - It is a misfortune for a science to be born too late when the means of observation have become too perfect. That is what is happening at this moment with respect to physical chemistry; the founders are hampered in their general grasp by third and fourth decimal places.
+ - Why is it that showers and even storms seem to come by chance, so that many people think it quite natural to pray for rain or fine weather, though they would consider it ridiculous to ask for an eclipse by prayer.
+ - Mathematical discoveries, small or great are never born of spontaneous generation.
+ - Just as houses are made of stones, so is science made of facts.
+ - Mathematical discoveries, small or great are never born of spontaneous generation They always presuppose a soil seeded with preliminary knowledge and well prepared by labour, both conscious and subconscious.
+ - Hypotheses are what we lack the least.
+ - One does not ask whether a scientific theory is true, but only whether it is convenient.
+ - To invent is to discern, to choose.
+ - It is the simple hypotheses of which one must be most wary; because these are the ones that have the most chances of passing unnoticed.
+ - In the old days when people invented a new function they had something useful in mind.
+ - But all of my efforts served only to make me better acquainted with the difficulty, which in itself was something.
+ - Logic sometimes makes monsters. For half a century we have seen a mass of bizarre functions which appear to be forced to resemble as little as possible honest functions which serve some purpose.
+ - For a long time the objects that mathematicians dealt with were mostly ill-defined; one believed one knew them, but one represented them with the senses and imagination; but one had but a rough picture and not a precise idea on which reasoning could take hold.
+ - Talk with M. Hermite. He never evokes a concrete image, yet you soon perceive that the more abstract entities are to him like living creatures.
+ - A reality completely independent of the spirit that conceives it, sees it, or feels it, is an impossibility. A world so external as that, even if it existed, would be forever inaccessible to us.
+ - Thus, be it understood, to demonstrate a theorem, it is neither necessary nor even advantageous to know what it means...
+ - Need we add that mathematicians themselves are not infallible?
+ - All great progress takes place when two sciences come together, and when their resemblance proclaims itself, despite the apparent disparity of their substance.
+ - One would have to have completely forgotten the history of science so as to not remember that the desire to know nature has had the most constant and the happiest influence on the development of mathematics.
+ - In one word, to draw the rule from experience, one must generalize; this is a necessity that imposes itself on the most circumspect observer.
+ - When the physicists ask us for the solution of a problem, it is not drudgery that they impose on us, on the contrary, it is us who owe them thanks.
+
+76 quotes

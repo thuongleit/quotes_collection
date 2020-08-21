@@ -1,0 +1,34 @@
+ - I didn’t become successful until I became myself.
+ - The greatest power of the mass media is the power to ignore. The worst thing about this power is that you may not even know you’re using it.
+ - I want to be rich in all the foods I’ve tasted and all the places I’ve been and all the people I’ve kissed.
+ - Thank you so much for breaking my heart because you got me four Grammys.
+ - Guess it’s true I’m not good at a one night stand, but I still need love cause I’m just a man.
+ - Deep water is what I am wont to swim in.
+ - No, I am not afraid; the Lord said he would protect me, and I have full confidence in His word.
+ - Kill me if you will, I am not afraid to die; and I have endured so much oppression that I am weary of life. But I am a strong man, and I could cast both of you down, if I would. If you have any legal process to serve, present it, for I am at all times subject to law and shall not offer resistance.
+ - One-hundred percent, even now I doubt myself. I don’t understand what people hear in my voice. I can’t hear it myself, if you know what I mean.
+ - Love as hard as you can, at all times.
+ - Everyone has sadness-I just get mine out in my music so that I can laugh and joke and flirt with you!
+ - In the Lonely Hour is about a guy that I fell in love with last year, and he didn’t love me back. I think I’m over it now, but I was in a very dark place. I kept feeling lonely in the fact that I hadn’t felt love before.
+ - Above all, we must understand that in leaving the toxic ways of the present we are healing ourselves, our places, and our planet. We rebel not as a last act of desperation but as a first act of creation.
+ - But there’s also moments where I’m like, ‘Ugh, I wish I had abs like Bieber.’
+ - Many persons think a prophet must be a good deal better than anybody else. Suppose I would condescend – yes, I will call it condescend, to be a great deal better than any of you. I would be raised to the highest heaven; and who should I have to accompany me?
+ - Joseph Smith, the Prophet and Seer of the Lord, has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived in it.
+ - Would to God, brethren, I could tell you WHO I am! Would to God I could tell you WHAT I know! But you would call it blasphemy and want to take my life!
+ - Men are in the habit, when the truth is exhibited by the servants of God, of saying, All is mystery; they have spoken in parables, and, therefore, are not to be understood. It is true they have eyes to see, and see not, but none are so blind as those who will not see.
+ - I’ve only been in unrequited relationships where people haven’t loved me back. I guess I’m a little bit attracted to that in a bad way.
+ - To control and enslave the minds of men, all one must do is convince them that a secret exists, and that he is privy to information regarding that secret; hence the power of priests and psychics.
+ - We should gather all the good and true principles in the world and treasure them up, or we shall not come out true Mormons.
+ - Polls are the corporate media’s standardized tests to determine how well we have learned what it has taught us.
+ - Go tell your general for me that if he does not immediately withdraw his men, I will send them to hell!
+ - There has been a great difficulty in getting anything into the heads of this generation. It has been like splitting hemlock knots with a corn-dodger for a wedge and a pumpkin for a beetle.
+ - There is one principle which is eternal; it is the duty of all men to protect their lives and the lives of the household, whenever necessity requires, and no power has a right to forbid it, should the last extreme arrive...
+ - Nature has no cure for this sort of madness, though I have known a legacy from a rich relative work wonders.
+ - A man is saved no faster than he gets knowledge, for if he does not get knowledge, he will be brought into captivity by some evil power in the other world.
+ - I have always placed my highest and most permanent hopes upon the eternity of the Communal situation.
+ - A news conference is a device by which the establishment keeps large numbers of reporters from covering the news every place else.
+ - There were a lot of people who were willing to write a letter for me. Not because I was academically inclined, but because I worked hard.
+ - If I had not actually got into this work and been called of God, I would back out. But I cannot back out: I have no doubt of the truth.
+ - If you’re seeking progress, all presidents are the opposition. You’re just fighting different kinds of battles -.
+
+32 quotes

@@ -1,0 +1,69 @@
+ - If you’re humble and hardworking, opportunities will arise for you.
+ - You know, food is such – it’s a hug for people.
+ - It’s continuously humbling to work hard, you know? As long as you’ve got a good work ethic and a sense of humor, I don’t think anybody can become too much of an egoist under those circumstances.
+ - I really believe there’s no such thing as accidents, only opportunities. God gives everyone the ingredients to a good, happy life. It’s up to us to make the most of them.
+ - Whatever it is you want to do, take a job in that field. You will learn by experience and, slow and steady, you’ll get it done!
+ - The most essential part of my day is a proper dinner.
+ - Everybody’s twelve years old in an apple orchard.
+ - I work too much to be an appropriate parent. I feel like a bad mom to my dog some days because I’m just not here enough. I just feel like I would do a bad job if I took the time to literally give birth to a kid right now and try and juggle everything I’m doing.
+ - I think having an animal in your life makes you a better human.
+ - When men I have dated over the years whined about, ‘Oh, you make no time for me’ – see ya! I just dumped them. I don’t need that pressure in my life.
+ - Work hard. Laugh when you feel like crying. Keep an open mind, open eyes and an open spirit.
+ - Be real. Make connections with people. Look them in the eye. Tell them how you feel. Don’t be afraid to say what you mean. When you let go of the stuff you hold inside, you’ll be amazed at what comes back to you.
+ - I do know what my first meal in the next world would be Spaghetti Aglio e Olio, heavy on everything.
+ - I started running 3 miles every morning after throat surgery to remove a cyst last year. The gym used to be my adversary. But that has all changed. Now, I look forward to it every morning.
+ - Good food and a warm kitchen are what makes a house a home. I always tried to make my home like my mother’s, because Mom was magnificent at stretching a buck when it came to decorating and food. Like a true Italian, she valued beautification in every area of her life, and I try to do the same.
+ - I used to say I would never run unless I was being chased by someone with a gun. Now I’m a little obsessed with it!
+ - Yum-O! I say this if something is so good that ‘yum’ just isn’t enough of an exclamation. The accent is on the ‘O’ as in, ‘Oh! That is so good!’
+ - My husband cooks fancier food for himself than I’ve ever cooked on-air. I call him from the road, and he’s making champagne-vanilla salmon or black-cherry pork chop. Half of me is feeling unworthy. Not only am I not a chef, I’m not a better cook than my own husband!
+ - I’m completely unqualified for any job I’ve ever had.
+ - You do it with your own two hands, so there’s a sense of pride. You really do forget all our problems, because you’re focusing on the food.
+ - Food was always a conduit in our family for storytelling, and it was a way for us to keep in touch and remember things. We’re people that use food to keep each other together and to always cheer us up and make all of our days better.
+ - I’m not a chef. I haven’t created any new technique in the kitchen. I’m not a rocket scientist. I think I’m good at writing accessible, fun, and affordable meals for the average American family. That’s what I think I’m good at.
+ - I don’t think young men or women should feel pressured into marriage. You shouldn’t marry anyone, in my opinion, who you have to try hard for.
+ - Never be a food snob. Learn from everyone you meet – the fish guy at your market, the lady at the local diner, farmers, cheese makers. Ask questions, try everything and eat up!
+ - I tried to bake a cake for my mother’s birthday – it took me four hours. It was terrible, and I cried for three days.
+ - I’m an all-things-in-moderation kind of person. I do eat a warm donut occasionally. I especially enjoy a cider donut when I’m apple picking. I don’t think there’s anything wrong with that.
+ - My mom, who’s been in the restaurant business for 40 years, is the number-one influence in my life. But I look up to a lot of people in the industry. Tops on my list is Mario Batali. My mom and Mario taught me the same lesson: Food is love.
+ - I’ve never been a huge sweets eater, and I’ve always loved a Mediterranean diet. We eat a lot of dark leafy greens, and a couple meals each week are meat-free. We enjoy eating a balanced diet.
+ - My first memory in life is grilling my thumb to the griddle in our restaurant on Cape Cod.
+ - I am burger obsessed and I love playing with the idea of what a burger can be for people. I make burgers out of everything from grains to seafood to, of course, browned meats of every kind. What I love about the burger is it makes food accessible and fun for everyone.
+ - I like feeling like an ox at the end of the day. I like working hard.
+ - I do sit-ups and push-ups at home, and that’s about it. I have a gym card, but I never go there. It’s a front. I pay for the membership every couple of years, thinking I’ll be embarrassed enough to go. But every time I go, there’s like people twice my age that look twice as good!
+ - I don’t categorize food as bad or a guilty pleasure.
+ - NASA asked me to create meals for the space shuttle. Thai chicken was the favorite. I flew in a fake space shuttle, but I have no desire to go into space after seeing the toilet.
+ - I wish I could be as thin as Jessica Simpson. I think she looks gorgeous! I have had Jessica on my show several times, and I can tell you that girl is genuine and funny with a great self-deprecating sense of humor.
+ - Make big pots of soups, stews and chilis – they stretch a buck, and you can live off them for days!
+ - What I’ve learned is that at the end of the day, we are all human. We all have that in common.
+ - When you really want to show some love, keep the flowers and say it with spaghetti.
+ - EVOO is extra-virgin olive oil. I first coined ‘EVOO’ on my cooking show because saying ‘extra virgin olive oil’ over and over was wordy, and I’m an impatient girl – that’s why I make 30-minute meals!
+ - I have this extraordinary life during the day, and then I get to come home to my sweet husband who loves to cook with me. I have a nice glass of wine, he has some scotch, we chat, we cook, and we hang out with the dog. I have an absolute dream life.
+ - I make a dog-friendly version of almost everything that we make for dinner.
+ - I have learned how to breathe, to use my cords differently. I had been tilting my head in a way when I talked that wasn’t good for my throat. I’ve been working on all of that, and it seems to be helping.
+ - You can laugh or you can cry. It is up to you which one you do.
+ - When I do a 30-minute meal, for instance, on Food Network, that’s my food you see at the end of the show and it’s not perfect. And if sometimes things break or drop or the pasta hits the wall when I’m draining it, they never stop tape. They just kind of let me go with it.
+ - I’ve also learned that you can’t be all things to all people. Whatever it is that you’re successful at, that has to be the No. 1 goal.
+ - When you’re out grocery shopping for your family, maybe you can put a can of cat or dog food in your cart and bring it to an animal relief center.
+ - We created a line of pet food called Nutrish that’s made to human standards, and 100 percent of the proceeds go to animal rescue. One of our top-tier donors is the ASPCA, and they help us challenge animal shelters all across the country to get more animals placed in homes.
+ - I have a fat head – I get freaked-out looking at pictures of me.
+ - That’s a horrible thought. I guess cheese or wine. I think I might be too depressed to eat if I had to eat only one thing for the rest of my life.
+ - You don’t feel as self-conscious if your clothes fit.
+ - I don’t have to write jokes. I don’t have to write insults. If you ask the man of the hour in the hot seat, my mere existence is clearly insult enough.
+ - I felt I’d earned the Good Housekeeping Seal when I designed an oval-shaped spaghetti pot, because spaghetti is long.
+ - I measure in my palm and use my eyes to estimate amounts; a tablespoon is a full palm of dried spices.
+ - Since I never get on a scale, I have no idea how much weight I’ve lost!
+ - If you want to look at the state of humans, you should look at the state of animals first. People are choosing whether or not they can feed an animal and their family. And every shelter coast-to-coast is stuffed.
+ - Whatever it is that you’re successful at, that has to be the No. 1 goal. In my case, it’s accessibility. So all of my products have to be usable, accessible, affordable.
+ - I used to work in kitchens, doing 12 or more hours a day of physical labor, so today, eight to 12 hours of cooking, chatting or filming feels like a vacation. When I have a scheduled ‘day off,’ I spend several hours writing, then I clean until I crash from fatigue. I don’t relax well.
+ - I had the lunchbox that cleared the cafeteria. I was very unpopular in the early grades. Because I hung out with my grandfather, I started to bring my lunchbox with sardine sandwiches and calamari that I would eat off my fingers like rings. I was also always reeking of garlic.
+ - I live in, literally, the same home when I was swiping my first bank card and wondering if I’d have to put back the Charmin. We still don’t have a dishwasher. My mom has done all these gardens so now my house looks like the garden shack in the middle of Versailles.
+ - I do 280 episodes of TV a year, write 15 recipes for the magazine, and publish an annual book. With all of that, we try to get one weekend a month with Isaboo at our home in the Adirondacks to relax and recharge.
+ - I think that celebrities are just people, like everybody else, and they’ve got the foodie bug in them too.
+ - I never do the dishes, because my husband has an affinity for it. And I’m also not allowed to touch the coffeemaker.
+ - Decide what it is that you are and then stay true to that thing. My brand is based very much on how I live my day-to-day life.
+ - It only looks like I get to eat a lot of food on TV. I really just get the one bite and the crew and guests eat everything else.
+ - I cook and I chat. That’s what I do. I love to write recipes, but basically, if you had to put it in a nutshell, I cook and I chat.
+ - I write in freehand equivalents because measuring, to me, takes away from the creative process of cooking. Two turns of the pan with EVOO is about two tablespoons.
+ - My dream job is to be a rock drummer and the alternate drummer for the Foo Fighters.
+
+67 quotes

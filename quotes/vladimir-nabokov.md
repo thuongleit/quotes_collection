@@ -1,0 +1,264 @@
+ - The cradle rocks above an abyss, and common sense tells us that our existence is but a brief crack of light between two eternities of darkness.
+ - And the rest is rust and stardust.
+ - I knew I had fallen in love with Lolita forever; but I also knew she would not be forever Lolita.
+ - Lolita, light of my life, fire of my loins. My sin, my soul.
+ - It was love at first sight, at last sight, at ever and ever sight.
+ - Curiously enough, one cannot read a book; one can only reread it. A good reader, a major reader, and active and creative reader is a rereader.
+ - Play! Invent the world! Invent reality!
+ - Curiosity is insubordination in its purest form.
+ - Caress the detail, the divine detail.
+ - The breaking of a wave cannot explain the whole sea.
+ - Some might think that the creativity, imagination, and flights of fancy that give my life meaning are insanity.
+ - A writer should have the precision of a poet and the imagination of a scientist.
+ - And yet I adore him. I think he’s quite crazy, and with no place or occupation in life, and far from happy, and philosophically irresponsible – and there is absolutely nobody like him.
+ - But in my arms she was always Lolita.
+ - Do not be angry with the rain; it simply does not know how to fall upwards.
+ - Complacency is a state of mind that exists only in retrospective: it has to be shattered before being ascertained.
+ - Ladies and gentlemen of the jury, exhibit number one is what the seraphs, the misinformed, simple, noble-winged seraphs, envied. Look at this tangle of thorns.
+ - Was she really beautiful? Was she at least what they call attractive? She was exasperation, she was torture.
+ - The lost glove is happy.
+ - Lolita, light of my life, fire of my loins. My sin, my soul. Lo-lee-ta: the tip of the tongue taking a trip of three steps down the palate to tap, at three, on the teeth. Lo. Lee. Ta.
+ - Life is a message scribbled in the dark.
+ - Don’t touch me; I’ll die if you touch me.
+ - In reading, one should notice and fondle details.
+ - The writer’s job is to get the main character up a tree, and then once they are up there, throw rocks at them.
+ - Literature was not born the day when a boy crying “wolf, wolf” came running out of the Neanderthal valley with a big gray wolf at his heels; literature was born on the day when a boy came crying “wolf, wolf” and there was no wolf behind him.
+ - I was weeping again, drunk on the impossible past.
+ - Nostalgia in reverse, the longing for yet another strange land, grew especially strong in spring.
+ - Perhaps, somewhere, some day, at a less miserable time, we may see each other again.
+ - The summer night was starless and stirless, with distant spasms of silent lightning.
+ - Mind you, sometimes the angels smoke, hiding it with their sleeves, and when the archangel comes, they throw the cigarettes away: that’s when you get shooting stars.
+ - Knowing you have something good to read before bed is among the most pleasurable of sensations.
+ - Dear Jesus, do something.
+ - Dark pictures, thrones, the stones that pilgrims kiss Poems that take a thousand years to die But ape the immortality of this Red label on a little butterfly .
+ - Nothing revives the past so completely as a smell that was once associated with it.
+ - I talk in a daze, I walk in a maze I cannot get out, said the starling.
+ - Everything in the world is beautiful, but Man only recognizes beauty if he sees it either seldom or from afar. Listen, today we are gods! Our blue shadows are enormous! We move in a gigantic, joyful world!
+ - Some people, and I am one of them, hate happy ends. We feel cheated. Harm is the norm.
+ - Oh, my Lolita, I have only words to play with!
+ - She was Lo, plain Lo, in the morning, standing four feet ten in one sock. She was Lola in slacks. She was Dolly at school. She was Dolores on the dotted line. But in my arms she was always Lolita.
+ - I think like a genius, I write like a distinguished author, and I speak like a child.
+ - What surprises you in life? The marvel of consciousness – that sudden window swinging open on a sunlit landscape amidts the night of non-being.
+ - I loved you. I was a pentapod monster, but I loved you. I was despicable and brutal, and turpid, and everything, mais je t’aimais, je t’aimais!
+ - Solitude was corrupting me.
+ - I still dwelled deep in my elected paradise – a paradise whose skies were the color of hell-flames – but still a paradise.
+ - Don’t cry, I’m sorry to have deceived you so much, but that’s how life is.
+ - We think not in words but in shadows of words.
+ - Nymphets do not occur in polar regions.
+ - Despite our tiffs, despite her nastiness, despite all the fuss and faces she made, and the vulgarity, and the danger, and the horrible hopelessness of it all, I still dwelled deep in my elected paradise – a paradise whose skies were the color of hell-flames – but still a paradise.
+ - Genius is finding the invisible link between things.
+ - I need you, the reader, to imagine us, for we don’t really exist if you don’t.
+ - We are most artistically caged.
+ - Genius is an African who dreams up snow.
+ - In and out of my heart flowed my rainbow blood.
+ - All the seven deadly sins are peccadilloes but without three of them, Pride, Lust, and Sloth, poetry might never have been born.
+ - I have rewritten – often several times – every word I have ever published. My pencils outlast their erasers.
+ - The square root of I is I.
+ - Nothing is more exhilarating than philistine vulgarity.
+ - The pages are still blank, but there is a miraculous feeling of the words being there, written in invisible ink and clamoring to become visible.
+ - A wise reader reads the book of genius not with his heart, not so much with his brain, but with his spine. It is there that occurs the telltale tingle...
+ - Religion has the same relation to man’s heavenly condition that mathematics has to his earthly one: both the one and the other are merely the rules of the game. Belief in God and belief in numbers: local truth and truth of location.
+ - Burn pedants in pale fire. Accept no fashions. Be your own fashion. Do not rely on earlier triumphs. Be new at each appearance.
+ - Resemblances are the shadows of differences. Different people see different similarities and similar differences.
+ - My mind speaks English, my heart speaks Russian, and my ear prefers French.
+ - Style and Structure are the essence of a book; great ideas are hogwash.
+ - Beauty plus pity – that is the closest we can get to a definition of art.
+ - Most of the dandelions had changed from suns into moons.
+ - Our imagination flies – we are its shadow on the earth.
+ - Life is just one small piece of light between two eternal darknesses.
+ - A change of environment is the traditional fallacy upon which doomed loves, and lungs, rely.
+ - The spiral is a spiritualized circle. In the spiral form, the circle, uncoiled, has ceased to be vicious; it has been set free.
+ - Some people – and I am one of them – hate happy ends. We feel cheated. Harm is the norm. Doom should not jam. The avalanche stopping in its tracks a few feet above the cowering village behaves not only unnaturally but unethically.
+ - We live not only in a world of thoughts, but also in a world of things. Words without experience are meaningless.
+ - He broke my heart. You merely broke my life.
+ - I mean, I have the feeling that something in my mind is poisoning everything else.
+ - I think she always nursed a small mad hope.
+ - A philistine is a full-grown person whose interests are of a material and commonplace nature, and whose mentality is formed of the stock ideas and conventional ideals of his or her group and time.
+ - Words without experience are meaningless.
+ - Mnemosyne, one must admit, has shown herself to be a very careless girl.
+ - Let all of life be an unfettered howl. Like the crowd greeting the gladiator. Don’t stop to think, don’t interrupt the scream, exhale, release life’s rapture.
+ - Chess problems demand from the composer the same virtues that characterize all worthwhile art: originality, invention, conciseness, harmony, complexity, and splendid insincerity.
+ - Satire is a lesson, parody is a game.
+ - My loathings are simple: stupidity, oppression, crime, cruelty, soft music.
+ - My heart was a hysterical unreliable organ.
+ - The clumsiest literal translation is a thousand times more useful than the prettiest paraphrase.
+ - I have no desires, save the desire to express myself in defiance of all the world’s muteness.
+ - Poetry involves the mysteries of the irrational perceived through rational words.
+ - Use unlikely materials. Who would choose Pnin as hero, but how did we live before Pnin?
+ - Readers are not sheep, and not every pen tempts them.
+ - I don’t think in any language. I think in images.
+ - Although I could never get used to the constant state of anxiety in which the guilty, the great, and the tenderhearted live, I felt I was doing my best in the way of mimicry.
+ - Solitude is the playfield of Satan.
+ - A major writer combines these three – storyteller, teacher, enchanter – but it is the enchanter in him that predominates and makes him a major writer.
+ - I know more than I can express in words, and the little I can express would not have been expressed, had I not known more.
+ - Life is a great surprise. I do not see why death should not be an even greater one.
+ - Genius still means to me, in my Russian fastidiousness and pride of phrase, a unique dazzling gift. The gift of James Joyce, and not the talent of Henry James.
+ - There is only one school of literature – that of talent.
+ - Suddenly for no earthly reason I felt immensely sorry for him and longed to say something real, something with wings and a heart, but the birds I wanted settled on my shoulders and head only later when I was alone and not in need of words.
+ - All religions are based on obsolete terminology.
+ - Occasionally, in the middle of a conversation her name would be mentioned, and she would run down the steps of a chance sentence, without turning her head.
+ - And she was mine, she was mine, the key was in my fist, my fist was in my pocket, she was mine.
+ - All colors made me happy: even gray. My eyes were such that literally they Took photographs.
+ - Stirless, I stand at the window, and in the black bowl of the sky glows like a golden drop of honey the mellow moon.
+ - Which arrow flies for ever? The arrow that has hit its mark.
+ - We loved each other with a premature love, marked by a fierceness that so often destroys adult lives.
+ - Oh, let me be mawkish for the nonce! I am so tired of being cynical.
+ - I am sentimental,’ she said. ‘I could dissect a koala but not its baby. I like the words damozel, eglantine, elegant. I love when you kiss my elongated white hand.
+ - We hasten to alienate the very fates we intended to woo.
+ - My little cup brims with tiddles.
+ - There is nothing more atrociously cruel than an adored child.
+ - Humbert was perfectly capable of intercourse with Eve, but it was Lilith he longed for.
+ - The tiny madman in his padded cell.
+ - I am sufficiently proud of my knowing something to be modest about my not knowing all.
+ - The future is but the obsolete in reverse.
+ - There is no science without fancy and no art without fact.
+ - My God died young. Theolatry i found Degrading, and its premises, unsound. No free man needs God; but was I free?
+ - And presently I was driving through the drizzle of the dying day, with the windshield wipers in full action but unable to cope with my tears.
+ - Remembrance, like Rembrandt, is dark but festive. Remembered ones dress up for the occasion and sit still. Memory is a photo studio de luxe on an infinite Fifth Power Avenue.
+ - One is always at home in one’s past...
+ - I am thinking of aurochs and angels, the secret of durable pigments, prophetic sonnets, the refuge of art. And this is the only immortality you and I may share, my Lolita.
+ - The sun is a thief: she lures the sea and robs it. The moon is a thief: he steals his silvery light from the sun. The sea is a thief: it dissolves the moon.
+ - For I do not exist: there exist but the thousands of mirrors that reflect me.
+ - My characters are galley slaves.
+ - Look at this tangle of thorns.
+ - She was like Marat only with nobody to kill her.
+ - By God, I could make myself bring her that economically halved grapefruit, that sugarless breakfast.
+ - Time is rhythm: the insect rhythm of a warm humid night, brain ripple, breathing, the drum in my temple – these are our faithful timekeepers; and reason corrects the feverish beat.
+ - Imagination, the supreme delight of the immortal and the immature, should be limited. In order to enjoy life, we should not enjoy it too much.
+ - A work of art has no importance whatever to society. It is only important to the individual, and only the individual reader is important to me. I don’t give a damn for the group, the community, the masses, and so forth.
+ - I grew, a happy, healthy child in a bright world of illustrated books, clean sand, orange trees, friendly dogs, sea vistas and smiling faces.
+ - Let all of life be an unfettered howl.
+ - Imagination without knowledge leads no farther than the back yard of primitive art, the child’s scrawl on the fence, and the crank’s message in the market place. Art is never simple.
+ - Because you took advantage of my disadvantage.
+ - Literature is invention. Fiction is fiction. To call a story a true story is an insult to both truth and art.
+ - I don’t belong to any club or group. I don’t fish, cook, dance, endorse books, sign books, co-sign declarations, eat oysters, get drunk, go to church, go to analysts, or take part in demonstrations.
+ - Art at its greatest is fantastically deceitful and complex.
+ - His wings were failing, but he refused to fall without a struggle.
+ - I don’t want an elderly gentleman from Vienna with an umbrella inflicting his dreams upon me.
+ - Only one letter divides the comic from the cosmic.
+ - A thousand years ago five minutes were Equal to forty ounces of fine sand. Outstare the stars. Infinite foretime and Infinite aftertime: above your head They close like giant wings, and you are dead.
+ - At eight, he had once told his mother that he wanted to paint air.
+ - All the information I have about myself is from forged documents.
+ - There is nothing in the world that I loathe more than group activity, that communal bath where the hairy and slippery mix in a multiplication of mediocrity.
+ - A certain man once lost a diamond cuff-link in the wide blue sea, and twenty years later, on the exact day, a Friday apparently, he was eating a large fish – but there was no diamond inside. That’s what I like about coincidence.
+ - Just like a man grieving because he has recently lost in his dreams some thing that he had never had in reality, or hoping that tomorrow he would dream that he found it again. That is how mathematics is created; it has its fatal flaw.
+ - You see, she had absolutely nowhere else to go.
+ - Between the wolf in the tall grass and the wolf in the tall story there is a shimmering go-between. That go-between, that prism, is the art of literature.
+ - Her lips were like large crimson polyps.
+ - The evolution of sense is, in a sense, the evolution of nonsense.
+ - My only grudge against nature was that I could not turn my Lolita inside out and apply voracious lips to her young matrix, her unknown heart, her nacreous liver, the sea-grapes of her lungs, her comely twin kidneys.
+ - There he stood, in the camouflage of sun and shade, disfigured by them and masked by his own nakedness.
+ - Adultery is a most conventional way to rise above the conventional.
+ - The compensation for a death sentence is the knowledge of the exact hour when one is to die. A great luxury, but one that is well earned.
+ - Existence is a series of footnotes to a vast, obscure, unfinished masterpiece.
+ - There is only one real number: one. And love, apparently, is the best exponent of this singularity.
+ - Human thought, flying on the trapezes of the star-filled universe, with mathematics stretched beneath, was like an acrobat working with a net but suddenly noticing that in reality there is no net.
+ - I adore you, mon petit, and would never allow him to hurt you, no matter how gently or madly.
+ - If I correctly understand the sense of this succinct observation, our poet suggests here that human life is but a series of footnotes to a vast obscure unfinished masterpiece.
+ - There was a time in my demented youth When somehow I suspected that the truth About survival after death was known To every human being: I alone Knew nothing, and a great conspiracy Of books and people hid the truth from me.
+ - Imagine me; I shall not exist if you do not imagine me; try to discern the doe in me, trembling in the forest of my own iniquity; let’s even smile a little. After all, there is no harm in smiling.
+ - It’s a pity one can’t imagine what one can’t compare to anything. Genius is an African who dreams up snow.
+ - Why should I tolerate a perfect stranger at the bedside of my mind?
+ - The more gifted and talkative one’s characters are, the greater the chances of their resembling the author in tone or tint of mind.
+ - It is strange how a memory will grow into a wax figure, how the cherub grows suspiciously prettier as its frame darkens with age-strange, strange are the mishaps of memory.
+ - I always call him Lewis Carroll Carroll, because he was the first Humbert Humbert.
+ - Life is short. From here to that old car you know so well there is a stretch of twenty, twenty-five paces. It is a very short walk. Make those twenty-five steps. Now. Right now. Come just as you are. And we shall live happily ever after.
+ - And what is death, if not a face at peace – its artistic perfection.
+ - To play safe, I prefer to accept only one type of power: the power of art over trash, the triumph of magic over the brute.
+ - A cluster of stars palely glowed above us, between the silhouettes of long thin leaves; that vibrant sky seemed as naked as she was under her light frock. I saw her face in the sky, strangely distinct, as if it emitted a faint radiance of its own.
+ - Although I do not care for the slogan “art for art’s sake”, there can be no question that what makes a work of fiction safe from larvae and rust is not its social importance but its art, only its art.
+ - Beauty plus pity-that is the closest we can get to a definition of art. Where there is beauty there is pity for the simple reason that beauty must die: beauty always dies, the manner dies with the matter, the world dies with the individual.
+ - The nostalgia I have been cherishing all these years is a hypertrophied sense of lost childhood, not sorrow for lost banknotes.
+ - Only ambitious nonentities and hearty mediocrities exhibit their rough drafts. It’s like passing around samples of sputum.
+ - Why do those people guess so much and shave so little, and are so disdainful of hearing aids?
+ - A work of art has no importance whatever to society. It is only important to the individual.
+ - You lose your immortality when you lose your memory.
+ - We all have such fateful objects – it may be a recurrent landscape in one case, a number in another – carefully chosen by the gods to attract events of specific significance for us: here shall John always stumble; there shall Jane’s heart always break.
+ - Our best yesterdays are now foul piles of crumpled names.
+ - It is a short walk from the hallelujah to the hoot.
+ - All my stories are webs of style and none seems at first blush to contain much kinetic matter. For me style is matter.
+ - I think it is all a matter of love: the more you love a memory, the stronger and stranger it is.
+ - An active and creative reader is a re-reader.
+ - The days of my youth, as I look back on them, seem to fly away from me in a flurry of pale repetitive scraps like those morning snow storms of used tissue paper that a train passenger sees whirling in the wake of the observation car.
+ - A good laugh is the best pesticide.
+ - It is a singular reaction, this sitting still and writing, writing, writing, or ruminating at length, which is much the same, really.
+ - It is strange that the tactile sense, which is so infinitely less precious to men than sight, becomes at critical moments our main, if not only, handle to reality.
+ - Who can say what heartbreaks are caused in a dog by our discontinuing a romp?
+ - I confess, I do not believe in time.
+ - Of all my Russian books, the defense contains and diffuses the greatest ‘warmth’ which may seem odd seeing how supremely abstract Chess is supposed to be.
+ - I have never seen a more lucid, better balanced, mad mind than mine.
+ - Measure me while I live – after it will be too late.
+ - Revelation can be more perilous than Revolution.
+ - The contemplation of beauty, whether it be a uniquely tinted sunset, a radiant face, or a work of art, makes us glance back unwittingly at our personal past and juxtapose ourselves and our inner being with the utterly unattainable beauty revealed to us.
+ - A toothache will cost a battle, a drizzle cancel an insurrection.
+ - And this is the only immortality you and i may share, my Lolita.
+ - At a very early stage of the novel’s development I get this urge to collect bits of straw and fluff, and to eat pebbles. Nobody will ever discover how clearly a bird visualizes, or if it visualizes at all, the future nest and the eggs in it.
+ - The only real number is one, the rest are mere repetition.
+ - I have the European urge to use my feet when a drive can be dispensed with.
+ - Let the credulous and the vulgar continue to believe that all mental woes can be cured by a daily application of old Greek myths to their private parts.
+ - Coordinating there Events and objects with remote events And vanished objects. Making ornaments Of accidents and possibilities.
+ - I witness with pleasure the supreme achievement of memory, which is the masterly use it makes of innate harmonies when gathering to its fold the suspended and wandering tonalities of the past.
+ - Ideas in modern Russia are machine-cut blocks coming in solid colors; the nuance is outlawed, the interval walled up, the curve grossly stepped.
+ - Devices which in some curious new way imitate nature are attractive to simple minds.
+ - You know, what’s so dreadful about dying is that you are completely on your own.
+ - While a few pertinent points have to be marked, the general impression I desire to convey is of a side door crashing open in life’s full flight, and a rush of roaring black time drowning with its whipping wind the cry of lone disaster.
+ - Age indomitably, in the European manner. Do not finish your labours young. Be a planet, not a meteor. Honor the working day. Sit at your desk.
+ - Derivative writers seem versatile because they imitate many others, past and present. Artistic originality has only itself to copy.
+ - All great novels are great fairy tales.
+ - Man exists only insofar as he is separated from his surroundings. The cranium is a space-traveler’s helmet. Stay inside or you perish.
+ - I should allow only my heart to have imagination; and for the rest rely on memory, that long drawn sunset of one’s personal truth.
+ - Do those clowns really believe what they teach?
+ - Turning one’s novel into a movie script is rather like making a series of sketches for a painting that has long ago been finished and framed.
+ - There are teachers and students with square minds who are by nature meant to undergo the fascination of catagories. For them, ‘schools’ and ‘movements’ are everything; by painting a group symbol on the brow of mediocrity, they condone their own incomprehension of true genius.
+ - Only talent interests me in paintings and books. Not general ideas, but the individual contribution.
+ - Although we read with our minds, the seat of artistic delight is between the shoulder blades. That little shiver behind is quite certainly the highest form of emotion that humanity has attained when evolving pure art and pure science. Let us worship the spine and its tingle.
+ - You can always count on a murderer for a fancy prose style.
+ - I do not see any essential difference between abstract and primitive art. Both are simple and sincere. Naturally, we should not generalize in these matters: It is the individual artist that counts.
+ - The day, like the previous days, dragged sluggishly by in a kind of insipid idleness, devoid even of that dreamy expectancy which can make idleness so enchanting.
+ - Literature and butterflies are the two sweetest passions known to man.
+ - I am surrounded by some sort of wretched specters, not by people. They torment me as can torment only senseless visions, bad dreams, dregs of delirium, the drivel of nightmares and everything that passes down here for real life.
+ - I would like to spare the time and effort of hack reviewers and, generally, persons who move their lips when reading.
+ - There was no Lo to behold.
+ - I am probably responsible for the odd fact that people don’t seem to name their daughters Lolita any more. I have heard of young female poodles being given that name since 1956, but of no human beings.
+ - No difference exists between American and European manners. A proletarian from Chicago can be just as Philistine as an English duke.
+ - Poor Knight! he really had two periods, the firsta dull man writing broken English, the seconda broken man writing dull English.
+ - No author has created with less emphasis such pathetic characters as Chekhov has.
+ - I think my favorite fact about myself is that I have never been dismayed by a critic’s bilge or bile, and have never once in my life asked or thanked a reviewer for a review.
+ - There is the first satisfaction of arranging it on a bit of paper; after many, many false tries, false moves, finally you have the sentence you recognize as the one you are looking for.
+ - I shall continue to exist. I may assume other disguises, other forms, but I shall try to exist.
+ - Even while writing his book, he had become painfully aware how little he knew his own planet while attempting to piece together another one from jagged bits filched from deranged brains.
+ - Old birds like Orlovius are wonderfully easy to lead by the beak, because a combination of decency and sentimentality is exactly equal to being a fool.
+ - The pleasures of writing correspond exactly to the pleasures of reading.
+ - The general impression is that fifteen year-old Dolly remains morbidly uninterested in sexual matters, or to be exact, represses her curiosity in order to save her ignorance and self-dignity.
+ - I see nothing for the treatment of my misery but the melancholy and very local palliative of articulate art.
+ - I think it is all a matter of love...
+ - Discussion in class, which means letting twenty young blockheads and two cocky neurotics discuss something that neither their teacher nor they know.
+ - Non-Russian readers do not realize two things: that not all Russians love Dostoievsky as much as Americans do, and that most of those Russians who do, venerate him as a mystic and not as an artist.
+ - Maybe the only thing that hints at a sense of Time is rhythm; not the recurrent beats of the rhythm but the gap between two such beats, the gray gap between black beats: the Tender Interval.
+ - It is hard, I submit, to loathe bloodshed, including war, more than I do, but it is still harder to exceed my loathing of the very nature of totalitarian states in which massacre is only an administrative detail.
+ - Memory overshadows the present and dims the future “into something thicker than its usual pea soup.”
+ - Dostoevky’s lack of taste, his monotonous dealings with persons suffering with pre-Freudian complexes, the way he has of wallowing in the tragic misadventures of human dignity – all this is difficult to admire.
+ - A masterpiece of fiction is an original world and as such is not likely to fit the world of the reader.
+ - When I receive a new novel from a hopeful publisher – “hoping that I like the book as much as he does” – I check first of all how much dialog there is, and if it looks too abundant or too sustained, I shut the book with a bang.
+ - I have often noticed that after I had bestowed on the characters of my novels some treasured item of my past, it would pine away in the artificial world where I had so abruptly placed it.
+ - Those Eggheadsareterrible Philistines. A realgood head is not oval but round.
+ - There are some varieties of fiction that I never touch – mystery stories, for instance, which I abhor, and historical novels. I also detest the so-called “powerful” novel – full of commonplace obscenities and torrents of dialog.
+ - A novelist is, like all mortals, more fully at home on the surface of the present than in the ooze of the past.
+ - The good, the admirable reader identifies himself not with the boy or the girl in the book, but with the mind that conceived and composed that book.
+ - The thought, when written down, becomes less oppressive, but some thoughts are like a cancerous tumor: you express is, you excise it, and it grows back worse than before.
+ - I cannot conceive how anybody in his right mind should go to a psychoanalyst.
+ - Do not be awed by giant predecessors. Be ill-tempered with their renown. Point out flaws. Frighten interviewers from Time. Appear in Playboy. Sell to the movies.
+ - All my life I have been a poor go-to-sleeper. No matter how great my weariness, the wrench of parting with consciousness is unspeakably repulsive to me.
+ - I am not, and never was, and never could have been, a brutal scoundrel.
+ - Perhaps if the future existed, concretely and individually, as something that could be discerned by a better brain, the past would not be so seductive: its demands would be balanced by those of the future.
+ - There are aphorisms that, like airplanes, stay up only while they are in motion.
+ - I don’t read reviews about myself with any special eagerness or attention unless they are masterpieces of wit and acumen, and I never reread them.
+ - I cannot disobey something which I do not know and the reality of which I have the right to deny.
+ - Happy is the novelist who manages to preserve an actual love letter that he received when he was young within a work of fiction, embedded in it like a clean bullet in flabby flesh and quite secure there, among spurious lives.
+ - I was also supposed to quiz my various companions on a number of important matters such as nostalgia, fear of unknown animals, food fantasies, nocturnal emissions, hobbies, choice of radio program, changes in out look and so forth.
+ - He was afraid of touching his own wrist. He never attempted to sleep on his left side, even in those dismal hours of the night when the insomniac longs for a third side after trying the two he has.
+ - Another tormentor inquired if it was true that I had installed two ping-pong tables in my basement. I asked, was it a crime? No, he said, but why two? Is that a crime? I countered, and they all laughed.
+ - For I do not exist: there exist but the thousands of mirrors that reflect me. With every acquaintance I make, the population of phantoms resembling me increases. Somewhere they live, somewhere they multiply. I alone do not exist.
+ - Loneliness as a situation can be corrected, but as a state of mind it is an incurable illness.
+
+262 quotes

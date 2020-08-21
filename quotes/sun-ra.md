@@ -1,0 +1,50 @@
+ - Art does not begin with imitation, but with discipline.
+ - Music is a plane of wisdom, because music is a universal language, it is a language of honor, it is a noble precept, a gift of the Airy Kingdom, music is air, a universal existence common to all the living.
+ - Music is not material. Music is Spiritual.
+ - The possible has been tried and failed. Now it’s time to try the impossible.
+ - Space is not only high, it’s low. It’s a bottomless pit.
+ - I have many names; some call me Mr. Ra, others call me Mr. Re, you can call me Mr. Mystery.
+ - A prophet is not without honor except in his own country among his own people.
+ - If you’re not mad at the world, you don’t have what it takes.
+ - I’m playing dark history. It’s beyond black. I’m dealing with the dark things of the cosmos.
+ - Those who will not dance will have to be shot.
+ - With music you can express any emotion, you can paint pictures...
+ - If death is the absence of life, then death’s death is life.
+ - A world is in danger, this planet is in great danger!
+ - Music is a language, a universal language.
+ - And then when I went to Chicago, that’s when I had these outer space experiences and went to the other planets.
+ - Sometimes in the ignorance I feel the meaning Invincible invisible wisdom, And I commune with intuitive instinct With the force that made life be And since it made life be It is greater than life And since it let extinction be It is greater than extinction. I commune with feelings more than prayer.
+ - Where human eyes have never seen, where human beings have never been, I build a world of abstract dreams, and I wait for you.
+ - The light of the future casts the shadows of tomorrow.
+ - I never wanted to be a part of planet Earth, but I am compelled to be here, so anything I do for this planet is because the Master-Creator of the Universe is making me do it. I am of another dimension. I am on this planet because people need me.
+ - The real aim of music is to co-ordinate the minds of the people into an intelligent reach for a better world and an intelligent approach to the living future.
+ - Heaven is where you’ll be when you are okay right where you are.
+ - Behold the pre-prophetic symbols of the planes of Never. Behold, behold this thisness! This isness.
+ - At first there was nothingthen nothing turned itself inside-out and became something.
+ - In the world of tomorrow, the new man will ‘think’ the place he wants to go, then his mind will take him there.
+ - Freedom of Speech is Freedom of Music.
+ - The earth moves in a certain rhythm, a certain sound, a certain note. When the music stops the earth will stop and everything upon it will die.
+ - The planet is asleep and it’s the fault of musicians who are untrue to themselves.
+ - Well, actually, I’m a psychic being, and you know, we don’t concern ourselves with being born; we concern ourselves with being eternal; we deal with the spirit.
+ - I’m not a prophet. I’m a destiny-changer. It’s all right to prophesy, but the best thing to do is change things, if you’ve got the power.
+ - I think of myself as a complete mystery. To myself.
+ - I’m not into division. I’m into coordination, discipline and tradition.
+ - The world thinks that music is a commercial commodity. I’m glad that is not my code.
+ - Today’s symphonic music is sponsored by the upper structures of society.
+ - It’s such a tragedy that man endures in killing his brother and his own kind, putting him in jail and insane asylums, letting him lay out in the street.
+ - The music is not part of this planet in a sense that the spirit of it is about happiness. Most musicians play earth things about what they know, but I found out that they are mostly unhappy and frustrated, and that creeps over into their music.
+ - Proper evaluations of words and letters in their phonetic and associated sense can bring the people of earth to the clear light of pure cosmic wisdom.
+ - Music can be the bridge to understanding, but people have to get some knowledge.
+ - I see people as they really are from a pure point of view.
+ - But recently I began to feel that maybe I wouldn’t be able to do what I want to do and need to do with American musicians, who are imprisoned behind these bars; music’s got these bars and measures you know.
+ - Bach and Beethoven, all of them, they had to write something to please the upper structure, those with money and power.
+ - I am a musician, but I’m another type of musician.
+ - What I’m dealing with is so vast and great that it can’t be called the truth. It’s above the truth.
+ - The world is in such a bad condition that if they don’t find what you call a redeemer, every man, woman and child on this planet will be eliminated.
+ - Not too many people in America know about me, but all of Europe knows about me.
+ - I’m not a minister, I’m not a philosopher, I’m not a politician, I’m in another category.
+ - All these other nations seem to appreciate what I’m doing and they want me to play the furthest out things.
+ - I use music as a medium to talk to people.
+ - I always say it’s not my Arkestra, it belongs to some other force which wants certain things, to reach people.
+
+48 quotes

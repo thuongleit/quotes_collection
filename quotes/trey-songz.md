@@ -1,0 +1,31 @@
+ - I love Calvin Klein underwear. That’s the only kind of underwear I wear.
+ - I take pride in working very hard. You need to understand that hard work doesn’t instantly pay off. My career grew gradually and taught me a lesson every step of the way.
+ - I wish I never fell so deep in love with you and now it ain’t no way we can be friends.
+ - As blacks, all we got is sports and entertainment. That’s the only way out the hood sometimes.
+ - Count your blessings. Every time I am doing bad I count my blessings. And I always lose count. Try that sometime.
+ - I don’t think music can be held. I don’t think artists can be put into boxes or places. It’s all about creating and making the best music you can.
+ - The first tattoo I got was when I was 17, and it’s a cross on my bicep with ‘Only God Can Judge Me’ underneath.
+ - A lot of people perceive women as sexy based on their outer appeal. But there’s no way to mistake if a woman is confident.
+ - Never forget the morals instilled in you and what really matters in Life. Never let other voices of other people drown out your inner voice.
+ - Love is hard to find, but love is one of a kind.
+ - I grew up poor, but I didn’t really know it because of amazing places like the Salvation Army where we got a lot of our Christmas presents from.
+ - I love music, so if I wasn’t singing, I would probably still be working in the music industry. I love songwriting, so I’d probably be a songwriter.
+ - I’m a guy that appreciates spontaneity and a woman being genuine and different.
+ - I think everybody gets lonely sometimes. I don’t know if people can ever understand how you can be in a room full of people and be lonely sometimes.
+ - Change is a natural form of progression.
+ - I don’t really do glasses. It’s a good look, but I’m not big on wearing clear glasses for fashion. And I don’t wear too many shades because my fans love to see my eyes.
+ - I’ve never really been settled. I don’t think I’ve ever known what it was like to be a person that was used to sitting still. I think it’s given me the ability to detach from any situation.
+ - In my dressing room, you’ll definitely find some Starbursts and Skittles. I have a lot of candles that remind me of home, and a humidifier for my voice. I also have some digital Kodak albums where I have pictures of my friends and family.
+ - Versace has always been a brand that I’ve loved, a brand that has supported me. I’ve been wearing Versace for so long, I come in here and I have friends here, and they really support what it is that I do. Our partnership has been great.
+ - I think ‘selfies’ are fun and expressive, as long as you don’t get carried away with it.
+ - Success is what you envisage it to be. You have to go into any profession knowing what you want because people will place expectations on you and their idea of success could taint yours.
+ - I like hair each and every way. I like to give scalp massages – to pull and tug on it. But my favorite style is long, real hair in a dusty blonde-brown color.
+ - When I was about 15. I was just singing around, and people kept telling me I needed to try it. A friend got me to sing in front of Troy Taylor, and he took to me right there.
+ - Style is a display of character. It’s also a great way to express yourself and the ladies like it.
+ - Petersburg, growing up at home, all by my family and friends, Petersburg really, city-raised me, you know everybody there.
+ - I think clothes are very much a representation of your attitude and the way you feel. I really love to be dressed down, though.
+ - It wouldn’t be me if I didn’t get a little nasty.
+ - Singing wasn’t a reality for me, until other people started noticing I sounded good.
+ - The people who support me and my dreams make me feel like I’m on top of the world.
+
+29 quotes

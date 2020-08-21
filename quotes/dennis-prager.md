@@ -1,0 +1,277 @@
+ - Goodness is about character – integrity, honesty, kindness, generosity, moral courage, and the like. More than anything else, it is about how we treat other people.
+ - Happiness is a moral obligation.
+ - The biggest battle in life is with yourself.
+ - I prefer clarity over agreement.
+ - Utopian movements produce dystopias.
+ - A bad mood is like bad breath. Both are wrong to inflict onto others.
+ - Secularism produces a bored soul.
+ - Whatever the Left touches – the arts; the economy; health care; the soul; religion – it destroys or damages.
+ - An unhappy life is a life not lived.
+ - Maximize that which gives you joy: friends, hobbies, religion, etc.
+ - We have a moral obligation to act happy even if we don’t feel it.
+ - Only a fool can believe people are basically good.
+ - Because gratitude is the key to happiness, anything that undermines gratitude must undermine happiness. And nothing undermines gratitude as much as expectations. There is an inverse relationship between expectations and gratitude: The more expectations you have, the less gratitude you will have.
+ - I am bored generally means “I am boring”.
+ - Happiness is not so much a feeling as it is an attitude.
+ - There was a time when liberalism was identified with anti-Communism. But the Vietnam War led liberals into the arms of the Left, which had been morally confused about Communism since its inception and had become essentially pacifist following the carnage of World War I.
+ - President Obama has done more damage to America than any American has since 1776.
+ - To posit the existence of a Creator requires only reason. To posit the existence of a good God requires faith.
+ - There is something about liberalism that is not nearly as true about conservatism. The further left one goes, the more one finds that the ideology provides moral cover for a life that is not moral. While many people left of center lead fine personal lives, many do not.
+ - Prayer is not asking God to do something, it’s asking God to help YOU do something.
+ - Compassion without wisdom is dangerous. It’s what enables people to support the ‘underdog,’ even if the underdog is evil.
+ - Finding patterns is the essence of wisdom.
+ - Complaining not only ruins everybody else’s day, it ruins the complainer’s day, too. The more we complain, the more unhappy we get.
+ - Let us make war on the phrase ‘violence doesn’t solve anything.’ It is a lie, and anyone who utters it cannot be taken morally seriously.
+ - The sad fact is that if you love education, revere the life of the mind, care about the pursuit of truth, think young people need to receive wisdom from their elders, and value moral clarity, the university is the last place you would want to send your 18-year-old.
+ - Lies and victimhood make evil possible.
+ - Complexity and profundity have been equated by the academic culture just as fame and significance have been conflated by the popular culture. Fame and significance have nothing to do with one another; and complexity and profundity have nothing to do with one another.
+ - Africans who immigrate to America know how little racism exists there. They suspect it before emigrating from Africa, and they know it after arriving in America. Indeed, America, the Left’s depiction of it notwithstanding, is the least racist country in the world.
+ - If you want to know what you look like, look into a mirror. If you want to know how you think, you should write.
+ - The entire European Union is a left-wing dream.
+ - For conservatives, the issue is that for generations now, they have failed to make the case for their values. They haven’t even conveyed conservative values to many of their children. And when they have, the university has often succeeded in undoing them.
+ - Doing well is a conservative idea; meaning well is a liberal idea.
+ - The love of freedom is actually an aberration.
+ - Corruption is Africa’s greatest problem. Not poverty. Not lack of riches. Not racism.
+ - Given the religious nature and the emotional power of Leftist values, Jews and Christians on the Left often derive their values from the Left more than from their religion.
+ - The human species produces a certain percentage of scum. That is the way in which I have understood the world my whole life.
+ - Self-control is the only possible road to character development.
+ - Courage is the rarest of all good traits.
+ - Badmouthing your ex-spouse rips the child apart.
+ - When emotions dominate, maturity and wisdom deteriorate.
+ - We conservatives fight evil; the Left fights carbon emissions.
+ - It is no longer higher education, it is higher ‘indoctrination ’
+ - The more we complain, the more unhappy we get.
+ - Nothing more guarantees the erosion of character than getting something for nothing. In the liberal welfare state, one develops an entitlement mentality. And the rhetoric of liberalism – labeling each new entitlement a ‘right reinforces this sense of entitlement.’ -.
+ - Leftism and narcissism are almost synonymous.
+ - Although images of perfection in people’s personal lives can cause unhappiness, images of perfect societies – utopian images – can cause monstrous evil. In fact, forcefully changing society to conform to societal images was the greatest cause of evil in the twentieth century.
+ - Nothing guarantees more the erosion of character than getting something for nothing.
+ - Every Left-wing hysteria of my lifetime has turned out to be untrue. Every single one.
+ - To call yourself a socialist in 2015 is to be an idiot. Socialism fails. Everywhere.
+ - When women criticize men it’s called feminism. When men criticize women it’s called misogyny.
+ - The more that you expect, the less happy you will be – because if the expectations are realized you won’t be grateful.
+ - Repetition is the mother of pedagogy.
+ - A decent person does not alienate children from a parent, no matter how angry they are at the parent for the divorce. It’s unfair to the children, and it’s unfair to the other human being.
+ - If pain were water, the world would drown.
+ - Much of the world’s moral compass is broken. The moral north reads south and the moral south reads north.
+ - We are undermining a generation’s happiness by depriving them of national identity, religious identity, and gender identity.
+ - Humility is a fantastic trait and is one of the most important things we can have.
+ - I believe that free money is as addictive as cocaine.
+ - The more things that can bring you joy in life, the better.
+ - When Jews left Judaism, they didn’t stop being religious. They simply swapped God-based Judaism for godless secular humanism and leftism. For left-wing Jews, Judaism is their ethnicity; leftism is their religion.
+ - Not only do we have a right to be happy, we have an obligation to be happy because our happiness has an effect on everyone around us.
+ - You know what I ask Jewish liberals? ‘Why don’t you preach what you practice?’
+ - Happiness is dependent on self-discipline. We are the biggest obstacles to our own happiness. It is much easier to do battle with society and with others than to fight our own nature.
+ - Leftism hides under an intellectual veneer, but underneath it is all emotion.
+ - Yet, while producing increasingly selfish people, the mantra of the Left, and therefore of the universities and the media, has been for generations that capitalism and the free market, not the welfare state, produces selfish people.
+ - How important is excitement to happiness? The key is to get excited about the mundane – not just extraordinary things.
+ - More harm was done in the 20th century by faceless bureaucrats than tyrant dictators.
+ - Secularism breeds narcissism. There is nothing higher to live for, so you live for you.
+ - Nothing enables people to do evil as much as does a sense of victimhood.
+ - I always believe in earning love. I consider unconditional love to be one of the worst ideas developed.
+ - First tell the truth, then give your opinion.
+ - Universities are seminaries to produce Leftists.
+ - There’s a lot more power in calm than in vituperation.
+ - The state of Europe is so bad that I cannot see any future in Europe other than its Islamization or a civil war.
+ - Want to raise children who will be happy adults? Teach them not to whine.
+ - Those of you who love the Lord should hate evil.
+ - The evidence in this universe for design – or, if you will, the fine-tuning that cannot be explained by chance or by ‘enough time’ – is so compelling that the only way around it is to suggest that our universe is only one of an infinite number of universes.
+ - From their teenage years on, children are considerably more capable of causing parents unhappiness than bringing them happiness. That is one reason parents who rely on their children for happiness make both their children and themselves miserable.
+ - Expectations can ruin your chances for happiness.
+ - The easily embarrassed doesn’t learn.
+ - There are subtle ways and overt ways of alienating a child from a parent, but either way it’s evil.
+ - The bigger the government, the greater the corruption.
+ - Choosing to be grateful earns you happiness.
+ - Not everyone wants to be happy.
+ - Climate change is the mother of all hysterias of the Left.
+ - The god of compassion is NOT the god of justice.
+ - The rarest of the good qualities in human beings is courage.
+ - I have long believed that what most affects a child is not the divorce, per se, but how it is handled.
+ - More people have done good in the name of God than any other way.
+ - Conservatives divide the world in terms of good and evil while liberals do it in terms of the rich and poor.
+ - For the Left, tolerance does not mean tolerance. It means first, acceptance. And second, celebration. That is totalitarianism: You not only have to live with what you may differ with, dear citizen, you have to celebrate it or pay a steep price.
+ - Grateful people are good people, and good people are happy people.
+ - Chechnya is a pressure cooker of Islamist anger.
+ - But if there is a just God, there is ultimate justice.
+ - Political correctness is the the inability to state certain truths because they may offend certain people.
+ - Even non-democratic allies no longer trust America. Barack Obama has alienated our most important and longest standing Arab allies, Egypt and Saudi Arabia. Both the anti-Muslim Brotherhood and the anti-Iran Arab states have lost respect for him.
+ - Lying to the Left is like water to fish.
+ - Leftism has influenced the literary, academic, media, and, therefore, the political elite far more than any other religion. It has taken over Western schools from elementary through graduate.
+ - Those who do not confront evil resent those who do.
+ - The Left is not interested in prosperity, it is interested in equality.
+ - It is a lie that America is racist.
+ - The Muslim world is threatened by religious fanaticism. The Western world is threatened by secular fanaticism.
+ - Also, when you escape a Communist regime, you treasure liberty and you understand that as government and state expand, liberty must contract.
+ - Who has created more peace in the world, the Peace Corps or the Marine Corps?
+ - Given the amount of unjust suffering and unhappiness in the world, I am deeply grateful for, sometimes even perplexed by, how much misery I have been spared.
+ - When you don’t believe in anything except not dying, you don’t really believe in anything.
+ - If you ask what’s best for the country, vote Republican. If you ask how will you get more money from the government, vote Democrat.
+ - To say murder is wrong is as much a statement of faith as ‘I believe that God said murder is wrong’ is a statement of faith.
+ - I would bet that the average teenager in this country has not used the word ‘wisdom’ in the past year.
+ - Opponents of capital punishment argue that the state has no right to take a murderer’s life. Apparently, one fact that abolitionists forget or overlook is that the state is acting not only on behalf of society, but also on behalf of the murdered person and the murdered person’s family.
+ - Whenever possible, the left and the Democrats have de-stigmatized irresponsible behavior.
+ - Our scientific age demands that we provide definitions, measurements, and statistics in order to be taken seriously. Yet most of the important things in life cannot be precisely defined or measured. Can we define or measure love, beauty, friendship, or decency, for example?
+ - Parents are flawed human beings who are given a role that more approximates that of God than of mere mortals.
+ - Those who believe in nothing are very, very jealous and angry at those who believe in something.
+ - I am convinced that great ideas that are powerfully presented can change a mind in five minutes.
+ - In little more than a generation, feminism has obliterated roles. If you wonder why so many men choose not to get married, the answer lies in large part in the contemporary devaluation of the husband and of the father – of men as men, in other words.
+ - There are surely times when a conservative and a liberal would agree. We would agree on how moral it is to discriminate on the basis of race. There’s absolutely no light between those two positions. It becomes a little more complex when you talk about law as opposed to morality.
+ - Rather than dividing the world between good and evil, the Left divided the world in terms of economics. Economic classes, not moral values, explained human behavior. Therefore, to cite a common example, poverty, not one’s moral value system, or lack of it, caused crime.
+ - For all of higher civilization’s recorded history, becoming a man was defined overwhelmingly as taking responsibility for a family.
+ - Given the unprecedented ignorance of the Bible in contemporary America, it is likely that more young Americans will only know the Noah of ‘Noah.’ We can only hope that the film offers even a fraction of the wisdom of the original.
+ - All of the goodness in the world doesn’t amount to a hill of beans without courage.
+ - I have never written that there is a threat of fascism in America. I always considered the idea overwrought. But now I believe there really is such a threat – and it will come draped not in an American flag, but in the name of tolerance and health.
+ - The ’60s redefined narcissism as idealism.
+ - Liberalism means well, but it destroys.
+ - Most evil comes from the belief that one is a victim, or one’s group is a victim.
+ - If you’re morally clear you are not on the Left.
+ - The fact is that not only do people get more wise and more conservative as they get older, they get more kind and more generous, too.
+ - That’s a phenomenon of the Left: You don’t fight evil. You fight carbon emissions.
+ - Socialism values equality more than liberty.
+ - The Left has always sought single, non-values-based explanations for human behavior.
+ - Libertarians should say, ‘I love this country too much to take away votes from the Republican’
+ - The feminist movement has far more anger for men than it has love for women.
+ - Two of the many areas of conflict between Judeo-Christian values and leftism concern the separation between the holy and the profane and the separation between humans and animals.
+ - Most young people have tremendous respect for older people’s views.
+ - If you inflict your unhappiness onto others, it is sinful.
+ - Of all the characteristics needed for both a happy and morally decent life, none surpasses gratitude. Grateful people are happier, and grateful people are more morally decent.
+ - Where are the vehicles to character development in secular society?
+ - You owe others a happy disposition.
+ - The Left has taken over the universities and, increasingly, high schools and elementary schools. It dominates the news and entertainment media. And many judges and courts are leftist – meaning that their decisions are guided by leftism more than by the law or the Constitution.
+ - The Left has always been anti-religious, and especially anti-Christian.
+ - Without aging white males, I doubt the ‘New York Times’ would survive. How many young people, females, Hispanics and blacks subscribe to the ‘New York Times?’
+ - Hamas is a terrorist organization dedicated to annihilating the Jewish state. It runs a theocratic totalitarian state in Gaza, with no individual liberty, and no freedom of speech or press.
+ - You’re ‘wealthy’ if you don’t worry.
+ - God is the foundation of liberty. Because if God is not, who is? The government?
+ - There’s more time spent on teaching kids about recycling than on character development in the American schools.
+ - Citizens of liberal welfare states become increasingly narcissistic. The great preoccupations of vast numbers of Brits, Frenchmen, Germans and other Western Europeans are how much vacation time they will have an how early they can retire and be supported by the state.
+ - Just listen to Chris Matthews on any given day and you will see what’s acceptable on the Left.
+ - Left-wing thinking is that difference means unequal; therefore, all difference must be denied.
+ - Virtually every agnostic lives like an atheist, living completely irreligious lives.
+ - The whole American experiment has been predicated on giving individuals as much control over their own lives as possible.
+ - The Congressional Black Caucus is a moral fraud. It’s amazing how many people are afraid of saying that.
+ - Without God and religion you don’t have moral truth, you have moral opinion.
+ - If anything, we older people yearn for a peaceful world even more than young people do. We are the ones who lost friends or relatives in some war. We are the ones who have lived a lifetime of seeing and reading about human suffering.
+ - How a society channels male aggression is one of the greatest questions as to whether that society will survive. That’s why I am not against violence in the media, I am against the glorification of immoral violence.
+ - Most women are not programmed to prefer a great career to a great man and a family. They feel they were sold a bill of goods at college and by the media.
+ - The greatest hope most Americans – including Republicans – had when Barack Obama was elected president was that the election of a black person as the country’s president would reduce, if not come close to eliminating, the racial tensions that have plagued America for generations.
+ - You will be a happier person if you don’t do what you want to do, most of the time.
+ - Whatever one does for a living, three questions need to be confronted before it is too late: What really matters to me? What price do my spouse and kids pay for my career success? What price does my soul pay?
+ - Good and happy people who believe in God are the greatest living arguments for God’s existence.
+ - The Left neither cares about prosperity nor jobs. It cares about equality.
+ - This is the belief of the Left: You negotiate with evil, and get tough with your allies.
+ - It is sometimes rational to do what is wrong, and sometimes irrational to do what is right.
+ - Every age has found some alternative to American values appealing. The number of Western intellectuals enamored of fascism and all the various expressions of Marxism was legion.
+ - No day passes without a Democratic politician, a left-wing commentator, or, if I may be excused a redundancy, a left-wing academic labeling Republicans and conservatives racist.
+ - America derives its laws from its Constitution. It derives its values from the Bible. We don’t get inalienable rights from the Constitution; we get them from God.
+ - You have a choice in life very often whether you do good or you feel good.
+ - There is little correlation between the circumstances of people’s lives and how happy they are.
+ - Citizens of liberal welfare states become increasingly narcissistic.
+ - The Left will destroy what is good to try to make what is perfect. That is the motto of the Left.
+ - Those indoctrinated by leftist thinking become largely incapable of making accurate moral judgments.
+ - To be told that one can be dependent on one’s parents until age 26 should strike a young person who wants to grow up as demeaning, not as something to celebrate.
+ - In a lifetime of observing and participating in political debate, I have seen a lot of meanness.
+ - Ever notice, the ones who deny the holocaust are usually the same ones who want to repeat it?
+ - All happy people are grateful. Ungrateful people cannot be happy. We tend to think that being unhappy leads people to complain, but it’s truer to say that complaining leads to people becoming unhappy.
+ - There have been huge Muslim demonstrations against cartoons depicting Muhammad and any other perceived insult against Islam. But I am unaware of a single demonstration of Muslims against Muslim terror directed at non-Muslims.
+ - American is deteriorating because it is becoming like other countries.
+ - The Obama administration will never say ‘radical Islam.’ Never.
+ - The Left corrupts everything it touches.
+ - Since the 1970s, I have asked students if they would first try to save their drowning dog or a drowning stranger. And for 40 years I have received the same results: One third vote for their dog, one third for the stranger, and one third don’t know what they would do.
+ - If the United States doesn’t lead then evil triumphs.
+ - To deny that human beings are filled with anti-social passions betrays a denial of reality and a lack of self-awareness. One has to be taught nonsense for a great many formative years to believe it.
+ - If the West believed in something, it would prevail overnight. The problem is you can’t beat bad faith with no faith.
+ - Most people who call themselves conservatives can’t explain the American value system.
+ - Liberals don’t ask ‘Does it work?’ They ask ‘Does it equalize?’
+ - I am supposed to worry about oceans rising 70 years from now, on climate models that have already proven to be utterly flawed?
+ - The election, and even the re-election, of a black man as president, in a country that is 87 percent non-black – a first in human history – has had no impact on what are called ‘racial tensions.’
+ - If you really do hate evil, you can’t hate anything else.
+ - Liberals tend to put the onus of your success on society and conservatives on you and your family.
+ - One of the great mind destroyers of college education is the belief that if it’s very complex, it’s very profound.
+ - Those who are compassionate when they should be tough will be tough when they should be compassionate.
+ - The essence of the Hebrew Bible, transmitted by Christianity, is separation: between life and death, nature and God, good and evil, man and woman, and the holy and the profane.
+ - I believe that the levels of taxation advocated by liberals render those taxes a veiled form of theft. ‘Give me more than half of your honestly earned money or you will be arrested’ is legalized thievery.
+ - Taking responsibility for your own life is not a Left wing idea.
+ - The Left has never been comfortable with the notion that values are more determinitive than socioeconomic factors in human behavior.
+ - The further left you go, the meaner the spirit.
+ - It does not matter what position you take on the Left, you are safe and secure. But that is not at all the case for positions that the Right take on. You are not safe and secure, so you travel with bodyguards.
+ - America will nurture a new Muslim – one who can believe in Muhammad and the Quran but who abandons belief in a Shariah-based state and affirms the primary American value of individual liberty, which has not been a normative Islamic value.
+ - Men need rule books. Women want men to intuit what they want. And only about 2% of men can do that, and most of them are not heterosexual.
+ - Obviously, the issue for the Left isn’t aging white males; it is conservatives, whether they are young or old, white or nonwhite, male or female. If female aborigines were conservative, the Left would have a problem with female aborigines.
+ - The Left is doing to America what it has done to almost everything it has deeply influenced – the arts, the university, religion, culture, minorities, Europe: ruining it.
+ - I have spent a good part of my life showing what an intellectual bubble the Left lives in.
+ - The right wing walks the walk; the left wing taxes the people that walk the walk.
+ - The United States is the single greatest force for good in the world.
+ - Just about every generation has some horrific evil that it must fight. For the Democratic Party today that evil is carbon dioxide emissions. For the rest of us, it is an ideology that teaches that its deity is sanctified by the blood of innocents.
+ - Complaining is never powerful because at the root of a complaint is powerlessness.
+ - To understand the Left, one must understand that in its view the greatest evil is material inequality. The Left is more troubled by economic inequality than by evil as humanity has generally understood the term.
+ - The great are not famous, and the famous are not great.
+ - I have known Tavis Smiley since the 1980s, when we both worked at the same radio station in Los Angeles. He is smart, and he is a gentleman who has accorded me great respect both on and off the air.
+ - In colleges throughout America, students are taught to have disdain for the white race. I know this sounds incredible, or at least exaggerated. It is neither.
+ - There is nothing – not any religious or secular body of work – that comes close to the Bible in forming the moral bases of Western civilization and therefore of nearly all moral progress in the world.
+ - It is a world of lies that permeates the Left.
+ - Just because you cannot fight every evil does not mean you should fight no evils.
+ - Virtually nothing Barack Obama has done has left America or the world better since he became president. Nearly everything he has touched has been made worse.
+ - The words ‘I’m sorry’ are so powerful that it’s almost difficult to overstate.
+ - There is no apology from any Muslim leader for all the massacres of Christians.
+ - Life is too short not to enjoy as much of it as you can.
+ - I can’t think of a greater single vehicle to goodness and a better world than if everyone battled their own natures.
+ - As a result of the Left’s sympathetic views of pacifism and because almost no welfare state can afford a strong military, European countries rely on America to fight the world’s evil, and even to defend them.
+ - There is no benefit to the conservative sinner in being a conservative. There is great benefit to the liberal sinner in being a liberal.
+ - Our only hope for America is that every conservative takes upon him or herself the project of learning what American and conservative values are, coming to understand what leftism stands for, and learning how to make the case for those values to women, young people, blacks and Hispanics.
+ - The only thing socialists produce is debt and self-esteem.
+ - There is a very good thing about hating evil. If you hate evil, that’s all you will hate.
+ - The universities deceive when they say they have no agenda other than to open minds.
+ - Unhappy, let alone angry, religious people provide more persuasive arguments for atheism and secularism than do all the arguments of atheists.
+ - The Left is totalitarian in its nature.
+ - Tell me of a right wing-induced hysteria of the last 50 years.
+ - Does the unborn human fetus have at any point the right to live?
+ - If we weren’t born with anti-social passions – narcissism, envy, lust, meanness, greed, hunger for power, just to name the more obvious – why the need for so many laws, whether religious or secular, that govern behavior?
+ - The world is a bad place. There are many wonderful people, but on the whole, humanity basically stinks.
+ - That said, I have come to believe that the more committed one is to leftism, the more likely one is to become meaner.
+ - There is no happiness that isn’t earned.
+ - The fact is that, except for those very few whose wealth is overwhelmingly or entirely inherited, the more affluent have usually worked harder than the less affluent.
+ - Leftism seeks to undo most of the values that are distinct to Judeo-Christian religion.
+ - For the Left, affluence is won, not earned.
+ - It is scary to live in the Obama era with its use of government to suppress dissent.
+ - Therefore the vast majority of the people who affirm leftist beliefs think of their views as the only way to properly think about life.
+ - I just don’t understand why the idea of the universe creating itself is a rational one.
+ - Governments grow as God declines, in both Europe and the United States.
+ - The left and Democrats are relying on the decline the American character that left-wing policies have produced.
+ - Whatever feminists may say about their only advocating choices, everyone knows the truth: Feminism regards work outside the home as more elevating, honorable, and personally productive than full-time mothering and making a home.
+ - Our society is obsessed with personal rights, but it will survive only if we adopt personal obligations.
+ - Once enough Americans reacquaint themselves with Americanism, we should promote it to all countries just as the Left promotes leftism and Muslims promote Islam. One need not be American to affirm Americanism.
+ - Once one understands that ‘racial tensions’ is a euphemism for a black animosity toward whites and a left-wing construct, one begins to understand why the election of a black president has had no impact on most blacks or on the left.
+ - When America doesn’t act, bad things happen.
+ - Has feminism increased the pool of happy women?
+ - A lot of women do a lot of harm because they don’t control their emotions. But in terms of violence, men seem to have a monopoly.
+ - The Left needs causes like fish need water.
+ - Everyone of us plays ‘tapes’ from our parents until we die. That’s why it’s so important to talk good values to your child.
+ - Those who don’t fight evil hate those who do; and those who don’t fight real evils make up little evils.
+ - In various European countries, it is increasingly common for young men to live with their parents into their 30s and even longer. Why not? In the welfare state, there is no shame in doing so.
+ - The problem for the Left, however, is that the moment it stops painting the Right as vile, it has to argue the issues.
+ - Take care of your kid’s character, and everything will follow after that. Character is everything.
+ - Men feel more bereft without a woman than women will feel bereft without a man.
+ - The biggest obstacle to people becoming better is that you have to really want to be a good person in order to be a better person, and most people would rather be other things.
+ - Most activists on the Left believe that they, not only their values, are morally superior to their adversaries. Therefore, coercing people to adhere to ‘progressive’ values is morally acceptable, even demanded.
+ - It is easier to take a position in the abstract than when it hits home.
+ - Every poll about the Left, the Right, and happiness reveals that the farther left one goes, the less happy the person is likely to be.
+ - American troops around the globe are the greatest preservers of liberty and peace in the world.
+ - Big government squashes the human spirit.
+ - People can become addicted to fame, money, and attention as deeply as they become addicted to drugs.
+ - There was one thing more than any other that turned this New York, liberal, Jewish, Columbia University graduate student away from modern liberalism: its use of moral equivalence to avoid confronting evil during the Cold War.
+ - If your religion doesn’t teach you the difference between good and evil, your religion is worse than useless.
+ - My great project is to undo the moral and intellectual damage of most universities.
+ - Hillary Clinton wanted to hide what she was doing so that there was no trail.
+ - If there is no God, the labels ‘good’ and ‘evil’ are merely opinions. They are substitutes for ‘I like it’ and ‘I don’t like it.’ They are not objective realities.
+ - It is extremely difficult to do anything constructive, let alone deep, on daily commercial television, especially on a talk show.
+ - The only difference between your local college and a Christian seminary is that the latter is more honest.
+ - Hillary Clinton is unworthy of being the President of the United States; she has done nothing important that is good.
+ - The more passions you have the happier you’ll be.
+ - I don’t let the hate go to my heart, and I don’t let the praise go to my head.
+ - For some reason, the evolutionists have not come up with an evolution-based explanation for why human beings react so powerfully to music. But surely they will.
+ - Every person who speaks or writes for the public will make an occasional faux pas, and sooner or later will write or say something inappropriate.
+ - If you equate happiness with success, you will never achieve the amount of success necessary to make you happy.
+ - I don’t judge people by their theology, I judge them by their behavior.
+ - Is there a point of taxation wherein even a Democrat would acknowledge it is thievery by the government?
+
+275 quotes

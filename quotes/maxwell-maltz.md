@@ -1,0 +1,100 @@
+ - It takes 21 days to develop a habit.
+ - To change a habit, make a conscious decision, then act out the new behavior.
+ - Man maintains his balance, poise, and sense of security only as he is moving forward.
+ - The ‘self-image’ is the key to human personality and human behavior. Change the self image and you change the personality and the behavior.
+ - You can do only one thing at a time. I simply tackle one problem and concentrate all efforts on what I am doing at the moment.
+ - If you make friends with yourself you will never be alone.
+ - Self-improvement is the name of the game, and your primary objective is to strengthen yourself, not to destroy an opponent.
+ - Low self-esteem is like driving through life with your hand-break on.
+ - Self-esteem is as necessary to the spirit as food is to the body.
+ - A step in the wrong direction is better than staying on the spot all our life. Once you’re moving forward you can correct your course as you go. Your automatic guidance system cannot guide you when you’re standing still.
+ - Our self image and our habits tend to go together. Change one and you will automatically change the other.
+ - This is where you will win the battle – in the playhouse of your mind.
+ - Functionally, a man is somewhat like a bicycle. A bicycle maintains its poise and equilibrium only so long as it’s moving forward towards something.
+ - Ignore past failures and forge ahead.
+ - You make mistakes. Mistakes don’t make you.
+ - The un-happiest of mortals is that man who insists upon reliving the past, over and over in imagination – continually criticizing himself for past mistakes – continually condemning himself for past sins.
+ - Of all the traps and pitfalls in life, self-disesteem is the deadliest, and the hardest to overcome: for it is a pit designed and dug by our own hands, summed up in the phrase, ‘It’s no use – I can’t do it.’
+ - Forgiveness is a scalpel that removes emotional scars.
+ - Times will change for the better when you change.
+ - The most delightful surprise in life is to suddenly recognise your own worth.
+ - You are not your mistakes. Just because you have done something stupid does not make you stupid.
+ - Happiness is the art of relaxation.
+ - Admit your mistakes but don’t cry over them. Correct them and go forward.
+ - Live in the present. The past is gone; the future is unknown – but the present is real, and your opportunities are now.
+ - Accept yourself as you are. Otherwise you will never see opportunity. You will not feel free to move toward it; you will feel you are not deserving.
+ - A human being always acts and feels and performs in accordance with what he imagines to be true about himself and his environment.
+ - Realizing that our actions, feelings and behaviour are the result of our own images and beliefs gives us the level that psychology has always needed for changing personality.
+ - I may be a mistake maker, but I’m also a mistake breaker.
+ - The biggest secret of self-esteem is this: Begin to appreciate other people more; show respect for any human being merely because he is a child of God and therefore a thing of value.
+ - Another cause of confusion, and the resulting feelings of nervousness, hurry, and anxiety, is the absurd habit of trying to do many things at one time.
+ - Change your mental imagery, and the feelings will take care of themselves.
+ - Fully 95 percent of our behavior, feeling, and response is habitual.
+ - Our self image, strongly held, essentially determines what we become.
+ - Plan all you want for the future. Prepare for it. But don’t worry about how you will react tomorrow, or even five minutes from now. Your creative mechanism will react appropriately in the ‘now’ if you pay attention to what is happening now.
+ - To really ‘live,’ that is to find life reasonably satisfying, you must have an adequate and realistic self-image that you can life with. You must find yourself acceptable to ‘you.’
+ - If you wait until circumstances justify your thinking pleasant thoughts, you are likely to wait forever.
+ - Often the difference between a successful person and a failure is not one’s better abilities or ideas, to take a calculated risk – and to act.
+ - Remember you will not always win. Some days, the most resourceful individual will taste defeat. But there is, in this case, always tomorrow – after you have done your best to achieve success today.
+ - Your nervous system cannot tell the difference between an imagined experience and a ‘real’ experience. In either case, it reacts automatically to information which you give to it from your forebrain. Your nervous system reacts appropriately to what you THINK or IMAGINE to be ’true.
+ - Self-discipline is the golden key; without it, you cannot be happy.
+ - Happiness is native to the human mind and its physical machine. We think better, perform better, feel better, and are healthier when we are happy.
+ - Successful people are able to rise above crises by relaxing no matter what the external situation. Their belief in themselves, the strength of their self-image is impenetrable armor, which protects them against shattering events.
+ - Your nervous system cannot tell the difference between an imagined experience and a ‘real’ experience.
+ - Life is a series of problems.
+ - Within you, whoever you may be, regardless of how big a failure you may think yourself to be, is the ability and the power to do whatever you need to do to be happy and successful.
+ - Your automatic guidance system cannot guide you when you’re standing still.
+ - When a person has adequate self-esteem little slights offer no threat at all – they are simply “passed over” and ignored. Even deeper emotional wounds are likely to heal faster and cleaner, with no festering sores to poison life and spoil happiness.
+ - You will act like the sort of person you conceive yourself to be.
+ - Your nervous system can’t tell real failure from imagined failure.
+ - Loneliness is caused by an alienation from life. It is a loneliness from your real self.
+ - Within you right now is the power to do things you never dreamed possible...
+ - The greatest cause of ulcers is mountain-climbing over molehills.
+ - Failure feelings – fear, anxiety, lack of self-confidence – do not spring from some heavenly oracle. They are not written in the stars. They are not holy gospel. Nor are they intimations of a set and decided fate which means that failure is decreed and decided. They originate from your own mind.
+ - Get into the habit of laughing; too many of us have forgotten how to laugh. As people grow older, they sometimes forget that they ever laughed. It is a part of their childhood that they can no longer remember.
+ - Happiness is simply a state of mind in which our thinking is pleasant a good share of the time.
+ - Do your worrying before you place your bet, not after the wheel stops turning.
+ - We are built to conquer environment, solve problems, achieve goals, and we find no real satisfaction or happiness in life without obstacles to conquer and goals to achieve.
+ - You are embarking on the greatest adventure of your life – to improve your self-image, to create more meaning in your life and in the lives of others. This is your responsibility.
+ - Self-image sets the boundaries of individual accomplishment.
+ - We must have courage to bet on our ideas, to take the calculated risk, and to act. Everyday living requires courage if life is to be effective and bring happiness.
+ - Every day you must try to make yourself grow. This you can do.
+ - Science has now confirmed what philosophers, mystics, and other intuitive people have long declared: every human being has been literally “engineered for success” by his Creator. Every human being has access to a power greater than himself.
+ - Worry is one of the most destructive scourges of mankind.
+ - Your present negative beliefs were formed by thought PLUS feelings. Generate enough emotion, or deep feeling and your new thoughts and ideas will cancel them out.
+ - When we consciously and deliberately develop new and better habits, our self image tends to outgrow the old habits and grow into the new pattern.
+ - We are injured and hurt emotionally, Not so much by other people or what they say and don’t say, But by our own attitude and our own response.
+ - You may live in an imperfect world but the frontiers are not closed and the doors are not all shut.
+ - A healthy strong ego, with plenty of self-esteem, does not feel itself threatened by every innocent remark.
+ - Why not imagine yourself successful?
+ - For imagination sets the goal picture which our automatic mechanism works on. We act, or fail to act, not because of will, as is so commonly believed, but because of imagination.
+ - Develop an enthusiasm for life, create a need for more life, and you will receive more life.
+ - Thus man of all creatures is more than a creature, he is also a creator. Man alone can direct his success mechanism by the use of imagination, or imaging ability.
+ - When you’re not goal-striving, not looking forward, you’re not really living.
+ - We, whoever we are, must have a daily goal in our lives, no matter how small or great, to make that day mean something.
+ - Do not say to yourself, ‘I am going to act this way tomorrow.’ Just say to yourself – ‘I am going to imagine myself acting this way NOW – for 30 minutes – today.’
+ - See yourself reacting to threats, not by running away or evading them, but by meeting them, dealing with them, grappling with them in an aggressive intelligent manner.
+ - Conscious effort inhibits and ‘jams’ the automatic creative mechanism.
+ - It is an old psychological axiom that constant exposure to the object of fear immunizes against the fear.
+ - Happiness isn’t something that happens to you. It is what you yourself do and determine upon.
+ - An idea accepted as true from any source can be every bit as powerful as hypnosis.
+ - Mental pictures offer us an opportunity to practice new traits and attitudes, which otherwise we could not do. This is possible because again – your nervous system cannot tell the difference between an actual experience and one that is vividly imagined.
+ - Unthaw and become more natural.
+ - Emptiness is a symptom that you are not living creatively.
+ - True success and true happiness not only go together but each other enhances the other.
+ - Study the situation thoroughly, go over in your imagination the various courses of action possible to you and the consequences which can and may follow from each course. Pick out the course which gives the most promise and go ahead.
+ - It is well known that when Thomas A. Eddison was stymied by a problem, he would lie down and take a short nap.
+ - Begin to imagine what the desirable outcome would be like. Go over these mental pictures and delineate details and refinements. Play them over and over to yourself.
+ - The minute that we change our minds, and stop giving power to the past, the past with its mistakes loses power over us.
+ - Adopt the motto: It doesn’t matter who’s right, but what’s right.
+ - It is the job of conscious rational thought to decide what you want, select the goals you wish to achieve-and concentrate upon these rather than upon what you do not want. To spend time and effort concentrating upon what you do not want is not rational.
+ - We simply must get it through our heads that holding a low opinion of ourselves is not a virtue, but a vice.
+ - Get yourself a goal worth working for. Better still, get yourself a project.
+ - As soon as the error has been recognized and corrections made, it’s equally important that the error be forgotten and the successful attempt remembered and dwelt upon.
+ - Emptiness is a symptom that you are not living creatively. You either have not goal that is important enough to you, or you are not using your talents and efforts in a striving toward an important goal.
+ - Take the trouble to stop and think of the other person’s feelings, his viewpoints, his desires and needs. Think more of what the other fellow wants, and how he must feel.
+ - The greatest miracle you can hope for is self-acceptance.
+ - One of the reasons it has seemed so difficult for a person to change his habits, his personality, or his way of life, has been that heretofore nearly all efforts at change have been directed to the circumference of the self, so to speak, rather than to the center.
+ - One’s capacity for friendship, which can be developed, is basic to one’s capacity for happiness.
+
+98 quotes

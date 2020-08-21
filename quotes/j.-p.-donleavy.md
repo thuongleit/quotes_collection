@@ -1,0 +1,21 @@
+ - When I die, I want to decompose in a barrel of porter and have it served in all the pubs in Dublin. I wonder would they know it was me?
+ - On Being Old. It’s not nice but take comfort that you won’t stay that way for ever.
+ - Writing is turning one’s worst moments into money.
+ - I’m starved for love. Not ordinary love but real love. The love that’s like music or something.
+ - Sometimes you write and you find yourself almost wondering how it will turn out. I don’t think every writer sort of almost admits that at some stage his books can take on their own kind of life it selves and simply lead away into directions that they’re not kind of prepared for.
+ - The purpose of writing is to make your mother and father drop dead with shame.
+ - You know, there must be happiness somewhere, when a lawyer dies.
+ - Electronic books are a bad thing because they cannot be accumulated on shelves to remind you of your past, to impress your neighbors and colleagues, and to help prevent divorces thanks to the sheer bother of arguing over who owns what.
+ - To marry the Irish is to look for poverty.
+ - Rid the mind of knowledge when looking for pleasure. Or start thinking and find a lot of pain.
+ - And no. I must not go on thinking. For the pain will never go away. You just go on and live. In the dust of desertion. Still falling where last I loved.
+ - If you’re going to love somebody, love somebody who needs it.
+ - I got disappointed in human nature as well and gave it up because I found it too much like my own.
+ - I’m all for Christianity, but insolence must be put down.
+ - The inhabitants will always see both sides of an argument so long as it can result in a fight.
+ - See all the women seated, youth in their face lifts, old age in their hands.
+ - Revenge is what I want. Nothing but pure unadulterated revenge. But my mother brought me up to be a lady.
+ - At the age of 18 I don’t think that I thought very differently than I did at the age of 25. I think we instinctively have the knowledge and adapt the knowledge we need.
+ - The best book of the year, Grobel’s writing is quite marvelous. The Hustons reads vividly, just like one of John Huston’s great films.
+
+19 quotes

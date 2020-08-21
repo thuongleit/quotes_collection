@@ -1,0 +1,29 @@
+ - The purpose of computing is insight, not numbers.
+ - Luck favors the prepared mind.
+ - Newton said, “If I have seen further than others, it is because I’ve stood on the shoulders of giants.” These days we stand on each other’s feet!
+ - Given two people with exactly the same ability, the one person who manages day in and day out to get in one more hour of thinking will be tremendously more productive over a lifetime.
+ - True greatness is when your name is like ampere, watt, and fourier-when it’s spelled with a lower case letter.
+ - Mathematics is an interesting intellectual sport but it should not be allowed to stand in the way of obtaining sensible information about physical processes.
+ - The most dangerous thought you can have as a creative person is to think you know what you’re doing.
+ - It may be said “In research, if you know what you are doing, then you shouldn’t be doing it.” In a sense, if the answer turns out to be exactly what you expected, then you have learned nothing new, although you may have had your confidence increased somewhat.
+ - One of the characteristics of successful scientists is having courage.
+ - Science is concerned with what is possible while engineering is concerned with choosing, from among the many possible ways, one that meets a number of often poorly stated economic and practical objectives.
+ - If you don’t work on important problems, it’s not likely that you’ll do important work.
+ - There are wavelengths that people cannot see, there are sounds that people cannot hear, and maybe computers have thoughts that people cannot think.
+ - It is better to do the right problem the wrong way than the wrong problem the right way.
+ - What are the important problems of your field?
+ - The real problem is what can man and machine do together and not in competition.
+ - Mathematics is not merely an idle art form, it is an essential part of our society.
+ - One of the characteristics of successful scientists is having courage. Once you get your courage up and believe that you can do important problems, then you can. If you think you can’t, almost surely you are not going to.
+ - He who works with the door open gets all kinds of interruptions, but he also occasionally gets clues as to what the world is and what might be important.
+ - Good teachers deserve apples; great teachers deserve chocolate. A favorite quotation, written in calligraphy on his office door.
+ - You can tell other people all the alibis you want. I don’t mind. But to yourself try to be honest.
+ - Typing is no substitute for thinking.
+ - In mathematics we do not appeal to authority, but rather you are responsible for what you believe.
+ - Perhaps the central problem we face in all of computer science is how we are to get to the situation where we build on top of the work of others rather than redoing so much of it in a trivially different way.
+ - If the prior distribution, at which I am frankly guessing, has little or no effect on the result, then why bother; and if it has a large effect, then since I do not know what I am doing how would I dare act on the conclusions drawn?
+ - Does anyone believe that the difference between the Lebesgue and Riemann integrals can have physical significance, and that whether say, an airplane would or would not fly could depend on this difference? If such were claimed, I should not care to fly in that plane.
+ - Computer scientists stand on each other’s feet.
+ - Science is composed of laws which were originally based on a small, carefully selected set of observations, often not very accurately measured originally; but the laws have later been found to apply over much wider ranges of observations and much more accurately than the original data justified.
+
+27 quotes

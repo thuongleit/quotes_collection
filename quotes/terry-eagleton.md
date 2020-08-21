@@ -1,0 +1,105 @@
+ - Genuine equality means not treating everyone the same, but attending equally to everyone’s different needs.
+ - Literature transforms and intensifies ordinary language, deviates systematically from everyday speech. If you approach me at a bus stop and murmur Thou still unravished bride of quietness, then I am instantly aware that I am in the presence of the literary.
+ - The truth is that liberal humanism is at once largely ineffectual, and the best ideology of the ‘human’ that present bourgeois society can muster.
+ - Yahweh is presented in the Jewish Bible as stateless and nationless. He can’t be used as a totem or fetish in that way.
+ - In the end, the humanities can only be defended by stressing how indispensable they are; and this means insisting on their vital role in the whole business of academic learning, rather than protesting that, like some poor relation, they don’t cost much to be housed.
+ - Language, identity and forms of life are the terms in which political demands are shaped and voiced.
+ - The liberal state is neutral between capitalism and its critics until the critics look like they are winning.
+ - One side-effect of the so-called war on terror has been a crisis of liberalism. This is not only a question of alarmingly illiberal legislation, but a more general problem of how the liberal state deals with its anti-liberal enemies.
+ - A truly common culture is not one in which we all think alike, or in which we all believe that fairness is next to godliness, but one in which everyone is allowed to be in on the project of cooperatively shaping a common way of life.
+ - I value my Catholic background very much. It taught me not to be afraid of rigorous thought, for one thing.
+ - Writing seems to rob me of my being: it is a second hand mode of communication, a pallid, mechanical transcript of speech, and so always at one remove from my consciousness.
+ - It is language which speaks in literature, in all its swarming ‘polysemic’ plurality, not the author himself.
+ - The humanities should constitute the core of any university worth the name.
+ - Literature transforms and intensifies ordinary language, deviates systematically from everyday speech.
+ - After all, if you do not resist the apparently inevitable, you will never know how inevitable the inevitable was.
+ - Postmodernism is among other things a sick joke at the expense of revolutionary avant-gardism.
+ - Deconstruction insists not that truth is illusory but that it is institutional.
+ - Dawkins considers that all faith is blind faith, and that Christian and Muslim children are brought up to believe unquestioningly. Not even the dim-witted clerics who knocked me about at grammar school thought that.
+ - People do evil things because they are evil. Some people are evil in the way that some things are coloured indigo. They commit their evil deeds not to achieve some goal, but just because of the sort of people they are.
+ - The role of the intellectual, so it is said, is to speak truth to power. Noam Chomsky has dismissed this pious tag on two grounds. For one thing, power knows the truth already; it is just busy trying to conceal it. For another, it is not those in power who need the truth, but those they oppress.
+ - An enlightened trust in the sovereignty of human reason can be every bit as magical as the exploits of Merlin, and a faith in our capacity for limitless self-improvement just as much a wide-eyed superstition as a faith in leprechauns.
+ - Post-structuralism is among other things a kind of theoretical hangover from the failed uprising of ’68, a way of keeping the revolution warm at the level of language, blending the euphoric libertarianism of that moment with the stoical melancholia of its aftermath.
+ - Like the rest of us, Tom Paulin is a bundle of contradictions. At its finest, his work is brave, adventurous, original and wonderfully idiosyncratic.
+ - Men and women do not easily submit to a power that does not weave itself into the texture of their daily existence – one reason why culture remains so politically vital. Civilisation cannot get on with culture, and it cannot get on without it.
+ - For Aristotle, goodness is a kind of prospering in the precarious affair of being human.
+ - Historical determinism is a recipe for political quietism.
+ - We live in a society which on the one hand pressurizes us into the pursuit of instant gratification, and the other hand imposes on whole sectors of the population and endless deferment of fulfillment.
+ - Works of art cannot save us. They can simply render us more sensitive to what needs to be repaired.
+ - If history, philosophy and so on vanish from academic life, what they leave in their wake may be a technical training facility or corporate research institute. But it will not be a university in the classical sense of the term, and it would be deceptive to call it one.
+ - Evil is often supposed to be without rhyme or reason.
+ - Literary texts do not exist on bookshelves: they are processes of signification materialized only in the practice of reading. For literature to happen, the reader is quite as vital as the author.
+ - What’s wrong with a bit of nostalgia between friends? I think nostalgia sometimes gets too much of a bad press.
+ - God chose what is weakest in the world to shame the strong.
+ - The past can be used to renew the present, not just to bury it.
+ - Evil may be ‘unscientific’ but so is a song or a smile.
+ - It is easy to see why a diversity of cultures should confront power with a problem. If culture is about plurality, power is about unity. How can it sell itself simultaneously to a whole range of life forms without being fatally diluted?
+ - The most compelling confirmation of Marx’s theory of history is late capitalist society. There is a sense in which this case is becoming truer as time passes.
+ - Americans use the word ‘dream’ as often as psychoanalysts do.
+ - Scratch a schoolboy and you find a savage.
+ - Evil is unintelligible. It is just a thing in itself, like boarding a crowded commuter train wearing only a giant boa constrictor. There is no context which would make it explicable.
+ - History works itself out by an inevitable internal logic.
+ - Any attempt to define literary theory in terms of a distinctive method is doomed to failure.
+ - Imagine someone holding forth on biology whose only knowledge of the subject is ‘The Book of British Birds,’ and you have a rough idea of what it feels like to read Richard Dawkins on theology.
+ - It is important to see that, in the critique of ideology, only those interventions will work which make sense to the mystified subject itself.
+ - Cynicism and naivety lie cheek by jowl in the American imagination; if the United States is one of the most venal nations on Earth, it is also one of the most earnestly idealistic.
+ - Being brought up in a culture is a matter of learning appropriate forms of feeling as much as particular ways of thinking.
+ - It is false to believe that the sun revolves around the earth, but it is not absurd.
+ - It is capitalism, not Marxism, that trades in futures.
+ - It is difficult to think of an origin without wanting to go back beyond it.
+ - Successful revolutions are those which end up by erasing all traces of themselves.
+ - It is true that too much belief can be bad for your health.
+ - The political currents that topped the global agenda in the late 20th century – revolutionary nationalism, feminism and ethnic struggle – place culture at their heart.
+ - When one emphasizes, as Jacques Derrida once remarked, one always overemphasizes.
+ - The conversion of agnostic High Tories to the Anglican church is always rather suspect. It seems too pat and predictable, too clearly a matter of politics rather than faith.
+ - All communication involves faith; indeed, some linguisticians hold that the potential obstacles to acts of verbal understanding are so many and diverse that it is a minor miracle that they take place at all.
+ - Understanding is always in some sense retrospective, which is what Hegel meant by remarking that the owl of Minerva flies only at night.
+ - For the liberal state to accommodate a diversity of beliefs while having few positive convictions is one of the more admirable achievements of civilization.
+ - Ivory towers are as rare as bowling alleys in tribal cultures.
+ - As far as belief goes, postmodernism prefers to travel light: it has beliefs, to be sure, but it does not have faith.
+ - Most poetry in the modern age has retreated to the private sphere, turning its back on the political realm.
+ - If there are indeed any iron laws of history, one of them is surely that in any major crisis of the capitalist system, a sector of the liberal middle class will shift to the left, and then shift smartly back again once the crisis has blown over.
+ - All desire springs from a lack, which it strives continually to fill.
+ - The truth is that the past exists no more than the future, even though it feels as though it does.
+ - There seems to be something in humanity which will not bow meekly to the insolence of power.
+ - The study of history and philosophy, accompanied by some acquaintance with art and literature, should be for lawyers and engineers as well as for those who study in arts faculties.
+ - There is an insuperable problem about introducing immigrants to British values. There are no British values. Nor are there any Serbian or Peruvian values. No nation has a monopoly on fairness and decency, justice and humanity.
+ - I liked early Amis a lot, but I stopped reading him some time ago. I admire Hitchens on literary topics – I think he is very astute. McEwan, I read a bit. But I suppose it’s more the ideological phenomenon that they represent together that interests me.
+ - Like all the best radical positions, then, mine is a thoroughly traditionalist one.
+ - Anyone can be tolerant of those who are tolerant.
+ - A socialist is just someone who is unable to get over his or her astonishment that most people who have lived and died have spent lives of wretched, fruitless, unremitting toil.
+ - Rousseau ranks among the great educational theorists of the modern era, even if he was the last man to put in charge of a classroom. Young adults, he thought, should be allowed to develop their capabilities in their distinctive way.
+ - All consciousness is consciousness of something: in thinking I am aware that my thought is ‘pointing towards’ some object.
+ - I enjoy popularisation and I think I’m reasonably good at it. I also think it’s a duty. It’s just so pedagogically stupid to forget how difficult one found these ideas oneself to begin with.
+ - It is true that some liberals and humanists, along with the laid-back Danes, deny the existence of evil. This is largely because they regard the word ‘evil’ as a device for demonising those who are really nothing more than socially unfortunate.
+ - Reading a text is more like tracing this process of constant flickering than it is like counting the beads on a necklace.
+ - Irish fiction is full of secrets, guilty pasts, divided identities. It is no wonder that there is such a rich tradition of Gothic writing in a nation so haunted by history.
+ - If we were not called upon to work in order to survive, we might simply lie around all day doing nothing.
+ - You’ve got to have a sense of different audiences. I’m a kind of performer manque – I come from a long line of failed actors!
+ - The German philosopher Walter Benjamin had the curious notion that we could change the past. For most of us, the past is fixed while the future is open.
+ - The government spokesman announces that there is no truth in the charges of widespread corruption within the Cabinet; nobody believes him; he knows that nobody believes him, we know that he knows it, and he knows it too.
+ - Universities are no longer educational in any sense of the word that Rousseau would have recognised. Instead, they have become unabashed instruments of capital. Confronted with this squalid betrayal, one imagines he would have felt sick and oppressed.
+ - Today, nostalgia is almost as unacceptable as racism.
+ - You can tell that the capitalist system is in trouble when people start talking about capitalism.
+ - The present is only understandable through the past, with which it forms a living continuity; and the past is always grasped from our own partial viewpoint within the present.
+ - If it is true that we need a degree of certainty to get by, it is also true that too much of the stuff can be lethal.
+ - There is no way in which we can retrospectively erase the Treaty of Vienna or the Great Irish Famine. It is a peculiar feature of human actions that, once performed, they can never be recuperated. What is true of the past will always be true of it.
+ - Socialism is the completion of democracy, not the negation of it.
+ - Capitalism cannot survive without a working class, while the working class can flourish a lot more freely without capitalism.
+ - Theology, however implausible many of its truth claims, is one of the most ambitious theoretical arenas left in an increasingly specialized world.
+ - If the masses are not thrown a few novels, they may react by throwing up a few barricades.
+ - Schizophrenic language has in this sense an interesting resemblance to poetry.
+ - Those who sentimentally indulge humanity do it no favours.
+ - If history moves forward, knowledge of it travels backwards, so that in writing of our own recent past we are continually meeting ourselves coming the other way.
+ - Nations sometimes flourish by denying the crimes that brought them into being. Only when the original invasion, occupation, extermination or usurpation has been safely thrust into the political unconscious can sovereignty feel secure.
+ - Modern capitalist nations are the fruit of a history of slavery, genocide, violence and exploitation every bit as abhorrent as Mao’s China or Stalin’s Soviet Union.
+ - I say that virtue is really all about enjoying yourself, living fully; but of course it is far from obvious what living fully actually means.
+ - With fiction, you can talk about plot, character and narrative, whereas a poem brings home the fact that everything that happens in a work of literature happens in terms of language. And this is daunting stuff to deal with.
+ - Nothing in human life is inherently private.
+ - In the end, it is because the media are driven by the power and wealth of private individuals that they turn private lives into public spectacles. If every private life is now potentially public property, it is because private property has undermined public responsibility.
+ - The frontier between public and private shifts from time to time and culture to culture.
+ - Man eternally tries to get back to an organic past that has slipped just beyond his reach.
+ - I attacked Dawkins’s book on God because I think he is theologically illiterate.
+ - Poetry is the most subtle of the literary arts, and students grow more ingenious by the year at avoiding it. If they can nip around Milton, duck under Blake and collapse gratefully into the arms of Jane Austen, a lot of them will.
+
+103 quotes

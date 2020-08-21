@@ -1,0 +1,26 @@
+ - Futurology always ends up telling you more about your own time than about the future.
+ - The genome is a book that wrote itself, continually adding, deleting and amending over four billion years.
+ - At some point, human intelligence became collective and cumulative in a way that happened to no other animal.
+ - Genes are biochemical recipes written in a four-letter alphabet called DNA.
+ - Our minds have been built by selfish genes, but they have been built to be social, trustworthy and cooperative.
+ - It is not a zero sum game. The simple idea of the gains from trade lies at the heart of the modern and the ancient economy, not the power of capital. There is nothing else to it.
+ - Ecology, like genetics, is not about equilibrium states. It is about change, change and change. Nothing stays the same forever.
+ - In a massive, long-term study of 17,000 civil servants, an almost unbelievable conclusion emerged: the status of a person’s job was more likely to predict their likelihood of a heart attack than obesity, smoking or high blood pressure.
+ - The body is merely an evolutionary vehicle for the gene.
+ - Simple determinism, whether of the genetic or environmental kind, is a depressing prospect for those with a fondness for free will.
+ - Life is a Sisyphean race, run ever faster toward a finish line that is merely the start of the next race.
+ - The message from history is so blatantly obvious – that free trade causes mutual prosperity while protectionism causes poverty – that it seems incredible that anybody ever thinks otherwise. There is not a single example of a country opening its borders to trade and ending up poorer.
+ - Uniqueness is the commodity of glut.
+ - A true scientist is bored by knowledge; it is the assault on ignorance that motivates him – the mysteries that previous discoveries have revealed.
+ - Trade is 10 times as old as farming.
+ - The fuel on which science runs is ignorance. Science is like a hungry furnace that must be fed logs from the forests of ignorance that surround us. In the process, the clearing we call knowledge expands, but the more it expands, the longer its perimeter and the more ignorance comes into view.
+ - Prosperity has brought complications. Our lives are busier, faster, more stressful. They’re nostalgic for a simpler, slower time.
+ - Society works not because we have consciously invented it, but because it is an ancient product of our evolved predispositions. It is literally in our nature.
+ - Intelligence will become more and more collective; innovation and order will become more and more bottom up.
+ - Every minute, every second, the pattern of genes being expressed in your brain changes, often in direct or indirect response to events outside the body. Genes are the mechanisms of experience.
+ - Considering the way evolution works, it should not be surprising if every man has got a Don Giovanni somewhere inside him.
+ - We consciously decide whether to consider people; we fall in love despite ourselves; we entirely fail to fall in love with people who fall in love with us. It is a mightily complicated business.
+ - The evolutionary biologist Richard Dawkins in 1976 coined the term ‘meme’ for a unit of cultural imitation.
+ - The interaction of genetic and external influences makes my behaviour unpredictable, but not undetermined. In the gap between those words lies freedom.
+
+24 quotes

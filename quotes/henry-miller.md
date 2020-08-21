@@ -1,0 +1,314 @@
+ - One’s destination is never a place but rather a new way of looking at things.
+ - I see myself forever and ever as the ridiculous man, the lonely soul, the wanderer, the restless frustrated artist, the man in love with love, always in search of the absolute, always seeking the unattainable.
+ - The light of Greece opened my eyes, penetrated my pores, expanded my whole being.
+ - Destiny is what you are supposed to do in life. Fate is what kicks you in the ass to make you do it.
+ - The goal of life is not to possess power but to radiate it.
+ - Hope is a bad thing. It means that you are not what you want to be. It means that part of you is dead, if not all of you. It means that you entertain illusions. It’s a sort of spiritual clap, I should say.
+ - To be silent the whole day long, see no newspaper, hear no radio, listen to no gossip, be thoroughly and completely lazy, thoroughly and completely indifferent to the fate of the world is the finest medicine a man can give himself.
+ - Don’t look for miracles. You yourself are the miracle.
+ - At the bottom of every frozen heart there is a drop or two of love – just enough to feed the birds.
+ - The one thing we can never get enough of is love. And the one thing we never give enough is love.
+ - The moment one gives close attention to any thing, even a blade of grass it becomes a mysterious, awesome, indescribably magnificent world in itself.
+ - There are only three things to be done with a woman. You can love her, suffer for her, or turn her into literature.
+ - Everything we shut our eyes to, everything we run away from, everything we deny, denigrate, or despise, serves to defeat us in the end.
+ - A book lying idle on a shelf is wasted ammunition. Like money, books must be kept in constant circulation. Lend and borrow to the maximum.
+ - Every man has his own destiny: the only imperative is to follow it, to accept it, no matter where it leads him.
+ - Every day the choice is presented to us, to live up to the spirit that is in us, or deny it.
+ - I’m delirious because I’m dying so fast.
+ - Develop an interest in life as you see it; the people, things, literature, music – the world is so rich, simply throbbing with rich treasures, beautiful souls and interesting people. Forget yourself.
+ - All growth is a leap in the dark, a spontaneous unpremeditated act without benefit of experience.
+ - Everybody says sex is obscene. The only true obscenity is war.
+ - What seems nasty, painful, evil can become a source of beauty, joy, and strength, if faced with an open mind.
+ - I need to be alone. I need to ponder my shame and my despair in seclusion; I need the sunshine and the paving stones of the streets without companions, without conversation, face to face with myself, with only the music of my heart for company.
+ - I have no money, no resources, no hopes. I am the happiest man alive.
+ - All growth is a leap in the dark.
+ - The real leader has no need to lead – he is content to point the way.
+ - The truly great writer does not want to write: he wants the world to be a place in which he can live the life of the imagination. The first quivering word he puts to paper is the word of the wounded angel: pain.
+ - The aim of life is to live, and to live means to be aware, joyously, drunkenly, serenely, divinely aware.
+ - If you can fall in love again and again if you can forgive as well as forget, if you can keep from growing sour, surly, bitter and cynical you’ve got it half licked.
+ - To make living itself an art, that is the goal.
+ - Develop an Interest in Life as you see it.
+ - Chaos is the score upon which reality is written.
+ - When you can’t create you can work.
+ - True strength lies in submission which permits one to dedicate his life, through devotion, to something beyond himself.
+ - Dedication is not what others expect of you, it is what you can give to others.
+ - It is with the soul that we grasp the essence of another human being, not with the mind, nor even with the heart.
+ - Life moves on, whether we act as cowards or heroes.
+ - Words are loneliness.
+ - Even the idiot may have a message for us.
+ - The world is the mirror of myself dying.
+ - When spring comes to Paris the humblest mortal alive must feel that he dwells in paradise.
+ - Until we lose ourselves there is no hope of finding ourselves.
+ - We are all part of creation, all kings, all poets, all musicians; we have only to open up, only to discover what is already there.
+ - The dreamer whose dreams are non-utilitarian has no place in this world. In this world the poet is anathema, the thinker a fool, the artist an escapist, the man of vision a criminal.
+ - To paint is to love again, and to love is to live life to the fullest.
+ - We must be holy without holiness. We must be whole, complete. That’s being holy. Any other kind of holiness is false, a snare, and a delusion.
+ - Greece is the home of the gods; they may have died but their presence still makes itself felt. The gods were of human proportion: they were created out of the human spirit.
+ - Every man is working out his destiny in his own way and nobody can be of any help except by being kind, generous, and patient.
+ - Whatever there be of progress in life comes not through adaptation but through daring.
+ - On the meridian of time, there is no injustice: there is only the poetry of motion creating the illusion of truth and drama.
+ - It was here in Big Sur that I first learned to say ‘amen.’
+ - Of course you don’t die. Nobody dies. Death doesn’t exist. You only reach a new level of vision, a new realm of consciousness, a new unknown world.
+ - I made up my mind that I would hold onto nothing, that I would expect nothing.
+ - Without a Coca-Cola life is unthinkable.
+ - Confusion is a word we have invented for an order which is not understood.
+ - I soon found out you can’t change the world. The best you can do is to learn to live with it.
+ - Remorse is impotence; it will sin again. Only repentance is strong – it can end everything.
+ - I have found God, but he is insufficient.
+ - As long as that spark of passion is missing there is no human significance in the performance.
+ - In expanding the field of knowledge we but increase the horizon of ignorance.
+ - It is silly to go on pretending that under the skin we are brothers. The truth is more likely that under the skin we are all cannibals, assassins, traitors, liars and hypocrites.
+ - Cluster together like stars!
+ - There is no salvation in becoming adapted to a world which is crazy.
+ - Every moment is a golden one for him who has the vision to recognize it as such.
+ - I read to be taken out of myself, to become ecstatic.
+ - Real love is never perplexed, never qualifies, never rejects, never demands. It replenishes, by grace of restoring unlimited circulation. It burns, because it knows the true meaning of sacrifice. It is life illuminated.
+ - You have to write a million words before you find your voice as a writer.
+ - There is the happiness which comes from creative effort. The joy of dreaming, creating, building, whether in painting a picture, writing an epic, singing a song, composing a symphony, devising new invention, creating a vast industry.
+ - Serenity is when you get above all this, when it doesn’t matter what they think, say or want, but when you do as you are, and see God and Devil as one.
+ - Whoever uses the spirit that is in him creatively is an artist. To make living itself an art, that is the goal.
+ - Let me be, was all I wanted. Be what I am, no matter how I am.
+ - When into the womb of time everything is again withdrawn chaos will be restored and chaos is the score upon which reality is written.
+ - People used to envy me my inspiration. I hate inspiration. It takes you over completely. I could never wait until it passed and I got rid of it.
+ - Life has to be given a meaning because of the obvious fact that it has no meaning.
+ - Hitler is no worse, nay better, in my opinion, than the other lugs. He makes the German mistake of being tactless, that’s all.
+ - Art teaches nothing, except the significance of life.
+ - He saw that science had become as great a hoax as religion, that nationalism was a farce, patriotism a fraud, education a form of leprosy, and that morals were for cannibals.
+ - Work on one thing at a time until finished.
+ - I’m a bit retarded, like most Americans.
+ - Writing is its own reward.
+ - In the beginning was the Word. Man acts it out. He is the act, not the actor.
+ - Those interested in celestial navigation are advised to first obtain a rudimentary knowledge of integral calculus, phlebotomy, astral physics and related subjects. The use of liquor is strictly forbidden on interplanetary flights.
+ - It is almost banal to say so yet it needs to be stressed continually: all is creation, all is change, all is flux, all is metamorphosis.
+ - If there is to be any peace it will come through being, not having.
+ - Each man has his own way of being himself and of saying it so ultimately that he can’t be denied.
+ - An artist is always alone – if he is an artist. No, what the artist needs is loneliness.
+ - People are like lice – they get under your skin and bury themselves there. You scratch and scratch until the blood comes, but you can’t get permanently deloused.
+ - For the artist to attach himself to his work, or identify himself with it, is suicidal.
+ - No man is great enough or wise enough for any of us to surrender our destiny to. The only way in which anyone can lead us is to restore to us the belief in our own guidance.
+ - Day by day. No yesterdays and no tomorrows. The barometer never changes, the flag is always at half-mast.
+ - We should read to give our souls a chance to luxuriate.
+ - We kill because we are afraid of our own shadow, afraid that if we used a little common sense we’d have to admit that our glorious principles were wrong.
+ - Once you have given up the ghost, everything follows with dead certainty, even in the midst of chaos.
+ - France may one day exist no more, but the Dordogne will live on just as dreams live on and nourish the souls of men.
+ - The world is not to be put in order. The world is order. It is for us to put ourselves in unison with this order.
+ - We should not stop to reflect, compare, analyze, possess, but flow on and through, endlessly, like music.
+ - Everyone has his own reality in which, if one is not too cautious, timid or frightened, one swims. This is the only reality there is.
+ - I found that what I had desired all my life was not to live – if what others are doing is called living – but to express myself.
+ - My understanding of the meaning of a book is that the book itself disappears from sight, that it is chewed alive, digested and incorporated into the system as flesh and blood which in turn creates new spirit and reshapes the world.
+ - We are dancing in the hollow of nothingness. We are one flesh, but separated like stars.
+ - When you travel often, you will be addicted to it forever.
+ - The learning we received only tended to obscure our vision. From the day we went to school we learned nothing; on the contrary, we were made obtuse, we were wrapped in a fog of words and abstractions.
+ - Everything was for tomorrow, but tomorrow never came. The present was only a bridge and on this bridge they are still groaning, as the world groans, and not one idiot ever thinks of blowing up the bridge.
+ - The City of New York is like an enormous citadel, a modern Carcassonne. Walking between the magnificent skyscrapers one feels the presence on the fringe of a howling, raging mob, a mob with empty bellies, a mob unshaven and in rags.
+ - The ordinary man is involved in action, the hero acts. An immense difference.
+ - The only law which is really lived up to wholeheartedly and with a vengeance is the law of conformity.
+ - For there is only one great adventure and that is inward toward the self, and for that, time nor space nor even deeds matter.
+ - Whatever I do is done out of sheer joy; I drop my fruits like a ripe tree. What the general reader or the critic makes of them is not my concern.
+ - Sex is one of the nine reasons for reincarnation. The other eight are unimportant.
+ - Music is the can-opener of the soul.
+ - We live at the edge of the miraculous.
+ - There’s nothing wrong with the world. What’s wrong is our way of looking at it.
+ - I’d rather sit down and write a letter than call someone up. I hate the telephone.
+ - All my good reading, you might say, was done in the toilet.
+ - The moment one is on the side of life; peace and security drop out of consciousness. The only peace, the only security, is in fulfillment.
+ - I will never again go to people under false pretenses even if it is to give them the Holy Bible. I will never again sell anything, even if I have to starve. I am going home now and I will sit down and really write about people.
+ - The artist is the opposite of the politically minded individual, the opposite of the reformer, the opposite of the idealist. The artist does not tinker with the universe, he recreates it out of his own experience and understanding of life.
+ - We create our fate everyday.
+ - Sin, guilt, neurosis; they are one and the same, the fruit of the tree of knowledge.
+ - Imagination is the voice of daring. If there is anything Godlike about God it is that. He dared to imagine everything.
+ - We do not talk – we bludgeon one another with facts and theories gleaned from cursory readings of newspapers, magazines and digests.
+ - For the moment I can think of nothing – except that I am a sentient being stabbed by the miracle of these waters that reflect a forgotten world.
+ - Man has demonstrated that he is master of everything – except his own nature.
+ - We have two American flags always: one for the rich and one for the poor. When the rich fly it means that things are under control; when the poor fly it means danger, revolution, anarchy.
+ - What is an artist? He’s a man who has antennae, who knows how to hook up to the currents which are in atmosphere, in the cosmos.
+ - I believe that today more than ever a book should be sought after even if it has only one great page in it. We must search for fragments, splinters, toenails, anything that has ore in it, anything that is capable of resuscitating the body and the soul.
+ - If one believes, then miracles occur.
+ - Why are we so full of restraint? Why do we not give in all directions? Is it fear of losing ourselves? Until we do lose ourselves there is no hope of finding ourselves.
+ - The world dies over and over again, but the skeleton always gets up and walks.
+ - Example moves the world more than doctrine.
+ - I am living at the Villa Borghese. There is not a crumb of dirt anywhere, nor a chair misplaced. We are all alone here and we are dead.
+ - For a metaphysical treat stop at the Big Sur Inn, which is also a haven for stray cats and dogs. Life along the South Coast is just a bed of roses, with a few thorns and nettles interspersed.
+ - I believe in saying the truth, coming out with it cold, shocking if necessary, not disguising it.
+ - The loss of sex polarity is part and parcel of the larger disintegration, the reflex of the soul’s death, and coincident with the disappearance of great men, great deeds, great causes, great wars, etc.
+ - The blind lead the blind. It’s the democratic way.
+ - I feel that America is essentially against the artist, that the enemy of America is the artist, because he stands for individuality and creativeness, and that’s un-American somehow.
+ - Everyman, when he gets quiet, when he becomes desperately honest with himself, is capable of uttering profound truths.
+ - Next to love friendship, in my opinion, is the most valuable thing life has to offer.
+ - Were there a Christian so faithful to his God as I was to her we would all be Jesus Christ today.
+ - Life is 440 horsepower in a 2-cylinder engine.
+ - To know Paris is to know a great deal.
+ - I have made a silent compact with myself not to change a line of what I write. I am not interested in perfecting my thoughts, nor my actions.
+ - Do anything, but let it produce joy. Do anything, but let it yield ecstasy.
+ - The real enemy can always be met and conquered, or won over. Real antagonism is based on love, a love which has not recognized itself.
+ - Our own physical body possesses a wisdom which we who inhabit the body lack. We give it orders which make no sense.
+ - Think only what is right there, what is right under your nose to do. It’s such a simple thing – that’s why people can’t do it.
+ - A book lying idle on a shelf is wasted ammunition.
+ - To sing you must first open your mouth. You must have a pair of lungs, and a little knowledge of music. It is not necessary to have an accordion, or a guitar. The essential thing is to want to sing. This then is a song. I am singing.
+ - What holds the world together, as I have learned from bitter experience, is sexual intercourse.
+ - All my good reading, you might say, was done in the toilet. There are passages in Ulysses which can be read only in the toilet – if one wants to extract the full flavor of their content.
+ - We don’t trust our five senses; we rely on our critics and educators, all of whom are failures in the realm of creation.
+ - Your nearness is the nearness of planets. I am the void between you. If I withdraw there will be no void for you to swim in.
+ - Los Angeles gives one the feeling of the future more strongly than any city I know of. A bad future, too, like something out of Fritz Lang’s feeble imagination.
+ - A world without hope, but no despair.
+ - Whatever needs to be maintained through force is doomed.
+ - Many is the mirage I chased. Always I was overreaching myself. The oftener I touched reality, the harder I bounced back to the world of illusion, which is the name for everyday life.
+ - The world is two thirds spaghetti and meatballs, one third syphilitic chancre.
+ - I want to undress you, vulgarize you a bit.
+ - You start with the sublime and end up in an alley jerking away for dear life.
+ - The tragedy of it is that nobody sees the look of desperation on my face. Thousands and thousands of us, and we’re passing one another without a look of recognition.
+ - America is no place for an artist: to be an artist is to be a moral leper, an economic misfit, a social liability. A corn-fed hog enjoys a better life than a creative writer, painter or musician. To be a rabbit is better still.
+ - The only difference between the Adamic man and the man of today is that the one was born to Paradise and the other has to create it.
+ - And the books you write. They’re not you. They’re not me sitting here, this Henry Miller. They belong to someone else. It’s terrible. You can never rest.
+ - Life’s wildest moment – she kneels on the sidewalk. Everything else she does is lies, lies.
+ - The cancer of time is eating us away.
+ - The poem is the dream made flesh, in a two-fold sense: as work of art, and as life, which is a work of art.
+ - The sordid qualities imputed to the enemy are always those which we recognize as our own and therefore rise to slay, because only through projection do we realize the enormity and horror of them.
+ - I see America spreading disaster. I see America as a black curse upon the world. I see a long night settling in and that mushroom which has poisoned the world withering at the roots.
+ - You can travel fifty thousand miles in America without once tasting a piece of good bread.
+ - It’s good to be just plain happy, it’s a little better to know that you’re happy; but to understand that you’re happy and to know why and how and still be happy, be happy in the being and the knowing, well that is beyond happiness, that is bliss.
+ - Any genuine philosophy leads to action and from action back again to wonder, to the enduring fact of mystery.
+ - Back of every creation, supporting it like an arch, is faith. Enthusiasm is nothing: it comes and goes. But if one believes, then miracles occur.
+ - Through endless night the earth whirls toward a creation unknown...
+ - It is no accident that propels people like us to Paris.
+ - Surrealism is merely the reflection of the death process. It is one of the manifestations of a life becoming extinct, a virus which quickens the inevitable end.
+ - The study of crime begins with the knowledge of oneself. All that you despise, all that you loathe, all that you reject, all that you condemn and seek to convert by punishment springs from you.
+ - What have we to offer the world beside the superabundant loot which we recklessly plunder from the earth under the maniacal delusion that this insane activity represents progress and enlightenment?
+ - The purpose of life is to remember.
+ - No matter how vast, how total, the failure of man here on earth, the work of man will be resumed elsewhere. War leaders talk of resuming operations on this front and that, but man’s front embraces the whole universe.
+ - The most difficult thing to adjust to, apparently, is peace and contentment.
+ - Forget the books you want to write. Think only of the book you are writing.
+ - The word which gives the key to the national vice is waste. And people who are wasteful are not wise, neither can they remain young and vigorous. In order to transmute energy to higher and more subtle levels one must first conserve it.
+ - Man torturing man is a fiend beyond description. You turn a corner in the dark and there he is. You congeal into a bundle of inanimate fear. You become the very soul of anesthesia. But there is no escaping him. It is your turn now...
+ - I wanted to die; I wanted to surrender because I saw no sense in struggling. I felt that nothing would be proved, substantiated, added or subtracted by continuing an existence which I had not asked for.
+ - New York has a trip-hammer vitality which drives you insane with restlessness if you have no inner stabilizer.
+ - Part of the act of creating is in discovering your own kind. They are everywhere. But don’t look for them in the wrong places.
+ - Voyages are accomplished inwardly.
+ - Every time you come to the limit of what is demanded of you, you are faced with the same problem-to be yourself!
+ - Who hates the Jews more than the Jew?
+ - Somewhere along the way one discovers that what one has to tell is not nearly so important as the telling itself.
+ - I used to think a bird couldn’t fly if its wings got wet.
+ - In every man’s heart there is anchored a little schooner.
+ - I had no more need of God than He had of me, and if there were one, I often said to myself, I would meet Him calmly and spit in His face.
+ - Madness is tonic and invigorating. It makes the sane more sane. The only ones who are unable to profit by it are the insane.
+ - The prisoner is not the one who has commited a crime, but the one who clings to his crime and lives it over and over.
+ - Understanding is not a piercing of the mystery, but an acceptance of it, a living blissfully with it, in it, through and by it.
+ - The history of the world is the history of the privileged few.
+ - The Teutons have been singing the swan song ever since they entered the ranks of history. They have always confounded truth with death.
+ - We live in the mind, in ideas, in fragments. We no longer drink in the wild outer music of the streets – we remember only.
+ - I felt free and chained at the same time – like one feels just before election, when all the crooks have been nominated and you are beseeched to vote for the right man.
+ - I am of the order whose purpose is not to teach the world a lesson but to explain that school is over.
+ - Life, as it is called, is for most of us one long postponement.
+ - My hunger and curiosity drive me forward in all directions at once.
+ - Until we accept the fact that life itself is founded in mystery, we shall learn nothing.
+ - Every day that we fail to live out the maximum of our potentialities we kill the Shakespeare, Dante, Homer, Christ which is in us.
+ - All my Calvaries were rosy crucifixions, pseudo-tragedies to keep the fires of hell burning brightly for the real sinners who are in danger of being forgotten.
+ - The world itself is pregnant with failure, is the perfect manifestation of imperfection, of the consciousness of failure.
+ - Obscenity is a cleansing process, whereas pornography only adds to the murk.
+ - I struggled in the beginning. I said I was going to write the truth, so help me God. And I thought I was. I found I couldn’t. Nobody can write the absolute truth.
+ - I don’t know whether you’ve ever had a woman eat an apple while you were doing it. Well, you can imagine how that affects you.
+ - The waking mind is the least serviceable in the arts.
+ - It was only in my forties that I started feeling young.
+ - The man who looks for security, even in the mind, is like a man who would chop off his limbs in order to have artificial ones which will give him no pain or trouble.
+ - In the attempt to defeat death man has been inevitably obliged to defeat life, for the two are inextricably related. Life moves on to death, and to deny one is to deny the other.
+ - Imagination is the voice of the daring.
+ - Honest criticism means nothing: what one wants is unrestrained passion, fire for fire.
+ - Instead of asking ‘How much damage will the work in question bring about?’ why not ask ‘How much good? How much joy?’
+ - Everything hinges on how you look at things.
+ - The man who is intoxicated with life does not pass judgment, does not seek to come to a conclusion, does not impose his message on the world.
+ - The full and joyful acceptance of the worst in oneself may be the only sure way of transforming it.
+ - Human beings make a strange fauna and flora. From a distance they appear negligible; close up they are apt to appear ugly and malicious. More than anything they need to be surrounded with sufficient space – space even more than time.
+ - Who wants to be a hundred? What’s the point of it? A short life and a merry one is far better than a long one sustained by fear, caution, and perpetual medical surveillance.
+ - The monstrous thing is not that men have created roses out of this dung heap, but that, for some reason or other, they should want roses.
+ - The concert is a polite form of self induced torture.
+ - After all, most writing is done away from the typewriter, away from the desk. I’d say it occurs in the quiet, silent moments, while you’re walking or shaving or playing a game, or whatever, or even talking to someone you’re not vitally interested in.
+ - Even if it doesn’t work, there is something healthy and invigorating about direct action.
+ - It is the American vice, the democratic disease which expresses its tyranny by reducing everything unique to the level of the herd.
+ - The new always carries with it the sense of violation, of sacrilege. What is dead is sacred; what is new, that is different, is evil, dangerous, or subversive.
+ - How different the new order would be if we could consult the veteran instead of the politician.
+ - If the poet can no longer speak for society, but only for himself, then we are at the last ditch.
+ - Reality is not protected or defended by laws, proclamations, ukases, cannons and armadas. Reality is that which is sprouting all the time out of death and disintegration.
+ - The enchanting, and sometimes terrifying, thing is that the world can be so many things to so many different souls. That it can be, and is, all these things at once and the same time.
+ - The most wonderful opportunity which life offers is to be human.
+ - We are swimming on the face of time and all else has drowned, is drowning, or will drown.
+ - I had learned to harness ignorance with presumption. I was ready to become an unacknowledged watercolorist.
+ - I haven’t any allegiance, any responsibilities, any hatreds, any worries, any prejudices, any passion. I’m neither for nor against. I’m a neutral.
+ - The worst sin that can be committed against the artist is to take him at his word, to see in his work a fulfillment instead of an horizon.
+ - I had to learn, as I soon did, that one must give up everything and not do anything else but write, that one must writer and write and write, even if everybody in the world advises you against it, even if nobody believes in you.
+ - It isn’t the oceans which cut us off from the world – it’s the American way of looking at things.
+ - But it’s just because the chances are all against you, just because there is so little hope, that life is sweet over here.
+ - I have never been able to look upon America as young and vital but rather as prematurely old, as a fruit which rotted before it had a chance to ripen.
+ - My world of human beings had perished. I was utterly alone in the world and for friends I had the streets, and the streets spoke to me in that sad, bitter language compounded of human misery, yearning, regret, failure, wasted effort.
+ - And what is the potential man, after all? Is he not the sum of all that is human? Divine, in other words?
+ - There will be more calamities, more death, more despair. Not the slightest indication of a change anywhere. The cancer of our time is eating us away. Our heroes have killed themselves, or are killing themselves.
+ - Jump off. You are a protected individual. Do not fear.
+ - If men cease to believe that they will one day become gods then they will surely become worms.
+ - I am positively against all this crap which is carried on first in the name of this thing, then in the name of that. I believe only in what is active, immediate, and personal.
+ - To live without killing is a thought which could electrify the world, if men were only capable of staying awake long enough to let the idea soak in.
+ - I had a microscopic eye for the blemish, for the grain of ugliness which to me constituted the sole beauty of the object.
+ - There is nothing strange about fear: no matter in what guise it presents itself it is something with which we are all so familiar that when a man appears who is without it we are at once enslaved by him.
+ - The study of crime begins with the knowledge of oneself.
+ - The essential thing is to WANT to sing. This then is a song. I am singing.
+ - I saw through to the last sign and symbol, but I could not read her face. I could see only the eyes shining through, huge, fleshy-like luminous beasts, as though I were swimming behind them in the electric effluvia of her incandescent vision.
+ - For one crime which is expiated in prison ten thousand are committed thoughtlessly by those who condemn.
+ - One can be absolutely truthful and sincere even though admittedly the most outrageous liar. Fiction and invention are of the very fabric of life.
+ - We must get going. Tomorrow, tomorrow...
+ - Even if one’s whole life were a mistake, there is always time to change.
+ - The cradles of civilization are the putrid sinks of the world.
+ - Keep your exclamation points under control!
+ - The only peace, the only security, is in fulfillment.
+ - Everything remains unsettled forever, depend on it.
+ - Moralities, ethics, laws, customs, beliefs, doctrines – these are of trifling import. All that matters is that the miraculous become the norm.
+ - One has to be a lowbrow, a bit of a murderer, to be a politician, ready and willing to see people sacrificed, slaughtered, for the sake of an idea, whether a good one or a bad one.
+ - In this age, which believes that there is a short cut to everything, the greatest lesson to be learned is that the most difficult way is, in the long run, the easiest.
+ - The legal system is often a mystery, and we, its priests, preside over rituals baffling to everyday citizens.
+ - An artist earns the right to call himself a creator only when he admits to himself that he is but an instrument.
+ - If we have not found heaven within, it is a certainty we will not find it without.
+ - Why change the world? Change worlds!
+ - Until it is kindled by a spirit as flamingly alive as the one which gave it birth a book is dead to us. Words divested of their magic are but dead hieroglyphs.
+ - History is the myth, the true myth, of man’s fall made manifest in time.
+ - Do not be duped by little duties. Do not be a chore man all your days.
+ - Surely every one realizes, at some point along the way, that he is capable of living a far better life than the one he has chosen.
+ - Leave out the parts that readers tend to skip.
+ - Life is constantly providing us with new funds, new resources, even when we are reduced to immobility. In life’s ledger there is no such thing as frozen assets.
+ - The man who is forever disturbed about the condition of humanity either has no problems of his own or has refused to face them.
+ - Music is a beautiful opiate, if you don’t take it too seriously.
+ - The vast difference between astrology and other sciences, if I may put it thus, is that astrology deals not with facts but with profundities. The solid ground on which the scientist pretends to rest gives way, in astrology, to imponderables.
+ - What is not in the open street is false, derived, that is to say, literature.
+ - Her fluency was marvelous. She would say things at random, intricate, flamelike, or slide off into a parenthetical limbo peppered with fireworks – admirable linguistic feats which a practiced writer might struggle for hours to achieve.
+ - What does it matter how one comes by the truth so long as one pounces upon it and lives by it?
+ - Art is only a means to life, the life more abundant. It merely points the way.
+ - The Frenchman is first and foremost a man. He is likeable often just because of his weaknesses, which are always thoroughly human, even if despicable.
+ - Example moves the world more than doctrine. The great exemplars are the poets of action, and it makes little difference whether they be forces for good or forces for evil.
+ - Perhaps I have not lined his portrait too clearly. But if he exists, if only for the reason that I have imagined him to be. He came from the blue and returns to the blue. He has not perished, he is not lost. Neither will he be forgotten.
+ - My one thought is to get out of New York, to experience something genuinely American.
+ - They never opened the door which leads to the soul.
+ - There is only one thing which interests me vitally now, and that is the recording of all that which is omitted in books.
+ - I demanded a realm in which I should be both master and slave at the same time: The world of art is the only such realm.
+ - Plots and character don’t make life. Life is here and now, anytime you say the word, anytime you let her rip.
+ - There is nothing in itself which is wrong or evil not even murder.
+ - The Englishman, be it noted, seldom resorts to violence; when he is sufficiently goaded he simply opens up, like the oyster, and devours his adversary.
+ - Paint what you like and die happy.
+ - It’s the pleasure of picking up the brush and seeing what happens.
+ - And there is a time, glorious too in its own way, when one scarcely exists, when one is a complete void. I mean, when boredom seems the very stuff of life.
+ - Better to separate than never to marry.
+ - To the man whose senses are alive and alert there is not even the need to stir from one’s threshold.
+ - Man, as man, has never realized himself. The greater part of him, his potential being, has always been submerged. What is history if not the endless story of his repeated failures?
+ - I have always looked upon decay as being just as wonderful and rich an expression of life as growth.
+ - When you know what men are capable of you marvel neither at their sublimity nor their baseness. There are no limits in either direction apparently.
+ - When one is trying to do something beyond his known powers it is useless to seek the approval of friends. Friends are at their best in moments of defeat.
+ - No man would set a word down on paper if he had the courage to live out what he believed in.
+ - I like the one about the little soulworms that fly out of the nest for the resurrection.
+ - The smile was so painfully swift and fleeting that it was like the flash of a knife.
+ - One of the reasons why so few of us ever act, instead of react, is because we are continually stifling our deepest impulses.
+ - It does me good to write a letter which is not a response to a demand, a gratuitous letter, so to speak, which has accumulated in me like the waters of a reservoir.
+ - That we cannot rise equal to situations when we are in them – that is the tragedy of life.
+ - No one asks you to throw Mozart out of the window. Keep Mozart. Cherish him. Keep Moses too, and Buddha and Lao Tzu and Christ. Keep them in your heart. But make room for the others, the coming ones, the ones who are already scratching on the window-panes.
+ - There is something else to be said about this immediate, spontaneous way of working, and that is this: in such moments, one is playing at the game of creation.
+ - Every man with a bellyful of the classics is an enemy to the human race.
+ - Analysis brings no curative powers in its train; it merely makes us conscious of the existence of an evil, which, oddly enough, is consciousness.
+ - I had to learn to think, feel, and see in a totally new fashion, in an uneducated way, in my own way, which is the hardest thing in the world. I had to throw myself into the current, knowing that I would probably sink.
+ - The best technique is none at all.
+ - To be joyous is to be a madman in a world of sad ghosts.
+
+312 quotes

@@ -1,0 +1,35 @@
+ - Our wounds are often the openings into the best and most beautiful part of us.
+ - To be adult in relationship is not to be conflict-free, it’s to resolve conflicts mindfully.
+ - The opposite of interpersonal trust is not mistrust. It is despair. This is because we have given up on believing that trustworthiness and fulfillment are possible from others. We have lost our hope in our fellow humans.
+ - Mindful grief means mourning and letting go of the past without expectation, fear, censure, blame, shame, control and so forth. Without such mindful grief, neither past nor person can be laid to rest.
+ - Synchronicity is a term used by Carl Jung to describe coincidences that are related by meaningfulness rather than by cause and effect.
+ - There is a natural and inviolable tendency in things to bloom into whatever they truly are in the core of their being. All we have to do is align ourselves with what wants to happen naturally and put in the effort that is our part in helping it happen.
+ - A wound does not destroy us. It activates our self-healing powers. The point is not to “put it behind you” but to keep benefiting from the strength it has awakened.
+ - Humility means accepting reality with no attempt to outsmart it.
+ - Bread takes the effort of kneading but also requires sitting quietly while the dough rises with a power all its own.
+ - True optimism is not the prospect of control over pain or elimination of it but survival through it.
+ - I see that mankind still survives after all its attempts to destroy itself and so I surmise that it is the law of love that rules mankind.
+ - Mindfulness is both a state of being and a daily spiritual practice, a form of meditation.
+ - Once we make our relationship choices in an adult way, a prospective partner who is unavailable, nonreciprocal, or not open to processing feelings and issues, becomes, by those very facts, unappealing. Once we love ourselves, people no longer look good to us unless they are good for us.
+ - Love is the possibility of possibilities. Its farthest reach is beyond us, no matter how long we love or how much. It will always remain the mute mystery to whose ecstasy and ache we can only surrender with a yes.
+ - What we are not changing, we are choosing.
+ - Once we understand that what happens beyond our control may be just what we need, we see that acceptance of reality can be our way of participating in our own evolution.
+ - When we feel unsafe with someone and still stay with him, we damage our ability to discern trustworthiness in those we will meet in the future.
+ - We were born with four words engraved on our bodies and in our hearts: Love me, hold me.
+ - We can actually reconstruct our past by examining what we think, say, feel, expect, believe, and do in an intimate relationship now.
+ - A healthy person is not perfect but perfectible, not a done deal but a work in progress. Staying healthy takes discipline, work, and patience, which is why our life is a journey and perforce a heroic one.
+ - We do not create our destiny; we participate in its unfolding. Synchronicity works as a catalyst toward the working out of that destiny.
+ - Evoke one good memory for each bad one from now on.
+ - Spirituality is the intersection of three paths: letting go of ego, an unconditional yes to the conditions of human existence, and an immeasurable compassion.
+ - It is not that practice makes perfect but that practice is perfect, combining effort with an openness to grace.
+ - Relationships are not about how two people can survive each other but about how the whole world becomes more capable of love, with all its dim anguish and glowing rapture.
+ - Most people think of love as a feeling, but love is not so much a feeling as a way of being present.
+ - We do not live on the Earth, we are a part of how the Earth lives.
+ - The human heart holds much more love than it can ever disburse in one lifetime.
+ - Our tears are precious, necessary, and part of what make us such endearing creatures.
+ - When we notice a connection between our present fears and their origins in early life, we are finding out how much of our identity is designed by fear. Is fear the architect of me?
+ - The challenge is to find our destiny in exactly what we are refusing to engage in.
+ - Early fear was felt cellularly and was indeed real. Defensive postures were necessary, but defenses generalize cellularly in adulthood and do not expire. It takes conscious work to undo them. Ironically, as long as we keep using defenses, we actually maintain the original force of the fear.
+ - In mindful grief, we become the landing strip that allows any feelings to arrive. Some crash, some land softly. Some harm us, but none harm us in a lasting way. We remain as they taxi away or as their wreckage is cleared away. We can trust that we will survive.
+
+33 quotes

@@ -1,0 +1,24 @@
+ - I always make a wish at 11:11, even if its something cheesy.
+ - Being hurt by someone you really cared about, it makes me want to make them regret ever hurting my heart. Best way of doing that? Success. Get ready for it.
+ - I listen to music when I’m feeling down or just a certain way. I don’t know what I’d do without it!
+ - Do not let anything get in your way of chasing your dreams.
+ - Have fun. Especially while you’re still young, you gotta keep the spark up. Even when things get boring, just remember to have fun.
+ - I love artists that just do what they do with so much passion and emotion.
+ - Even though it was a stressful time in my life, I have a lot of good memories from my ‘Idol’ experience.
+ - My experience working with a major label was not all bad, I was blessed to go through that experience, and I know what to do during the next time around.
+ - I was born in America, but I consider myself a Filipino.
+ - My friends are mostly familiar with music that plays on the mainstream radio.
+ - I used to have hair so long, my nickname was Pocahontas.
+ - I always had an idea for what I wanted to do in the future and throughout my career. This wasn’t, like, me figuring out what to do after Idol. I’ve always known the steps in what I had to do to get where I was.
+ - When I found out that I made it to the Season 11 finale, I was so shocked that if you went on YouTube and re-watch the Top 3 Results Show, you will see my face looked like a bus hit it.
+ - I want to release music that is true to myself.
+ - Music has always been a huge part of my life.
+ - When you are in the ‘American Idol’ bubble, a lot of contestants want to go as far as they can and wish to be on point with ready-to-go songs.
+ - The best part of being signed by a major label was having the support of a big company behind me and the ability to meet new artists and producers.
+ - A lot of people who wanted to audition for ‘Idol’ have asked me: “What should I do?” or “How to I prepare myself?” I always told them: “Just go in and believe in yourself.”
+ - I think that I have grown a lot as an artist. I have been writing about my experiences of love and overcoming the struggles that I have faced in the music industry. I have so much more to tell my fans, and I know so much more about myself. It is crazy how much I have grown over these past years.
+ - The thing that I did not like about being signed to a label was I unable to have control over what I wanted to do.
+ - I was 16-years-old when I appeared on ‘American Idol,’ and the show was my boot camp. It was a crazy, stressful at times, experience.
+ - When I found out that I was going to be singing with Jennifer Holliday, I literally freaked out! I grew up listening to her, and I was going to cry because I sang with someone who is a huge inspiration to me.
+
+22 quotes

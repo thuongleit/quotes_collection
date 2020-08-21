@@ -1,0 +1,35 @@
+ - Music, art, theater. I’m just a big fan of beauty.
+ - The real fountain of youth is to have a dirty mind...
+ - Cosmetic surgery is terrifying. It never looks good. Those women look weird. They look in the mirror and think they look great, but they don’t see what we see. I think it’s hideous. They scare small children.
+ - We all know pain doesn’t exist without some coexisting depression.
+ - I think if I weren’t so beautiful, maybe, I’d have more character.
+ - I’m single. I’m independent. And I’m dating. I think if you’re honest that you’re dating, there’s nothing wrong with that.
+ - My favorite dancer is Sylvie Guillem.
+ - I’m a very lazy, stay-at-home kind of girl.
+ - I love good rock’n’roll, blues and jazz, gospel, and a little reggae.
+ - I’m a bit of a groupie.
+ - There is nothing more humiliating than loving someone so much that you forgive the infidelities.
+ - Why would anybody lie? The truth is always more colourful.
+ - Jealousy is the fear of losing the thing you love most. It’s very normal. Suspicion is the thing that’s abnormal.
+ - I like the odd glass of wine, a coffee and a cigarette. As you get older you can’t see the wrinkles.
+ - I love mysticism – it’s such fun.
+ - Mick Jagger and I just really liked each other a lot. We talked all night. We had the same views on nuclear disarmament.
+ - Well, I think mostly we’re dressing for men.
+ - I love my kids and would rather be with them than anyone in the whole wide world.
+ - I used to hang out with Salvador Dali a lot. He was such a nice man. I really liked his wife Gala, too. People say that she was tricky, but she was never difficult with me.
+ - I have very old-fashioned tastes.
+ - I have absolutely zero interest in politics.
+ - I suppose they’re confident. I think younger guys love the idea of a divorced woman who’s going to teach them how to be a man.
+ - Since I got a divorce, I have been dating younger guys. But it’s just because they’re the ones that ask me out.
+ - Earlier this year I had my hair feng-shuied.
+ - The more flesh you show, the higher up the ladder you go.
+ - A healthy love life is not and should not be the preserve of those in their 20s and 30s. It’s important at all ages.
+ - Well, I was fourteen in Texas. But I looked twenty-five.
+ - I’m a very bad citizen. I’ve never even voted.
+ - I have done a lot of theater.
+ - I’ve always gotten along best with artists.
+ - I love doing theater so much – being in front of an audience and seeing how a character grows and develops with every performance.
+ - I’d always enjoyed acting, but modeling was so time-consuming – and lucrative – that I didn’t pursue it.
+ - I’ve dabbled in several different religions.
+
+33 quotes

@@ -1,0 +1,40 @@
+ - Information is information; it is neither matter nor energy.
+ - There are no answers, only cross references.
+ - The world of the future will be an even more demanding struggle against the limitations of our intelligence, not a comfortable hammock in which we can lie down to be waited upon by our robot slaves.
+ - The automatic machine, whatever we thinkof any feelings it may or may not have, is the precise economic equivalent of the slave.
+ - Let us remember that the automatic machine is the precise economic equivalent of slave labor. Any labor which competes with slave labor must accept the economic consequences of slave labor.
+ - The best material model of a cat is another, or preferably the same, cat.
+ - In a very real sense, we are shipwrecked passengers on a doomed planet. Yet, even in a shipwreck, human decencies and human values do not necessarily vanish, and we must make the most of them. We shall go down, but let it be in a manner to which we may look forward as worthy of our dignity.
+ - Any use of a human being in which less is demanded of him and less is attributed to him than his full status is a degradation and a waste.
+ - Progress imposes not only new possibilities for the future but new restrictions.
+ - Science is a way of life which can only flourish when men are free to have faith.
+ - The simplest type of breakdown exhibits itself as an oscillation in a goal-seeking process which appears only when that process is actively invoked.
+ - A single inattention may lose a chess game, whereas a single successful approach to a problem, among many which have been relegated to the wastebasket, will make a mathematician’s reputation.
+ - Am I really a good mathematician?
+ - If the human being is condemned and restricted to perform the same functions over and over again, he will not even be a good ant, not to mention a good human being.
+ - We have modified our environment so radically that we must now modify ourselves to exist in this new environment.
+ - To live effectively is to live with adequate information.
+ - Mathematics is a field which has often been compared with chess, but differs from the latter in that it is only one’s best moments that count and not one’s worst.
+ - The most fruitful areas for the growth of the sciences were those which had been neglected as a no-man’s land between the various established fields.
+ - The nervous system and the automatic machine are fundamentally alike in that they are devices, which make decisions on the basis of decisions they made in the past.
+ - Any useful logic must concern itself with Ideas with a fringe of vagueness and a Truth that is a matter of degree.
+ - It is possible to believe in progress as a fact without believing in progress as an ethical principle; but in the catechism of many Americans, the one goes with the other.
+ - In all important respects, the man who has nothing but his physical power to sell has nothing to sell which it is worth anyone’s money to buy.
+ - It is easy to make a simple machine which will run toward the light or run away from it, and if such machines also contain lights of their own, a number of them together will show complicated forms of social behavior...
+ - The simple faith in progress is not a conviction belonging to strength, but one belonging to acquiescence and hence to weakness.
+ - A significant idea of organization cannot be obtained in a world in which everything is necessary and nothing is contingent.
+ - We are in the position of the man who has only two ambitions in life. One is to invent the universal solvent which will dissolve any solid substance, and the second is to invent the universal container which will hold any liquid. Whatever this inventor does, he will be frustrated.
+ - The advantage is that mathematics is a field in which one’s blunders tend to show very clearly and can be corrected or erased with a stroke of the pencil.
+ - Scientific discovery consists in the interpretation for our own convenience of a system of existence which has been made with no eye to our convenience at all.
+ - What most experimenters take for granted before they begin their experiments is infinitely more interesting than any results to which their experiments lead.
+ - The sense of tragedy is that the world is not a pleasant little nest made for our protection, but a vast and largely hostile environment, in which we can achieve great things only by defying the gods; and that this defiance inevitably brings its own punishment.
+ - A faith which we follow upon orders imposed from outside is no faith, and a community which puts its dependence upon such a pseudo-faith is ultimately bound to ruin itself because of the paralysis which the lack of a healthy growing science imposes upon it.
+ - The idea that information can be stored in a changing world without an overwhelming depreciation of its value is false. It is scarcely less false than the more plausible claim that after a war we may take our existing weapons, fill their barrels with information.
+ - The more we get out of the world the less we leave, and in the long run we shall have to pay our debts at a time that may be very inconvenient for our own survival.
+ - I have said that the modern man, and especially the modern American, however much ‘know-how’ he may have, has very little ‘know-what’
+ - A painter like Picasso, who runs through many periods and phases, ends up by saying all those things which are on the tip of the tongue of the age to say, and finally sterilizes the originality of his contemporaries and juniors.
+ - A professor is one who can speak on any subject – for precisely fifty minutes.
+ - Until we in the community have made up our minds that what we really want is expiation, or removal, or reform, or or the discouragement of potential criminals, we shall get none of these, but only a confusion in which crime breeds more crime.
+ - Progress imposes not only new possibilities for the future but new restrictions. It seems almost as if progress itself and our fight against the increase of entropy intrinsically must end in the downhill path from which we are trying to escape.
+
+38 quotes

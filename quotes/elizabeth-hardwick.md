@@ -1,0 +1,40 @@
+ - The greatest gift is the passion for reading. It is cheap, it consoles, it distracts, it excites, it gives you knowledge of the world and experience of a wide kind. It is a moral illumination.
+ - When you travel your first discovery is that you do not exist.
+ - Biology is destiny only for girls.
+ - The fifties – they seem to have taken place on a sunny afternoon that asked nothing of you except a drifting belief in the moment and its power to satisfy.
+ - It’s one of the things writing students don’t understand. They write a first draft and are quite disappointed, or often should be disappointed. They don’t understand that they have merely begun, and that they may be merely beginning even in the second or third draft.
+ - Adversity is a great teacher, but this teacher makes us pay dearly for its instruction; and often the profit we derive, is not worth the price we paid.
+ - I am alone here in New York, no longer a we.
+ - Sentences in which I have tried for a certain light tone – many of those have to do with events, upheavals, destructions that caused me to weep like a child.
+ - While you are living, part of you has slipped away to the cemetery.
+ - Since films and television have staged everything imaginable before it happens, a true event, taking place in the real world, brings to mind the landscape of films.
+ - Memory – the very skin of life.
+ - Art is a profession, not a shrine.
+ - The greatest gift is a passion for reading.
+ - Self-love is an idolatry. Self-hatred is a tragedy.
+ - The language of the younger generation has the brutality of the city and an assertion of threatening power at hand, not to come. It is military, theatrical, and at its most coherent probably a lasting repudiation of empty courtesy and bureaucratic euphemism.
+ - The private and serious drama of guilt is not often a useful one for fiction today and its disappearance, following perhaps the disappearance from life, appears as a natural, almost unnoticed relief, like some of the challenging illnesses wiped out by drug and vaccines.
+ - In the long run wives are to be paid in a peculiar coin – consideration for their feelings. As it usually turns out this is an enormous, unthinkable inflation few men will remit, or if they will, only with a sense of being overcharged.
+ - It is June. This is what I have decided to do with my life just now. I will do this work and lead this life, the one I am leading today. Each morning the blue clock and the crocheted bedspread, the table with the Phone, the books and magazines, the Times at the door.
+ - How certain human beings are able to create works of art is a mystery, and why they should wish to do so, at a great cost to themselves usually, is another mystery. Works are not created by one’s life; every life is rich in material.
+ - Making a living is nothing; the great difficulty is making a point, making a difference-with words.
+ - Biographers, the quick in pursuit of the dead, research, organize, fill in, contradict, and make in this way a sort of completed picture puzzle with all the scramble turned into a blue eye and the parts of the right leg fitted together.
+ - Gossip, or, as we gossips like to say, character analysis.
+ - Writing is not “the establishment of a professional reputation” as if one were a doctor or lawyer; it is not properly in the sentence with creation of a family and the purchase of a home.
+ - Mothers born on relief have their babies on relief. Nothingness, truly, seems to be the condition of these New York people. They are nomads going from one rooming house to another, looking for a toilet that functions.
+ - The future may be an enemy. Time can turn happy days and nights into nothing.
+ - I have come to the belief that there is not merely an accidental relationship between bad writing and routine sociological research, but a wonderfully pure, integral relationship; the awkwardness is necessary and inevitable.
+ - Now, my novel begins. No, now I begin my novel – and yet I cannot decide whether to call myself I or she.
+ - Letters are above all useful as a means of expressing the ideal self; and no other method of communication is quite so good for this purpose. In letters we can reform without practice, beg without humiliation, snip and shape embarrassing experiences to the measure of our own desires...
+ - They had created themselves together, and they always saw themselves, their youth, their love, their lost youth and lost love, their failures and memories, as a sort of living fiction.
+ - Here in the city the worst thing that can happen to a nation has happened: we are a people afraid of its youth.
+ - Flattery is a challenge. The proper turning away from it, undercutting, diminishing it without offense or vehemence, is a social grace sweeter even than the swift determination to keep ahead in the race of hospitality.
+ - Houses of evil similarity appeared like rows of disciplined, humiliated orphans.
+ - Boston – wrinkled, spindly-legged, depleted of nearly all her spiritual and cutaneous oils, provincial, self-esteeming – has gone on spending and spending her inflated bills of pure reputation, decade after decade.
+ - Canadians, do not vomit on me!
+ - The famous carry about with them a great weight of patriarchal baggage-the footnotes of their lives.
+ - Books give not wisdom where none was before. But where some is, there reading makes it more.
+ - Sometimes one has the feeling of an almost supernatural character to the shifts and changes in our national mood. They appear beyond the prose of cause and effect...
+ - The laughter of adults was always very different from the laughter of children. The former indicated a recognition of the familiar, but in children it came from the shock of the new.
+
+38 quotes

@@ -1,0 +1,63 @@
+ - Christianity is about learning to love like Jesus loved and Jesus loved the poor and Jesus loved the broken.
+ - It always cracks me up when people try to impress God, because people don’t have to impress God. He’s already knocked out by you.
+ - Never forget what Jesus did for you. Never take lightly what it cost Him. And never assume that if it cost Him His very life, that it won’t also cost you yours.
+ - The only man I envy is the man who has not yet been to Africa- for he has so much to look forward to.
+ - We are not as strong as we think we are.
+ - So hold me Jesus, ’cause I’m shaking like a leaf. You have been King of my glory won’t You be my Prince of Peace.
+ - It’s all that pretending to be perfect that breeds inauthenticity in the church.
+ - I am a Christian, not because someone explained the nuts and bolts of Christianity, but because there were people willing to be nuts and bolts.
+ - When you stop being so afraid of failing you become much more free to succeed.
+ - If your life is motivated by your ambition to leave a legacy, what you’ll probably leave as a legacy is ambition.
+ - So go out and live real good and I promise you’ll get beat up real bad. But, in a little while after you’re dead, you’ll be rotted away anyway. It’s not gonna matter if you have a few scars. It will matter if you didn’t live.
+ - Faith without works is like a song you can’t sing. It’s about as useless as a screen door on a submarine.
+ - We never understand what we’re praying, and God, in His mercy, does not answer our prayers according to our understanding, but according to His wisdom.
+ - We are not saved because we’re good. We’re good because we’re saved.
+ - You are not alone in the world. You are part of an ensemble.
+ - Sometimes my life just don’t make sense at all. The mountains looks so big and my faith just seems so small.
+ - Be praised for all Your tenderness by these works of Your hands, suns that rise and rains that fall to bless and bring to life Your land. Look down upon this winter wheat and be glad that You have made blue for the sky and the color green that fills Your fields with praise.
+ - If you want a religion that makes sense, then I suggest something other than Christianity. But if you want a religion that makes life, then, I think this is the one.
+ - God spoke to Balaam through his ass. I believe God still speaks through asses today. So if God should choose to speak through you, you needn’t think too highly of yourself.
+ - A faith that moves mountains is a faith that expands horizons, it does not bring us into a smaller world full of easy answers, but into a larger one where there is room for wonder.
+ - If you live real good, I can guarantee you are gonna get beat up real bad!
+ - I did not read the Bible today. I am not very good at being religious and don’t really feel too bad about not being too good. I do wish that I loved God and His creatures more...
+ - Love is found in the things we’ve given up, more than in the things that we have kept.
+ - I am tired again tonight – a good kind of tired. Some aches are well earned. I wish I could see the sky tonight.
+ - It’s not the job of government to help the poor. The church is the mechanism that God put on earth to help the poor.
+ - Good taste has everything to do with being cultured and being refined, and if art has to do with anything, it has to do with being human.
+ - In the end, it’s not gonna matter if you have a few scars, but it will matter if you didn’t live.
+ - Look at us all – we are all of us lost and in all of our different ways of pretending, we all fool ourselves into the very same hell. Look at the cross – we are all of us loved and one God meets us all at the point of our common need and brings to all of us – all who will let Him – salvation.
+ - I think, you know, the thing everybody really wants to know anyway is not what the theory of relativity is, but I think what we all really want to know anyways, is whether we’re loved or not.
+ - You will never understand what you’re doin’. But God does.
+ - What I like about the Bible is that it doesn’t make sense, which makes it more like truth than anything else I’ve ever read.
+ - Deliver us from evil – from moral duplicity and weakness, from laziness and spiritual complacency, from those lies we tell ourselves from our fear of facing the truth.
+ - I can’t see how You’re leading me unless you’ve led me here, where I’m lost enough to let myself be led.
+ - We just can’t love without God. God wants for us want we want for ourselves. These basic things are not that hard to grasp. We just have to have faith, and faith is a gift. We just need to accept it.
+ - I take comfort in knowing that it was the shepherds to whom the angels appeared when they announced Christ’s birth. Invariably throughout the course of history, God has appeared to people on the fringes. It’s nice to find theological justification for your quirks.
+ - God loves us completely. And He knew us at our worst before He ever began to love us at all.
+ - I think I would like to be a monk. I really considered Catholicism a few years ago, but there were some things that I just couldnt reconcile.
+ - Psycho-babble is that language spoken by sailors who have become so interested in navigating their way around their boat that they have forgotten to read the stars and sea. They may be able to get from the galley to the head but will be lost in their journey from point to port.
+ - Let people see your struggles and don’t ever fake it.
+ - Yes, it’s embarrassing to be born again, but imagine how embarrassing it must have been to be born the first time. At least this time you get to wear clothes!
+ - There’s people been friendly But they’d never be your friends Sometimes this has bent me to the ground.
+ - I think I would envy me too, if I didn’t know me better...
+ - We were given the Scriptures to humble us into realizing that God is right, and the rest of us are just guessing.
+ - I have no physical genius about me. I cant dribble a ball and run at the same time, I cant do lay-ups – Im not an athlete. But my experience as a kid was, I was made fun of so much that what I did then, is, I wouldnt participate. And I think I cheated myself out of a lot of fun.
+ - The best that can happen is that someone can catch a glimpse of the glory you’re hinting at.
+ - Forged in the fires of human passion, choking on the fumes of human rage, with these out hells and our heavens, so few inches apart, we must be awfully small, and not as strong as we think we are.
+ - The biggest problem with life is that it’s just daily.
+ - If you can’t be good, be loud.
+ - There’s a difference, you know, between faith and playing make-believe. One will make you grow. The other one will make you sleep.
+ - I think my parents were really smart parents. I think they were, actually, pretty progressive for the time. The one thing that they really wanted me to know is what makes me tick, what I am about, how I approach life. And I think what my parents really wanted for me was for me to be who I am.
+ - If you’re really looking for answers, look past me. But if you’re interested in how I got to where I am, I will be as honest as possible.
+ - Prayer is a grace through which we pour ourselves out before God and through which He calls us into His presence.
+ - A lot of people are sitting around waiting for God to tell them what to do. I think God is saying ‘Do what you want!’ If he wants me to express His love, I need to find a way to do it.
+ - Usually when we do something to corrupt our lives, it’s usually something to fulfill an ache that we have...
+ - There is the music that we make, and the music that makes us.
+ - I think a lot of parents hand people over a blueprint and say, This is how youre supposed to do it. And my parents, I think, kind of drew a picture and said, Heres the good stuff in life. How do you get there?
+ - Joshua made the sun stand still in the sky, but I can’t keep these thoughts of You from passing by.
+ - I believe what I believe is what makes me what I am.
+ - I would love to be a Franciscan brother. Im just not sure I have the courage to do it.
+ - Ain’t it funny what people say? Ain’t it funny what people write?
+ - I think, writing-wise, I am probably more of a quilter than a weaver because I just get a little scrap here and a little scrap there and sew them together.
+
+61 quotes

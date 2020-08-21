@@ -1,0 +1,28 @@
+ - How a hat makes you feel is what a hat is all about.
+ - I do say I’m a specialist in divas. Name a diva – I’ve worked with ’em.
+ - Royalty is completely different than celebrity. Royalty has a magic all its own.
+ - Hats are radical; only people that wear hats understand that.
+ - I like hats that make the heart beat faster.
+ - Fantasy hats give you the possibility to dream.
+ - I believe that I am a hat designer, not a milliner.
+ - Elegance is all in the mind of the wearer.
+ - I think and hope I have changed the way we look at hats. They are no longer symbols of conformity but highly individual acts of rebellion. I am constantly challenging the perception of what a hat should be and what role it should play.
+ - I always design the hat with the wearer in mind; otherwise, it’s an inanimate object.
+ - A person carries off the hat. Hats are about emotion. It is all about how it makes you feel.
+ - I’m Irish but I design something that is quintessentially English and I love hats.
+ - Every day, I like to make hats that make people dream.
+ - In a world where every man and his dog is a designer, Alexander McQueen was the real deal. His talent was supersonic.
+ - Everybody loves things that sparkle.
+ - Hats make people feel good, and that’s the point of them.
+ - I believe in a democratic approach to fashion: if you feel good, then great. You may not look good, but it’s not the problem.
+ - I make hats for lots of iconic people, and that makes my job very interesting.
+ - I love the shape of cars. They are very inspiring as modern pieces of machinery. I can’t drive, but I do like the look of them.
+ - I particularly like to travel for work because you see a completely different side of the country you’re visiting.
+ - Certainly, people like Gaga have introduced a new type of hat-wearing.
+ - It thrills observers and makes the wearer feel a million dollars.
+ - Gaga is an entertainer, so a hat for her is part of the illusion of entertaining.
+ - MAC allowed me to have complete freedom on the collaborations – from the shades, the look-and-feel, to the campaign visuals. I have to admit that the visual aspect of the collection excites me most. For designers, we care about the photographs much more than a Ferrari.
+ - Fashion is an illusion. It’s a multibillion-pound industry that has to appear frivolous. Designers work and work and work, all night sometimes.
+ - I must point out – Sarah Jessica Parker is not a diva – she’s one of these pop culture characters that everybody likes.
+
+26 quotes

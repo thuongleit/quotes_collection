@@ -1,0 +1,36 @@
+ - I don’t know and I don’t care anymore. I was supposed to have my way for once, just once in my life. I did everything right and I got nothing for it. I want to kill them all. no, better yet, I want to die. No, even bettter than that: I want to kill them all then die.
+ - What if a puppet could cut its own strings, and in that act of defiance and strength of will become truly alive? Become is own puppetmaster?
+ - I’m a complicated man, with complicated taste buds.
+ - It’s not an easy choice, but that’s OK. Easy doesn’t equal good. Difficulty doesn’t equal bad. It’s just life, is all.
+ - Fear can keep you alive. The trick is not to let it overwhelm you. Not to let it rule you. If you’re afraid, that’s the universe trying to tell you something. Get away. Don’t run; don’t panic. Just pick up and walk out, calm as you please. Panic makes you stupid.
+ - We humans have the capacity to wreak horrors on each other. But we also have the capacity to survive those horrors.
+ - One time you told me that the opposite of love isn’t hate. And I didn’t understand that, but I think I do know. Because if you hate someone, you most still care, right? You have to care a little bit; otherwise you would just ignore them and forget they even live. Or lived.
+ - Anger was a waste of time and energy. Anger was useless.“Anger” was the label given to the emotion that accomplished nothing.
+ - It just means that if someone hates you, they still have feelings for you. If they really didn’t care about you, they’d just forget about you. They wouldn’t even waste the time hating you.
+ - You won’t even know you’ve crossed the line until it’s way back in your rearview mirror.
+ - This is why I forgive, but I don’t forget. When you forget someone, the forgiveness doesn’t mean anything anymore.
+ - Yes, pain meant life. But the symmetric property did not apply; Life did not mean pain.
+ - Unreal. I’m feeling nostalgic for something that happened less than twenty-four hours ago. This has got to be a record.
+ - I do what I’ve trained my whole life to do. I watch the ball. I keep my eye on the ball. I never stop watching. I watch it as it sails past me and lands in the catcher’s mitt, a perfect and glorious strike three.
+ - You don’t break up with someone just because of an argument, Josh. At least, I don’t.
+ - Sometimes hope could be the most frightening thing in the world.
+ - The best revenge is living well, my dad told me once.
+ - See, forgiveness doesn’t happen all at once. It’s not an event – it’s a process.
+ - Medicine cabinets are dangerous. Those doors, man. They’ll just spring on you like a ninja.
+ - A river of images and thoughts and feelings, dirtied and polluted so that no one could drink from it without gagging.
+ - Look, my dad has a saying – we’ll burn that bridge when get to it. OK? You get it? Worry about tomorrow, tomorrow.
+ - Anger and hatred, when left unfed, bleed away like air from a punctured tire, over time and days and years. Forgiveness is stealth.
+ - And my parents made me want i am. So what? We get stuff from our parents, but we also get stuff from the world around us. From people around us. And at the end of the day, we’re us.
+ - I suddenly realize that I’m naked, which shouldn’t bother me since it’s the phone, but for some reason it does. “How’s it hanging?” Kyra asks and now I think I’m blushing. It’s just an expression, but jeez!
+ - And I think of nothing. I think of nothing but Rachel. What happens next is pure magic, and is for us and us alone.
+ - Cars are little privacy cocoons that we take with us. If you could refuel while driving you could, theoretically, stay moving forever.
+ - I just have an allergic reaction to lung cancer. Gives me tumors.
+ - Jazz hadn’t given her many details of exactly what life in the Dent house had been like, but he’d told her enough that she knew it wasn’t hearts and flowers. Well, except for the occasional heart cut from a chest. And the kind of flowers you send to funerals.
+ - Maybe Rachel was right all along. Maybe the past is past, history is history, and you just push it aside and look for the future.
+ - At the end of the day, it’s a series of individual challenges played out against a team defense. It’s a psersonal test every time I step into the batter’s box: Can I do better than the last time? And that’s why I love it.
+ - He moved to run a hand through her cornrows, then pulled back remembering the one time he’s tried that-Connie had lectured him on the Eleventh Commandment: Thou shalt not touch thy black girlfriend’s hair. Ever.
+ - Josh Mendel has a secret. Unfortunately, everyone knows what it is.
+ - It’s a good day when a goddess gets on the school-bus with you.
+ - You don’t swing at any pitch. You swing at the ones you can hit.
+
+34 quotes

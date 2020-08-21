@@ -1,0 +1,67 @@
+ - Everyone gets the feeling that they know you and they know your life, and I felt really embarrassed by that.
+ - I didn’t want to change my personality onstage, but I still had to build some kind of ego to be able to go up there. If not, there’s no point.
+ - You think that being a girl is degrading, but secretly, you’d love to know what it’s like, wouldn’t you?
+ - I hope one day I will be able to be completely myself. Maybe I’ll be wilder.
+ - Style for me is a casual way of putting something on. It’s not thought out but needs to suit your way of life. Now I like wearing the same sweater over and over again, then taking it off when it’s smelly.
+ - Girls can wear jeans, cut their hair short, wear shirts and boots, ’cause it’s okay to be a boy, but for a boy to look like a girl is degrading.
+ - It’s more than a job. It’s very personal, so when you’re hurt, you’re really hurt inside.
+ - The English was really my mother, it was never me. Being the daughter of my father, I always felt very French.
+ - I still find it hard to push my own limits. I know where my limits are and that I always have to push myself.
+ - I don’t feel I have to share everything.
+ - It’s difficult for me to write in English as it’s not my first language, but French is even worse because of my father’s influence and because the comparisons that I – not even other people – would make.
+ - I don’t feel that I’ve accomplished anything. I feel that it’ll be better when I won’t care as much, but it’s so difficult to let go and accept all the wrong notes.
+ - I think I developed a very closed personality. I didn’t really have friends. I changed schools every year.
+ - I wish I could just accept that I’m not that good and not be shy about the fact that I’m not that professional.
+ - In France I’m very private, I don’t like talking about my life, and I imagined that people would think that I’m now an open book.
+ - I’m a very shy person towards my intimacy and private life.
+ - When you love someone, you don’t want them to suffer at all.
+ - Each time I changed, it was as if, on purpose, I didn’t want anyone to know too much about me, which of course now I regret, because I closed myself to everything. But it was my way of dealing with things.
+ - I think, being an actress, you know that you’re getting old. I’m 44. I mean, an agent said when I turned 40, “It won’t get better.”
+ - I came to understand that people come and see you because they like you. They don’t come to throw things at you.
+ - I haven’t found a comfortable place onstage. I’m sure it doesn’t have to be comfortable, but I’m very nervous, so I don’t enjoy myself.
+ - Letting go of things and not being afraid of being ridiculous or over the top – I think that’s the main thing for me to work on.
+ - The problem with me in doing things simply is that I feel I’m not enough. It’s all very embarrassing.
+ - I didn’t go to acting school, so it was great to be able to rehearse for a month or two, to workshop, and be with a director who even gave me acting exercises.
+ - I don’t want to feel that I’m a singer or an actress – being able to say that those are just experiences is what I enjoy.
+ - There’s always this thing of wanting to be elsewhere.
+ - I would love to be able to do a film. I would love to be able to focus on what excites me in watching actors.
+ - I used to hate being recognised.
+ - My father loved me and he wanted to work with me and he didn’t care what people would say.
+ - I found it very difficult to explain to someone why you did a film. It’s not like having a conversation.
+ - I don’t have a career plan. I’ve never done that. Things happen accidentally and I’ve been lucky.
+ - Maybe, in the back of my head, I’m thinking I have to do as much as I can. It’ll stop.
+ - Before I started touring, I worked with someone to help me, even physically, because I was so shy. And you can’t be shy going onstage. So I had to push myself in a direction that wasn’t myself.
+ - Wanting to do it was much more powerful than the fright.
+ - I felt that people would criticize everything. I was so scared about playing Paris. I was very much aware that the greatest concerts my father and mother had done were there. I was sure people would be very tough.
+ - I don’t have tons of scripts where I don’t know what to choose and I’m trying to calculate. It’s either I read something and I have an impulse to do it, or in meeting someone, I want to work with them, but it’s always been very obvious.
+ - I like to play roles different from myself so I can hide behind them.
+ - I hated seeing myself on screen. I was full of complexes. I hated my face for a very, very long time.
+ - There were always questions about my parents; I got so fed up with that.
+ - I’m desperate to work again. I’ve often had those periods, but two years was the longest.
+ - The character is close to me, except that I haven’t lived through those situations, so it’s not completely me.
+ - You don’t accept your weaknesses the same way that you love the weaknesses of another artist, because when they make mistakes they don’t look like weaknesses.
+ - In France, you’re with the crew, and you have lunch with them. It’s more like a family.
+ - I wasn’t getting the responses I hoped for. You can’t protect yourself from other judgments.
+ - I was so lucky because I started working very young. And my father was very wealthy and I didn’t need to work. I did my films.
+ - It was very liberating to be able to sing in English. It had a different resonance, different images. It was like being a stranger in a foreign land, which was helpful.
+ - The more you turn down things, the more difficult it becomes to feel that the next one will be right.
+ - I was very attached to my family when my father died. I was 19. I was about to go live with my father right when he died, so it was very intense.
+ - It’s nice that we have all these different films.
+ - I hope I’ll consider my next part, having learnt from this one.
+ - At the beginning it wasn’t to do with the work, it was more the experience.
+ - I was very well paid for my age, and I could make choices, decide not to do a film for six months and wait until I’d get the right thing. Which made me quite a coward.
+ - I thought people wouldn’t take me seriously if too much acting was involved in the singing. But now I love the idea of mixing everything together.
+ - When you fight against your own weaknesses, there’s something embarrassing about it.
+ - I have ideas of subjects and atmospheres that I love. I either want to go in a tougher, stronger direction or do the opposite: simple ballads.
+ - You don’t even need the director’s judgement. It’s too much.
+ - I was really nervous about people booing, because my mother had gone for a film 20 years earlier and had a terrible time with people booing, whistling, so I knew that in Cannes people can get aggressive.
+ - I thought people would ask me really personal questions because I’ve shown more of myself, but it’s a comedy, and people understand that it’s a game we play.
+ - I went on television and I wouldn’t say a word; I feel so stupid when I watch them again.
+ - The more sincere I could be, the better it would be for the film.
+ - I’d love to be able to write again, but I’m so repetitive. And it was all about fear. Never positive. Just indulgent about my sadness.
+ - I love being a beginner. It can be a terrible feeling because you’re ashamed of everything you do, but it’s so exciting at the same time.
+ - I started so old, so the touring world will always be a foreign land for me. I’ll never be someone who’s “been on the road.”
+ - I don’t like being on my own. I’m happy meeting people and collaborating.
+ - Even moving around onstage seemed very artificial. But at the same time you have to make that effort in order to get back to who you are and even accept not moving, if that’s who you are.
+
+65 quotes

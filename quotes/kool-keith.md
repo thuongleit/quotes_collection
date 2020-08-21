@@ -1,0 +1,33 @@
+ - Tough like a Ukulele.
+ - Shakespeare’s gone, don’t even think about it.
+ - Starstruck with one buck, your girl look like Donald Duck.
+ - I don’t need drugs to make weird music.
+ - I’ve always been a direct guy.
+ - You have girls that sing about guys ain’t paying their bills and men are this and men are that and I write about women who want to go out for free, they don’t want to pay for the dinner, they try to get over, they wanna leave.
+ - I’m not really entertained anymore, everything sounds the same. We have a crisis right now of innovative music. I’m probably the only person left trying to do something different and brand new.
+ - I think Missy Elliot is pretty creative, I mean at least trying to take it to the future.
+ - Now my helmet’s on, you can’t tell me I’m not in space.
+ - I’m not against women. I’m not against men. I just write about me telling my side of how I would say something.
+ - Leave my diapers moist in the back seat of your Rolls Royce.
+ - Everybody’s slow right now, there’s nothing happening musically, everybody’s all on cable television and being manipulated by all the television right now, what’s on cable telling people what to listen to and stuff.
+ - So it’s like the underground world no longer exists economically cause they’re not giving money back to their supporting artists.
+ - I wear black while suckers wear pink.
+ - I didn’t think of rap with that type of south feel and that look and the hay and all that.
+ - I think a lot of the high technology is distracting.
+ - If you want to say you got to take a woman out to a fancy restaurant, I write songs about hey I’m not taking you to a fancy restaurant, I wanna take you to McDonald’s.
+ - The beats change, I mean you got a lot of artists out there advancing new sound, new technology, new beats everything sounding very futuristic, so I feel it would have been boring for me to do another hip-hop record.
+ - But still at that particular level of commercialism I listen to those projects I still hear some stagnation in a lot of the stuff.
+ - I think people get mad because I make more direct records.
+ - I had BEEN making futuristic records way before a lot of the groups that came out, but now everybody is running to make their albums sound new, but it sounds too made up.
+ - I write the most sexiest records out.
+ - Everybody’s still in the 70s and 80s musically, still making remakes.
+ - I thought of rap I thought of Grand Master Flash and I thought of about what they went through.
+ - I think I speak for the guy who is just s a regular guy who says yo I don’t wanna go to an expensive restaurant.
+ - I think I write more outspoken than the average rapper.
+ - As I get older, I ’ve shied away from a lot of convention. I’ve just been making my records.
+ - I write a lot of songs about my impressions from a man’s point of view.
+ - I’ve done so many hip-hop albums already I got tired of just hip-hop.
+ - I mean the world is a place where it feels like a woman has to go out everywhere in society, you have to buy her and cook her a meal and stuff.
+ - Certain songs I feel different people should be on different tracks, you know it’s emotional. I put myself into characters for certain records.
+
+31 quotes

@@ -1,0 +1,47 @@
+ - Always question the authority.
+ - The most powerful music is music with purpose.
+ - The skin you’re in makes choices for you.
+ - What is poverty, if not violence. Like, the number of people who die every year from starvation and from hunger and poverty is in the tens of millions.
+ - Things like rebellion and resistance to authority are absolutely as much a part of the human experience as love and cars are, and it’s a part that doesn’t get covered very much in pop music.
+ - Music, I think, is best when it honestly explores personal demons, and it stirs around in the silt of the psyche to find out what’s really there.
+ - I don’t want to leave this mess around my children to clean up. I want to swing absolutely as hard as I can to straighten things out before they get to the age where it starts hurting them.
+ - A musicians or artists responsibility is a simple one, and that is, through your music to tell the truth.
+ - In my own way, I was a rebellious kid.
+ - Sacrifice and neon lights slave ships don’t wait. Love many, trust few, and don’t be late.
+ - In a world of bands called Limp Bizkit and Hoobastank, Electric Sheep rolls off the tongue like a Shakespearean love sonnet. Leave me alone.
+ - If aliens came down and challenged us to a Battle of the Bands to decide the fate of Planet Earth, I would feel very confident putting early Van Halen forward as our champion.
+ - My parents met in Kenya. My father is African, is Kenyan. The Kenyan side of my family was involved in the anti-colonial movement.
+ - I literally integrated the small town of Libertyville, Illinois. I was the first person of color to reside within its borders.
+ - If you want to change the world right now, it’s not so much a secret how you do it. You put the secrets of a criminal government on the Internet.
+ - A good song should make you wanna tap your foot and get with your girl. A great song should destroy cops and set fire to the suburbs. I’m only interested in writing great songs.
+ - I think that new artistic challenges help you grow both as a person, as an artist, and then they feed back into your other work, and tend to magnify it.
+ - You can kiss my Kiss-loving ass because Kiss was never a critic’s band. It was a people’s band.
+ - Music and the arts feed our souls, but a decent wage puts food on the table. Musicians, fans of music, and grassroots political organizations are a potent force to fight for social justice.
+ - I came late to the genre of folk music.
+ - I myself am a very, very peaceful person. Throughout our history, from our own American revolution to the resistance against apartheid in South Africa, to labor strikes in the US, people have resorted to violence to achieve a more progressive society, from time to time.
+ - I have another name for what they’re terming whistleblowers, and that’s righteous heroes. From Bradley Manning to Snowden. They’re people of conscience who are unwilling to turn a blind eye to the crimes of our government. And thank goodness for them.
+ - When real substantive change happens it’s the people who watch your show, they’re the ones that make it happen. It’s people whose names are not highlighted in history books. They’re the ones that stand up in their place and time to make change.
+ - I feel fortunate to have made records during an era where people actually bought music. But I have friends in struggling up-and-coming bands that will certainly never be able to pay the rent, because music has been devalued.
+ - Bashing the elite is what I’m all about in my music because they absolutely don’t deserve the privileged position that they’re in, and we’re seeing this around the globe right now.
+ - Paul Ryan’s love for Rage Against The Machine is amusing, because he is the embodiment of the machine that our music has been raging against for two decades.
+ - Poverty is curable, but it’s just not done, because it’s not profitable. And that is the kind of violence that’s perpetuated on humanity.
+ - There’s a lot of injustice in the world and it’s what I sing about in my music and what I try to confront in my life as an activist.
+ - Amazingly talented singer who sang like an angry angel.
+ - Charles Manson loved the Beatles but didn’t understand them. Governor Chris Christie loves Bruce Springsteen but doesn’t understand him. And Paul Ryan is clueless about his favorite band, Rage Against the Machine.
+ - Of course, music is an art form, and it’s not all that competitive. But we don’t ever intend to be the second-best band on a stage at any show.
+ - Tonight, it’s the rock and roll all night and party every day hall of fame.
+ - The real estate agent had to go door-to-door in the apartment building we wanted to rent, asking if it was OK for this interracial family – my mom is white and I was a 1-year-old half-African kid – to live in the apartment building.
+ - Well, I don’t care for Paul Ryan’s sound or his lyrics. He can like whatever bands he wants, but his guiding vision of shifting revenue more radically to the one percent is antithetical to the message of Rage.
+ - I didn’t grow up with my Kenyan family. I grew up in a small, conservative suburb of Chicago.
+ - Whenever I set out in a new direction, whether it’s with a new band or being a frontman or writing a comic book or entering into movie scoring or anything like that, I wouldn’t say that I do it fearlessly.
+ - I find it ironic that now water is more expensive than music. On the one hand, record companies can’t go crying when they’ve gouged consumers for decades, charging exorbitant prices for CDs that cost 29 cents to make. On the other hand, when music is free, musicians starve.
+ - I’ve always been on a personal mission to save the guitar.
+ - I think you might be considered a terrorist for asking the question! It can be so broadly defined now. And the thing is, you’re not privy to those decisions. Anyone who expresses any opinion can be considered a terrorist.
+ - My music is made for the people who are willing to stand up to change this world themselves.
+ - I was a fan of heavy music – first metal, then punk, then hip hop.
+ - There are literally billions of people on the planet who live in an unimaginable poverty that’s not in any way different from the plight of the people in Orchid. And you can’t have the splendor of Rodeo Drive without the sweatshops of Indonesia; those two things go hand in hand.
+ - I think it’s crucially important to be present in the lives of your children. They are my most important cause that I fight for. But I also feel an added responsibility that I want to leave them a better world than this one that we have now.
+ - I’d say that one area where my political views have remained unchanged is that, I am opposed to the government spying on everybody.
+ - Being a musician is a given for me-I didn’t have much choice in the matter.
+
+45 quotes

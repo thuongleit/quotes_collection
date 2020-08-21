@@ -1,0 +1,67 @@
+ - It takes strength to show vulnerability.
+ - My family is awesome.
+ - I guess if you don’t jump, you’ll never know if you can fly.
+ - I’m giving up on love cause love’s given up on me.
+ - When your roots grow out and things go south, go back to the salon.
+ - The road is hard, and you have to get accustomed to it.
+ - There’s been a shift: Country music is popular music now. Every other genre wants to come over to our land.
+ - I am proud to be a normal size girl and I want to encourage everyone to be confident at any size.
+ - Platinum is a lot of things: it’s hair, it’s diamonds and platinum.
+ - Country music has always sort of been country music.
+ - I want to look my best, but I’m not a model. I’m not an actress. I’m representing normal girls. It’s OK to have a little bit of curve. I’m happy with my body. So many girls come up to me and say, “Thank you for being normal,” and I’m proud of that.
+ - So you treat your love like a firefly, like it only gets to shine for a little while. Catch it in a mason jar, with holes in the top, and run like hell to show it off.
+ - I’m married to my best friend!
+ - My mom was never afraid to say, ‘I’m sorry. I screwed up.’ I feel like that’s an important lesson.
+ - Country music fans are extremely passionate and loyal. It seems that country artists have longer-lasting careers because the fans stick with the artists through thick and thin.
+ - You leave home, you move on and you do the best you can. I got lost in this whole world and forgot who I am.
+ - I carry a weapon. I got a death threat a few years ago and was really scared. But I don’t want bodyguards. I am my own security.
+ - When you live with someone on the bus, for four days a week, you really have to get along.
+ - Somehow I always get stronger when I’m on my second drink.
+ - Both my mom and my grandma were really big influences on me not only by being strong and teaching me to be strong but also owning their salt as well.
+ - I think the unconditional love you get from an animal, especially a dog, is better than anything else.
+ - I’m really fortunate because, in my career, I haven’t had to deal with anybody trying to make me something I’m not.
+ - Currently I’m not a crazy ex-girlfriend, but I can’t promise I won’t be one again.
+ - My music is about being strong, even in your vulnerability.
+ - I won’t give up what I enjoy to look perfect. I want to find a happy medium between feeling good about my body and still having a beer and some barbecue.
+ - I’m an outdoors girl – I like to go fishing, riding four-wheelers, hunting.
+ - Heartbreak is good fuel for country songs. And cheating.
+ - Is it guilty in here or is it just me?
+ - If you don’t stand for something, how can anyone respect what you do?
+ - Be confident and comfortable with yourself. If you know us, we are definitely not shy, and never try to be anything we are not. No matter what anyone tells you, you are perfect, just the way you are.
+ - Long intros are cool because there’s a little bit of anticipation, you know?
+ - I feel like I’ve started to grow up and be more of a woman instead of this crazy girl.
+ - I think I find new idols every day – someone that says something really inspiring, is successful, has character.
+ - I live on hairspray. The bigger the hair, the closer to God.
+ - I also have a different, softer side, and I want for people to hear that.
+ - I can reach the mass audience if I come from different perspectives on every song.
+ - I think being a Texan – we sort of have that extra fire in us as a breed. I just felt like from day one I had something to say and I wanted to make sure people heard me, and it’s worked.
+ - Usually, I cut songs by other people that are artists that I already love.
+ - I definitely don’t ever want to burn out at my job.
+ - You have a career, and you start as a business person. And you work your way, you reach this peak, and you know the time’s going to come when you go back down.
+ - I learned a lot about my audience and about myself as a performer, what I like to do live.
+ - I am incredibly thankful for the strong support I have from my peers in the industry and of course my amazing fans.
+ - Miranda Lambert! She not only has amazing music, but she is an awesome role model for females and rescues lots of animals!
+ - I hope my music sets up the platform for me to be able to do lots of things – to have a cowboy-boot line, maybe, or do a perfume or makeup deal.
+ - I do appreciate every single dollar I earn.
+ - A lot of people tell me, once they get to know me, that they’re surprised that I’m nothing like they think I’ll be.
+ - I really think that being yourself, being original, being outside the box is starting to be appealing to people.
+ - When I got a record deal I said, ‘I’m only wearing jeans. I’m not wearing frilly dresses.’ Dancing around in sequins is just not who I am. I wanted to be heard, not seen.
+ - Yeah, I have a tough-girl image.
+ - Texas people are really strong in their roots. I started writing and playing guitar at 17. I’ve always loved music, and my dad is a singer-songwriter.
+ - Don’t get me wrong, I love my first two albums a lot.
+ - The bigger you get, the more pressure you have to deal with.
+ - My weight always fluctuates by 10 pounds. After trying Atkins and doing Nutrisystem a few times, now I’m just focused on maintaining a healthy lifestyle rather than dieting.
+ - For each album, I let the music that I love at that point in my life be my guide.
+ - People naturally change a lot during their 20s, so my songs reflect that progression.
+ - I do write a lot from personal experience, but I also embellish a bit.
+ - At the very beginning of my career I felt very strongly about what type of artist I wanted to be.
+ - I was always suspicious and looking over my shoulder because that’s how I was raised.
+ - Music was the first thing I did where I was naturally talented.
+ - I wouldn’t want to bring a kid into this crazy world right now.
+ - We write so many songs, it is difficult to narrow them down.
+ - Really skinny actresses make me hungry – I see them and think, Honey, you need to eat!
+ - I don’t really do acting. I’ve done a little bit – enough to know I’ll stick to what I know. Music is my thing.
+ - I have my own little sense of style. As far as image goes today for a new artist, you’ll find that fashion is really important. I wouldn’t want to show up for a performance in something that is absolutely the opposite of who I am as an artist.
+ - I did surveillance a lot, which sounds exciting, but it never was.
+
+65 quotes

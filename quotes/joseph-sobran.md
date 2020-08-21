@@ -1,0 +1,60 @@
+ - In 100 years we have gone from teaching Latin and Greek in High School to teaching remedial English in college.
+ - An anti-Semite used to mean a man who hated Jews. Now it means a man who is hated by Jews.
+ - Politicians never accuse you of ‘greed’ for wanting other people’s money – only for wanting to keep your own money.
+ - The purpose of a college education is to give you the correct view of minorities, and the means to live as far away from them as possible.
+ - It can be exalting to belong to a church that is five hundred years behind the times and sublimely indifferent to fashion; it is mortifying to belong to a church that is five minutes behind the times, huffing and puffing to catch up.
+ - If we need women in our defense forces, we must not need much defense.
+ - Freedom is coming to mean little more than the right to ask permission.
+ - Mass democracy guarantees stupidity. Masses of people, even if they’re individually intelligent, can only act stupidly.
+ - The difference between a politician and a pickpocket is that a pickpocket doesn’t always get indignant when you tell him to keep his hands to himself.
+ - A hypocritical etiquette forces us to pretend that the Jews are powerless victims; and if you don’t respect their victimhood, they’ll destroy you.
+ - War has all the characteristics of socialism most conservatives hate: Centralized power, state planning, false rationalism, restricted liberties, foolish optimism about intended results, and blindness to unintended secondary results.
+ - Chesterton spoke of ‘the modern and morbid habit of always sacrificing the normal to the abnormal.’ It would be hard to sum up liberalism for succinctly.
+ - Democracy has proved only that the best way to gain power over people is to assure the people that they are ruling themselves. Once they believe that, they make wonderfully submissive slaves.
+ - The attempt to silence a man is the greatest honor you can bestow on him. It means that you recognize his superiority to yourself.
+ - Since outright slavery has been discredited, “democracy” is the only remaining rationale for state compulsion that most people will accept.
+ - Like psychoanalysis, constitutional jurisprudence has become a game without rules. By defying the plain meaning of words, ignoring context and history, and using a little ingenuity, you can make the Constitution mean anything you like.
+ - When liberals clamor for ‘diversity,’ they don’t necessarily mean they are ready to tolerate actual disagreement.
+ - The hypocrite recognizes the honest man as his deadly enemy.
+ - Freedom has ceased to be a birthright; it has come to mean whatever we are still permitted to do.
+ - Politics is the conspiracy of the unproductive but organized against the productive but unorganized.
+ - There can be no such thing as “limited government,” because there is no way to control an entity that in principle enjoys a monopoly of power...
+ - The chances of your being harmed by terrorists are mathematically minute. The chance of your being robbed by your own government? That’s easy: 100 per cent.
+ - Why does corruption in government always surprise us? Why do we expect anything else from it? Government is organized force. It takes our wealth and makes war. And we think honest men would do that work?
+ - If you want government to intervene domestically, you’re a liberal. If you want government to intervene overseas, you’re a conservative. If you want government to intervene everywhere, you’re a moderate. If you don’t want government to intervene anywhere, you’re an extremist.
+ - Government has ceased to mean upholding and reinforcing the traditional rights and morals of the governed; it now means compulsion in the service of social engineering.
+ - Destroying white civilization is the inmost desire of the league of designated victims we call minorities.
+ - If Communism was liberalism in a hurry, liberalism is Communism in slow motion.
+ - The Constitution poses no threat to our current form of government.
+ - The liberal understanding of ‘the separation of church and state’ means that as the area of politics expands, the area of private freedom – religious and otherwise – shrinks.
+ - The US Constitution serves the same function as the British royal family: it offers a comforting symbol of tradition and continuity, thereby masking a radical change in the actual system of power.
+ - The measure of the state’s success is that the word anarchy frightens people, while the word state does not.
+ - If one person in America had starved over the last 20 years, you, reader, would know his name. The media would see to that. It would be the most thoroughly documented death since John Kennedy’s.
+ - Thus does a ‘necessary evil’ become an idol. Maybe we’re stuck with it. But do we have to worship it?
+ - Liberals see the Constitution itself as ‘living’ and ‘evolving’ that is, gradually turning into something that would have been unrecognizable to its authors.
+ - Now whatever you think of the liberal agenda on its merits, until very recently nobody thought the Constitution meant what liberals now say it means.
+ - Even if we are all doomed to live under the state, it doesn’t follow that there is, or even can be, such a thing as a good state.
+ - The prospect of a government that treats all its citizens as criminal suspects is more terrifying than any terrorist. And even more frightening is a citizenry that can accept the surrender of its freedoms as the price of “freedom”.
+ - A Christian can believe that God ‘ordained’ the ‘powers that be’ – including political rulers and slaveholders – for purposes too deep for us to understand fully, and that while they last we must provisionally accept them; but that they were not meant to last forever.
+ - Loyalty to your country should never require you to lie about it.
+ - The best argument for anarchism is the twentieth century.
+ - Altering the Constitution has become the daily business of the Federal Government which the document is supposed to guide and limit. Both Congress and the judiciary assume, and exercise, countless powers they aren’t entitled to.
+ - Power tempts even the best of men to take liberties with the truth.
+ - Most Americans aren’t the sort of citizens the Founding Fathers expected; they are contented serfs. Far from being active critics of government, they assume that its might makes it right.
+ - Man is the only creature disposed to kill huge numbers of members of his own species, and his instrument is usually the state.
+ - The most fundamental purpose of government is defense, not empire.
+ - Because the state can no longer protect us from crime, it wants to take away from us the means of protecting ourselves. This is the logic of gun control.
+ - Government is the agent of those who are too refined to do their own mugging.
+ - War is just one more big government program.
+ - Tyranny may creep in under the outward forms of traditional law.
+ - It’s I politics that men are always aggravating the hopeless tangle of their laws, obscuring the simplest principles and making a mockery of liberty.
+ - I realize that the New York Times probably not written for the express purpose of driving me mad; I think of it as liberalism’s daily bulletin board.
+ - Anything called a “program” is unconstitutional.
+ - Too many voters are already bought – not by corporate campaign donors, but by the government itself.
+ - We would be much worse without Christianity; but we wouldn’t know it.
+ - Nothing annoys a ‘progressive’ like refugees from Communism, who give the lie to the Great Socialist Dream.
+ - Wartime always brings expansions of state power, together with erosions of moral and constitutional standards.
+ - All in all, the framers would probably agree that it’s better to impeach too often than too seldom. If presidents can’t be virtuous, they should at least be nervous.
+ - At the end of a century that has seen the evils of communism, Nazism and other modern tyrannies, the impulse to centralize power remains amazingly persistent.
+
+58 quotes

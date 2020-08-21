@@ -1,0 +1,62 @@
+ - Wherever there is objective truth, there is satire.
+ - An artist should be as impartial as God.
+ - The earth has become one big village, with telephones laid on from one end to the other, and air transport, both speedy and safe.
+ - What is the good of being an island, if you are not a volcanic island?
+ - To give up another person’s love is a mild suicide; like a very bad inoculation as compared to the full disease.
+ - So-called austerity, the stoic injunction, is the path towards universal destruction. It is the old, the fatal, competitive path. Pull in your belt is a slogan closely related to gird up your loins, or the guns-butter metaphor.
+ - Where there is abundance you can afford waste.
+ - Elephants are VERY BIG. Motor cars go quickly.
+ - The Future is distant, like the Past, and therefore sentimental. The mere element “Past” must be retained to sponge up and absorb our melancholy. Everything absent, remote, requiring projection in the veiled weakness of the mind, is sentimental.
+ - We are the first men of a Future that has not materialized. We belong to a “great age” that has not “come off”. We moved too quickly for the world. We set too sharp a pace.
+ - Revolution has become a sort of violent and hollow routine.
+ - The streets of a modern city are depressing. They are so aimless and so weak in their lines and their masses, that the mind and senses jog on their way like passengers in a train with blinds down in an overcrowded carriage.
+ - The artist is always engaged in writing a detailed history of the future because he is the only person aware of the nature of the present.
+ - I have been called a Rogue Elephant, a Cannibal Shark, and a crocodile. I am none the worse. I remain a caged, and rather sardonic, lion, in a particularly contemptible and ill-run zoo.
+ - Prostration is our natural position. A worm-like movement from a spot of sunlight to a spot of shade, and back, is the type of movement that is natural to men.
+ - Laughter is the Wild Body’s song of triumph.
+ - Laughter is the climax in the tragedy of seeing, hearing and smelling self-consciously.
+ - If you do not regard feminism with an uplifting sense of the gloriousness of woman’s industrial destiny, or in the way, in short, that it is prescribed, by the rules of the political publicist, that you should, that will be interpreted by your opponents as an attack on woman.
+ - Surely to root politics out of art is a highly necessary undertaking: for the freedom of art, like that of science, depends entirely upon its objectivity and non-practical, non-partisan passion.
+ - Contradict yourself. In order to live, you must remain broken up.
+ - Sadistic excess attempts to reach roughly and by harshness what art reaches by fineness.
+ - Art is the expression of an enormous preference.
+ - Revolution today is taken for granted, and in consequence becomes rather dull.
+ - It is more comfortable for me, in the long run, to be rude than polite...
+ - Instead of the vast organization to exploit the weakness of the Many, should we not possess one for the exploitation of the intelligence of the Few?
+ - As a result of the feminist revolution, feminine becomes an abusive epithet.
+ - The ideas of a time are like the clothes of a season: they are as arbitrary, as much imposed by some superior will which is seldom explicit.
+ - The teacher does not have to be, although he has to know: he is the mind imagining, not the executant.
+ - The art of advertisement, after the American manner, has introduced into all our life such a lavish use of superlatives, that no standard of value whatever is intact.
+ - Satire has a great big glaring target. If successful, it blasts a great big hole in the center. Directness there must be and singleness of aim: it is all aim, all trajectory.
+ - God is, of course, a terrifying reality. I had thought that I knew all about God, and had Him in a pigeon hole. But I met Him at the corner of a street – He entered my mind with a bang, and nearly burst my head open.
+ - No American worth his salt should go around looking for a root. I advance this in all modesty, as a not unreasonable opinion.
+ - People are so overwhelmed with the prestige of their instruments that they consider their personal judgement of hardly any account.
+ - The male has been persuaded to assume a certain onerous and disagreeable role with the promise of rewards – material and psychological. Women may in the first place even have put it into his head. BE A MAN! may have been, metaphorically, what Eve uttered at the critical moment in the garden of Eden.
+ - A hundred things are done today in the divine name of Youth, that if they showed their true colors would be seen by rights to belong rather to old age.
+ - Men were only made into ‘men’ with great difficulty even in primitive society: the male is not naturally ‘a man’ any more than the woman. He has to be propped up into that position with some ingenuity, and is always likely to collapse.
+ - The ideal of perfect Success is an ideal belonging to the same sort of individual as the inventor of Equal Rights of man and Perfectibility.
+ - Lenin in a top hat and frock coat would be a far greater anomaly than the Grand Lama of Thibet or a Zulu chief in that costume.
+ - Laughter is the representative of Tragedy, when Tragedy is away.
+ - A sort of war of revenge on the intellect is what, for some reason, thrives in the contemporary social atmosphere.
+ - Lewis sought no disciples, nor does he offer a program or solution, rather his contribution is a critical discipline. Lewis is a stimulant, a mode of perception, rather than a position or practice.
+ - All orthodox opinion – that is, today, “revolutionary” opinion either of the pure or the impure variety – is anti-man.
+ - In life nothing is taken to its ultimate conclusion, life is a half-way house, a place of obligatory compromise; and, in dealing in logical conclusions, a man steps out of life – or so it would be quite legitimate to argue.
+ - There is nothing contemptible about an intoxicated man – if it is nothing more than a bookful of words or a roomful of notes that he has got drunk on.
+ - Happiness is the chief material also in the construction of Utopias.
+ - I am an artist, and, through my eye, must confess to a tremendous bias. In my purely literary voyages my eye is always my compass.
+ - To be a satirist, at all events. The venom of Pope is what is needed. The sense of delight – the expansion and the compassion of Shakespeare is no good at all for that. He is a bad comic.
+ - Life is art’s rival and vice versa.
+ - Artists put as much vitality and delight into their saintliness and escape out as most men do their escapes into similar places from respectable existence.
+ - Almost anything that can be praised or advocated has been put to some disgusting use. There is no principle, however immaculate, that has not had its compromising manipulator.
+ - The intelligence suffers today automatically in consequence of the attack on all authority, advantage, or privilege. These things are not done away with, it is needless to say, but numerous scapegoats are made of the less politically powerful, to satisfy the egalitarian rage awakened.
+ - I feel most at home in the United States, not because it is intrinsically a more interesting country, but because no one really belongs there any more than I do. We are all there together in its wholly excellent vacuum.
+ - For the first rate poet, nothing short of a Queen or a Chimera is adequate for the powers of his praise.
+ - A man only goes and confesses his faults to the world when his self will not acknowledge or listen to them.
+ - In a period of such obsessing political controversy as the present, I believe that I am that strange animal, the individual without any politics at all.
+ - If the world would only build temples to Machinery in the abstract then everything would be perfect. The painter and sculptor would have plenty to do, and could, in complete peace and suitably honored, pursue their trade without further trouble.
+ - What every artist should try to prevent is the car, in which is our civilized life, plunging over the side of the precipice – the exhibitionist extremist promoter driving the whole bag of tricks into a nihilistic nothingness or zero.
+ - Laughter is an independent, tremendously important, and lurid emotion.
+ - Then down came the lid – the day was lost, for art, at Sarajevo. World-politics stepped in, and a war was started which has not ended yet: a “war to end war.” But it merely ended art. It did not end war.
+ - But ‘art’ is not anything serious or exclusive: it is the smell of oil paint, Henri Murger’s Vie de Boheme, corduroy trousers, the operatic Italian model: but the poetry, above all, of linseed oil and turpentine.
+
+60 quotes

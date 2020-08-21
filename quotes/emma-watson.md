@@ -1,0 +1,167 @@
+ - If not me, who? If not now, when?
+ - Don't feel stupid if you don't like what everyone else pretends to love.
+ - I'm going to do what I want to do. I'm going to be who I really am. I'm going to figure out what that is.
+ - Believe in yourself and go for it.
+ - The less you reveal the more people can wonder.
+ - Girls should never be afraid to be smart.
+ - Don’t let anyone tell you what you can or cannot do, or cannot achieve. Do. Not. Allow. It.
+ - I don’t want other people to decide who I am. I want to decide that for myself.
+ - I like books that aren't just lovely but that have memories in themselves. Just like playing a song, picking up a book again that has memories can take you back to another place or another time.
+ - All I can do is follow my instincts, because I’ll never please everyone.
+ - The saddest thing for a girl to do is to dumb herself down for a guy.
+ - Young girls are told you have to be the delicate princess. Hermione taught them that you can be the warrior.
+ - If I was going to be a princess, I would be a warrior princess.
+ - If you believe in equality, you’re a feminist. Sorry to tell you.
+ - There’s nothing wrong with being afraid. It’s not the absence of fear, it’s overcoming it. Sometimes you’ve got to blast through and have faith.
+ - We really damage our own confidence when we put ourselves down, so I try not to.
+ - Feminism is equality: politically; culturally; socially; economically. That’s it, that simple.
+ - Becoming yourself is really hard and confusing, and it’s a process. It’s often not cool to be the person who puts themselves out there.
+ - I truly, truly believe that beauty is something that comes from within.
+ - It’s important to read because it’s really good for your vocabulary. It’s really good for your imagination. I enjoy reading because I find it relaxing.
+ - I don’t want the fear of failure to stop me from doing what I really care about.
+ - It sounds so geeky, but I really do like studying and reading, and if I’m not working on ‘Harry Potter,’ then my greatest relaxation is to sit with a book.
+ - Men think it’s a women’s word. But what it means is that you believe in equality, and if you stand for equality, then you’re a feminist. Sorry to tell you. You’re a feminist. You’re a feminist. That’s it.
+ - Gender equality, historically has been predominantly a women’s movement for women. But I think the impact of gender inequality and how it’s affecting men hasn’t really been addressed.
+ - I’m not going to school just for the academics – I wanted to share ideas, to be around people who are passionate about learning.
+ - I really believe that you have to earn things. I don’t feel comfortable unless I have worked really hard.
+ - I’ve found that if ultimately, if you truly pour your heart into what you believe in, even if it makes you vulnerable, amazing things can and will happen.
+ - For the record, feminism by definition is: ‘The belief that men and women should have equal rights and opportunities. It is the theory of the political, economic and social equality of the sexes.’
+ - Don’t think I’m going off to find myself though. I already know who I am.
+ - There’s nothing interesting about looking perfect.
+ - It sounds like a cliche but I also learnt that you’re not going to fall for the right person until you really love yourself and feel good about how you are.
+ - Harry Potter’s like Santa Clause: something you can’t see but wish was real so badly that you end up believing in it.
+ - Even worse than seeing women’s privacy violated on social media is reading the accompanying comments that show such a lack of empathy.
+ - Being passionate is not what makes you a girl, it’s what makes you a human.
+ - I really love animals and enjoy working with them.
+ - It makes me sad to hear girls constantly putting themselves down. We have these unbelievably high expectations of ourselves, when actually we’re human beings and our bodies have a function.
+ - But it’s a journey and the sad thing is you only learn from experience, so as much as someone can tell you things, you have to go out there and make your own mistakes in order to learn.
+ - If men don’t have to be aggressive in order to be accepted, women won’t feel compelled to be submissive. If men don’t have to control, women won’t have to be controlled.
+ - The human race is like a bird and it needs both wings to be able to fly. And, at the moment, one of is wings is clipped an we’re never going to be able to fly as high.
+ - Ive never understood having crushes on people who you dont know in real life. I only crush on people I meet. I mean, I can appreciate that someone is good-looking, obviously, but I dont intend to fantasize about people I dont know!
+ - I really never break the rules. I’m not scared to say what I think or if I really disagree with something then I’ll say it, but I’m not kind of like a born rebel.
+ - I don’t have perfect teeth, I’m not stick thin. I want to be the person who feels great in her body and can say that she loves it and doesn’t want to change anything.
+ - We had fun just messing around and being awkward like they would be awkward. There’s always that stage in a friendship when you wonder whether it could be more.
+ - My friends are all really nice about my fame, they’re just curious really, they ask lots of questions.
+ - We are tapping into what the world wants: to be a part of change.
+ - Our society in general devalues the ‘she’ – qualities that are associated with the feminine that are found in all of us. As a result there’s this imbalance and this distortion and it’s hindering our progress.
+ - Men don’t have the benefits of equality either.
+ - Hermione uses all these big long tongue twister words. I don’t know what she’s going on about half the time!
+ - No country in the world can yet say they have achieved gender equality.
+ - Women have a natural tendency to want to nurture and take care of men. You always think that the guy is going to end up coming around and that you’re going to be the one that saves him – like the Oasis song.
+ - I’m a feminist, but I think that romance has been taken away a bit for my generation.
+ - We need female advocates. I’d love to live in a world where there are as many women in parliament as men.
+ - Chivalry should be consensual.
+ - There’s nothing interesting about looking perfect – you lose the point. You want what you’re wearing to say something about you, about who you are.
+ - I’m very romantic and of course I want to be in love.
+ - Why has the word become such an uncomfortable one?
+ - I find the whole concept of being ‘sexy’ embarrassing and confusing.
+ - I can’t wait to be able to drive, but it’s hard. Good driving doesn’t really run in my family genes. My mother is possibly the worst driver ever.
+ - If I could wear any label forever it would be Burberry. It covers a huge span of stuff. You can’t go wrong with a classic trench and a pair of jeans.
+ - I threw my 20th birthday party at Brown, and I didn’t even have to say to anyone not to put pictures on Facebook. Not a single picture went up. That was when I knew I’d found a solid group of friends, and I felt like I belonged.
+ - We don’t often talk about men being imprisoned by gender stereotypes but I can see that that they are and that when they are free, things will change for women as a natural consequence.
+ - I want to be normal. I really want anonymity.
+ - I think women are scared of feeling powerful and strong and brave sometimes.
+ - I’m excited about the aging process. I’m more interested in women who aren’t perfect. They’re more compelling.
+ - When I haven’t been working I’ve tried to travel a lot.
+ - I have to kind of like switch heads. Sometimes I manage it seamlessly, and other times I feel rather all over the place. I feel a bit schizophrenic, like I have a split personality.
+ - I dance a lot and I run and do yoga and play field hockey and tennis. I like to be active. I don’t always have time for that stuff, but I do always feel better afterward.
+ - I don’t have makeup on all the time, but when I want, I have fun with my friends choosing clothes and putting nail polish on.
+ - Being an actress, I find myself people-watching and I can be quite shy.
+ - Field hockey is my strongest sport, and if I lose a game, I take a long, hot bath and moan about it.
+ - If we stop defining each other by what we are not and start defining ourselves by who we are we can all be freer. And this is what HeforShe is about. It’s about freedom.
+ - I can be 100 years old but I will always be proud to say I was in Harry Potter.
+ - If I’m feeling tired, I just say, ‘I’m going to paint my nails purple and put some lipstick on!’
+ - I’m a multidimensional person and that’s the freedom of fashion: that you’re able to reinvent yourself through how you dress and how you cut your hair or whatever.
+ - I see wings dancing around me Beleive in your dreams.
+ - I’m a real Londoner. We have very grey weather in London, and I think it encourages a very eclectic and crazy fashion sense. I mix high-street stuff with more high-end fashion, and I love vintage.
+ - I don’t really buy designer stuff. I have a few nice things, but I don’t really have the occasion to wear couture too often.
+ - Really I was open-minded about doing anything, but the one thing I didn’t want to do was get myself into a corset, because I was worried I’d never get out again.
+ - To be honest, I felt more myself with that haircut. I felt bold, and it felt empowering because it was my choice. It felt sexy too. Maybe it was the bare neck, but for some reason I felt super-, supersexy.
+ - I was working on ‘Harry Potter’ while I was growing up, and the attention it brought me made me feel quite isolated.
+ - I had been doing something for more than half of my life that I wanted to continue doing – I really loved making the film and I really love acting and it is what I want to do.
+ - Yes, I will put it out there – I will work for anyone for free if they’re prepared to make their clothing Fair Trade and organic. It’s really hard to get people interested in it.
+ - I would love to persuade Christopher Bailey to get even just a section of Burberry that’s, like, organic or free trade. I love him, he’s a very good person and an amazing designer, and I have a lot of respect and time for him.
+ - Dan Radcliffe and Rupert Grint to me are like a pair of warm-hearted brothers.
+ - When I started dating I had this kind of Romeo and Juliet, fateful romantic idea about love which was almost that you were a victim and there was a lot of pain involved and that was how it should be.
+ - While I wouldn’t object to work at a restaurant or a different place that sells decent-or-better food, I think that I can learn much more by becoming a coder.
+ - Make-up is actually something I’ve always really loved.
+ - I try to avoid wearing black because sometimes it’s the easy option. But I’m young, so it’s nice to be able to play with color and not just wear black all the time. I can save that for when I’m older.
+ - I stole a piece of the chess set on the first film. I took a piece of the treasure out of Bellatrix’s vault on this film. And I’ve taken my wand and I’ve got my cloak.
+ - I think it’s so much sexier to be understated. It’s more intriguing to be sexy in a less obvious way.
+ - It’s quite stressful knowing that every time you walk out the door, someone is going to be giving you a very good look up and down, judging everything you wear.
+ - I really want to write a novel. I also want to learn to play the mandolin.
+ - I think that it is very important if you know what you want, understand where you are heading towards, and try your best to get it. It is only when we use our hearts to do it, and fall in love with what we are doing, then can we really get real determination.
+ - It was unbelievable seeing me as an action figure! In a few months, toddlers all around the country will be biting my head off!
+ - As an actress I take roles I find interesting.
+ - I wasn’t one of those girls who always dreamed of being an actress. I went to a normal school and then these film auditioners turned up when I was nine. Then I just fell into this whirlwind.
+ - I feel like a voodoo doll. It’s grim. It’s gross.
+ - It’s very hard to describe your own style. And I’m young, so I’m still experimenting. But I think it’s quite British and very much about individuality.
+ - The entertainment industry is pretty nuts, and having had that experience outside of it and going to university has really made a big difference. It’s important to me to feel like I have my own life.
+ - I just loved performing. It just made me feel alive. It’s scary, but that’s part of it. I think it’s important to have that extra adrenaline. It gives you that extra zing.
+ - I’ve got about eight pairs of shoes, and that’s it.
+ - If anyone else played Hermione, it would actually kill me.
+ - I think there’s this idea that lipstick is something quite old or something you’d only wear at night.
+ - As wonderful as charity is, that money runs out. It’s not sustainable. It lasts for a certain period of time and it’s gone. What i really think people need is the opportunity to help themselves.
+ - I keep telling myself that I’m a human being, an imperfect human being who’s not made to look like a doll, and that who I am as a person is more important than whether at that moment I have a nice figure.
+ - There are so many scripts and they are fantastic. I think I would like to do something different, maybe something smaller.
+ - I never wear pigtails, I wear plaits.
+ - The reality is that if we do nothing it will take 75 years, or for me to be nearly a hundred before women can expect to be paid the same as men for the same work.
+ - If I hadn’t done ‘Harry Potter,’ I would have gone and done years of art. I really do love it, and I’d love to write.
+ - People don’t really understand, but having people stare, and point, and take pictures, even if it is in a positive framework, is quite isolating; there’s no two ways about it. You feel a little bit, you know, freakish.
+ - I’m lucky that I’ve worked with so many different directors with very different styles and with a lot of different actors.
+ - In terms of men I fancy, I think the actor James Franco is gorgeous. But I find it odd to be described as a sex symbol myself.
+ - I still have friends from primary school. And my two best girlfriends are from secondary school. I don’t have to explain anything to them. I don’t have to apologize for anything. They know. There’s no judgment in any way.
+ - I think I’m actually in denial that I’m famous, it only sinks in when people crowd in the streets. My friends treat me like a regular person, which is what I wanted.
+ - I have a real thing for Mexican directors. And I love Guillermo del Toro and Alejandro Gonzalez Inarritu.
+ - As a child, I loved being onstage. I loved singing, I loved the lights, I loved the adrenaline. I even loved learning lines. I was completely obsessive.
+ - I like men with quick wit, good conversation and a great sense of humour. I love banter. I want a man to like me for me – I want him to be authentic.
+ - I have had no control over my life. I have lived in a complete bubble. They found me and picked me for the part. And now I’m desperately trying to find my way through it.
+ - People say things to me like, ‘It’s really cool that you don’t go out and get drunk all the time and go to clubs.’ I appreciate that, but I’m kind of an introverted kind of person just by nature.
+ - As I’ve got older, and since I cut all my hair off, I’ve felt a bit more liberated about trying different things out.
+ - Oh, I think Rupert’s gorgeous. He is, he’s totally gorgeous! Very handsome, very handsome indeed.
+ - He is a good kisser. I can definitely vouch for that.
+ - The difficulty for me is that I’m interested in so many different things. I could never really imagine myself doing one thing, and I’m pretty sure that I’ll end up doing four or five different things.
+ - I don’t know anything about American history or presidents. I don’t know what tailgating is! I’ve never been to an Olive Garden!
+ - When I was younger, they used to tease me. And now they’re quite protective.
+ - For the first two movies, I had a huge crush on Tom Felton. He was my first crush. He totally knows. We talked about it – we still laugh about it. We are really good friends now, and that’s cool.
+ - I love fashion. I think it’s so important, because it’s how you show yourself to the world.
+ - I would love to not date someone in the same industry as me. Otherwise it becomes what it means to everyone else.
+ - I hope my head doesn’t get very big. I’m just going to keep my feet on the ground, stick to friends and family and try to lead a normal life.
+ - Harry Potter is not twilight, you know; we’re not selling sex.
+ - I am literally obsessed with Lena Dunham. She’s, like, my favorite person in the world. I follow her on Twitter; I read her every day.
+ - My grandma said – when I was really young and I’d sing along to the radio – why do you sing in an American accent? I guess it was because a lot of the music I was listening to had American vocalists.
+ - I’m a perfectionist, so my bossiness definitely comes out.
+ - People associate feminism with hate – with man hate – and that’s really negative. I don’t think that’s what feminism is about at all – it’s really positive. I think that’s why women became reluctant to use the word.
+ - I get sent Bibles. I have a collection of about 20 in my room. People think I need to be guided.
+ - I’m really interested in modern history, but to fulfill a History degree at Brown you have to do modern and pre-modern.
+ - I don’t know. I think there are fans out there who know that too and who wonder whether Ron would have really been able to make her happy.
+ - Hermione is so close to who I am as a person that I’ve never really had to research a role. I’m literally rediscovering what it means to be an actress.
+ - I think when you take away all, like, the premieres and press stuff and all the special effects, then you just come down to the fact that it’s all about acting, and I think that has been the best bit for me.
+ - I want to avoid becoming too styled, too ‘done’ and too generic. You see people as they go through their career, and they just become more and more like everyone else. They start out with something individual about them, but it gets lost.
+ - I’m very crafty! One time I made a television set out of a cardboard box – Everybody thought it was a lark! This was the beginning of a love affair with the arts.
+ - I have collections of quirky things from places I’ve been to, like a set of Russian dolls.
+ - If I’ve learned anything, it’s really just to stop trying to find answers and certainties.
+ - It’s difficult on my dating life, because anyone I get photographed with is automatically my boyfriend. So it just makes it look as if I’ve had, like, 6,000 boyfriends!
+ - I’ve always been fascinated by Elizabeth Taylor, and I had read that her first kiss happened on a film set, which actually made me a little sad. You need to have normal experiences of your own.
+ - With ‘Harry Potter,’ I’ve been all over the world. I probably wouldn’t have gone to New York so young if it weren’t for the films.
+ - I love painting and have a need to do it.
+ - It’s amazing people get so detached from what they eat and what they wear. No one has any contact with how things are made that are put in their body and put in their mouths and I just find it alarming that no one questions it.
+ - I genuinely haven’t really had a rebellious phase. I think it’s just because of the way I was brought up. I think it’s because I left home when I was ten years old.
+ - I went from being totally unknown and never acting professionally to being in a major movie and being very famous. It all happened so quickly, I didn’t have any time to work things out. It’s been pretty scary at times.
+ - I think the actresses who are really successful are comfortable in their own skins and still look human.
+ - I love Karl Lagerfeld. I worship him. I was brought up in Paris, and my mum used to wear a lot of Chanel. I love the brand.
+ - And I always keep cards people send me. I have a whole wall covered with them.
+ - I like Valentino a lot – they never use actresses in their campaigns.
+ - My cinematic crush has been pretty much the same since I was 12: Kevin Costner.
+ - Most people are really nice but some stare, like you’re some kind of zoo exhibit and not a real person with real feelings.
+ - I’ve never really had any barrier to break I guess. I don’t really have anything to rebel against. I’m quite lucky.
+ - I do worry about the expectation to look a certain way.
+ - I like to think of myself as an actress, I think of going through all of the films as my kind of film academy, the way that I’ve learnt.
+ - Concentrate on comfort – even if that means wearing the same thing over and over, because when I feel comfortable, I feel so much more relaxed and have a much better time.
+ - I thought, If people are going to write about what I’m wearing, then I would wear young British designers who need the publicity.
+ - Obviously, I’m recognized on the street and I am away from home a lot more and, let’s face it, I have an action figure of myself!
+ - I just try and surround myself, for the biggest proportion of time that I can, with people who make me feel normal, because constantly feeling abnormal is quite difficult.
+ - But sometimes I’ve felt a little constrained by that idea of who I’m meant to be.
+ - It is my belief that there is a greater understanding than ever that women need to be equal participants in our homes, in our societies, in our governments, and in our workplaces.
+
+165 quotes

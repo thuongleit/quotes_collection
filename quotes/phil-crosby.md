@@ -1,0 +1,34 @@
+ - It is always cheaper to do the job right the first time.
+ - Quality is free. It’s not a gift, but it’s free. The ‘unquality’ things are what cost money.
+ - The cost of quality is the expense of doing things wrong.
+ - Quality is the result of a carefully constructed cultural environment. It has to be the fabric of the organization, not part of the fabric.
+ - Quality has to be caused, not controlled.
+ - In a true zero-defects approach, there are no unimportant items.
+ - Quality management is needed because nothing is simple anymore, if indeed it ever was.
+ - When you’re out of quality, you’re out of business.
+ - If we deliver on time, but the product has defects, we have not delivered on time.
+ - Making a wrong decision is understandable. Refusing to search continually for learning is not.
+ - If anything is certain, it is that change is certain. The world we are planning for today will not exist in this form tomorrow.
+ - Eliminating what is not wanted or needed is profitable in itself.
+ - When in doubt, delete it.
+ - Improving quality requires a culture change, not just a new diet.
+ - Quality is such an attractive banner that sometimes we think we can get away with just waving it, without doing the hard work necessary to achieve it.
+ - Problems breed problems, and the lack of a disciplined method of openly attacking them breeds more problems.
+ - Being convinced one knows the whole story is the surest way to fail.
+ - It isn’t what you find, it’s what you do about what you find.
+ - Slowness to change usually means fear of the new.
+ - Most things don’t work like they are supposed to work.
+ - A rule to live by: I won’t use anything I can’t explain in five minutes.
+ - If you don’t know what the defect level is, how do you know when to get mad?
+ - You don’t have to be noisy to be effective.
+ - The customer deserves to receive exactly what we have promised to produce – a clean room, a hot cup of coffee, a nonporous casing, a trip to the moon on goassamer wings.
+ - We must define quality as conformance to specifications if we are to manage it.
+ - The great discoveries are usually obvious.
+ - Selecting the right person for the right job is the largest part of coaching.
+ - Successful people breed success.
+ - Many managers feel, somewhat cynically, that people are being paid to do their jobs and that’s that. This attitude reflects an insensitivity to people that is a trademark of many hockey-style managers.
+ - Very few of the great leaders ever get through their careers without failing, sometimes dramatically.
+ - It is not possible to know what you need to learn.
+ - You are going to be measured anyway by some means, fair or foul. Usually the one doing the measuring has nothing specific in mind; so he does it by the seat of his pants. Careers are destroyed in this manner.
+
+32 quotes

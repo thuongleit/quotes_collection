@@ -1,0 +1,61 @@
+ - Only the paranoid survive.
+ - Success breeds complacency. Complacency breeds failure. Only the paranoid survive.
+ - There are two options: adapt or die.
+ - Activity is not output.
+ - Let chaos reign, then rein in chaos.
+ - How well we communicate is determined not by how well we say things but how well we are understood.
+ - Make mistakes faster.
+ - Bad companies are destroyed by crisis, Good companies survive them, Great companies are improved by them.
+ - You have to understand what it is that you are better at than anybody else and mercilessly focus your efforts on it.
+ - You need to plan the way a fire department plans: it cannot anticipate where the next fire will be, so it has to shape an energetic and efficient team that is capable of responding to the unanticipated as well as to any ordinary event.
+ - Accept that no matter where you go to work, you are not an employee you are a business with one employee, you. Nobody owes you a career. You own it, as a sole proprietor.
+ - Not all problems have a technological answer, but when they do, that is the more lasting solution.
+ - If the brutal facts are not faced by leaders, the brutal reality sets in.
+ - Detect and fix any problem in a production process at the lowest stage possible.
+ - Technology will always win. You can delay technology by legal interference, but technology will flow around legal barriers.
+ - The sad news is, nobody owes you a career. Your career is literally your business. You own it as a sole proprietor. You have one employee: yourself. You need to accept ownership of your career, your skills and the timing of your moves.
+ - A corporation is a living organism; it has to continue to shed its skin. Methods have to change. Focus has to change. Values have to change. The sum total of those changes is transformation.
+ - You have no choice but to operate in a world shaped by globalization and the information revolution. There are two options: adapt or die.
+ - I was glad I liked chemistry.
+ - The new environment dictates two rules: first, everything happens faster; second, anything that can be done will be done, if not by you, then by someone else, somewhere.
+ - There is at least one point in the history of any company when you have to change dramatically to rise to the next level of performance. Miss that moment – and you start to decline.
+ - Most companies don’t die because they are wrong; they die because they don’t commit themselves. They fritter away their momentum and their valuable resources while attempting to make a decision. The greatest danger is standing still.
+ - Technology happens, it’s not good, it’s not bad. Is steel good or bad?
+ - A fundamental rule in technology says that whatever can be done will be done.
+ - Privacy is one of the biggest problems in this new electronic age.
+ - The worse the news, the more effort should go into communicating it.
+ - So give me a turbulent world as opposed to a quiet world and I’ll take the turbulent one.
+ - How can you motivate yourself to continue to follow a leader when he appears to be going around in circles?
+ - Most Americans probably aren’t aware that there was a time in this country when tanks and cavalry were massed on Pennsylvania Avenue to chase away the unemployed.
+ - Just as you would not permit a fellow employee to steal a piece of office equipment, you shouldn’t let anyone walk away with the time of his fellow managers.
+ - PCMCIA – People can’t memorize computer industries acronyms.
+ - The Internet doesn’t change everything. It doesn’t change supply and demand.
+ - Just as we could have rode into the sunset, along came the Internet, and it tripled the significance of the PC.
+ - It’s not enough to make time for your children. There are certain stages in their lives when you have to give them the time when they want it. You can’t run your family like a company. It doesn’t work.
+ - No problem is so complicated that you cannot make it more complicated.
+ - I believe in the value of paranoia. Business success contains the seeds of its own destruction. The more successful you are, the more people want a chunk of your business and then another chunk and then another until there is nothing left.
+ - You have to pretend you’re 100 percent sure. You have to take action; you can’t hesitate or hedge your bets. Anything less will condemn your efforts to failure.
+ - I think it is very important for you to do two things: act on your temporary conviction as if it was a real conviction; and when you realize that you are wrong, correct course very quickly.
+ - There are so many people working so hard and achieving so little.
+ - Assume any career move you make won’t go smoothly. They won’t. But don’t look back.
+ - The Lesson is, we all need to expose ourselves to the winds of change.
+ - Investment decisions and personal decisions don’t wait for the picture to be clarified.
+ - Whatever success we have had in maintaining our culture has been instrumental in Intel’s success in surviving strategic inflection points.
+ - I wasn’t cut out to be an opera singer, but it was a nice fantasy for a teenager growing up in Hungary during the Stalinist era.
+ - I’m a great believer in particularly being alert to changes that change something, anything, by an order of magnitude, and nothing operates with the factors of 10 as profoundly as the Internet.
+ - If the world operates as one big market, every employee will compete with every person anywhere in the world who is capable of doing the same job. There are lots of them and many of them are hungry.
+ - E-Commerce is happening the way all the hype said it would. Internet deployment is happening. Broadband is happening. Everything we ever said about the Internet is happening. And it is very, very early. We can’t even glimpse it’s potential in changing the way people work and live.
+ - I have been quoted saying that, in the future, all companies will be Internet companies. I still believe that. More than ever, really.
+ - With all due respect to Microsoft and Intel, there is no substitute for being in the right place at the right time.
+ - Congress will pass a law restricting public comment on the Internet to individuals who have spent a minimum of one hour actually accomplishing a specific task while on line.
+ - I don’t see Merced appearing on a mainstream desktop inside of a decade.
+ - Competition is warfare. Mostly it is played by prescribed rules – there is a sort of Geneva Convention for competition – but it’s thorough and often brutal.
+ - By the late ’90s, those who were paying attention perceived the Internet as a 20-foot tidal wave coming, and we are all in kayaks.
+ - The most important role of managers is to create environment in which people are passionately dedicated to winning in marketplace.
+ - What kind of a society are we going to have if it consists of highly paid people doing high-value-added work – and masses of unemployed?
+ - Leaders have to act more quickly today. The pressure comes much faster.
+ - The boom was healthy too, even with its excesses. Because what this incredible valuation craze did was draw untold sums of billions of dollars into building the Internet infrastructure. The hundreds of billions of dollars that got invested in telecommunications, for example.
+ - A career in journalism suddenly lost its appeal.
+ - The future is going to take care of itself, like it always has.
+
+59 quotes

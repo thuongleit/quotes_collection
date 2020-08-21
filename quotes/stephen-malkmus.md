@@ -1,0 +1,77 @@
+ - If there can be some paradigm shift thing that you can be part of, that’s cool.
+ - I really do think everybody can sing.
+ - A good voice isn’t so important. It’s more important to sound really unique.
+ - I like visual imagery in my head.
+ - I’m better when I’m an autodidact and things just come. Or you’re just blessed. I’m not bragging or anything, it just comes to you.
+ - I’m not sure if you can blame everything on the American way of life, but the United States are big. So, if you have a lot of people there, the percentage of stupid people is bound to be higher.
+ - I’m more into describing a scenario and I move around in that scenario.
+ - If you have no shame, and it’s your goal to get people into bed, how much higher could your success rate possibly be?
+ - Most people want to be seen or heard. You want to shine. That’s my way of shining.
+ - We’re probably a couple of freaks who’ve created their own little universe, are living in our own little world and that’s the only place where we can survive.
+ - George Oppen wasn’t a larger than life personality, but I’m not either. And he lived a long time, so he was happy. Going down in flames is fine, too.
+ - It’s just a compulsion to create something new and stay busy. I don’t know how to do anything else. It was never exactly right. Those records came out in spite of their flaws. And because of their flaws they were good.
+ - My wife says that I changed people’s lives or ways of thinking and that I should always be proud and grateful. If I’m dismissive of what we do sometimes, a little bit, she’s like, “I was a fan, you changed my life,” or whatever. That’s what she says.
+ - I don’t know if you look back on your life and just see successes, but probably the first things that pop up are the regrets.
+ - The lyrics are different from Nick Cave songs and lyrics. His songs are very narrative.
+ - There’s always a chance, a goal to make something different and get it right, finally.
+ - So much of rock lyrics is just a mirror of real feeling. It doesn’t feel dangerous to me. They just feel like “rock lyrics.”
+ - We’re not on a desperate mission to write chart compatible stuff.
+ - I think the focus of the media changes. At the moment the more electronic stuff like trip-hop was the flavor of the month, just a little while ago. It all depends on the angle, from which point of view you see it.
+ - Men are men and women are women, but the men are dumber than the women, usually.
+ - I’ve wanted to not play as much. I would like to just sing now. Even though I don’t think I’m a great singer, I wouldn’t mind just – not being a frontman, per se, but singing and not playing.
+ - I like a narrative, even if it’s fractured, or kind of psychedelic. But my favorite thing is if I hear words and I close my eyes and the connotations or the image I get in my head, combine with the sound of them – sometimes phonetics. I’m just stringing those together.
+ - I’m not dying for everyone to hear everything we do. Forty minutes every two years is sensible.
+ - But, then again, I wouldn’t call myself an indie-rock supporter even if there are some really good bands out there and there will always be some real good new bands.
+ - There’s something in life that’s cool, it’s relatively cheap, and fun, and populist. Even when it’s elitist.
+ - Family is the best. I can honestly say, it’s a gift that is beyond making art. I didn’t know that when I got into it.
+ - I like that band Get Hustle. They’re cool live. I haven’t heard their records, though.
+ - Maybe I don’t have the patience to make a virtue of necessity – the patience to carry something all the way through, and to actually say something. Lately, the songs are more jagged and they don’t really lend themselves to that. I just take it one bit at a time.
+ - We always did our own mixing.
+ - I did some writing. I was just taking the kids to school. I did a couple things and we did some tours. It was a lot of downtime.
+ - I just don’t think people listen. I mean, they can’t listen to a whole album closely without checking their iPhone or wanting to skip to their favorite song, or putting something else on, practically. That’s why the zone out is a good thing.
+ - The narrative songs were well-written, like an article in The New Yorker. They’re nice and pat. They’re more like I’m just showing I can do that when I write a song like that. It’s not my true calling.
+ - When a band means a lot to you, you build the fantasy more than the reality. Always.
+ - I want to do some different kind of songs, but say I want to do riffs, but I don’t come up with any riffs that I really think are great. Then I can’t do a riff album. I’m more of a song, melody person.
+ - Well, you know, it’s a younger person, and it was maybe an effort to be a little more sincere and adult about the lyrics occasionally, which is a good thing. It’s nice that it’s not too self-conscious like some of our lyrics could be.
+ - If someone’s really busy listening to other CDs, and worried about what’s new and what’s truly relevant for discourse now, maybe it isn’t that interesting. To me it is, because I’m tuned into that and that’s what I like, so it’s interesting to me. It’s all I can do.
+ - What I love about music, when you can look at something and be like, “Wow, what’s this all about?” You can’t really picture what these people look like – is it one guy, or a band making music in a garage?
+ - I didn’t really like confessional poetry or things. They seemed sort of dated to me, or just corny.
+ - Basically, no one else gives me any opinions on lyrics. I don’t ask for them. If they did, I would listen.
+ - I would just imagine there’s a criticism for just about everything, if you want to take something down. No one’s invincible. The Jicks are a work in progress and we don’t think everything we do is the bee’s knees or something, we’re just trying our best to get turned on by what we’re doing.
+ - I guess the majority of people who want to ban certain musicians are the ones who are so proud of everything America stands for.
+ - You know, the songs that are self-conscious or jerky, they are that way, but the other ones aren’t, so that’s a good thing. Some of the songs are Beck-jokey, but the others, they have heart in them.
+ - If a voice is just too nice, without an edge, it kinda all flows by. You forget it. You don’t listen to the lyrics.
+ - If you’d rather learn how to ride a horse or something, I would say do that. That’ll keep you out of trouble. You would think a band would get you in trouble, but I think it’s the opposite.
+ - I’ve lost my writing skills since college. I couldn’t write a book. It would take a long time.
+ - Don’t go to the same studio twice, or work with the same engineer twice.
+ - I thought The Doors were the greatest band for a while.
+ - Lou Reed is something like a personal favorite of mine, but you could always put me into that drawer of singers who can’t really sing, who speak their songs.
+ - Obviously songs and musicians mean a lot to people.
+ - I just imagine that every song in and of itself is great, but when you add them all up, it’s too much of me maybe.
+ - If you want to be negative about the whole thing you can say all guitar bands after the Beatles were just a waste of time because the Beatles were the best. I think it’s far better to give new records a try.
+ - But we’re still rehearsing and planning to make a new album next year. We have some really good new songs that we’ve already been playing on that last tour that we just finished.
+ - The best I do, if I’m just playing around and riffing in a fantasy world, and then I’ll write something down. Hopefully I write it down.
+ - There’s no point that an album should sound like a watered down version of another album.
+ - When I was in high school, I was a late bloomer. And just like all those supermodels who said they were gawky and no one liked them, that was me – metaphorically. And so I was ready to rise like a phoenix in later times.
+ - Despite my own doubts of being marketable or crushworthy, my goal was to write a record of peppy pop songs, hopefully without annoying anybody.
+ - Lyrics are back, maybe. It seems like there was a bit of an attitude that lyrics are not important.
+ - Besides, going on tour and playing songs and arranging things, going to practice, it’s all I know to be productive.
+ - There’s no reason to stop. Who knows what’s around the bend? To participate, meet new people. It’s mostly other musicians and people like you, or anybody I meet who’s in this, that keeps me going.
+ - The word “down,” is very musical. It just always comes.
+ - I’m thinking, I’m singing like Ozzy Osbourne, but I don’t sound like him enough, ever.
+ - I think it’s just entertainment for people that are interested in the form. To sing along to and be psyched by.
+ - You don’t realize that when you’re young, and you’re surprised there’s a lot of people at your gig – you just think it’s general British-press hype.
+ - Like the song “Stereo”, to me that’s like, kind of hip-hop in that slacker way. There’s some slackerisms mixed in with that stuff, but it wasn’t really conscious, I guess. When things would get more typical rock’n’roll that was my fallback to go to those kind of lyrics instead of the alternatives.
+ - I’m not dying for things to say.
+ - I don’t even think my voice is really good.
+ - With some songs, I have written narratives or I’ve tried to carry it through, but generally the things that were more genius, as far as I was concerned, were not that.
+ - What producers did was mostly recording in the studio, so it never changed our sound just that much.
+ - That’s why you go to a nice studio. You can get a magic take. You don’t really have to do anything to it.
+ - I don’t really know where the songs are coming from often. Many of the best things I made up were just off the top of my head.
+ - Something taken off the page can sound great, I guess. Usually it doesn’t. It seems like lately Pitchfork is trying to champion lyric writers more.
+ - I never decided to start singing, to be a singer.
+ - Almost every band has somebody who’s the main songwriter and who has a vision, a very clear idea of how a song should be.
+ - Well, yeah, I sang to some songs on the radio or in the shower.
+ - It’s normally in the morning, just playing around. And I’m not saying everything I make is great, but that’s what I do. I can’t even remember how I wrote stuff.
+
+75 quotes

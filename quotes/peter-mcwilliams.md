@@ -1,0 +1,123 @@
+ - The willingness to do creates the ability to do.
+ - Emotion is energy in motion.
+ - It is a risk to love. What if it doesn’t work out? Ah, but what if it does.
+ - Be willing to be uncomfortable. Be comfortable being uncomfortable. It may get tough, but it’s a small price to pay for living a dream.
+ - In life, we have either reasons or results.
+ - When people don’t understand that being uncomfortable is part of the process of achievement, they use the discomfort as a reason not to do. They don’t get what they want. We must learn to tolerate discomfort in order to grow.
+ - If you want peace, stop fighting. If you want peace of mind, stop fighting with your thoughts.
+ - If you want peace with others, don’t fight them. Go your own way. Live your own life. If some walk with you, fine. If you walk alone for awhile, fine. If you don’t like what’s going on somewhere, leave. Maintain a portable paradise within yourself.
+ - Happiness requires courage, stamina, persistence, fortitude, perseverance, bravery, boldness, valor, vigor, concentration, solidity, substance, backbone, grit, guts, moxie, nerve, pluck, resilience, spunk, tenacity, tolerance, will power, chutzpah, and a good thesaurus.
+ - If you change the belief first, changing the action is easier.
+ - Keep your goals away from the trolls.
+ - Willingness opens the doors to knowledge, direction, and achievement. Be willing to know, be willing to do, be willing to create a positive result. Be willing, especially, to follow your dream.
+ - Comfort zones are most often expanded through discomfort.
+ - You can have anything in life you really want – but you can’t have everything in life you really want. Decide.
+ - Nothing adventured, nothing attained.
+ - Depression is an illness that robs one of the meaning of life. Heal the illness. As the depression heals, enthusiasm, well-being, and a sense of life’s purpose will return.
+ - Fill your life with people who applaud your positive thoughts, feelings, and actions; who encourage you toward more and better; who know how to praise the good and beautiful.
+ - To overcome a fear, here’s all you have to do: realize the fear is there, and do the action you fear anyway.
+ - Drugs, gambling, and prostitution are the Big Three underground ‘moneymakers’ in consensual crime. There would be, however, significant boosts to the economy if the stigma attached to the other consensual crimes were eliminated through legalization.
+ - The irony is that the person not taking risks feels the same amount of fear as the person who regularly takes risks.
+ - If you’re not playing a big enough game, you’ll screw up the game you’re playing just to give yourself something to do.
+ - You can’t afford the luxury of a negative thought.
+ - We are not responsible for every thought that goes wandering through our mind. We are, however, responsible for the ones we hold there. We’re especially responsible for the one’s we put there.
+ - Our thoughts create our reality-not instantly, necessarily, as in “Poof! There it is” – but eventually. Where we put our focus – our inner and outer vision – is the direction we tend to go. That’s our desire, our intention...
+ - Let your intentions create your methods and not the other way around.
+ - Our thoughts create our reality – where we put our focus is the direction we tend to go.
+ - To change rules that are already in place takes time, energy, perseverance and a lot of hard work. You only have so many of these assets at your disposal, so choose with care the rules you want to change.
+ - When thought and action are combined, the results are powerful-among the most powerful forces on earth. The combination of successful communication-the sharing of thoughts-and physical action can, literally, move mountains.
+ - To visualize is to see what is not there, what is not real – a dream. To visualize is, in fact, to make visual lies. Visual lies, however, have a way of coming true.
+ - When we put things off until some future-probably mythical-Laterland, we drag the past into the future. The burden of yesterday’s incompletions is a heavy load to carry. Don’t carry it.
+ - Do what you love and the necessary resources will follow.
+ - And neither shall we learn to war with ourselves anymore.
+ - Most people, once they graduate from the School of Hard Knocks, automatically enroll in the University of Adversity.
+ - People who want to appear clever rely on memory. People who want to get things done make lists.
+ - Life is not a struggle. It’s a wiggle.
+ - If we learned everything there is to know in kindergarten, it was promptly drummed out of us in first grade.
+ - To affirm is to make firm.
+ - When it comes time to teach, teach from your experience. Go out and do, learn from the doing, then teach from the knowing.
+ - The purpose of education is to make the choices clear to people, not to make the choices for people.
+ - The only difference between ‘fear’ and ‘excitement’ is what we label it.
+ - First, all relationships are with yourself-and sometimes they involve other people. Second, the most important relationship in your life-the one you have, like it or not, until the day you die-is with yourself.
+ - The laws against public nudity make no sense. The idea that Jerry Falwell can go topless while Cindy Crawford cannot is an absolute affront to logic, common sense and the 5000 year human struggle for aesthetic taste.
+ - Mistakes, obviously, show us what needs improving. Without mistakes, how would we know what we had to work on?
+ - You need only look at what’s in front of you and find something there to appreciate.
+ - You are powerful. Sorry. Hate to be the bearer of bad news. You are. You can continue arm wrestling with yourself, or you can use both arms, your whole heart, and all your strength to wrestle with greatness. The choice is yours.
+ - There is no answer to any of these questions. It’s a matter of time and timing, of seas and seasons, of breathing in and breathing out. It’s a matter of balance.
+ - Definition of a victim: a person to whom life happens.
+ - The road to positivity is strewn with the abandoned vehicles of the faint-hearted.
+ - Heroes became heroes flaws and all. You don’t have to be perfect to fulfill your dream.
+ - To the degree we can live without the things of this world, to that degree we are wealthy.
+ - Pettiness seems to go hand in hand with vindictiveness. The smaller the person, the larger the need for revenge. This may account for the fact that some consensual crimes have stiffer penalties than do most crimes with innocent victims.
+ - Nausea is an unsolved problem of medicine and marijuana is the finest anti-nausea medication known to science.
+ - Wealth is enjoying what we already have, not getting more of what we think will make us happy.
+ - Negative thinking is always expensive – dragging us down mentally, emotionally, and physically – hence I refer to any indulgence in it as a luxury.
+ - In reality, serendipity accounts for one percent of the blessings we receive in life, work and love. The other 99 percent is due to our efforts.
+ - Running from fear only strengthens fear-you are demonstrating that fear has power over you. Fear must be faced and gone through.
+ - Learn to forgive fully and completely. If you want health, wealth, and happiness, you can’t afford the luxury of lugging around all those unforgiven, unforgotten past events. Let them go.
+ - The simple solution for disappointment depression Get up and get moving. Physically move. Do. Act. Get going.
+ - Write 10 times: ‘Fear is my friend. Fear is the energy to do my best in a new situation.’ You don’t have to believe it; just write it.
+ - Capitalism is the only economic system compatible with free individuals.
+ - For the most part, most people most often choose comfort – the familiar, the time-honored, the well-worn but well-known. After a lifetime of choosing between comfort and risk, we are left with the life we currently have...
+ - To the degree we’re not living our dreams, our comfort zone has more control of us than we have over ourselves.
+ - I’d have a nervous breakdown except that I’ve been through this too many times to be nervous.
+ - Because people are afraid of fear, they give up acre after acre of their own life.
+ - For many, negative thinking is a habit which, over time, becomes an addiction...
+ - The reason we feel hurt and anger when things and people outside us let us down is because we believe those things and people shouldn’t. Well, sorry, that’s not life here on earth.
+ - There are many misconceptions about depression-mostly negative. Unfortunately, because depressed people think negatively about depression and its treatment, they don’t get help, which allows the depression to worsen, which leads to more negative thinking, which produces a vicious cycle of suffering.
+ - Ultimately, censorship comes down to taste. What offends me may enlighten you. Do you want me deciding-based on my taste-what you should or should not be exposed to?
+ - Many people weigh the guilt, they will feel against the pleasure of the forbidden action they want to take.
+ - I’m a confirmed negaholic. I don’t just see a glass that’s half full and call it half-empty; I see a glass that’s completely full and worry that someone’s going to tip it over.
+ - For writing, getting off our buts means getting on our butts-putting it into a chair and not moving from the chair for a set period of time.
+ - Some people think that meditation takes time away from physical accomplishment. Taken to extremes, of course, that’s true. Most people, however, find that meditation creates more time than it takes.
+ - Your Master Teacher knows all you need to learn, the perfect timing for your learning it, and the ideal way of teaching it to you. You don’t create a Master Teacher – that’s already been done. You discover your Master Teacher.
+ - Learn to ask for what you want. The worst people can do is not give you what you ask for which is precisely where you were before you asked.
+ - Acceptance is such an important commodity, some have called it “the first law of personal growth”.
+ - As the world gets dumber and dumber, I feel more and more at home.
+ - No matter what you do, no matter how stupid, dumb or damaging you judge it to be, there is a lesson to be learned from it. No matter what happens to you, no matter how unfair, inequitable or wrong, there’s something you can take from the situation and use for your advancement.
+ - You can always find some expert who will say something hopelessly hopeless about anything.
+ - Choosing what you want to do, and when to do it, is an act of creation.
+ - When we realize one Dream, sometimes a deeper Dream reveals itself. At other times a parallel Dream appears. The one that scares the hell out of you is probably it.
+ - If our early lessons of acceptance were as successful as our early lessons of anger how much happier we would all be.
+ - Find your horse. Discover the direction the horse is going. Ride the horse in that direction.
+ - Most of what’s around us we take for granted. We ignore it. Appreciation-spending time looking for the good-helps us overcome one of the primary limitations to enjoying the wealth we already have: ignoreance.
+ - If we aren’t actively pursuing what we want, we don’t really want it.
+ - We are all, right now, living the life we choose.
+ - I see nothing wrong with the human trait to desire. In fact, I consider it integral to our success mechanism. Becoming attached to what we desire is what causes the trouble. If you must have it in order to be happy, then you are denying the happiness of the here and now.
+ - The more severe the pain or illness, the more severe will be the necessary changes. These may involve breaking bad habits, or acquiring some new and better ones.
+ - As with most consensual crimes, this prohibition of hemp is both silly and sinister.
+ - Laughter is essential to our equilibrium, to our well-being, to our aliveness. If we’re not well, laughter helps us get well. If we are well, laughter helps us stay that way.
+ - The value of action is that we make mistakes; mistakes show us what we need to learn.
+ - The ongoing successful treatment of my depression is the single most important positive step I have taken in my life, hence my enthusiasm for the subject.
+ - Although a lot can be learned from adversity, most of the same lessons can be learned through laughter and joy.
+ - Every time we give our word, it counts. For the most part, most people give it entirely too often. Our word is a precious commodity and should be treated as such...
+ - I’m tired of people thinking that Libertarians don’t have morality- that they don’t have values. that’s a lot of hogwash. Libertarians are the ONLY politicians with values.
+ - Guilt is anger directed at ourselves.
+ - Guilt is anger directed at ourselves – at what we did or did not do. Resentment is anger directed at others – at what they did or did not do.
+ - The comfort zone takes our greatest aspirations and turns them into excuses for not bothering to aspire.
+ - Worrying is the interest paid on a debt you may not owe.
+ - We can do anything we want. The next time you hear yourself saying, to another-and especially yourself-I Can’t, take a deep breath and say instead, My resources are otherwise engaged.
+ - The amount of power freed by telling yourself you no longer choose to put energy into something can be remarkable. Be prepared for extra energy.
+ - When you start noticing even a small portion of all there is to be grateful for, you’ll find there is no room for lack, hurt, or want. The attitude of gratitude: the great, full feeling.
+ - The Bible, taken as a whole, can be used to praise or condemn practically any human activity, thought, belief, or practice.
+ - Fear is something to be moved through, not something to be turned from.
+ - One of the great joys of life is creativity. Information goes in, gets shuffled about, and comes out in new and interesting ways.
+ - This is how it happens. We get the Dream, but we don’t get to dictate every step toward the dream.
+ - It’s your life. Live it with people who are alive. It tends to be contagious.
+ - Send the light of your own loving ahead of you. When you get there, the loving will have prepared a place for you. Be kind, gentle, and enjoy the journey.
+ - While goals are chosen, a purpose is discovered. Our purpose is something we have been doing all along, and will continue to do, regardless of circumstances, until the day we die.
+ - That’s what depression had wrought inside me: one, vast, barren rock garden-without the garden.
+ - You’re asking the government to control individual morality. This is a government that can’t buy a toilet seat for under $600.
+ - Do we indulge our heart, or cater to our fear?
+ - By pursuing any one of our dreams, we can find fulfillment. We don’t need to pursue them all.
+ - All the good, fine, noble, and creative acts of humanity were conceived as a spark in a single human consciousness.
+ - In order to truly master the comfort zone, you have to learn to love it.
+ - Be easier on yourself, on everyone, on everything. Suspend your judgments on the way things should be, must be, and ought to be. Suspending judgments gives you greater ease. Consider ease the antidote for disease.
+ - You have to follow the old rule for a while. In fact, once you master the old rule, you are then the master-and masters get to change things.
+ - I feel that I am entitled to take medicinal marijuana. In general, I believe that everyone who has a doctor’s prescription is entitled to take marijuana. I, however, do not believe that my day in court should be taken from me, and that’s essentially what’s happening.
+ - Courage, contrary to popular belief, is not the absence of fear. Courage is the wisdom to act in spite of fear...
+ - This is our true wealth: the riches we take with us, the joy we carry inside, the support we learn to give ourselves, and the self-loving that flows as a natural by-product of that support.
+ - Meditation creates more time than it takes.
+ - Positive thoughts: joy, happiness, fulfillment, achievement, worthiness, have positive results: enthusiasm, calm, well-being, ease, energy, love...
+
+121 quotes

@@ -1,0 +1,51 @@
+ - No matter what we call it, poison is still poison, death is still death, and industrial civilization is still causing the greatest mass extinction in the history of the planet.
+ - Love does not imply pacifism.
+ - If we celebrate life with all its contradictions, embrace, experience, and ultimately live with it, a chance exists for a spiritual life filled not only with pain and untidiness, but also with joy, community, and creativity.
+ - Like the layers of an onion, under the first lie is another, and under that another, and they all make you cry.
+ - We have been too kind to those who are killing the planet. We have been inexcusably, unforgivably, insanely kind.
+ - Civilization can never be sustainable.
+ - A language Older Than Words.
+ - There is a language older by far and deeper than words. It is the language of bodies, of body on body, wind on snow, rain on trees, wave on stone. It is the language of dream, gesture, symbol, memory. We have forgotten this language. We do not even remember that it exists...
+ - Every morning when I awake I ask myself whether I should write or blow up a dam. I tell myself I should keep writing, though I’m not sure that’s right.
+ - If your homeland were invaded by aliens who cut down the forests, poisoned the water and air and contaminated the food supply, would you resist?
+ - Writing is really very easy. Tap a vein and bleed onto the page. Everything else is just technical.
+ - I am only so beautiful as the character of my relationships, only so rich as I enrich those around me, only so alive as I enliven those I greet.
+ - We have a need for enchantment that is as deep and devoted as our need for food and water.
+ - When we realize the degree of agency we actually do have, we no longer have to “hope” at all. We simply do the work.
+ - The stories we are told shape the way we see the world, which shapes the way we experience the world.
+ - Forests precede us and deserts dog our heels.
+ - I thought a forest was made up entirely of trees, but now I know that the foundation lies below ground, in the fungi.
+ - But what, precisely, is hope? At a talk I gave last spring, someone asked me to define it. I turned the question back on the audience, and here’s the definition we all came up with: hope is a longing for a future condition over which you have no agency; it means you are essentially powerless.
+ - You can rarely prove something to someone who does not want to see it proven, and even more to the point, you can almost never prove something to someone who has financial or ideological reasons to not see it proven.
+ - All we want, whether we are honeybees, salmon, trash-collecting ants, ponderosa pines, coyotes, human beings, or stars, is to love and be loved, to be accepted, cherished, and celebrated simply for being who we are. Is that so very difficult?
+ - From the beginning, this culture – civilization – has been a culture of occupation.
+ - Stand with me. Stand and fight. I am one, and we would be two. Two more might join and we would be four. When four more join we will be eight. We will be eight people fighting whom others will join. And then more people. And more. Stand and fight.
+ - A culture that values production over life values the wrong things, because it will produce things at the expense of living beings, human or otherwise.
+ - Many Indians have told me that the most basic difference between Western and indigenous ways of being is that Westerners view the world as dead, and not as filled with speaking, thinking, feeling subjects as worthy and valuable as themselves.
+ - To pretend that civilization can exist without destroying its own landbase and the landbases and cultures of others is to be entirely ignorant of history, biology, thermodynamics, morality, and self-preservation.
+ - Those in power have made it so we have to pay simply to exist on the planet. We have to pay for a place to sleep, and we have to pay for food. If we don’t, people with guns come and force us to pay. That’s violent.
+ - There is always money to kill people. There is never enough money for life affirming ends.
+ - We are members of the most destructive culture ever to exist. Our assault on the natural world, on indigenous and other cultures, on women, on children, on all of us through the possibility of nuclear suicide and other means – all these are unprecedented in their magnitude and ferocity.
+ - Yes, it’s vital to make lifestyle choices to mitigate damage caused by being a member of industrialized civilization, but to assign primary responsibility to oneself, and to focus primarily on making oneself better, is an immense copout, an abrogation of responsibility.
+ - Within this culture wealth is measured by one’s ability to consume and destroy.
+ - A primary purpose of the police is to enforce the delusions of those with lots of green paper.
+ - Premise Eight: The needs of the natural world are more important than the needs of the economic system.
+ - For us to maintain our way of living, we must tell lies to each other and especially to ourselves. The lies are necessary because, without them, many deplorable acts would become impossibilities.
+ - The process of schooling does not give birth to human beings – as education should but never will so long as it springs from the collective consciousness of our culture – but instead it teaches us to value abstract rewards at the expense of our autonomy, curiosity, interior lives, and time.
+ - So long as we only believe in the justice of the state, of the law-made by those in power, to serve those in power-so long will we continue to be exploited by those in power.
+ - The big dividing line is not and has never been between those who advocate more or less militant forms of resistance, or between mainstream and grassroots activists. The dividing line is between those who do something and those who do nothing.
+ - If any thing can be predicated as universally true of uncultivated man, it is that he will not labour beyond what is absolutely necessary to maintain his existence.
+ - Hope is a longing for a future condition over which you have no agency; it means you are essentially powerless.
+ - Where will you drive your own picket stake? Where will you choose to make your stand? Give me a threshold, a specific point at which you will finally stop running, at which you will finally fight back.
+ - We cannot hope to create a sustainable culture with any but sustainable souls.
+ - We can follow the example of those who remembered that the role of an activist is not to navigate systems of oppressive power with as much integrity as possible, but rather to confront and take down those systems.
+ - To believe Christianity stands in opposition to slavery is at best to think anachronistically and at worst to not understand Christianity.
+ - We must learn how to think like the planet.
+ - All writers are propagandists.
+ - As is true for most people I know, I’ve always loved learning. As is also true for most people I know, I always hated school. Why is that?
+ - If we wish to stop the atrocities, we need merely to step away from the isolation. There is a whole world waiting for us, ready to welcome us home.
+ - If your community is founded on an injustice, that injustice cannot be questioned.
+ - Learning has to come from doing, not intellectualizing.
+ - I think it’s very important for us to start to build a culture of resistance, because what we’re doing isn’t working, clearly.
+
+49 quotes

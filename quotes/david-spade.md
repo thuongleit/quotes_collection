@@ -1,0 +1,78 @@
+ - I want to get away from it all. Move to the sticks. Montana. Hundreds of miles from civilization. Get a cabin in the snow. Curl up with some cute girl. Say stuff to her like, Scream all you want, sugar. Ain’t nobody gonna hear you!
+ - Nobody wants to read about your life. Who cares?
+ - I’ve got to get on myself to be sharp, funny and loose.
+ - Whenever you get on the plane, the flight attendant will always tell you the name of your pilot. Like anyone goes, Oh, he’s good.
+ - Don’t make your kids look hot and dirty and sexy when they’re 5-years old! It’s really not the place or the time. You’re about 11 years early.
+ - MySpace is a great way to keep in touch with friends who you don’t care enough about to actually have a conversation with, why bother calling to say “how are you,” when you can just surf their page and post an mpeg of a guy farting on his cat.
+ - My fellow nerds and I will retire to the nerdery with our calculators.
+ - I can see getting married and having a family, because it is the next thing on the agenda. You can only do this for so long. I’m old, and my friends all have kids. And I’m single, still blow drying my hair!
+ - I’ve got people who like Tommy Boy, but they’re getting older and there’s a whole new wave of college kids who see that and Joe Dirt, and Just Shoot Me is a little older, so I wanted stuff for everybody.
+ - I never have kids in movies or in TV shows.
+ - No one wants to know I set my alarm and get up 8, but I think it’s too weird to sleep in too late.
+ - When my stepfather died, I just kind of fell apart. I felt pretty vulnerable, like there literally could be no tomorrow.
+ - Gossip is a plague that consumes weak, gullible people and blinds them from the truth of reality; it can devour entire city’s. I prefer keeping my eyes wide open.
+ - You know the drill. 18 is legal. 17 with consent. 16 with a note. 15 if her dad’s in the room. Low five!
+ - In grade school I was smart, but I didn’t have any friends. In high school, I quit being smart and started having friends.
+ - There’s always something funny about men chasing women.
+ - Spent most of the summer looking for shade. Driving around. Shade. Please? Driving in malls. I’ll park a mile away I don’t care. I’m just looking for a tree branch, anything. Long weed. Big leaf, get the front corner panel under it. Oh precious shade, I have it – you don’t!
+ - Horrible date all through high school and college. Here’s an impression of me on a date in high school. Come on, chug it!
+ - It’s good to do stand-up. It kind of wakes you up and makes you feel like you’re doing something. You got the crowd right there. That’s all fun.
+ - I’m a gentleman and I was always taught it’s rude, to talk about a woman’s age or weight unless you are breaking up with her.
+ - It’s just easier to make fun and cut down. It’s kind of a way of life in America. If you can make people want to hear what you’re going to say, it can be cruel and funny.
+ - On Sundays, I lay low, sulk a lot, and try to get my head together for next week.
+ - Staying in a hotel this time. They put me up in a little bit of a shithole. Yeah. Just this side of rinky dink. The first 7 floors are a homeless shelter, but I’m on 8.
+ - I have two skateboards, but I don’t get to use them much. I have a snowboard, which I’ve never used.
+ - My school of thought is, anything goes, but I can’t do that anymore.
+ - Sometimes when I watch a TV season, your favorite shows die quickly. And then sometimes it’s not your favorite, and they live on for 12 years.
+ - There are a couple hard things. One, getting a funny idea that people can relate to; a funny idea or a funny script; there’s a million pitches.
+ - I talk to my dad all the time, he’s more like my buddy than my father, and he’s not happy that I use him in my act. But I tell him, I have to get something out of this.
+ - Single guys get a bad rap.
+ - I wish I had that carefree lifestyle. But I guess I’m more private, and more inside.
+ - It’s brutal. I see friends when their shows don’t work. Everything’s riding on making money and all the pressure and how people scatter when fortunes turn downward.
+ - My older brother was cool, so I was suddenly cool by association. And I totally dusted all my old math friends.
+ - It’s just a campy blast. I just want to do as little as I can and make it good, and try not to sell out. I’m sure I will, but I’m just trying to postpone it.
+ - Bill Murray I always liked. I’m not as good as him, but there’s a quality in him that I like. And then there’s DeNiro, I’ll never be that.
+ - I feel like I’ve got this anti-marriage thing, but it’s less that and more I’m overthinking it to get it right.
+ - I’m scared of slipping up, of just doing a joke that makes me laugh.
+ - I want to get back to my fighting weight of 98 pounds. I have the exact measurements of that guy from the movie, Powder. Right now, I am the reigning West Coast Powder.
+ - How do you lay low but still do your job? Try to stay out there without being out there like Jenny McCarthy?
+ - I’m like a Dilbert cartoon.
+ - I’ve been with a beautiful girl from time to time.
+ - I have no detectable hair style.
+ - I never dated much in high school or college.
+ - The last girl I went out with blew me off. Now I call her with lame excuses to see her, “Hey, did I leave a penny over there?”
+ - Most of the shows I want to do I’m not smart enough to figure out how to watch.
+ - I started doing the star turn and making a profit off it. Now I’m kind of one of them.
+ - My career is just kind of crazy.
+ - I just don’t like to go out and deal with the real world. It’s scary.
+ - As boys get older, they can’t let on that it’s cool to meet me.
+ - I’ve had it where things didn’t go well for me with movies or something that got canceled.
+ - It wasn’t a cutdown to call someone a Mexican. It would kill my career to refer to someone as Mexican today. It’s like calling me an American.
+ - People come and go around you, but you’re never the one getting the big stuff. I like that.
+ - I don’t like throwing myself in a place that’s going to rock my world.
+ - There are too many fawning entertainment shows out there and not one of them is making fun of it all.
+ - I’m always making fun of myself and my friends.
+ - I got into stand-up to get on a sitcom.
+ - Stayed up and watched a little spanktrovision. It’s the American way. There’s really nothing wrong with spanktrovision. One of the best inventions of the 1900s, 20th century.
+ - Seriously, you don’t have to know English. It’d be nice, a nice little plus. We don’t want miracles. You don’t have to know the country’s language. But just some shapes, that’s all. A square. A little geometry.
+ - It’s funny because it’s funny.
+ - If I try to cover too much ground, you start to get watered down and less interesting.
+ - It’s great to tell people you have your own show, but that’s where the fun stops.
+ - With Saturday Night Live you’re looking for any hook, any way to stay on the show.
+ - To make money I picked up work as a busboy, valet parker, skateboard shop employee.
+ - You can either look at things in a brutal, truthful way that’s depressing, or you can screw around and have fun.
+ - Hopefully, underlying all my jokes is an element of surprise.
+ - To be famous and broke is hard.
+ - I’m still blow drying my hair, just trying to keep doing stuff that’s fun.
+ - I have no stories to sell. A lot of my relationships are with civilians, and no one wants to hear about those.
+ - A friend of Nicole Ritchie told the New York Post that Nicole is definitely pregnant.
+ - I changed my act because I wasn’t getting booked.
+ - I only have one note, let’s be honest. But I’ll play a different version of that one note.
+ - Now that I have the opportunities to do a lot, I want to do less.
+ - I think the chances are better of me putting Super Unleaded into a rented car.
+ - It’s so crazy in Hollywood.
+ - When I’m interviewed on Leno, just be funny, period. That’s all they want from me. I don’t want to tell my life story.
+ - The hard part about SNL is, there’s no real communication when you get there. It’s not like people are mean to you, they just act like you’re not there.
+ - It’s hard to have a career.
+
+76 quotes

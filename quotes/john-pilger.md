@@ -1,0 +1,32 @@
+ - Official truths are often powerful illusions.
+ - It is not enough for journalists to see themselves as mere messengers without understanding the hidden agendas of the message and the myths that surround it.
+ - There is no War on Terrorism; it is The Great Game speeded up. The difference is the rampant nature of the superpower, ensuring infinite dangers for us all.
+ - The people who died in the Twin Towers in that terrible crime mattered. The people who were bombed to death in dusty villages in Afghanistan didn’t matter, even though it now seems that their numbers were greater. The people who will die in Iraq don’t matter.
+ - There isn’t a war on terror, there is a war of terror.
+ - If those who support aggressive war had seen a fraction of what I’ve seen, if they’d watched children fry to death from Napalm and bleed to death from a cluster bomb, they might not utter the claptrap they do.
+ - When governments and other vested interests attack me personally I usually regard it as a vindication, otherwise they would use facts. That’s why I believe in the wonderful Claud Cockburn dictum, ‘Never believe anything until it is officially denied.’ It has certainly been my experience.
+ - Using the passive voice is always very helpful. Mind you, a lot of that propaganda English emanates from here. The British establishment has always used the passive voice. It’s been a weapon of discourse so those who committed terrible acts in the old empire could not be identified.
+ - What Nixon and Kissinger began, Pol Pot completed.
+ - I love irony in pictures. There’s one photograph from Vietnam by Philip Jones Griffiths that shows a very large GI having his pocket picked by a tiny Vietnamese woman. It told the whole story of the clash of two cultures and how the invader could never win.
+ - It’s only when journalists understand the role they play in this propaganda, it’s only when they realize they can’t be both independent, honest journalists and agents of power, that things will begin to change.
+ - Vietnam was as much a laboratory experiment as a war.
+ - It is time we recognized that the real terrorism is poverty.
+ - Orwell is almost our litmus test. Some of his satirical writing looks like reality these days.
+ - The British Labour Party has always had a very strong “Atlanticist component,” with an obsequiousness to American policies, and Blair represents this wing. He’s clearly obsessed with Iraq. He has to be because the overwhelming majority of the people of Britain oppose a military action.
+ - Al journalism should be investigative, from football to cookery.
+ - Orwell is almost our litmus test. Some of his satirical writing looks like reality these days. When you have someone like Cheney who talks about “endless war” or war that might last fifty years, he could be Big Brother. You have Bush incessantly going on about the evil ones.
+ - Private Manning is the world’s pre-eminent prisoner of conscience, having remained true to the Nuremberg principle that every soldier has the right to ‘a moral choice.’ His suffering mocks the notion of the land of the free.
+ - An elite group of less than a billion people now take more than 80 per cent of the world’s wealth.
+ - In these surreal days, there is one truth. Nothing justified the killing of innocent people in America last week and nothing justifies the killing of innocent people anywhere else.
+ - During my lifetime, America has been constantly waging war against much of humanity: impoverished people mostly, in stricken places.
+ - Iraq has been successfully demonized as if everybody who lives there is Saddam Hussein. In the build-up to this attack on Iraq, journalists have almost universally excluded the prospect of civilian deaths, the numbers of people who would die, because those people don’t matter.
+ - More terrorists are given training and sanctuary in the United States than anywhere on earth. They include mass murderers, torturers, former and future tyrants and assorted international criminals. This is virtually unknown to the American public, thanks to the freest media on earth.
+ - I’m absolutely convinced of that. Israel is the representative of the United States in that part of the world. Its policies are so integrated with American policies that they use the same language.
+ - Not all the Americans in Iraq are those who torture and murder, or course they’re not, I don’t know how many are doing it, I know it is systematic throughout the United States military I think that’s been revealed.
+ - Watch how the propaganda unfolds once the bombing is over and the Americans are running Baghdad and their spin machine. There will be the discovery of Saddam’s secret arsenal, probably in the basement of one his palaces.
+ - We have an extreme rightwing government in this country, although it’s called the Labour government.
+ - Classic nineteenth century European imperialists believed they were literally on a mission. I don’t believe that the imperialists these days have that same sense of public service. They are simply pirates.
+ - I grew up in Sydney in a very political household, where we were all for the underdog.
+ - British establishment uses “the royal we,” as in, “We think this.” You hear a lot of that these days. It erroneously suggests that those who are making the decisions to bomb countries, to devastate economies, to take part in acts of international piracy involve all of us.
+
+30 quotes

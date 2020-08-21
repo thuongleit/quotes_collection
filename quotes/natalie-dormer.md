@@ -1,0 +1,37 @@
+ - I love going out of my comfort zone – I live to go out of my comfort zone. Obviously, you have quieter years than others – you don’t go jumping out of a plane every day.
+ - Famously, Anne Boleyn was not a beauty: she was more about quirkiness and an innate sensuality, and there are a lot of references to her eyes. Which sends out a great message for women, because life is not about the aesthetic all the time.
+ - Anne Boleyn is an intriguing character. She seems to appeal to modern-day women in a very potent way. Because she was such an independently opinionated and spirited young woman, which at the time was unheard of.
+ - Perfect is very boring, and if you happen to have a different look, that’s a celebration of human nature, I think. If we were all symmetrical and perfect, life would be very dull.
+ - No one thinks that they’re a monster. No one thinks that of themselves. Everyone has an earnest belief that it would be better if they were in power.
+ - I’ve always been a black sheep. That’s a hard thing to be until you find your calling in life. I was bullied a lot at school, probably because I was perceived to be different from everyone else.
+ - You can be a good human being and just be shrewd.
+ - For me, the sexiest men don’t know they’re drop-dead gorgeous. Not that I’d ever rule out a pot-bellied plumber in the right circumstances.
+ - We accept women being complete c-nts if they’re doing it for a child.
+ - I’m not clever enough to be in machinations and real politics.
+ - Isnt it lovely to know that even the great Sherlock Holmes, the quirky and genius Sherlock Holmes, is vulnerable to love as we all are?
+ - I think the beauty of the writing of ‘Game of Thrones’ is not that the characters are fearless; it’s how they overcome their fear, you know?
+ - I feel like I’ve really earnt my stripes – I feel ready to play a lead. I would just love to prove I’m good enough to carry a project.
+ - I know people think that acting is not quite the occupation of grown-ups, but it is actually the ultimate learning process: You get a multitude of experiences, all for the price of one life.
+ - I have been to Canada several times. It was autumn when I visited Vancouver, and I will always remember the colour of the trees in British Columbia were stunning.
+ - As an actor, your text is your bible, so you’re not making a documentary, but you still have to follow the choices made by your writer.
+ - Problems reconciling mom and the wife are difficult in the best of times.
+ - I was a daydreamer as a kid. I want to act because of whatever artistic bone is in my body. I want to explore what it is to be alive. I just want to make good sh-t.
+ - I say I’m an atheist but I wouldn’t mind being visited by a ghost.
+ - I had a period of unemployment for about nine months after my first big break, and it’s the greatest lesson I ever could have learned, never to believe you’re home and dry.
+ - I don’t think you have to live in the fantasy world of Westeros to have problems with your mother-in-law.
+ - As an actress, I think it’s important to look back and realize that we aren’t always quite as original as we think we are. There’s this grand, textured history for us over the last 100 years of incredible writers, directors, and performers.
+ - I don’t think you can be a diver without a shark on the list.
+ - Jennifer Lawrence is just the coolest girl. Everyone forgets how young she is because she’s so together, such an old soul. She just gets it. She’s one savvy chick.
+ - I know I’m not a conventional beauty. You can read a lot of painful things on the Internet, which criticise you aesthetically – but as far as I’m concerned, that’s not what an actress is.
+ - You’re adored and you’re talented and the world is waiting to see the results of hard work for the last year.
+ - These are moments in your life to be cherished; they don’t come around that often. To be flying around in a ‘Game of Thrones’ jet, to be greeted by massive enthusiasts.
+ - Three-dimensional, complex women get an audience engaged as much as the men. I’m a feminist in the true sense of the word. It’s about equality.
+ - I do as much research as is physically possible when I’m playing a real person, be they alive or dead.
+ - When you play a real person, you feel a sense of responsibility that obviously you don’t feel when you’re playing a fictional character.
+ - Actors have this amazing skill – we bond quite quickly but equally we move on quite quickly. There’s nothing particularly cold or capricious about it – we’re troubadours and lead a troubadour’s lifestyle.
+ - Ive got a soft spot for really cheesy 1980s ballads by Pat Benatar and Foreigner. When I’m having my make-up put on at 6am and I need to be warmed up gently, it’s always Ella Fitzgerald or Nina Simone.
+ - I’ve spent a lot of recreational time walking around historical castles and estates, in Britain and Europe, and so I know what the real thing looks like.
+ - It’s a writer’s or director’s role to be cerebral, whereas for an actor it should be a visceral, gut thing. When the action starts, it’s best to turn the brain off and let it become an instinctual thing.
+ - I was frequently told at drama school that I was thinking too much.
+
+35 quotes

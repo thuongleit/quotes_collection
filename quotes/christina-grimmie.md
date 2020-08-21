@@ -1,0 +1,25 @@
+ - Be different; be unique; be yourself.
+ - People aren’t born strong. people grow stronger little by little, encountering difficult situations learning not to run from them.
+ - I’m not perfect, but I believe my faith in Jesus Christ will really take me far in the world!
+ - Be stupid, be dumb, be funny, if that’s who you are. Don’t try to be someone that society wants you to be, that’s stupid. So be yourself.
+ - Don’t let the idiots that like to bring you down, succeed in discouraging you. I let it get to me a while ago, and let me tell you, it feels SO good to come up under it!
+ - No matter what society is trying to drill in your head about how you should look, how you should act, and what you need to say, I think it’s all crap. All of it. Be yourself and do you.
+ - Be respectful to your peers and yourself, of course. Don’t be a jerk. But at the same time don’t settle for anything less than yourself.
+ - I make make music in my own time, messing around with beats and riffs I write. Always practicing performing in my room most times I probably look like an idiot dancing around haha.
+ - If It’s your passion and you want to do it for the rest of your life, why would comments stop you from doing that?
+ - I want longevity; I love music, being a musician is the greatest gift in the world to me, and if I were to get signed to a label, my family and team around me are always gonna be there to make sure they want the very best for me. My fans are what it’s all about...
+ - Please, please, PLEASE be yourself. If you catch yourself not, take a step back.
+ - I only wish to climb even higher during the rest of my career bc with the power of Team Grimmie, I won’t stop.
+ - I’ve seen too many celebrities fall from their morals, and I wanna come up under that and be THAT girl that doesn’t need a scandal to make herself look better.
+ - But I also think it’s about a person’s personality that draws people in, too, not just their singing.
+ - Most of all I like to sing my heart out to lyrics that really speak to people.
+ - I went to Philippines and I literally had the time of my life...
+ - Youtube was the start of my career officially, although since I was 4 I’ve wanted to be a singer. I’ve performed here and there before youtube, but youtube push me much further.
+ - I had the opportunity to go on 2 tours with Selena Gomez and that really boosted the exposure and experience for me. It was when I got a shot at The Voice that I really got the biggest boost and got to show what I could do!
+ - Skrillex. The man is a genius and paved a new way for music and it’s very inspiring.
+ - Harry Style’s hair is probably the greatest thing on this planet.
+ - If you are posting your music on YouTube, maybe start with a popular cover done in a unique way.
+ - My dad noticed some kind of talent on piano when he asked me to play a couple random songs on piano when I was 6 and I just did it. I attempted lessons but I was just so bad at reading notes. I would read “Three Blind Mice” by ear, so learning notes was almost impossible.
+ - If you can’t find what’s unique, people aren’t going to listen.
+
+23 quotes

@@ -1,0 +1,42 @@
+ - There is an art of reading, as well as an art of thinking, and an art of writing.
+ - Ants are good citizens; they place group interest first. But they carry it so far, they have few or no political rights. An ant doesn’t have the vote, apparently; he just has his duties.
+ - The creatures that want to live a life of their own, we call wild. If wild, then no matter how harmless, we treat them as outlaws, and those of us who are specially well brought up shoot them for fun.
+ - The test of a civilized person is first self-awareness, and then depth after depth of sincerity in self-confrontation.
+ - If your parents didn’t have any children, there’s a good chance that you won’t have any.
+ - You can’t sweep other people off their feet, if you can’t be swept off your own.
+ - Elephants suffer from too much patience. Their exhibitions of it may seem superb,-such power and such restraint, combined, are noble,-but a quality carried to excess defeats itself.
+ - The real world is not easy to live in. It is rough; it is slippery. Without the most clear-eyed adjustments we fall and get crushed. A man must stay sober; not always, but most of the time.
+ - When eras die, their legacies Are left to strange police. Professors in New England guard The glory that was Greece.
+ - Knowledge is power. Unfortunate dupes of this saying will keep on creating, ambitiously, till they have stunned their native initiative and made their thoughts weak.
+ - The world of books is the most remarkable creation of man.
+ - A moderate addiction to money may not always be hurtful; but when taken in excess it is nearly always bad for the health.
+ - As to modesty and decency, if we are simians we have done well, considering: but if we are something else-fallen angels-we have indeed fallen far.
+ - I was different unique and always happy. At school this attracted playground harassment. Nowadays, while I remain effervescent, quicker to perceive enmity I reserve my warmest touches and smiles for those who smolder with envy.
+ - Information’s pretty thin stuff unless mixed with experience.
+ - Tender are a mother’s dreams, But her babe’s not what he seems. See him plotting in his mind To grow up some other kind.
+ - The worshipper of energy is too physically energetic to see that he cannot explore certain higher fields until he is still.
+ - The ant is knowing and wise, but he doesn’t know enough to take a vacation.
+ - The first thing the world does to a genius is to make him lose all his youth.
+ - Ants are good citizens: they place group interests first.
+ - Too many moralists begin with a dislike of reality.
+ - Be adorable always to each other; respect is everlasting.
+ - If you don’t go to other men’s funerals, they won’t go to yours.
+ - This is a hard and precarious world, where every mistake and infirmity must be paid for in full.
+ - The egg it is the source of all. Tis everyone’s ancestral hall. The bravest chief that ever fought, The lowest thief that e’er was caught, The harlot’s lip, the maiden’s leg, They each and all came from an egg.
+ - The poets of each generation seldom sing a new song. They turn to themes men always have loved, and sing them in the mode of their times.
+ - It is fair to judge peoples by the rights they will sacrifice most for.
+ - Creatures whose mainspring is curiosity enjoy the accumulating of facts far more than the pausing at times to reflect on those facts.
+ - Father expected a good deal of God. He didn’t actually accuse God of inefficiency, but when he prayed his tone was loud and angry, like that of a dissatisfied guest in a carelessly managed hotel.
+ - Reason is the servant of instinct.
+ - Real friendships among men are so rare that when they occur they are famous.
+ - Age should not have its face lifted, but it should rather teach the world to admire wrinkles as the etchings of experience and the firm line of character.
+ - Dogs have more love than integrity. They’ve been true to us, yes, but they haven’t been true to themselves.
+ - The artistic impulse seems not to wish to produce finished work. It certainly deserts us half-way, after the idea is born; and if we go on, it is labor.
+ - Babies are unreasonable; they expect far too much of existence. Each new generation that comes takes one look at the world and thinks wildly, “Is this all they’ve done to it?” and bursts into tears.
+ - The egg it is the source of all To everyone’s ancestral hall.
+ - As time goes on, new and remoter aspects of truth are discovered which can seldom be fitted into creeds that are changeless.
+ - We talk of our mastery of nature, which sounds very grand; but the fact is we respectfully adapt ourselves, first, to her ways.
+ - A universe capable of giving birth to many such accidents is – blind or not – a good world to live in, a promising universe.
+ - Will and wisdom are both mighty leaders. Our times worship will.
+
+40 quotes

@@ -1,0 +1,39 @@
+ - I don’t think balance is ever achieved in the full sense of the word. Life is more like a juggling act, spinning plates in the air, allowing some to drop, and picking them back up or adding new ones when the timing is right.
+ - When you lie there’s always going to be a consequence. Lying never wins at the end.
+ - My husband and my children inspire me on a daily basis to be the best wife, mom, and woman I can be.
+ - Priorities and purpose help keep us on track.
+ - Once I got my driver’s license everybody treated me like I was an adult.
+ - God created each one of us in our own unique way. Just like a snowflake we all hold a blueprint that differs one from another. It’s great to lose weight and keep our bodies healthy and strong, but it’s also important that we appreciate who we are today – with or without extra pounds.
+ - Am I good enough to go to Heaven?
+ - It seems too easy to lie in the moment but you always have to tell more lies on top of it to cover your tracks.
+ - There will never be another woman who owns the look, the personality, and the experience that you do. Those ingredients make up the recipe that defines who you are, and it’s your gift from the Lord – own it.
+ - We turn off the TV, video games and computer – except for homework – during the week. The TV’s reserved for Friday night, Saturday and Sunday just because that’s the time to do homework, and it makes it that much less chaotic in our house.
+ - Emotionally, I stay healthy by being grounded in the word of God, being open and honest, never being afraid to speak my mind in love, and having good communication with those around me.
+ - I figure this is my time – to relax, be with my family and have a normal life.
+ - I eat healthy and drink a lot of water. I eliminated most white sugar and dairy from my diet. It’s done wonders for me not only in maintaining a healthy weight, but it’s increased my energy levels and immunity.
+ - Once you find love, you find it. There isn’t an age on love.
+ - Because my faith is important to me and then they wrote it in that my character I would be playing would also be a Christian, many people would often assume now that I’m playing myself on television. And I’m not.
+ - I always try to get at least eight hours of sleep each night. It’s the best thing I can do for my body.
+ - It’s amazing. My kids have grown me in ways I never knew possible. The patience I’ve received and the love I get from them is just amazing.
+ - It wasn’t always easy at times, having grown up on television and being in the entertainment industry.
+ - Almost everyone thinks they are a good person, but the question you should be asking is, am I good enough to go to Heaven? How would you know?
+ - My daughter’s dabbling in showbiz, and she’s done a few commercials. She’s auditioned for some movies and shows, so I’m letting her pursue that. I’m OK with it.
+ - My children have grown up around animals. They’re not scared of them.
+ - The cool thing about my profession is that I can do it until the day I die.
+ - I’m a mom, so I have to be comfortable. Jeans are a staple – I have way too many in my closet! It’s warm in Florida, so I wear jeans and a tank top every day. I love my True Religions, my Rich and Skinny, and Citizens of Humanity. But I also love getting dressed up!
+ - I’m always inspired by people who raise the bar, whether in their field of work, parenthood, or giving back.
+ - I’m so happy and thankful I made it a point be a stay-at-home mom.
+ - I always loved watching and reading family-friendly mysteries growing up, like the shows Murder, She Wrote and Nancy Drew, and am thrilled to be bringing these New York Times best-selling books right into your living room on the small screen.
+ - When we invest in the things that matter most to us, that are within God’s unique design for each of us, I believe we will achieve a sense of balance in our lives.
+ - People who have little, but much joy, inspire me.
+ - We can start by living by the Spirit while we stop following the heart of discontentment and doubt.
+ - It was in the ’80s, so I guess big hair and high bangs. And I had so many gummy bracelets! While we were doing ‘Full House,’ we were like, ‘You know, in 10 years, we’re going to look back on this and think this is horrible.’ But everyone looked like that!
+ - My faith dictates a whole lot of what I’ll do.
+ - I had no style when I was 17! I look at teenagers now and say, ‘I wish I’d looked like them when I was that age.’ I had no style whatsoever, but style also wasn’t as prominent as it is today. I was just very laid back, usually wearing jeans and tank tops and flip flops.
+ - Personally I’m an advocate for healthy marriages and families and I do a lot of speaking around the country sharing my faith and talking to women’s groups, even specifically about marriage.
+ - It wasn’t about me trying to lose weight. It was all about emotions.
+ - The way I was raised, family was always the most important. When I had our first daughter, Natasha, I knew that’s what I wanted to do.
+ - I did a lot of my school on set. Some years I went to a private school for a couple of hours, and then I’d always finish up with a tutor. I couldn’t do full days, but I tried to maintain my friendships and some normalcy while doing a show.
+ - I really do feel like I’m in better shape and look better now – even after having three kids – than I did before.
+
+37 quotes

@@ -1,0 +1,39 @@
+ - I married a Jewish lady, and we’re raising our son Jewish, and since I’m not Jewish the whole thing is just a mystery to me. I leave it to her, actually, because it’s just a great mystery.
+ - I get tired of myself pretty fast.
+ - I don’t think I gave a good enough performance to be nominated for it. I thought I gave a fine performance, but those things are supposed to be about giving an extraordinary performance.
+ - It is because my dad died suddenly that I became an actor. I thought, I’m going to make money doing this thing I enjoy.
+ - Maybe it’s because I have too much pride or self-respect, but I thought, ‘Why does a guy who has thinning hair and who is overweight have to be a loser or a joke?’
+ - I get tired of myself pretty fast. So I can’t imagine other people don’t get tired of me.
+ - I was the youngest child and got a lot more freedom than my brother and sister. I used to wander, doing my own thing under the radar, but I didn’t get in bad, bad trouble.
+ - I learned how to fire a sniper rifle, which I’m sure will be useful at some point.
+ - I like playing weird, kind of shady people.
+ - Well, you know, when people say stuff about you, it’s always really flattering. But does it mean anything to me? It’s not really real to me; there’s no reality to it.
+ - I wouldn’t say that I’m aggressive in going out to find work and stuff like that. I just sort of, if something comes along, and it’s something I like, and they want to hire me, I’ll do it. I won’t just do anything.
+ - I think I have a tendency to overwork things. I have a hard time finding that sweet spot that most actors seem to be able to hit where they’re doing the exact right amount of work, not overthinking, not underdoing it. I seem to either overdo it or underdo it.
+ - Academia is a rarified culture, especially an Ivy League academic background.
+ - I don’t mind being stereotyped in some way and playing certain kinds of guys, but if I can find something to occasionally get a break from that, that would be nice. And I feel like I manage to.
+ - I don’t consider myself a very interesting person. I have the mentality of a supporting actor.
+ - I’d like to have permanent time off, really. The goal is financial security and permanent time off, basically.
+ - I definitely had a top-notch education.
+ - I suppose there must be some way in which I’m compelled to show some side of myself – or of people – that’s paranoid and fraught and beleaguered and downtrodden, just as Tom Cruise wants to show that he’s terrifyingly upbeat and terrifyingly heroic all the time.
+ - I feel like in a lot of ways I’ve gotten kind of soft as an actor, not doing stage stuff. In terms of being a better actor, it’s really important.
+ - I’m not a big wine guy. And bars, I never go to bars anymore. It’s such a drag, man.
+ - I still want to be the guy who can get on the subway and check out the freak on the subway.
+ - I always would be happy to make a character even more unlikable, but you know, there’s a limit and if you go there, you get into a very different kind of movie, man.
+ - I like to work – I probably work too much.
+ - I definitely have a tendency to only see the blemishes of things, and see lots of things about my acting that I don’t like.
+ - I’ve very critical of myself, and film has been an adjustment for me.
+ - You are absolutely free to describe me as a turtle or something.
+ - I don’t think film actors need training, really.
+ - I never thought I would have any particular career in movies at all.
+ - Acting can be a really silly thing. It’s like playing dress-up.
+ - I’ve got to be the geekiest guy in the world in a lot of ways. I’m like a zeta male.
+ - I mean, I’m not going to play the hero of something.
+ - Lead roles are fun, but I’m especially happy other, more colorful supporting stuff has come along.
+ - I think that deep down all I have been looking for is to be accepted and liked by as many people as possible.
+ - As an actor, to have achieved financial stability is amazing. But I always have this weird fear that I’m not going to get any more work; it’s about not having enough money.
+ - The broad comedy thing is really hard to do on film.
+ - I don’t mind talking about acting. I don’t have anything interesting to say about it, but it’s interesting talking about it.
+ - I’m clearly not Brad Pitt, and I’m never going to be Brad Pitt.
+
+37 quotes

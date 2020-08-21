@@ -1,0 +1,38 @@
+ - Minimizing exposure to miserable people is nothing short of a life strategy.
+ - Your job is to be you, which includes being the chief beneficiary of all things you do right, the chief victim of all you do wrong, and the one person on Earth who has to live with every choice you make. As gatekeeper to your life, you’re it.
+ - I believe in innocence until there’s proof of guilt and all that.
+ - Being negative is easy. There will always be a downside to everything good, a hurdle to everything desirable, a con to every pro. The real courage is in finding the good in what you have, the opportunities in every hurdle, the pros in every con.
+ - There’s nothing wrong with being happy somewhere, even if it’s the little pond you grew up in, as long as you are in fact comfortable vs. bored.
+ - The sudden death of a partner while expecting a child is so universally understood as awful that I don’t think anyone with any other weight to carry is going to get to same kind of sympathy – except perhaps people who lose a child.
+ - Attractions are things we all should be good at saying no to, because our Department of Attraction is arguably the least reliable and productive office in our entire brain.
+ - Unfortunately, I think the expectation is that birthday girls don’t pay.
+ - Don’t freight your answers with any notions of what you’re “supposed” to do, and just see where your feelings point you. It can feel weird to be so formal about it, but if you’re not used to doing it, then there’s no shame in retraining yourself.
+ - I have no quarrel with people who lack the skill or temperament to care for small children.
+ - When you are stuck in a group of people who merely trade turns at talking about themselves instead of actually conversing, it could be a matter of their not really knowing how to converse as opposed to being too small-minded or excessively Facebooked.
+ - Apparently you have ample proof from experience that you’re not going to stop world evil by debating your in-laws into submission, so it’s okay to choose not to try.
+ - Instead of talking at each other about the non-business-related contact, talk to each other about your concerns about marriage. Listen a lot, too.
+ - You don’t want someone who can’t tell the difference between having a different opinion and dismissing your opinion.
+ - The most reliable ways to make oneself miserable are attempting to change people and not attempting to change circumstances.
+ - You can’t make someone agree with you, not even when you’re 100 percent sure you’re right.
+ - You can’t make people like you under the best of circumstances, and you certainly can’t make them like you while you’re actively badgering them on what you perceive to be their failures of conscience.
+ - I do crosswords when I have time to kill somewhere, and am 100 percent successful on filling in the spots I get stuck on – after I close up, do something else, and then go back to it.
+ - If you take the time to listen to an upset child’s story with empathy, and guide the child toward figuring out the root of the problem, then the result is often that the child not only calms down, but also in the future is less likely to get so upset.
+ - Relationships are complicated, but happiness in a relationship isn’t: It’s just wanting exactly what you have. Wanting something else is dispiriting.
+ - If you’re not sure what you want, then hold back from making plans or responding to invitations until you have a chance to think about it.
+ - People who make babies surrender their right to behave like them.
+ - I think we’d all hate to be the one who gets declared undateable by one’s entire grad-school population based on a couple of told and retold stories.
+ - I think a person who arranges the event and orders the food also picks up the check – even the birthday person, even when people at the table insist on paying for the birthday person.
+ - Some people can work amid chaos or conversations, and some can’t – and while there’s no doubt an element of brain wiring to it, there’s also the possibility of acquiring skills that improve your focus.
+ - Once given, a gift is yours to use, store or dispose of as you see fit.
+ - There’s nothing like a good family when you’re really up a tree.
+ - When you fail to see something, that doesn’t mean I’m hiding it.
+ - It’s hard to send your baby off on a plane without you, though that’s less reasonable, because sending him off in a car is statistically a bigger risk.
+ - You don’t want to be with someone who is already not getting from you what he needs emotionally.
+ - Bodies and minds need breaks or the work suffers, this has been proven and reproven to the point where we don’t even need to post links to support it.
+ - First group impressions can mask a lot of individual variations in the members.
+ - For some people, the better route for finding like-minded parents is just to get out of your house with your baby and frequent baby-friendly places.
+ - One helpful thing to keep in mind as a retort-stopper is that you won’t “win,” you won’t change anyone’s mind, you won’t change any votes, you won’t make the atmosphere in the room any better, YOU won’t feel any better.
+ - When people get more frustrated by their indecision than by the situation that prompted it, clarity often follows.
+ - It’s probably good for your body and brain to get moving occasionally.
+
+36 quotes

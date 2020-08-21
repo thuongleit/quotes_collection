@@ -1,0 +1,67 @@
+ - A day of worry is more exhausting than a week of work.
+ - What we see depends mainly on what we look for.
+ - We may sit in our library and yet be in all quarters of the earth.
+ - Rest is not idleness, and to lie sometimes on the grass under trees on a summer’s day, listening to the murmur of the water, or watching the clouds float across the sky, is by no means a waste of time.
+ - In this world we do not see things as they are. We see them as we are, because what we see depends mainly on what we are looking for.
+ - The important thing is not so much that every child should be taught, as that every child should be given the wish to learn.
+ - The idle man does not know what it is to enjoy rest, for he has not earned it.
+ - A Cheerful friend is like a sunny day, which sheds its brightness on all around.
+ - Happiness is a thing to be practiced, like the violin.
+ - Rest is by no means a waste of time.
+ - Fresh air is as good for the mind as for the body. Nature always seems trying to talk to us as if she had some great secret to tell. And so she has.
+ - Earth and sky, woods and fields, lakes and rivers, the mountain and the sea, are excellent schoolmasters, and teach some of us more than we can ever learn from books.
+ - Sunsets are so beautiful that they almost seem as if we were looking through the gates of Heaven.
+ - Everyone must have felt that a cheerful friend is like a sunny day, which sheds its brightness on all around; and most of us can, as we choose, make of this world either a palace or a prison.
+ - A pleasure is full grown only when it is remembered. C. S. LEWIS, Out of the Silent Planet True pleasures are paid for in advance; false pleasures afterwards, with heavy and compound interest.
+ - Endurance is a much better test of character than any single act of heroism, however noble.
+ - To be happy ourselves is a most effectual contribution to the happiness of others.
+ - All those who love Nature she loves in return, and will richly reward, not perhaps with the good things, as they are commonly called, but with the best things of this world-not with money and titles, horses and carriages, but with bright and happy thoughts, contentment and peace of mind.
+ - Exercise of the muscles keeps the body in health, and exercise of the brain brings peace of mind.
+ - We must not sit still and look for miracles; up and doing, and the Lord will be with thee.
+ - Our own happiness ought not to be our main objective in life.
+ - Be cautious, but not too cautious; do not be too much afraid of making a mistake; a man who never makes a mistake will make nothing.
+ - A wise system of education will at last teach us how little man yet knows, how much he has still to learn.
+ - Art is unquestionably one of the purest and highest elements in human happiness. It trains the mind through the eye, and the eye through the mind. As the sun colors flowers, so does art color life.
+ - Life is a great gift, and as we reach years of discretion, most of us naturally ask ourselves what should be the main object of our existence.
+ - Your character will be what you yourself choose to make it.
+ - Those who have not distinguished themselves at school need not on that account be discouraged. the greatest minds do not necessarily ripen the quickest.
+ - Don’t be afraid of showing affection. Be warm and tender, thoughtful and affectionate. Men are more helped by sympathy than by service. Love is more than money, and a kind word will give more pleasure than a present.
+ - Reading and writing, arithmetic and grammar do not constitute education, any more than a knife, fork and spoon constitute a dinner.
+ - We often hear of people breaking down from overwork, but in nine out of ten they are really suffering from worry or anxiety.
+ - Happiness is a condition of mind not a result of circumstances.
+ - Many savage nations worship trees, and I really think my first feeling would be one of delight and interest rather than of surprise, if some day when I am alone in the woods one of the trees were to speak to me.
+ - Happy indeed is the naturalist: to him the seasons come round like old friends; to him the birds sing: as he walks along, the flowers stretch out from the hedges, or look up from the ground, and as each year fades away, he looks back on a fresh store of happy memories.
+ - False pleasures come from without and are imperfect: happiness is internal and our own.
+ - To render ourselves insensible to pain we must forfeit also the possibilities of happiness.
+ - Here are the three great questions which in life we have over and over again to answer: Is it right or wrong? Is it true or false? Is it beautiful or ugly? Our education ought to help us to answer these questions.
+ - It always seems to be raining harder than it really is when you look at the weather through the window.
+ - Try to realize all the blessings you have, and you will find perhaps that they are more than you suppose.
+ - We must be careful what we read, and not, like the sailors of Ulysses, take bags of wind for sacks of treasure.
+ - It is sad, indeed, to see how man wastes his opportunities. How many could be made happy, with the blessings which are recklessly wasted or thrown away.
+ - When important decisions have to be taken, the natural anxiety to come to a right decision will often keep you awake. Nothing, however, is more conducive to healthful sleep than plenty of open air.
+ - How little our libraries cost us as compared with our liquor cellars.
+ - A kind word will give more pleasure than a present.
+ - Time is a trust, and for every minute of it you will have to account.
+ - There are temptations which strong exercise best enables us to resist.
+ - Before buying anything, it is well to ask if one could do without it.
+ - Great battles are really won before they are actually fought. To control our passions we must govern our habits, and keep watch over ourselves in the small details of everyday life.
+ - However vexed you may be overnight, things will often look very different in the morning.
+ - Our duty is to believe that for which we have sufficient evidence, and to suspend our judgment when we have not.
+ - If you have the least doubt about it, do not marry.
+ - A man who is not a good friend to himself cannot be so to any one else.
+ - Though it is a great mistake to make friends of the wicked and foolish, it is unwise to make enemies of them, for they are very numerous.
+ - A crowd is not necessarily company, but neither need it necessarily prevent thought or disturb peace of mind.
+ - There can be no merit in believing something which you can neither explain nor understand.
+ - Many of the greatest men have owed their success to industry rather than to cleverness.
+ - Do not lay things too much to heart. No one is ever really beaten unless he is discouraged.
+ - The world would be better and brighter if people were taught the duty of being happy as well as the happiness of doing their duty.
+ - Do what you will, only do something.
+ - The veil is slowly rising, but as regards innumerable questions we must be content to remain in ignorance.
+ - Many a blessing has been recognized too late.
+ - It would be a great thing if people could be brought to realize that they can never add to the sum of their happiness by doing wrong.
+ - Men are more helped by sympathy than by service.
+ - We profit little by books we do not enjoy.
+ - A poor woman from Manchester, on being taken to the seaside, is said to have expressed her delight on seeing for the first time something of which there was enough for everybody.
+ - Cultivate all your faculties; you must either use them or lose them.
+
+65 quotes

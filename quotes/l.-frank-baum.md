@@ -1,0 +1,83 @@
+ - Somewhere over the rainbow, skies are blue, and the dreams that you dare to dream really do come true.
+ - Everything has to come to an end, sometime.
+ - No thief, however skillful, can rob one of knowledge, and that is why knowledge is the best and safest treasure to acquire.
+ - A heart is not judged by how much you love; but by how much you are loved by others.
+ - Never give up. No one knows what’s going to happen next.
+ - Now I know I’ve got a heart because it is breaking. – Tin Man.
+ - I’ll miss you most of all scarecrow.
+ - Toto, I have a feeling we’re not in Kansas anymore.
+ - Some people without brains do an awful lot of talking, don’t you think?
+ - Hearts will never be practical until they can be made unbreakable. – Wizard.
+ - “You have some queer friends, Dorothy,” she said. “The queerness doesn’t matter, so long as they’re friends,” was the answer.
+ - How can you talk if you haven’t got a brain? I don’t know, but some people without brains do an awful lot of talking.
+ - I can’t give you a brain, but I can give you a diploma.
+ - If I ever go looking for my heart’s desire again, I won’t look any further than my own back yard. Because if it isn’t there, I never really lost it to begin with.
+ - Pay no attention to the man behind the curtain!
+ - True courage is in facing danger when you are afraid...
+ - To ‘know Thyself’ is considered quite an accomplishment.
+ - The more one knows, the luckier he is, for knowledge is the greatest gift in life.
+ - Nobody gets in to see the wizard. Not nobody.
+ - There is no place like home.
+ - Everything in life is unusual until you get accustomed to it -The Scarecrow – The Marvellous Land Of Oz by L. Frank Baum pg 103 chapter 13.
+ - The Imaginative Child will become the imaginative man or woman most apt to create, to invent, and therefore to foster civilization.
+ - That proves you are unusual,? returned the Scarecrow; ’and I am convinced that the only people worthy of consideration in this world are the unusual ones. For the common folks are like the leaves of a tree, and live and die unnoticed.
+ - A baby has brains, but it doesn’t know much. Experience is the only thing that brings knowledge, and the longer you are on earth the more experience you are sure to get.
+ - I shall take the heart. For brains do not make one happy, and happiness is the best thing in the world.
+ - My people have been wearing green glasses on their eyes for so long that most of them think this really is an Emerald City.
+ - But you will admit that it is a very good thing to be alive.
+ - Lions and tigers, and bears, oh my! – Dorothy in Wizard of Oz.
+ - Whenever I feel blue, I start breathing again.
+ - Birds fly over the rainbow, Why then – oh, why can’t I? If happy little bluebirds fly beyond the rainbow why, oh why, can’t I.
+ - I think you are wrong to want a heart. It makes most people unhappy. If you only knew it, you are in luck not to have a heart.
+ - You people with hearts,? he said once, ’have something to guide you, and need never do wrong; but I have no heart, and so I must be very careful.
+ - It’s so kind of you to want to visit me in my loneliness. – The Wicked Witch of the West. Now I know I have a heart, because it’s breaking. – The Tin Woodsman Hearts will never be practical until they can be made unbreakable.
+ - I believe that dreams – day dreams, you know, with your eyes wide open and your brain machinery whizzing – are likely to lead to the betterment of the world.
+ - Everything in life is unusual until you become accustomed to it.
+ - Never question the truth of what you fail to understand, for the world is filled with wonders.
+ - I think the world is like a great mirror, and reflects our lives just as we ourselves look upon it.
+ - How very wet this water is.
+ - Modern education includes morality; therefore the modern child seeks only entertainment in its wonder-tales and gladly dispenses with all disagreeable incident.
+ - No, indeed; I don’t know anything. You see, I am stuffed, so I have no brains at all.
+ - During the year I stood there I had known was the loss of my heart. While I was in love I was the happiest man on earth.
+ - It seems unfortunate that strong people are usually so disagreeable and overbearing that no one cares for them. In fact, to be different from your fellow creatures is always a misfortune.
+ - People would rather live in homes regardless of its grayness. There is no place like home.
+ - Dorothy said nothing. Oz had not kept the promise he made her, but he had done his best. So she forgave him. As he said, he was a good man, even if he was a bad Wizard.
+ - Toto did not really care whether he was in Kansas or the Land of Oz so long as Dorothy was with him; but he knew the little girl was unhappy, and that made him unhappy too.
+ - Stunt dwarf or destroy the imagination of a child and you have taken away its chances of success in life. Imagination transforms the commonplace into the great and creates the new out of the old.
+ - Imagination has given us the steam engine, the telephone, the talking-machine, and the automobile, for these things had to be dreamed of before they became realities.
+ - To be angry once in a while is really good fun, because it makes others so miserable. But to be angry morning, noon and night, as I am, grows monotonous and prevents my gaining any other pleasure in life.
+ - It is kindness that makes one strong and brave; and so we are kind to our prisoners.
+ - Oh, if Shakespeare says it, that’s all right.
+ - Some of my youthful readers are developing wonderful imaginations. This pleases me.
+ - I shall ask for brains instead of a heart; for a fool would not know what to do with a heart if he had one.
+ - Flowers are beautiful, for instance, but we are not inclined to marry them. Duty, on the contrary, is a bugle call to action, whether you are inclined to act, or not. In this case, I obey the bugle call of duty.
+ - When I was young I longed to write a great novel that should win me fame. Now that I am getting old my first book is written to amuse children.
+ - The absurd and legendary devil is the enigma of the Church.
+ - It is a callous age; we have seen so many marvels that we are ashamed to marvel more; the seven wonders of the world have become seven thousand wonders.
+ - No matter how dreary and gray our homes are, we people of flesh and blood would rather live there than in any other country, be it ever so beautiful. There is no place like home.
+ - As a matter of fact, we are none of us above criticism; so let us bear with each other’s faults.
+ - You are welcome, most noble Sorceress, to the land of the Munchkins. We are so grateful to you for having killed the Wicked Witch of the East, and for setting our people free from bondage.
+ - I have learned to regard fame as a will-o-wisp.
+ - The Tin Woodman knew very well he had no heart, and therefore he took great care never to be cruel or unkind to anything.
+ - In other words, the more stupid one is, the more he thinks he knows.
+ - A little misery, at times, makes one appreciate happiness more.
+ - For I consider brains far superior to money in every way. You may have noticed that if one has money without brains, he cannot use it to his advantage; but if one has brains without money, they will enable him to live comfortably to the end of his days.
+ - Familiarity with any great thing removes our awe of it.
+ - One can be ugly in looks, but lovely in disposition.
+ - To please a child is a sweet and lovely thing that warms one’s heart and brings its own reward.
+ - Unless one can think wisely it is better to remain a dummy.
+ - If we didn’t want anything, we would never get anything, good or bad. I think our longings are natural, and if we act as nature prompts us we can’t go far wrong.
+ - It is worth a lot of bother to be able to think properly.
+ - Mortals seldom know how greatly they are influenced by fairies, knooks and ryls, who often put thoughts into their heads that only the wise little immortals could have conceived.
+ - You see, in this country are a number of youths who do not like to work, and the college is an excellent place for them.
+ - No Queen with a frozen heart is fit to rule any country.
+ - I never deal in transformations, for they are not honest, and no respectable sorceress likes to make things appear to be what they are not.
+ - To destroy an offender cannot benefit society so much as to redeem him.
+ - Demons may be either good or bad, like any other class of beings.
+ - He brought toys to the children because they were little and helpless, and because he loved them.
+ - If you only have brains on your head you would be as good a man as any of them, and a better man than some of them. Brains are the only things worth having in this world, no matter whether one is a crow or a man.
+ - I shall really be very unhappy unless you give me the sort of courage that makes one forget he is afraid.
+ - If your heads were stuffed with straw, like mine, you would probably all live in the beautiful places, and then Kansas would have no people at all. It is fortunate for Kansas that you have brains.
+ - It is such an uncomfortable feeling to know one is a fool.
+
+81 quotes

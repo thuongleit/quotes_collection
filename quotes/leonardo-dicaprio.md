@@ -1,0 +1,32 @@
+ - A man’s legacy is determined by how the story ends.
+ - Climate change is real. It is happening right now. It is the most urgent threat facing our entire species, and we need to work collectively together and stop procrastinating.
+ - I’m still exploring in a lot of ways. I don’t know myself completely.
+ - We only get one planet.
+ - You have to enjoy life in the process. It may sound corny, but it’s true. At the end of the day, we can’t always achieve everything that we dream of but you do have to enjoy life in the process.
+ - It’s a weird feeling when people are defining you, and you haven’t even defined yourself.
+ - Dreams feel real while we’re in them. It’s only when we wake up that we realize something was actually strange.
+ - A single idea from the human mind can build cities. An idea can transform the world and rewrite all the rules.
+ - If you can do what you do best and be happy, you’re further along in life than most people.
+ - My mother is a walking miracle.
+ - It’s easy to be an expert if you’re the only one in the world with an interest.
+ - Protecting our future on this planet depends on the conscious evolution of our species.
+ - We are facing a tipping point of environmental crisis unprecedented in human history and our very survival is dependent on protecting nature.
+ - Climate change is severely impacting the health of our planet and all of its inhabitants, and we must transition to a clean energy economy that does not rely on fossil fuels.
+ - When I was young I used to have this thing where I wanted to see everything I used to think ‘How can I die without seeing every inch of this world?’
+ - School, I never truly got the knack of. I could never focus on things I didn’t want to learn.
+ - Raising awareness on the most pressing environmental issues of our time is more important than ever.
+ - To believe in love, to be ready to give up anything for it, to be willing to risk your life for it, is the ultimate tragedy.
+ - It’s amazing to completely focus on something for four, five or six months, have it completely consume your life and be constantly thinking about somebody else’s set of circumstances and how they would react to something. I find it fascinating. It’s rewarding and on a professional and personal level.
+ - One of my passions is to meet people and then imitate them. I love doing that.
+ - Dark green is my favorite color. It’s the color of nature and the color of money and the color of moss!
+ - Our planet’s alarm is going off, and it is time to wake up and take action!
+ - I have no problem playing anyone who has different politics than me. In fact, I don’t take that into consideration at all. You have to find something sympathetic in a man. It’s that common ground you need to connect with someone.
+ - As we progress into the twenty-first century, anyone who considers themselves a realist will have to make the environment a top priority.
+ - Don’t think for a moment that I’m really like any of the characters I’ve played. I’m not. That’s why it’s called ‘acting’.
+ - My parents know I was outgoing as a child, and whenever people came over I’d automatically do impressions of them as soon as they left; it was my mom’s favorite thing.
+ - I created my foundation as a result of that and my website, and I try to shed some light on some very topical issues right now. The idea is to try to get people to become obviously more knowledgeable about the issue and try to get corporations and individuals to contribute to these nonprofit organizations.
+ - At some point in your career, someone is going to tell you, “This stove is hot. Do not touch this stove.” And the weird thing is, you’ll want to touch it. But resist that urge, man.
+ - I’ve got this reputation for shooting one take which is a wonderful reputation to have but it’s hard to live up to.
+ - Portraying emotionally ill characters gives me the chance to really act.
+
+30 quotes

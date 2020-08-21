@@ -1,0 +1,335 @@
+ - Take a simple idea and take it seriously.
+ - Three rules for a career: Don't sell anything you wouldn't buy yourself. Don't work for anyone you don't respect and admire. Work only with people you enjoy.
+ - People calculate too much and think too little.
+ - The big money is not in the buying and selling, but in the waiting.
+ - In my whole life, I have known no wise people who didn't read all the time — none, zero.
+ - You don't have to be brilliant, only a little bit wiser than the other guys, on average, for a long, long time.
+ - Recognize reality even when you don't like it – especially when you don't like it.
+ - Spend each day getting a little wiser than you were when you woke up. Discharge your duties faithfully and well. Step by step you get ahead, but not necessarily in fast spurts. But you build discipline by preparing for fast spurt. Slug it out one inch at a time, day by day. At the end of the day - if you live long enough - most people get what they deserve.
+ - There are always people who will be better at something than you are. You have to learn to be a follower before you become a leader.
+ - Acknowledging what you don't know is the dawning of wisdom.
+ - No wise pilot, no matter how great his talent and experience, fails to use his checklist.
+ - Remember that reputation and integrity are your most valuable assets – and can be lost in a heartbeat.
+ - The safest way to try to get what you want is to try to deserve what you want. It's such a simple idea. It's the golden rule. You want to deliver to the world what you would buy if you were on the other end.
+ - All intelligent investing is value investing – acquiring more than you are paying for. You must value the business in order to value the stock.
+ - The best thing a human being can do is to help another human being know more.
+ - Assume life will be really tough, and then ask if you can handle it. If the answer is yes, you've won.
+ - A great business at a fair price is superior to a fair business at a great price.
+ - I'm right, and you're smart, and sooner or later you'll see I'm right.
+ - Almost all good businesses engage in 'pain today, gain tomorrow' activities.
+ - When you borrow a man's car, always return it with a tank of gas.
+ - The wise ones bet heavily when the world offers them that opportunity. They bet big when they have the odds. And the rest of the time, they don't. It's just that simple.
+ - Someone will always be getting richer faster than you. This is not a tragedy.
+ - It takes character to sit there with all that cash and do nothing. I didn't get to where I am by going after mediocre opportunities.
+ - I believe in the discipline of mastering the best that other people have ever figured out. I don't believe in just sitting down and trying to dream it all up yourself. Nobody's that smart.
+ - We have three baskets for investing: yes, no and too tough to understand. 
+ - Determine value apart from price; progress apart from activity; wealth apart from size.
+ - Intense interest in any subject is indispensable if you're really going to excel in it.
+ - What you have to learn is to fold early when the odds are against you, or if you have a big edge, back it heavily because you don't get a big edge often. Opportunity comes, but it doesn't come often, so seize it when it does come.
+ - I think track records are very important. If you start early trying to have a perfect one in some simple thing like honesty, you're well on your way to success in this world.
+ - The difference between a good business and a bad business is that good businesses throw up one easy decision after another. The bad businesses throw up painful decisions time after time.
+ - It never ceases to amaze me to see how much territory can be grasped if one merely masters and consistently uses all the obvious and easily learned principles.
+ - The safest way to get what you want is to deserve what you want.
+ - Never, ever, think about something else when you should be thinking about the power of incentives.
+ - Show me the incentive and I will show you the outcome.
+ - What's the best way to get a good spouse? The best single way is to deserve a good spouse because a good spouse is by definition not nuts.
+ - It's not given to human beings to have such talent that they can just know everything about everything all the time. But it is given to human beings who work hard at it – who look and sift the world for a mispriced bet – that they can occasionally find one.
+ - Without numerical fluency, in the part of life most of us inhibit, you are like a one-legged man in an ass-kicking contest.
+ - Learn how to ignore the examples from others when they are wrong, because few skills are more worth having.
+ - We try more to profit from always remembering the obvious than from grasping the esoteric.
+ - Our job is to find a few intelligent things to do, not to keep up with every damn thing in the world.
+ - Go to bed smarter than when you woke up.
+ - Over the very long term, history shows that the chances of any business surviving in a manner agreeable to a company's owners are slim at best.
+ - Invert, always invert.
+ - If you don’t keep learning, other people will pass you by. Temperament alone won’t do it – you need a lot of curiosity for a long, long time.
+ - To the man with only a hammer, every problem looks like a nail.
+ - I did not succeed in life by intelligence. I succeeded because I have a long attention span.
+ - I won't bet $100 against house odds between now and the grave.
+ - Any year that you don’t destroy one of your best-loved ideas is probably a wasted year.
+ - Whenever you think something or some person is ruining your life, it’s you. A victimization mentality is so debilitating.
+ - Most people are too fretful, they worry to much. Success means being very patient, but aggressive when it’s time.
+ - It’s a good habit to trumpet your failures and be quiet about your successes.
+ - If you buy something because it’s undervalued, then you have to think about selling it when it approaches your calculation of its intrinsic value. That’s hard. But if you buy a few great companies, then you can sit on your ass. That’s a good thing.
+ - It’s not greed that drives the world, but envy.
+ - Those who will not face improvements because they are changes, will face changes that are not improvements.
+ - Spend less than you make; always be saving something. Put it into a tax-deferred account. Over time, it will begin to amount to something. This is such a no-brainer.
+ - I think it is undeniably true that the human brain must work in models. The trick is to have your brain work better than the other person’s brain because it understands the most fundamental models- ones that will do most work per unit.
+ - If people tell you what you really don’t want to hear what’s unpleasant-there’s an almost automatic reaction of antipathy. You have to train yourself out of it.
+ - Rationality is not just something you do so that you can make more money, it is a binding principle. Rationality is a really good idea. You must avoid the nonsense that is conventional in one’s own time. It requires developing systems of thought that improve your batting average over time.
+ - There must be some wisdom in the folk saying: Its the strong swimmers who drown.
+ - Berkshire was built on the eternal verities: basic mathematics, basic horse sense, basic fear, and basic diagnosis of human nature to make predictions regarding human behavior. We stuck to the basics with a certain amount of discipline and it has worked out quite well.
+ - Our experience tends to confirm a long-held notion that being prepared, on a few occasions in a lifetime, to act promptly in scale, in doing some simple and logical thing, will often dramatically improve the financial results of that lifetime.
+ - We don’t like trading agony for money.
+ - If you took our top fifteen decisions out, we’d have a pretty average record. It wasn’t hyperactivity, but a hell of a lot of patience. You stuck to your principles and when opportunities came along, you pounced on them with vigor.
+ - I never allow myself to have an opinion on anything that I don’t know the other side’s argument better than they do.
+ - I’m not entitled to have an opinion unless I can state the arguments against my position better than the people who are in opposition. I think that I am qualified to speak only when I’ve reached that state.
+ - How you behave in one place, will help in surprising ways later.
+ - Whoever makes you smarter a little earlier in life makes you better.
+ - We have a high moral responsibility to be rational.
+ - Opportunity cost is a huge filter in life. If you’ve got two suitors who are really eager to have you and one is way the hell better than the other, you do not have to spend much time with the other. And that’s the way we filter out buying opportunities.
+ - We’ve got great flexibility and a certain discipline in terms of not doing some foolish thing just to be active – discipline in avoiding just doing any damn thing just because you can’t stand inactivity.
+ - What good is envy? It’s the one sin you can’t have any fun at.
+ - If you don’t allow for self-serving bias in the conduct of others, you are, again, a fool.
+ - The tradition of always looking for the answer in the most fundamental way available – that is a great tradition, and it saves a lot of time in this world.
+ - Proper accounting is like engineering. You need a margin of safety. Thank God we don’t design bridges and airplanes the way we do accounting.
+ - It’s very useful to have a good grasp of all the big ideas in hard and soft science. A, it gives perspective. B, it gives a way for you to organize and file away experience in your head, so to speak.
+ - A business model that relies on trickery is doomed to fail.
+ - If you want to understand science, you have to understand math. In business, if you’re enumerate, you’re going to be a klutz. The good thing about business is that you don’t have to know any higher math...
+ - It’s dishonourable to stay stupider than you need to be.
+ - The whole concept of dividing it up into ‘value’ and ‘growth’ strikes me as twaddle. It’s convenient for a bunch of pension fund consultants to get fees prattling about and a way for one advisor to distinguish himself from another. But, to me, all intelligent investing is value investing.
+ - Derivative trading with mark-to-market accounting degenerates into mark-to-model. Two firms make a big derivative trade and the accountants on both sides show a large profit from the same trade.
+ - We’ve had the most massive creation of wealth for people a lot younger than those who formerly got wealth in the history of the world. The world is full of young people who really want to get rich, and when I left school nobody thought it was a reasonable possibility.
+ - I know just enough about thermodynamics to understand that if it takes too much fossil-fuel energy to create ethanol, that’s a very stupid way to solve an energy problem.
+ - We get these questions a lot from the enterprising young. It’s a very intelligent question: You look at some old guy who’s rich and you ask, ‘How can I become like you, except faster?’
+ - When I run into a paradox I think either I’m a total horse’s ass to have gotten to this point, or I’m fruitfully near the edge of my discipline. It adds excitement to life to wonder which it is.
+ - Clever derivatives broke dozens of companies. It killed them. Bankrupt. We don’t need these kinds of innovation in finance. It’s OK to be boring in finance. What we want is innovation in widgets.
+ - Accounting is a big subject and there are huge forces in play. The entire momentum of existing thinking and existing custom is in a direction that allows terrible follies to happen, and the terrible follies have terrible consequences.
+ - It would be easier to screw up American Express than Coke or Gillette, but it’s an immensely strong business.
+ - I don’t want to sell credit to people who are going to hurt themselves with it. You should only sell products that are good for the people who use them. Some disagree with this, but I know I’m right. That is to say, you’re talking to a Republican who admires Elizabeth Warren.
+ - Cicero’s words also increased my personal satisfaction by supporting my long-standing rejection of a conventional point of view.
+ - I’m used to people with very high IQs knowing how to recognize reality, but there’s a huge human tendency where it may be instructive to think that whatever you’re doing to succeed is all right.
+ - It’s simplicity itself that its future will be way worse than its past.
+ - Wall Street has too much wealth and political power.
+ - Litigation is notoriously time-consuming, inefficient, costly and unpredictable.
+ - Early Charlie Munger is a horrible career model for the young because not enough was delivered to civilization in return for what was wrested from capitalism. And other similar career models are even worse.
+ - One could imagine a period like Japan 13 years ago, however, in which indexing over time wouldn’t work.
+ - Kellogg’s and Campbell’s moats have also shrunk due to the increased buying power of supermarkets and companies like Wal-Mart. The muscle power of Wal-Mart and Costco has increased dramatically.
+ - My idea of a good place to shop is Costco – it has these heavily marbled fillet steaks. The idea of eating some wheat thing and washing it down with carrot juice has never appealed to me.
+ - If only I had the influence with my wife and children that I have in some other quarters!
+ - Those who keep learning, will keep rising in life.
+ - The quality of the medical care delivered, including the pharmaceutical industry, has improved a lot. I don’t think it’s crazy for a rich country like the USto spend 15% of GDP on healthcare, and if it rose to 16-17%, it’s not a big worry.
+ - I think liberal art faculties at major universities have views that are not very sound, at least on public policy issues – they may know a lot of French however.
+ - All I want to know is where I’m going to die, so I’ll never go there.
+ - Great investing requires a lot of delayed gratification.
+ - Mimicking the herd invites regression to the mean.
+ - I constantly see people rise in life who are not the smartest – sometimes not even the most diligent. But they are learning machines; they go to bed every night a little wiser than when they got up. And, boy, does that habit help, particularly when you have a long run ahead of you.
+ - Spend each day trying to be a little wiser than you were when you woke up.
+ - Just keep your head down and do your best.
+ - It’s not supposed to be easy. Anyone who finds it easy is stupid.
+ - Hard work, honesty, if you keep at it, will get you almost anything.
+ - Opportunity comes to the prepared mind.
+ - Step by step you get ahead, but rarely in fast spurts.
+ - Understanding both the power of compound interest and the difficulty of getting it is the heart and soul of understanding a lot of things.
+ - All sensible investing is value investing.
+ - Acquire worldly wisdom and adjust your behavior accordingly. If your new behavior gives you a little temporary unpopularity with your peer group then to hell with them.
+ - When you mix raisins and turds, you’ve still got turds.
+ - We have a passion for keeping things simple.
+ - It’s waiting that helps you as an investor, and a lot of people just can’t stand to wait. If you didn’t get the deferred-gratification gene, you’ve got to work very hard to overcome that.
+ - Intelligent people make decisions based on opportunity costs.
+ - It’s been my experience in life if you just keep thinking and reading, you don’t have to work.
+ - Even in pure mathematics they can’t remove all paradox, and the rest of us should also recognize we are going to have to endure a lot of paradox, like it or not.
+ - When you locate a bargain, you must ask, ‘Why me, God? Why am I the only one who could find this bargain?’
+ - The only way to win is to work, work, work, work, and hope to have a few insights.
+ - You’re not going to get very far in life based on what you already know. You’re going to advance in life by what you’re going to learn after you leave here.
+ - Your life must focus on the maximization of objectivity.
+ - Darwin paid particular attention to disconfirming evidence. Objectivity maintenance routines are totally required in life if you’re going to be a great thinker.
+ - The laws of thermodynamic s are such that if the water is getting warmer – and I believe it is – the energy of the weather is going to go up.
+ - Spend each day trying to be a little wiser than you were when you woke up. Day by day, and at the end of the day-if you live long enough-like most people, you will get out of life what you deserve.
+ - Capitalism is a pretty brutal place.
+ - I try to get rid of people who always confidently answer questions about which they don’t have any real knowledge.
+ - Warren is one of the best learning machines on this earth. The turtles who outrun the hares are learning machines. If you stop learning in this world, the world rushes right by you.
+ - If we’ve been a little more successful than other people, is because we always realised that the school of life was always open, and if you were not learning more you are falling behind.
+ - Beta and modern portfolio theory and the like – none of it makes any sense to me.
+ - The game is to keep learning, and I don’t think people are going to keep learning who don’t like the learning process.
+ - Just as a man working with his tools should know its limitations, a man working with his cognitive apparatus must know its limitations.
+ - How do you compete against a true fanatic? You can only try to build the best possible moat and continuously attempt to widen it.
+ - You don’t have to have perfect wisdom to get very rich – just a bit better than average over a long period of time.
+ - For years I have read the morning paper and harrumphed. There’s a lot to harrumph about now.
+ - Don’t do cocaine. Don’t race trains. And avoid AIDS situations.
+ - I have a black belt in chutzpah. I was born with it. Some people, like some of the women I know, have a black belt in spending. They were born with that. But what they gave me was a black belt in chutzpah.
+ - Investing is where you find a few great companies and then sit on your ass.
+ - Is there such thing as a cheerful pessimist? That’s what I am.
+ - You’re looking for a mispriced gamble. That’s what investing is. And you have to know enough to know whether the gamble is mispriced. That’s value investing.
+ - It’s not a competency if you don’t know the edge of it.
+ - Choose clients as you would friends.
+ - The game of life is the game of everlasting learning. At least it is if you want to win.
+ - It’s not the bad ideas that do you in, but the good ones.
+ - To me, it’s obvious that the winner has to bet very selectively. It’s been obvious to me since very early in life. I don’t know why it’s not obvious to very many other people.
+ - Fixable but unfixed bad performance is bad character and tends to create more of itself, causing more damage to the excuse giver with each tolerated instance.
+ - You must force yourself to consider opposing arguments. Especially when they challenge your best loved ideas.
+ - If it is wisdom you’re after, you’re going to spend a lot of time on your ass reading.
+ - Let me know what your problem is, and I will try to make it more difficult for you.
+ - Don’t confuse correlation and causation. Almost all great records eventually dwindle...
+ - In business we often find that the winning system goes almost ridiculously far in maximizing and or minimizing one or a few variables – like the discount warehouses of Costco.
+ - Once you start doing something bad, then it’s easy to take the next step – and in the end, you’re a moral sewer.
+ - People always underestimate the ability of earth to increase its carrying capacity.
+ - The world of derivatives is full of holes that very few people are really aware of. It’s like hydrogen and oxygen sitting on the corner waiting for a little flame.
+ - Some people seem to think there’s no trouble just because it hasn’t happened yet. If you jump out the window at the 42nd floor and you’re still doing fine as you pass the 27th floor, that doesn’t mean you don’t have a serious problem. I would want to address the problem right now.
+ - In my life there are not that many questions I can’t properly deal with using my $40 adding machine and dog-eared compound interest table.
+ - I don’t want to understand Facebook.
+ - It’s stupid the way people extrapolate the past – and not slightly stupid, but massively stupid.
+ - Since mistakes of omission don’t appear in the financial statements, most people don’t pay attention to them. We rub our noses in mistakes of omission – as we just did.
+ - We don’t train executives, we find them. If a mountain stands up like Everest, you don’t have to be a genius to figure out that it’s a high mountain.
+ - The Internet bubble circa 2000 is the most extreme in modern capitalism. In the 1930s, we had the worst depression in 600 years. Today is almost as extreme in the opposite way.
+ - After nearly making a terrible mistake not buying See’s, we’ve made this mistake many times. We are apparently slow learners. These opportunity costs don’t show up on financial statements, but have cost us many billions.
+ - The first chance you have to avoid a loss from a foolish loan is by refusing to make it; there is no second chance.
+ - Deliver to the world what you would buy if you were on the other end.
+ - If we mix only a moderate minority share of turds with the raisins each year, probably no one will recognize what will ultimately become a very large collection of turds.
+ - I do not think you can trust bankers to control themselves. They are like heroin addicts.
+ - This is a good life lesson: getting the right people into your system is the most important thing you can do.
+ - An idea or a fact is not worth more merely because it’s more available to you.
+ - We have found in a long life that one competitor is frequently enough to ruin a business.
+ - A lot of success in life and business comes from knowing what you want to avoid: early death, a bad marriage, etc.
+ - Bull markets go to people’s heads. If you’re a duck on a pond, and it’s rising due to a downpour, you start going up in the world. But you think it’s you, not the pond.
+ - It is remarkable how much long-term advantage people like us have gotten by trying to be consistently not stupid, instead of trying to be very intelligent.
+ - Ben Franklin and Samuel Johnson, he credits their wisdom for his success. “They were both utterly brilliant men. And powerful communicators. Both have helped me all the way through life. Their lessons are easy to assimilate.”
+ - If you skillfully follow the multidisciplinary path, you will never wish to come back. It would be like cutting off your hands.
+ - The idea of excessive diversification is madness. Wide diversification, which necessarily includes investment in mediocre businesses, only guarantees ordinary results.
+ - The ethos of not fooling yourself is one of the best you could possibly have. It’s powerful because it’s so rare.
+ - The more hard lessons you can learn vicariously rather than through your own hard experience, the better.
+ - I think I’ve been in the top 5% of my age cohort all my life in understanding the power of incentives, and all my life I’ve underestimated it.
+ - In the corporate world, if you have analysts, due diligence, and no horse sense, you’ve just described hell.
+ - To some extent, stocks are like Rembrandts. They sell based on what they’ve sold in the past. Bonds are much more rational. No-one thinks a bond’s value will soar to the moon.
+ - We’re the tortoise that has outrun the hare because it chose the easy predictions.
+ - We look for a horse with one chance in two of winning and which pays you three to one.
+ - To say accounting for derivatives is Americais a sewer is an insult to sewage.
+ - See’s candy company was the first high-quality business we ever bought.
+ - I’d rather throw a viper down my shirt front than hire a compensation consultant.
+ - The liabilities are always 100 percent good. It’s the assets you have to worry about.
+ - The harder you work, the more confidence you get. But you may be working hard on something that is false.
+ - There’s more honor in investment management than in investment banking.
+ - If you get into the mental habit of relating what you’re reading to the basic structure of the underlying ideas being demonstrated, you gradually accumulate some wisdom.
+ - The stupid and dishonest accountants allowed the genie of totally inappropriate accounting to descend on derivatives books. And once this has happened – people get status, etc. – it’s impossible to get it back into the bottle.
+ - I call myself the assistant cult leader.
+ - How could economics not be behavioral? If it isn’t behavioral, what the hell is it?
+ - The total amount paid out in dividends is roughly equal to the amount lost in trading and investment advice, so net dividends to shareholders are zero. This is a very peculiar way to run a republic.
+ - Mankind invented a system to cope with the fact that we are so intrinsically lousy at manipulating numbers. It’s called the graph.
+ - Just avoid things like racing trains to the crossing, doing cocaine, etc. Develop good mental habits.
+ - If mutual fund directors are independent, then I’m the lead character in the Bolshoi Ballet.
+ - Warren spends 70 hours a week thinking about investing .
+ - Well in the history of the See’s Candy Company they always say, “I never did it before, and I’m never going to do it again.” And we cashier them. It would be evil not to, because terrible behavior spreads.
+ - I regard it as very unfair, but capitalism without failure is like religion without hell.
+ - The average result has to be the average result. By definition, everybody can’t beat the market. As I always say, the iron rule of life is that only 20% of the people can be in the top fifth. That’s just the way it is.
+ - The number one idea is to view a stock as an ownership of the business and to judge the staying quality of the business in terms of its competitive advantage. Look for more value in terms of discounted future cash-flow than you are paying for. Move only when you have an advantage.
+ - If the value of a company doesn’t just scream out at you, it’s too close.
+ - Stock-picking is like gambling: those who win well, seldom bet, but when they do, they bet heavily.
+ - If you can get good at destroying your own wrong ideas, that is a great gift.
+ - If you want good behavior, don’t pay on a commission basis. Our judges aren’t paid so much a case. We keep them pretty well isolated with a fixed salary. Judges in this whole thing have come out pretty well – there have been relatively few scandals.
+ - Good businesses can survive a little bad management.
+ - Of course the self-serving bias is something you want to get out of yourself. Thinking that what’s good for you is good for the wider civilization and rationalizing all these ridiculous conclusions based on this subconscious tendency to serve one’s self is a terribly inaccurate way to think.
+ - If you rise in life, you have to behave in a certain way. You can go to a strip club if you’re a beer-swilling sand shoveler, but if you’re the Bishop of Boston, you shouldn’t go.
+ - With so much money riding on reported numbers, human nature is to manipulate them. And with so many doing it, you get Serpico effects, where everyone rationalizes that it’s okay because everyone else is doing it. It is always thus.
+ - The investment game always involves considering both quality and price, and the trick is to get more quality than you pay for in price. It’s just that simple.
+ - A director who gets $150,000 per year from a company and needs the money is not independent.
+ - I would argue that a majority of the horrors we face would not have happened if the accounting profession developed and enforced better accounting.
+ - Common stock investors can make money by predicting the outcomes of practice evolution. You can’t derive this by fundamental analysis – you must think biologically.
+ - The game of investing is one of making better predictions about the future than other people. How are you going to do that? One way is to limit your tries to areas of competence. If you try to predict the future of everything, you attempt too much.
+ - As I continued through Cicero’s pages, I found much more material celebrating my way of life...
+ - It’s a finite and very competitive world. All large aggregations of capital eventually find it hell on earth to grow and thus find a lower rate of return.
+ - Quoting Demosthenes, ‘For what each man wishes, that he also believes to be true.’ I would rather make money playing a piano in a whorehouse than arguing that no cost is incurred when employees are paid in stock options instead of cash. I am not kidding.
+ - There’s no way that you can live an adequate life without making many mistakes.
+ - While no real money came down, my family gave me a good education and a marvelous example of how people should behave, and in the end that was more valuable than money. Being surrounded by the right values from the beginning is an immense treasure. Warrenhad that. It even has a financial advantage.
+ - Any time anybody offers you anything with a big commission and a 200-page prospectus, don’t buy it. Occasionally, you’ll be wrong if you adopt “Munger’s Rule”. However, over a lifetime, you’ll be a long way ahead-and you will miss a lot of unhappy experiences.
+ - I find it quite useful to think of a free-market economy – or partly free market economy – as sort of the equivalent of an ecosystem. Just as animals flourish in niches, people who specialize in some narrow niche can do very well.
+ - Although I am very interested in the subject of human misjudgment – and lord knows I’ve created a good bit of it – I don’t think I’ve created my full statistical share, and I think that one of the reasons was I tried to do something about this terrible ignorance I left the Harvard Law School with.
+ - The idea of excessive diversification is madness.
+ - The old culture had come out of poverty, out of English customs.
+ - I think gold is a great thing to sew onto your garments if you’re a Jewish family in Vienna in 1939, but civilized people don’t buy gold, they invest in productive businesses.
+ - We’re emphasizing the knowable by predicting how certain people and companies will swim against the current. We’re not predicting the fluctuation in the current.
+ - A foreign correspondent, after talking to me for a while, once said: “You don’t seem smart enough to be so good at what you’re doing. Do you have an explanation?”
+ - What matters most: passion or competence that was born in? Berkshireis full of people who have a peculiar passion for their own business. I would argue passion is more important than brain power.
+ - Wrigley is a great business, but that doesn’t solve the problem. Buying great businesses at advantageous prices is very tough.
+ - Avoid working directly under somebody you don’t admire and don’t want to be like.
+ - At Berkshire Hathaway we do not like to compete against Chinese manufacturers.
+ - We don’t claim to have perfect morals, but at least we have a huge area of things that, while legal, are beneath us. We won’t do them. Currently, there’s a culture in Americathat says that anything that won’t send you to prison is OK.
+ - It’s in the nature of stock markets to go way down from time to time. There’s no system to avoid bad markets. You can’t do it unless you try to time the market, which is a seriously dumb thing to do. Conservative investing with steady savings without expecting miracles is the way to go.
+ - Trying to prioritize among things we’re unlikely to do is pretty fruitless.
+ - The name of the game is continuing to learn. Even if you’re very well trained and have some natural aptitude, you still need to keep learning.
+ - In fact I’ve probably never seen such a wide moat.
+ - A few public hangings will really change behavior. One of our Presidents said if he could execute three people each year for no cause, it would make it a lot easier to govern. When someone said that’s not enough, he said, “Oh yes it is, because I’d publish the list of people under consideration.”
+ - I think the notion that liquidity of tradable common stock is a great contributor to capitalism is mostly twaddle. The liquidity gives us these crazy booms, so it has as many problems as virtues.
+ - In engineering, people have a big margin of safety. But in the financial world, people don’t give a damn about safety. They let it balloon and balloon and balloon. It’s aided by false accounting.
+ - We have a history when things are really horrible of wading in when no one else will.
+ - You must value the business in order to value the stock.
+ - Strategic plans cause more dumb decisions than anything else in America.
+ - I’ve heard that one-half of the students at elite schools want to go into private equity or hedge funds. They want to keep up with their age cohorts at Goldman. This can’t possibly end well in terms of meeting these expectations.
+ - The theory of modern education is that you need a general education before you specialize. And I think to some extent, before you’re going to be a great stock picker, you need some general education.
+ - Wells Fargo behaves better than the average big bank. But nobody’s perfect.
+ - Part of that, I think, is being able to tune out folly, as distinguished from recognizing wisdom. You’ve got whole categories of things you just bat away so your brain isn’t cluttered with them. That way, you’re better able to pick up a few sensible things to do.
+ - I don’t think vengeance is much good.
+ - We all are learning, modifying, or destroying ideas all the time. Rapid destruction of your ideas when the time is right is one of the most valuable qualities you can acquire. You must force yourself to consider arguments on the other side.
+ - Being short and seeing a promoter take the stock up is very irritating. It’s not worth it to have that much irritation in your life.
+ - It’s hard to predict what will happen with two brands in a market. Sometimes they will behave in a gentlemanly way, and sometimes they’ll pound each other. I know of no way to predict whether they’ll compete moderately or to the death. If you could figure it out, you could make a lot of money.
+ - If it happens every year like clockwork, what’s so extraordinary about it?
+ - I think we have some special talents. That being said, I think it’s dangerous to rely on special talents – it’s better to own lots of monopolistic businesses with unregulated prices. But that’s not the world today. We have made money exercising our talents and will continue to do so.
+ - I don’t spend much time regretting the past, once I’ve taken my lesson from it. I don’t dwell on it.
+ - A banker who is allowed to borrow money at X and loan it out at X plus Y will just go crazy and do too much of it if the civilization doesn’t have rules that prevent it.
+ - Well, the questioner came from Singapore which has perhaps the best economic record in the history of developing an economy and therefore he referred to 15% per annum as modest. It’s not modest-it’s arrogant. Only someone from Singapore would call it modest.
+ - Like the stocks of both Berkshire and Wesco to trade within hailing distance of what we think of as intrinsic value. When it runs up, we try to talk it down. That’s not at all common in Corporate America, but that’s the way we act.
+ - We only want what success we can get despite encouraging others to share our general views about reality.
+ - There are worse situations than drowning in cash and sitting, sitting, sitting. I remember when I wasn’t awash in cash – and I don’t want to go back.
+ - If all you succeed in doing in life is getting rich by buying little pieces of paper, it’s a failed life. Life is more than being shrewd in wealth accumulation.
+ - The way to win is to work, work, work, work and hope to have a few insights And you’re probably not going to be smart enough to find thousands in a lifetime. And when you get a few, you really load up. It’s just that simple.
+ - The tax code gives you an enormous advantage if you can find some things you can just sit with.
+ - There has never been a master plan. Anyone who wanted to do it, we fired because it takes on a life of its own and doesn’t cover new reality. We want people taking into account new information.
+ - It’s dangerous to short stocks.
+ - Economics is in many respects the queen of the soft sciences. It’s expected to be better than the rest. It’s my view that economics is better at the multi-disciplinary stuff than the rest of the soft science. And it’s also my view that it’s still lousy...
+ - We have to have a special insight, or we’ll put it in the ‘too tough’ basket. All of you have to look for a special area of competency and focus on that.
+ - The best armor of old age is a well-spent life preceding it.
+ - It takes almost no capital to open a new See’s candy store. We’re drowning in capital of our own that has almost no cost. It would be crazy to franchise stores like some capital-starved pancake house. We like owning our own stores as a matter of quality control.
+ - Our success has come from the lack of oversight we’ve provided, and our success will continue to be from a lack of oversight. But if you’re going to provide minimal oversight, you have to buy carefully. It’s a different model from GE’s. GE’s works – it’s just very different from ours.
+ - Our biggest mistakes, were things we didn’t do, companies we didn’t buy.
+ - I see almost no change in the price of the composite product that flows through Costco I don’t feel sorry for the people who pay $27 million for an 8,000-square-foot condo in Manhattan. So inflation comes in places.
+ - In Gillette’s case, they keep surfing along new technology which is fairly simple by the standards of microchips. But it’s hard for competitors to do. So they’ve been able to stay constantly near the edge of improvements in shaving.
+ - Over many decades, our usual practice is that if something we like goes down, we buy more and more. Sometimes something happens, you realize you’re wrong, and you get out. But if you develop correct confidence in your judgment, buy more and take advantage of stock prices.
+ - Understanding how to be a good investor makes you a better business manager and vice versa.
+ - A lot of share-buying, not bargain-seeking, is designed to prop stock prices up. Thirty to 40 years ago, it was very profitable to look at companies that were aggressively buying their own shares. They were motivated simply to buy below what it was worth.
+ - No CEO examining books today understands what the hell is going on.
+ - It’s human nature to extrapolate the recent past into the future, but it’s terrible that managements go along with this.
+ - You have to have a temperament to grab ideas and do sensible things. Most people don’t grab the right ideas or don’t know what to do with them.
+ - I’m a bull on Berkshire Hathaway. There may be some considerable waiting, but I think there are some good days ahead.
+ - We may well have a competitive advantage buying decent businesses at decent prices. But they won’t be fabulous businesses and fabulous prices. There’s too much competition and money out there, with many buyout specialists.
+ - The investment game is getting more and more competitive.
+ - It took us months of buying all the Coke stock we could to accumulate $1 billion worth – equal to 7% of the company. It’s very hard to accumulate major positions.
+ - There’s no way that you can live an adequate life without many mistakes. In fact, one trick in life is to get so you can handle mistakes. Failure to handle psychological denial is a common way for people to go broke.
+ - For some odd reason, I had an early and extreme multidisciplinary cast of mind. I couldn’t stand reaching for a small idea in my own discipline when there was a big idea right over the fence in somebody else’s discipline. So I just grabbed in all directions for the big ideas that would really work.
+ - One of the smartest things a person can do is dampen investment expectations, especially with Berkshire. That would be mature and responsible. I like our model and we should do nicely.
+ - When it gets into these spikes, with shortages and uproar and so forth, people go bananas, but that’s capitalism.
+ - I don’t invest in what I don’t understand. And I don’t want to understand Facebook.
+ - We’re partial to putting out large amounts of money where we won’t have to make another decision.
+ - I remember the $0.05 hamburger and a $0.40-per-hour minimum wage, so I’ve seen a tremendous amount of inflation in my lifetime. Did it ruin the investment climate? I think not.
+ - You need a different checklist and different mental models for different companies. I can never make it easy by saying, ‘Here are three things.’ You have to derive it yourself to ingrain it in your head for the rest of your life.
+ - If you can buy the best companies, over time the pricing takes care of itself.
+ - Why should it be easy to do something that, if done well, two or three times, will make your family rich for life?
+ - I always like it when someone attractive to me agrees with me, so I have fond memories of Phil Fisher. The idea that it was hard to find good investments, so concentrate in a few, seems to me to be an obviously good idea. But 98% of the investment world doesn’t think this way.
+ - If you have competence, you know the edge. It wouldnt be a competence if you didnt know where the boundaries lie. Asking whether youve passed the boundary is a question that almost answers itself.
+ - I think the idea that the hedge fund manager gets lower taxes than the taxi driver or the physics professor is insane. The legislators who leave that policy in place are derelict in their duties to be rational and fair. There are plenty of them in both political parties. It’s totally outrageous.
+ - If you always tell people why, they’ll understand it better, they’ll consider it more important, and they’ll be more likely to comply.
+ - Even if you assume that the whole economy would work better had we never had double taxation, having the envy and resentment of the richest paying low or no taxes screams of injustice. You have to have a fair system.
+ - I think corporate managers should learn to be better investors because it would make them better managers.
+ - I think you’ll make more money in the end with good ethics than bad. Even though there are some people who do very well, like Marc Rich-who plainly has never had any decent ethics, or seldom anyway. But in the end, Warren Buffett has done better than Marc Rich-in money-not just in reputation.
+ - One metric catches people. We prefer businesses that drown in cash. An example of a different business is construction equipment. You work hard all year and there is your profit sitting in the yard. We avoid businesses like that. We prefer those that can write us a check at the end of the year.
+ - Here’s one truth that perhaps your typical investment counselor would disagree with: if you’re comfortably rich and someone else is getting richer faster than you by, for example, investing in risky stocks, so what?! Someone will always be getting richer faster than you. This is not a tragedy.
+ - Fancy computers are engaging in legalized front-running. The profits are clearly coming from the rest of us – our college endowments and our pensions. Why is this legal? What the hell is the government thinking? It’s like letting rats into a restaurant.
+ - I feel that by getting rich in the way I did, I think my own example has hurt my own country.
+ - We want very good leaders who have a lot of power.
+ - Being rational is a moral Imperative. You should never be stupider than you need to be.
+ - In the 1930s, there as a stretch here you could borrow more against the real estate than you could sell it for. I think that’s hat’s going on in today’s private-equity world.
+ - Expect hogs to eat a lot more in the presence of a lot of hog wash.
+ - If you have the opportunities of Berkshire, an investment in gold is dumb.
+ - I think there’s something to be said for developing the disposition to own stocks without fretting.
+ - We don’t have any miraculous way of avoiding taxes at Wesco and Berkshire.
+ - I’m proud to be associated with the value system at Berkshire Hathaway; I think you’ll make more money in the end with good ethics than bad.
+ - Once you get into debt, it’s hell to get out. Don’t let credit card debt carry over. You can’t get ahead paying eighteen percent.
+ - There is the sheer amount of Franklin’s wisdom. And the talent. Franklin played four instruments. He was the nation’s leading scientist and inventor, plus a leading author, statesman, and philanthropist. There has never been anyone like him.
+ - The interesting thing is the field is so big – it’s enormous. One thing a modern civilization needs is energy.
+ - In the LBO field there is a buried “covariance” with marketable equities, toward disaster in generally bad business conditions, and competition is now extremely intense.
+ - We have never had the will to enforce the immigration laws. What you see is what you’ll continue to get.
+ - It’s a rare business that doesn’t have a way worse future than it has a past.
+ - A lot of our respected financial institutions are just casinos in drag.
+ - We tend to buy things – a lot of things – where we don’t know exactly what will happen, but the outcome will be decent.
+ - The basic concept of value to a private owner and being motivated when you’re buying and selling securities by reference to intrinsic value instead of price momentum – I don’t think that will ever be outdated.
+ - You’ve got to have models in your head and you’ve got to array you experience – both vicarious and direct – onto this latticework of mental models.
+ - Forgetting your mistakes is a terrible error if you are trying to improve your cognition.
+ - A board member should be perfectly willing to leave at any time and willing to make the tough calls.
+ - I think the main figure that matters to all of us, including people in the media, is: How does GDP per capita grow? And those figures have been very good. There is a huge flux both up and down, so it isn’t like we’re all static in status. What’s important is that pie grows.
+ - We have the same problem as everyone else: It’s very hard to predict the future...
+ - It would be one of the most irritating experiences in the world to do a lot of work to uncover a fraud and then at have it go from X to 3X and at h the crooks happily partying with your money while you’re meeting margin calls. Why would you want to go within hailing distance of that?
+ - Financial institutions make us nervous when they’re trying to do well.
+ - I bet Richard Fuld doesn’t have an ounce of contrition. It’s just megalomania. When it’s like that, you need rules to prevent catastrophe. When banks are borrowing the government’s credit rating, you need rules to prevent stupid things.
+ - Berkshireis in the business of making easy predictions If a deal looks too hard, the partners simply shelve it.
+ - Berkshire’s past record has been almost ridiculous. If Berkshirehad used even half the leverage of, say, Rupert Murdoch, it would be five times its current size.
+ - A rough rule in life is that an organization foolish in one way in dealing with a complex system is all too likely to be foolish in another.
+ - Move only when you have an advantage. It’s very basic. You have to understand the odds and have the discipline to bet only when the odds are in your favor.
+
+333 quotes

@@ -1,0 +1,256 @@
+ - There is no surer proof of Christ’s divinity than that he is still so hated some two thousand years after his death.
+ - Liberals are stalwart defenders of civil liberties – provided we’re only talking about criminals.
+ - The question isn’t whether we ‘need’ guns. It’s wether the government should have a monopoly on force.
+ - The presumption of innocence only means you don’t go right to jail.
+ - It may be annoying, but the rash of hijackings by Connecticut WASP girls surely explains the time-consuming – but still somehow completely useless – examination of my personal effects. We all have to make sacrifices for airline safety.
+ - The beauty of being a liberal is that history always begins this morning. Every day liberals can create a new narrative that destroys the past as it occurred. We have always been at war with Eastasia.
+ - Not all Muslims may be terrorists, but all terrorists are Muslims.
+ - No wonder you guys lost.
+ - My only regret with Timothy McVeigh is he did not go to the New York Times Building.
+ - The religion that has transformed Western civilization for two millennia is a blank slate for liberals. Their closest reference point is conservative Christians, meaning people you’re not supposed to hire. And these are the people who carp about George Bush’s alleged lack of intellectual curiosity.
+ - I know Jesus Christ died for my sins, and that’s all I really need to know.
+ - College campuses have become fascist colonies of anti-American hate speech, hypersensitivity, speech codes, banded words and prohibited scientific inquiry.
+ - I’m a Christian first, and a mean-spirited, bigoted conservative second, and don’t you ever forget it. You know who else was kind of “divisive” in terms of challenging the status quo and the powers-that-be of his day? Jesus Christ.
+ - A false argument should be refuted, not named. That’s the basic idea behind freedom of speech. Arguments by name-calling, rather than truth and light, can generally be presumed fraudulent.
+ - Science is something that you have facts. They can be tested. They can be checked. Heterosexual AIDS, another one.
+ - Some people say I’m really ugly and anorexic; some say the only reason I’m on TV is because I’m pretty. I say to them: Get your slander straight. You are what you are, whether you’re small or skinny or smart or dumb. Just do what you do.
+ - I cut through the nonsense with the blinding light of truth.
+ - Democrats are firm believers in the welfare state for their own constituents, whether that’s a crack addict mother of five or a Wall Street banker.
+ - My track record is pretty good on predictions.
+ - Being anti-war in Hollywood was an act of bravery on the order of the keynote speaker at a PLO dinner making jokes about Ariel Sharon.
+ - Now liberals compare their every riot, every traffic blockage, every Starbucks-window-smashing street protest to the civil rights movement – which was only necessary because of them.
+ - I’m a problem-solver, and you’re welcome.
+ - Although God believers don’t need evolution to be false, atheists need evolution to be true.
+ - It would be a much better country if women did not vote. That is simply a fact. In fact, in every presidential election since 1950 – except Goldwater in ’64 – the Republican would have won, if only the men had voted.
+ - If we took away women’s right to vote, we’d never have to worry about another Democrat president.
+ - By 1973, John Kerry had already accused American soldiers of committing war crimes in Vietnam, thrown someone else’s medals to the ground in an anti-war demonstration, and married his first heiress.
+ - I am emboldened by my looks to say things Republican men wouldn’t.
+ - I don’t really understand the point about carping about every casualty, every bombing, every death. War is hell. That’s why people say war is hell.
+ - Six imams removed from a US Airways flight from Minneapolis to Phoenix are calling on Muslims to boycott the airline. If only we could get Muslims to boycott all airlines, we could dispense with airport security altogether.
+ - But ultimately, the purpose of marriage is to transmit civilization to the next generation. There has never been an institution that does it as well as marriage, and that is marriage between a man and a woman.
+ - Clinton masturbates in the sinks.
+ - There’s never a recession if you work for the government.
+ - Liberals can’t just come out and say, they want to take more of our money, kill babies, and discriminate on the basis of race.
+ - I think being called a she-devil by a trial lawyer is meant as a compliment.
+ - As the saying goes: God made man and woman; Colonel Colt made them equal.
+ - Why not go to war just for oil? We need oil. What do Hollywood celebrities imagine fuels their private jets? How do they think their cocaine is delivered to them?
+ - Words mean nothing to liberals. They say whatever will help advance their cause at the moment, switch talking points in a heartbeat, and then act indignant if anyone uses the exact same argument they were using five minutes ago.
+ - A married woman, the safest place for any woman to be is at home with her husband.
+ - In the corporeal world, international law is whatever the United States and Great Britain say it is.
+ - I defy any of my coreligionists to tell me they do not laugh at the idea of Dawkins burning in hell.
+ - It’s just like a liberal, they import slaves, they hold slaves, they fight for slavery, they go to war in a civil war to defend slavery. They then install legal discrimination against blacks for a hundred years.
+ - In California, the fabulously rich support the poor with government jobs, paid for by the middle class which is now living in Arizona.
+ - Democrats couldn’t care less if people in Indiana hate them. But if Europeans curl their lips, liberals can’t look at themselves in the mirror.
+ - I’m more of a man than any liberal.
+ - We’ve finally given liberals a war against fundamentalism, and they don’t want to fight it. They would, except it would put them on the same side as the United States.
+ - There are always going to be Muslim atrocities! Whenever the media starts obsessing with ISIS, I think you’re hiding something.
+ - The truth cannot be delivered with novocaine.
+ - According to the California Hospital Association, health care for illegal aliens is costing state taxpayers well over $1 billion a year. Eighty-four hospitals across California have already been forced to close because of unpaid bills by illegal aliens.
+ - Invalidating laws has absolutely nothing to do with judicial activism. It depends on whether the law is unconstitutional or not. That’s really the key point.
+ - Perhaps like the many and various meanings of the word “we,” liberals use the word “unsubstantiated” to mean “tested repeatedly and proved true.”
+ - Liberals despise the rule of law because it interferes with their ability to rule by mob. They love to portray themselves as the weak taking on the powerful. But it is the least powerful who suffer the most once the rule of law is gone.
+ - If you don’t hate Clinton and the people who labored to keep him in office, you don’t love your country.
+ - If you attack the Clintons publicly, make sure all your friends know that you are not planning suicide, that you’re not careless when you drive a car.
+ - Democrats haven’t been this upset about an American engaging in free speech since Juanita Broaddrick opened her yap.
+ - When we were at peace, Democrats wanted to raise taxes. Now there’s a war, so Democrats want to raise taxes. When there was a surplus, Democrats wanted to raise taxes. Now that there is a mild recession, Democrats want to raise taxes.
+ - The man responsible for keeping Americans safe from another terrorist attack on American soil for nearly seven years now will go down in history as one of America’s greatest presidents.
+ - As Bush said, after detailing some of Saddam Hussein’s charming practices: “If this is not evil, then evil has no meaning.” It’s not as if anyone is worried that we’re making a horrible miscalculation and could be removing the Iraqi Abraham Lincoln by mistake.
+ - Liberals dispute that Reagan won the Cold War on the basis of their capacity to put mocking quotation marks around the word, won. That’s pretty much the full argument: Restate a factual proposition with sneering quote marks.
+ - When your party is controlled by a billionaire rootless international financier who expresses ‘no sense of guilt’ for collaborating with the Nazis, you might want to ease up on lecturing the rest of us about the evil rich.
+ - Liberals want the family destroyed, they want religion destroned, because then you have loyalty directly to the state.
+ - Liberals believe in burning the American flag, urinating on crucifixes, and passing out birth control pills to 11-year-olds without telling their parents – but God forbid an infidel touch a Quran at Guantanamo.
+ - It’s impossible to talk without labels. “Dog” is a label, but that doesn’t mean it’s meaningless, nor does it mean there’s no difference in a Shih Tzu and a Doberman.
+ - I think there should be a literacy test and a poll tax for people to vote.
+ - It was not lost on Osama bin Laden that it only took 18 dead in Somalia for the Great Satan to pull out. It should not be lost on Americans that this is what the Democrats are again demanding we do in Iraq.
+ - Liberals never, ever drop a heinous idea; they just change the name. Abortion becomes choice, communist becomes progressive, communist dictatorship becomes people’s democratic republic and Nikita Khrushchev becomes Barack Obama.
+ - For years, Mount Holyoke professor Joseph ‘Full Metal Jacket’ Ellis had been regaling students, interviewers and friends with gripping stories of his service in Vietnam.
+ - No matter what argument you make against evolution, the response is Well, you know, it’s possible to believe in evolution and believe in God. Yes, and it’s possible to believe in Spiderman and believe in God, but that doesn’t prove Spiderman is true.
+ - Scott Brown’s victory in Massachusetts has got to have Ted Kennedy rolling over in his grave, spilling his drink.
+ - No torture has yet been devised that could get a liberal to mention the poor, beleaguered Kurds dancing in the streets because Saddam is gone.
+ - Clinton’s attempt to socialize healthcare was the second most disgusting thing he did in the oval office. I can’t remember was the first thing was.
+ - Political debate with liberals is basically impossible in America today because liberals are calling names while conservatives are trying to make arguments.
+ - Before the New York Times starts running “Portraits in Grief” of former Enron employees, it’s worth remembering that even after the collapse, Enron stock is still worth more than the entire Social Security “trust fund.”
+ - I’ve decided to cut out the part of the speech where I say anything nice about Democrats.
+ - Whether they are defending the Soviet Union or bleating for Saddam Hussein, liberals are always against America. They are either traitors or idiots, and on the matter of America’s self-preservation, the difference is irrelevant.
+ - If we’re so cruel to minorities, why do they keep coming here? Why aren’t they sneaking across the Mexican border to make their way to the Taliban?
+ - I really liked Deadheads and the whole Dead concert scene: the tailgating, the tie-dye uniforms, the camaraderie it was like NASCAR for potheads.
+ - There are a lot of bad republicans; there are no good democrats.
+ - Talking to liberals is much more fun now that we have Lexis-Nexis.
+ - There is a growing body of evidence that radiation in excess of what the government says are the minimum amounts we should be exposed to are actually good for you and reduce cases of cancer.
+ - Contempt is the emotion we feel for an opponent whose arguments are too formidable to refute.
+ - If we had complete knowledge, you wouldn’t need any intelligence gathering whatsoever. The president isn’t god. We do have intelligence gathering.
+ - Where there’s smoke around a conservative, there are journalists furiously rubbing two sticks together.
+ - With the terrible earthquake and resulting tsunami that have devastated Japan, the only good news is that anyone exposed to excess radiation from the nuclear power plants is now probably much less likely to get cancer.
+ - Even Obama’s staunchest supporters are starting to leave him. Last week Michelle Obama demanded to see a copy of his birth certificate.
+ - I’m not going to be lectured to.
+ - Democrats always assure us that deterrence will work, but when the time comes to deter, they’re against it.
+ - Even if evolution were true, it wouldn’t disprove God. God has performed more spectacular feats than evolution. It’s not even a daunting challenge to a belief in God. If you want something that complicates a belief in God, try coming to terms with Michael Moore being one of God’s special creatures.
+ - David Axelrod says we need to inspire more young people to be journalists? How about inspiring journalists to be journalists?
+ - I support guns and I support the death penalty. Half of my interviews are convincing liberals they’re not liberal.
+ - They’re Democrats always accusing us of repressing their speech. I say let’s do it. Let’s repress them. Frankly, I’m not a big fan of the First Amendment.
+ - Hearing politicians tell us we can’t afford a tax cut is like listening to a glutton tell you he can’t afford a diet. In no other context do people talk about paying for money they don’t have. I can’t pay for your refusal to give me money because I need a yacht.
+ - On one hand, liberals are enraged at the heinousness of Mark Sanford – whom they didn’t vote for – for not resigning and, on the other, they’re enraged at Palin – whom they also didn’t vote for – for resigning.
+ - Obamacare would never have passed without decades of massive immigration from the Third World. Liberals didn’t change any minds – they changed the voters.
+ - The New York Times editorial page is like a Ouija board that has only three answers, no matter what the question. The answers are: higher taxes, more restrictions on political speech and stricter gun control.
+ - Liberals don’t have to emerge from the hot tub and start attending NASCAR races or – God forbid – church, but it would be nice if they’d stop lying all the time.
+ - Guns are our friends because in a country without guns, I’m what’s known as “prey.” All females are.
+ - Like so many liberal icons, Marx seldom bathed and left his wife and children in poverty. As Schlafly says, no wonder liberal women think men are pigs: Their men are pigs.
+ - In the spirit of reaching across the aisle, we owe it to the Democrats to show their president the exact same kind of respect and loyalty that they have shown our recent Republican president.
+ - You can describe Christianity and you can also describe liberalism. Christianity has certain beliefs, tenets, doctrines. Not all Christians are always living up to them. Similarly, not all liberals are living up to the tenets of liberalism.
+ - You know, OK, I made a few jokes and they killed 3000 Americans. Fair trade.
+ - Since liberals never print retractions, they can say anything. What they said in the past is always deemed inadmissible and unfair to quote.
+ - Democrats don’t resent the rich on behalf of the poor. They resent the rich on behalf of the government.
+ - Like the archers of Agincourt, John O’Neal and the 254 Swiftboat Veterans took down their own haughty Frenchman.
+ - I would rank George Washington as America’s greatest president, but he only had to defeat what was then the world’s greatest military power with a ragtag group of irregulars and some squirrel guns, whereas Ronald Reagan had to defeat liberals.
+ - When Minutemen leader Jim Gilchrist and his black colleague Marvin Stewart were invited by the College Republicans to speak at Columbia last year, the tolerant, free-speech-loving Columbia students violently attacked them, shutting down the speech.
+ - Whenever a liberal begins a peevish complaint with a throat-clearing equivocation like, “Of course, we all agree,” your antennae should go up. This is how liberals couch statements they assume all Americans would demand they make, but which they secretly chafe at.
+ - So for those of you who haven’t read any of my five best-selling books: Liberals are driven by Satan and lie constantly.
+ - The most crazed religious fanatic argues in more calm and reasoned tones than liberals responding to statistics on concealed-carry permits.
+ - Once man’s connection to the divine is denied, you can reason yourself from here to anywhere.
+ - As the leader of twelve apostles, even Jesus had more executive experience than Obama.
+ - Liberals love to strike generous, humanitarian poses with other people’s lives.
+ - Democrats cannot conceive of “hate speech” towards Christians because, in their eyes, Christians always deserve it.
+ - This is what Christianity is. We believe the Old Testament, but ours is more like Federal Express. You have to obey laws.
+ - The spirit of the First Amendment has been effectively repealed for conservative speech by a censorious, accusatory mob.
+ - As president, Clinton sold burial plots in Arlington Cemetery and liberals shrugged it off. What really gets their goat is the autopen. Evidently, the important thing was that every one of those pardons Clinton sold for cash on his last day in office was signed by Bill Clinton personally.
+ - As long as American liberals are going to keep announcing that they’re embarrassed for their country, how about being embarrassed by our public schools or by our ridiculous trial lawyer culture that other countries find laughable?
+ - We should invade their countries, kill their leaders and convert them to Christianity.
+ - Whenever you come across a screw-up this big, you know the government is behind it.
+ - I love to engage in repartee with people who are stupider than I am.
+ - It is an article of faith with the Democrats that they must fool Americans by simulating agreement with normal people. The winner of the Democratic primary is always the candidate who does the best impersonation of an American.
+ - If Hitler hadn’t turned against their beloved Stalin, liberals would have stuck by him, too.
+ - There were precisely two groups of people who desperately wanted airport security to be browbeaten into giving suspicious passengers a pass: terrorists and Democrats.
+ - Instead of ‘counterrevolutionaries,’ liberals’ opponents are called ‘haters,’ ‘those who seek to divide us,’ ‘tea baggers,’ and ‘right-wing hate groups.’ Meanwhile, conservatives call liberals ‘liberals’-and that makes them testy.
+ - You want to be careful not to become just a blowhard.
+ - Liberals have managed to eliminate the idea of manly honor. Instead, all they have is womanly indignation.
+ - His pomposity is overshadowed only by his rank stupidity.
+ - A word to those of you out there who have yet to be offended by something I have said: Please be patient. I am working as fast as I can.
+ - We should invade their countries, kill their leaders and convert them to Christianity. We weren’t punctilious about locating and punishing only Hitler and his top officers. We carpet-bombed German cities; we killed civilians. That’s war. And this is war.
+ - Being nice to people is, in fact, one of the incidental tenets of Christianity, as opposed to other religions whose tenets are more along the lines of ‘kill everyone who doesn’t smell bad and doesn’t answer to the name Mohammed’
+ - Liberal moms like soccer because it’s a sport in which athletic talent finds so little expression that girls can play with boys. No serious sport is co-ed, even at the kindergarten level.
+ - To promote the sales of GM vehicles, Obama says the government will stand by your GM car warranty. And all the taxpayers will get a lube job.
+ - The thing I like about Bush is I think he hates liberals.
+ - In the very next election, the American people elected 63 new Republicans to the House of Representatives – the largest sweep of Congress for any party since 1948. Even liberal Massachusetts elected a Republican senator solely because of his vow to vote against Obamacare.
+ - Conservatives have a problem with women. For that matter, all men do.
+ - Britain makes it absolutely, blindingly clear that it is liberal social welfare policies. And they have turned a good chunk of their native population into animals. They are absolute animals. They are not humans with free will. They eat, they screw, they drink.
+ - My libertarian friends are probably getting a little upset now but I think that’s because they never appreciate the benefits of local fascism.
+ - Liberals hate religion because politics is a religion substitute for liberals and they can’t stand the competition.
+ - The fact that a Republican is in the late Senator Kennedy’s old seat probably must have him rolling in his grave, probably spilling his drink.
+ - What liberals mean by ‘goose-stepping’ or ‘ethnic cleansing’ is generally something along the lines of ‘eliminating taxpayer funding for the National Endowment for the Arts.’ But they can’t say that, or people would realize they’re crazy.
+ - Swing voters are more appropriately known as the ‘idiot voters’ because they have no set of philosophical principles. By the age of fourteen, you’re either a Conservative or a Liberal if you have an IQ above a toaster.
+ - There are some honorable politicians; and God bless them, there aren’t many of them – but they’re narcissistic. They need people to love them.
+ - All Democrats for the last 30 years have tried to stimulate the economy by giving ‘tax cuts’ to people who don’t pay taxes.
+ - The left’s idea of science is that we should all be riding bicycles and using the Clivus Multrum composting latrines instead of flush toilets. Anyone who dissents, they say – while adjusting their healing crystals for emphasis – is afraid of science.
+ - When a feminist as strident as Garofalo is defending the Hussein regime, you have to wonder if her newfound sobriety has hit a rough patch.
+ - Our Blacks Are Better Than Their’s.
+ - Liberal soccer moms are precisely as likely to receive anthrax in the mail as to develop a capacity for linear thinking.
+ - I never wanted to be famous and the only part I like is that it means people are reading my books and listening to me on TV and radio.
+ - I love the question-and-answer. I love to see liberals try to thrash their way to a coherent argument. And actually, I think it’s fun to debate.
+ - Some jobs are so dirty you can only send in someone who has the finely honed hatred of liberals acquired at elite universities to do them.
+ - Republicans are afraid to act in accordance with the election results. Republicans seem to be in denial about election results. It’s one thing for Democrats to be in denial about the Republican electoral juggernaut, but it’s strange that Republicans are in denial about it too.
+ - What actually happened during the Clinton presidency? No one can remember anything about it except the bimbos, the lies, and the felonies.
+ - Why is it that the same people who have the least confidence in the police and the military are the most willing to allow only the police and the military to have guns?
+ - I’m getting a little tired of politicians trying to prove how ‘moderate’ and ‘centrist’ they are by taking more of my money and freedom. Where’s this center – somewhere between Lenin and Stalin?
+ - At least when right-wingers rant there’s a point.
+ - If you want to find the cool, anti-establishment rebels who don’t answer to The Man on college campuses today, you have to go to a meeting of the College Republicans. They are rebelling against at least 99 percent of their professors.
+ - Why couldn’t Obama have picked somebody respectable as his running mate, you know, like John Kerry did?
+ - Any growing interest in soccer can only be a sign of the nation’s moral decay.
+ - Liberals become indignant when you question their patriotism, but simultaneously work overtime to give terrorists a cushion for the next attack and laugh at dumb Americans who love their country and hate the enemy.
+ - Almost everything wrong with our health care system comes from government interference with the free market. If the health care system is broken, then fix it. Don’t try to invent a new one premised on all the bad ideas that are causing problems in the first place.
+ - I never sought to be a pundit, or on TV, or a writer-it just kind of came to me. If you just keep doing what you want to do, you wind up doing precisely what you want to be doing. Don’t resist how life bats you around.
+ - I would like evolution to join the roster of other discredited religions.
+ - You will find liberals always rooting for savages against civilization.
+ - If any other religious cult knew so few basic facts about its own seminal beliefs as the liberal cult does about Joe McCarthy, Janet Reno would gas them.
+ - When every one of your arguments is characterized an attempt to bring back slavery or resegregate lunch counters, it’s a little hard to have any sort of productive debate.
+ - There’s been another mass shooting by a crazy person, and liberals still refuse to consider institutionalizing the dangerously mentally ill.
+ - Everything that liberals want they call a civil right. This avoids them having to argue about it and puts the halo around the issue.
+ - I am the illegal alien of commentary. I will do the jokes that no one else will do.
+ - These days, even a moderate Democrat is someone who thinks you shouldn’t be taught fisting until you’re at least 12 years old.
+ - Frankly, I’m getting a lot of great publicity.
+ - If liberals think they are losing elections because of the conservative bias in the media, they may as well give up right now.
+ - If only Al Sharpton were around, Lincoln would have known he was a victim of racism.
+ - It’s interesting how Obama’s adorers in the press keep comparing him to Lincoln and Reagan. Apparently they can’t think of a Democrat president worthy of being compared to.
+ - The really amazing part, to me, was when Florida made it into the Final Four, the Democrats didn’t demand a recount.
+ - Liberalism is part of a religious disorder that demands a belief that life is controllable.
+ - We have way too many lawyers, the price for them has plummeted and you will have a miserable and unsatisfying life. Unless you get into Harvard Law. You could be in a yurt on the Mongolian Plateau and they’ll say, “Oh you must be smart. You went to Harvard Law.”
+ - Democrats all claim they’ll get rough with the terrorists, but they can’t even face Brit Hume.
+ - Instead of seeking wisdom, liberals desire to be seen as clever by being counterintuitive, crazy, and outre.
+ - Press passes can’t be that hard to come by if the White House allows that old Arab Helen Thomas to sit within yards of the President.
+ - Who’s gonna give me a TV show? I didn’t work for an impeached, disbarred President who was held in contempt by a federal judge. That’s what they look for in objective reporters.
+ - It confirms my idea that you also need more liberal gun laws. Guns lead to a polite society, as we like to say in the United States. And I think that all of western Canada would agree with me.
+ - Until you can intelligently articulate the other side’s position, you are not an adult. You are a liberal.
+ - Liberals tell amazing lies about guns and everything else.
+ - From the people who brought you “zero tolerance,” I present the Gun-Free Zone! Yippee! Problem solved! Bam! Bam! Everybody down! Hey, how did that deranged loner get a gun into this Gun-Free Zone?
+ - That is Obama’s signature move: Invent people who are saying ridiculous things and then encourage the audience to laugh at these made-up buffoons.
+ - We just want Jews to be perfected, as they say.
+ - Back when they supported segregation, Lott and Thurmond were Democrats.
+ - Public school teachers are the new priesthood while traditional religion is ridiculed and maligned.
+ - When you try to figure out what the religious right is, it ultimately comes down either to one man, Pat Robertson, or anyone who believes in a higher being and wants their taxes cut.
+ - We were terrified that Jones would settle. It was contrary to our purpose of bringing down the president.
+ - When Obama boasts that it will be a huge boon to the economy to give amnesty to millions of low-wage workers, who won’t pay income taxes but will need a lot of government services, remember: Obamacare was supposed to save money, too.
+ - The nonsense about President Obama being a Muslim has got to stop. I rise to defend him from this absurd accusation by pointing out that he is obviously an atheist.
+ - Already liberals are trying to rewrite the history of the Cold War to remove Reagan from its core, to make him a doddering B-movie actor who happened to be standing there when the Soviet Union imploded. They have the media, the universities, the textbooks. We have ourselves. We are the witnesses.
+ - A cruise missile is more important than Head Start.
+ - The only important lesson from the Vietnam War is this: Democrats lose wars.
+ - Do not allow Democrats anywhere near foreign policy. Not even to keep them away from domestic policy. It’s a mistake to ask those who don’t even like democracy to defend it.
+ - Liberals are more upset when a tree is chopped down than when a child is aborted. Even if one rates an unborn child less than a full-blown person, doesn’t the unborn child rate slightly higher than vegetation?
+ - Democrats see our voluntary military supported by taxpayer dollars as their personal Salvation Army. Self-interested behavior, such as deploying troops to serve the nation, is considered boorish in Manhattan salons.
+ - Ted Kennedy says that our policy in Iraq is adrift. Hmmm. Maybe like a car adrift in the water after its has gone over a bridge?
+ - In fact Sarah Palin has created more jobs than Obama has. She created eleven jobs fact-checking at the AP just for the Palin autobiography.
+ - Liberals are more upset when a tree is chopped down than when a child is aborted.
+ - Moderation in the defense of liberty is no virtue.
+ - The Democrats appear to be the only people who still believe there is any efficacy to the UN.
+ - For decades now, the Democrats have had a good gig buying the votes of government workers with outrageous salaries, benefits and work rules – and then sticking productive earners with the bill. But, now, we’re out of money.
+ - This week’s winner for best comedy line about the war is New York Democratic Sen. Charles Schumer. Referring to – well, it doesn’t really matter what he was referring to...
+ - Liberals don’t mind discussing who is more patriotic if patriotism is defined as redistributing income and vetoing the Pledge of Allegiance. Only if patriotism is defined as supporting America do they get testy and drone on about ‘McCarthyism.’
+ - I’m getting a little fed up with hearing about, oh, civilian casualties. I think we ought to nuke North Korea right now just to give the rest of the world a warning.
+ - I am not the first to note the vast differences between the Wall Street protesters and the tea partiers. To name three: The tea partiers have jobs, showers and a point.
+ - But all liberals only have empathy for the exact same victims – always the ones that are represented by powerful liberal interest groups.
+ - I’m thinking of writing a book on national health care. It will be 2,000 pages, and you’ll have two hours to read it.
+ - The most we can hope for is strong marriages. Married women vote Republican; single women vote Democratic.
+ - Not exactly smashing stereotypes of liberals as mincing pantywaists, the left’s entire contribution to the war effort thus far has been to whine.
+ - The media will spend weeks going through pay stubs for Bush’s National Guard service in Alabama in the waning days of war, but if Kerry tells them exotic tales of covert missions into Cambodia directed by Richard Nixon, they don’t even bother to fact-check who was president in December 1968.
+ - The Democratic Party supports criminals and Islamic terrorists but has no sympathy for taxpayers.
+ - NBC’s The West Wing is an icon for bad stories; Gitmo is a place where we keep an eye on evil, dangerous people who want to kill us.
+ - While the form of treachery varies slightly from case to case, liberals always manage to take the position that most undermines American security.
+ - Only a war that serves no conceivable national interest gets the New York Time’s endorsement. Liberals warm to the idea of American mothers weeping for their sons, but only if their deaths will not make America any safer.
+ - As far as I’m concerned, I’m a middle-of-the-road moderate and the rest of you are crazy.
+ - Liberals are hopping mad because Rush Limbaugh referred to phony soldiers as “phony soldiers.” They claim he was accusing all Democrats in the military of being “phony.” True, all Democrats in the military are not phony soldiers, but all phony soldiers seem to be Democrats.
+ - I’m sure there are people who consider themselves Democrats, maybe even liberals, who are good Christians, but if so I do not think they understand the tenants of those two organizations.
+ - If you attack Ann Coulter, you don’t end up with your cat killed or your tires slashed.
+ - I promise you: No American whose great-grandfather was born here is watching soccer. One can only hope that, in addition to learning English, these new Americans will drop their soccer fetish with time.
+ - The idea of a bowed and terrified liberal minority during McCarthy’s ‘reign of terror’ is poppycock. Then as now, all elite opinion was against McCarthy.
+ - In the history of the nation, there has never been a political party so ridiculous as today’s Democrats. It’s as if all the brain-damaged people in America got together and formed a voting bloc.
+ - Listening to liberals invoke the sanctity of “science” to promote their crackpot ideas creates the same uneasy feeling as listening to Bill Clinton cite Scripture.
+ - The Klan sees the world in terms of race and ethnicity. So do Liberals.
+ - This is what Christians consider themselves: perfected Jews.
+ - If the press really thinks Obama is Lincoln, they ought to treat him like they treated Bush, ’cause that’s how they treated Lincoln. His critics compared Lincoln to an ape; they called him an illiterate baboon.
+ - We don’t want someone who will get 98 percent of the vote. We want someone who will get 51 percent of the vote.
+ - In another show of America’s force to the world, when the Soviets invaded Afghanistan, Carter responded by boycotting the Olympics. And thus was a fearsome blow struck at little fourteen-year-old American girls who had spent their lives training for the Olympics.
+ - I might be in favor of national healthcare if it required all Democrats to get their heads examined.
+ - To be sure, conservative radio talk show hosts have a built-in audience unavailable to liberals: People driving cars to some sort of job.
+ - Usually the nonsense liberals spout is kind of cute, but in wartime their instinctive idiocy is life-threatening.
+ - Enjoy most: the prospect of having an impact on the public debate. Irritating liberals is a close second.
+ - Fundamentalist Muslim terrorists kill three thousand Americans, but America isn’t supposed to respond, because if we respond, they’ll respond. We always hear about ‘karmic retributions’ and the ‘cycle of violence’ only after we’ve been hit.
+ - This is the way addled liberals really think. Even as they champion sucking the brains out of little babies, they think of themselves as indelibly compassionate because they favor an overweening, behemoth federal government.
+ - I think the government should be spying on all Arabs, engaging in torture as a televised spectator sport, dropping daisy cutters wantonly throughout the Middle East and sending liberals to Guantanamo.
+ - If John Kerry had a dollar for every time he bragged about serving in Vietnam – oh wait, he does.
+ - The Democrats have no actual policy proposals of their own unless constant carping counts as a policy.
+ - Liberals could live their whole lives never having to hear an actual conservative opinion other than the idiotic arguments written for conservative characters on Aaron Sorkin’s little teleplays.
+ - Lawyers tend to be bright people. They tend to be-much more than many journalists I’ve encountered-sticklers for detail and accuracy, and they have a logical way of arguing.
+ - The tolerant liberal suddenly becomes very intolerant when their official religion is challenged.
+ - Harriet Miers isn’t qualified to play a Supreme Court justice on The West Wing, let alone to be a real one.
+ - If Mexican farm labor is so much cheaper, maybe we should be growing our fruits and vegetables in Mexico. There’s absolutely no reason to import Mexicans to do something they could do at home and then sell to us. I believe this is what economists call “competitive advantage”.
+ - Most people in the Tea Party are nice, but that hasn’t stopped liberals from hating them.
+ - What I and other commentators do is attempt to move the public opinion. We try to change minds.
+ - One recent menu for suspected terrorists at Guantanamo consisted of orange glazed chicken, fresh fruit crepe, steamed peas and mushrooms, and rice pilaf. Sounds like the sort of thing you’d get at Windows on the World – if it still existed.
+ - If I’m going to say anything about John Edwards in the future, I’ll just wish he had been killed in a terrorist assassination plot.
+ - The only subject fewer authentic Americans cared about than the treatment of prisoners at Guantanamo was World Cup Soccer. America is an epic global battle with ruthless savages who seek our destruction, and liberals are feeling sorry for the terrorists.
+ - Whenever a liberal begins a statement with ‘I don’t know which is more frightening,’ you know the answer is going to be pretty clear.
+ - Liberals don’t love big government because they think it’s efficient, compassionate, fair or even remotely useful. They support big government because they are guaranteed the support of nearly everyone who works for the government.
+ - Ironically, since Obama was elected, for the first time in my life I’m sometimes not proud of my country.
+ - I give speeches at megachurches across America, and the one thing that’s really striking about it is how utterly, completely diverse they are, and completely unself-consciously. At these huge megachurches the idea that the more Christian you are, the less tolerant you would be is preposterous.
+ - Fittingly, in the final analysis, Clinton will not be remembered for what he did as president, but for who he did.
+ - They’ve hit us and we’ve got to hit back hard, and I’m not just talking about the terrorists.
+
+254 quotes

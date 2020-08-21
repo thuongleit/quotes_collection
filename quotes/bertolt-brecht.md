@@ -1,0 +1,157 @@
+ - He who fights, can lose. He who doesn’t fight, has already lost.
+ - Art is not a mirror held up to reality but a hammer with which to shape it.
+ - Don’t expect the theatre to satisfy the habits of its audience, but to change them.
+ - In the dark times Will there also be singing? Yes, there will also be singing. About the dark times.
+ - Hungry man, reach for the book: it is a weapon.
+ - Erst kommt das Fressen, dann kommt die Moral.
+ - The aim of science is not to open the door to infinite wisdom, but to set a limit to infinite error.
+ - Bank robbery is an initiative of amateurs. True professionals establish a bank.
+ - Don’t accept the habitual as a natural thing. In times of disorder, of organized confusion, of de-humanized humanity, nothing should seem natural. Nothing should seem impossible to change.
+ - You can’t write poems about trees when the woods are full of policemen.
+ - Love is the wish to give, not to receive.
+ - The world of knowledge takes a crazy turn when teachers themselves are taught to learn.
+ - You can make a fresh start with your final breath.
+ - When the leaders speak of peace, the common folk know war is coming.
+ - Intelligence is not to make no mistakes, but quickly to see how to make them good.
+ - Unhappy the land that is in need of heroes.
+ - Love is the desire to give, not to receive, something. Love is the art of producing something with the other’s talents.
+ - In the contradiction lies the hope.
+ - None will improve your lot If you yourself do not.
+ - Because things are the way they are, things will not stay the way they are.
+ - If art reflects life, it does so with special mirrors.
+ - All artforms are in the service of the greatest of all arts: the art of living.
+ - To those who does not know the world is on fire, I have nothing to say.
+ - He who is still laughing is he who hasn’t heard the terrible news.
+ - If you don’t have fun, you don’t have a show.
+ - The headlong stream is termed violent But the river bed hemming it in is Termed violent by no one.
+ - When crimes begin to pile up they become invisible. When sufferings become unendurable the cries are no longer heard. The cries, too, fall like rain in summer.
+ - Great sport begins at a point where it has ceased to be healthy.
+ - Everyone chases after happiness, not noticing that happiness is right at their heels.
+ - Temptation to behave is terrible.
+ - Suppose they gave a war, and nobody came? Why then, the war would come to you!
+ - We attacked a foreign people and treated them like rebels. As you know, it’s all right to treat barbarians barbarically. It’s the desire to be barbaric that makes governments call their enemies barbarians.
+ - Science knows only one commandment – contribute to science.
+ - The rain Never falls upwards. When the wound Stops hurting What hurts is The scar.
+ - Art is not a mirror. Art is a hammer.
+ - If you wan to steal money, don’t rob a bank – open one.
+ - Fearful is the seductive power of goodness.
+ - A theater without beer is just a museum.
+ - Love is also like a coconut which is good while it is fresh, but you have to spit it out when the juice is gone, what’s left tastes bitter.
+ - Sometimes it’s more important to be human, than to have good taste.
+ - For art to be ‘unpolitical’ means only to ally itself with the ‘ruling’ group.
+ - A person is really dead only when nobody thinks of him anymore.
+ - Unhappiness doesn’t grow on the chest like leprosy. Poverty won’t fall off the roof like a loose tile, no; poverty and unhappiness are man’s doing.
+ - Their peace and their war Are like wind and storm. War grows from their peace.
+ - Reality changes; in order to represent it, modes of representation must change.
+ - Only bad generals need heroes.
+ - On thinking about Hell, I gather My brother Shelley found it was a place Much like the city of London. I Who live in Los Angeles and not in London Find, on thinking about Hell, that it must be Still more like Los Angeles.
+ - Boy Meets Girl, So What?
+ - Poverty makes you wise but it’s a curse.
+ - The mill wheel turns, it turns forever, though what is uppermost remains not so.
+ - You may proclaim, good sirs, your fine philosophy But till you feed us, right and wrong can wait!
+ - People remain what they are even if their faces fall apart.
+ - Little changes are the enemies of great changes.
+ - First feed the face, then talk right and wrong.
+ - Righteous people have no sense of humor.
+ - I don’t trust him. We’re friends.
+ - What kind of times are they, when A talk about trees is almost a crime Because it implies silence about so many horrors?
+ - The finest plans are always ruined by the littleness of those who ought to carry them out, for emperor himself can actually be nothing.
+ - You have to attack once the truth is too weak to defend itself.
+ - Go make yourself a plan And be a shining light. Then make yourself a second plan, For neither will come right.
+ - Those against politics are in favor of the politics inflicted upon them.
+ - General, man is very useful. He can fly and he can kill. But he has one defect: He can think.
+ - What is the robbing of a bank compared to the founding of a bank?
+ - Who built the seven gates of Thebes? In the books are listed the names of kings. Did the kings heave up the building blocks?
+ - What a miserable thing life is: you’re in clover; only the clover isn’t good enough.
+ - Everyone needs help from everyone.
+ - The storm that bends the birch trees Is held to be violent But how about the storm That bends the backs of the roadworkers?
+ - People who understand everything get no stories.
+ - As regards obstacles, the shortest distance between two points can be a curve.
+ - No one can be good for long if goodness is not in demand.
+ - He who speaks of enemies, himself is the enemy.
+ - Though the rich of this earth find no difficulty in creating misery, they can’t bear to see it.
+ - War is like love, it always finds a way.
+ - For once you must try not to shirk the facts: mankind is kept alive by bestial acts.
+ - The more innocent they are, the more they deserve to be shot.
+ - Why be a man when you can be a success?
+ - Society cannot share a common communication system so long as it is split into warring factions.
+ - Never believe on faith, see for yourself! What you yourself don’t learn you don’t know.
+ - Impact lies in the vicinity of mistakes.
+ - Oh! Moon of Alabama We now must say good-bye We’ve lost our good old mama And must have whiskey Oh, you know why!
+ - To live means to finesse the processes to which one is subjugated.
+ - Poverty makes you sad as well as wise.
+ - Sin is what is new, strong, surprising, strange. The theatre must take an interest in sin if the young are to be able to go there.
+ - When the praying does no good, insurance does help.
+ - The law was made for one thing alone, for the exploitation of those who don’t understand it, or are prevented by naked misery from obeying it.
+ - When something seems ‘the most obvious thing in the world’ it means that any attempt to understand the world has been given up.
+ - Come in, dear wind, and be our guest You too have neither home nor rest.
+ - I am a playwright. I show What I have seen. In the man markets I have seen how men are traded. That I show, I, the playwright.
+ - Spring is noticed, if at all By people sitting in railway trains.
+ - There must always be some who are brighter and some who are stupider, the latter make up for it by being better workers.
+ - The fanatics for progress often have too little appreciation of the existing.
+ - Something ignoble, loathsome, undignified attends all associations between people and has been transferred to all objects, dwelling, tools, even the landscape itself.
+ - One can describe the world of today to the people of today only if one describes it as capable of alteration.
+ - When you name yourself, you always name another.
+ - What they could do with ’round here is a good war. What else can you expect with peace running wild all over the place? You know what the trouble with peace is? No organization.
+ - Here today we huddle tight As the darkest heathens might The snow falls chilly on our skin The snow is forcing its way in. Hush, snow, come in with us to dwell: We were thrown out by Heaven as well.
+ - There are a few things that’ll move people to pity, a few, but the trouble is, when they’ve been used several times, they no longer work.
+ - Grub first, then ethics.
+ - With drooping shoulders The majority sit hunched, their foreheads furrowed like Stony ground that has been repeatedly ploughed-up to no purpose.
+ - Things take indeed a wondrous turn When learned men do stoop to learn.
+ - Of all the works of man I like best Those which have been used. The copper pots with their dents and flattened edges The knives and forks whose wooden handles Have been worn away by many hands: such forms Seemed to me the noblest.
+ - From the cradle to the coffin underwear comes first.
+ - Don’t tell me peace has broken out.
+ - Today every invention is received with a cry of triumph which soon turns into a cry of fear.
+ - The war which is coming Is not the first one. There were Other wars before it. When the last one came to an end There were conquerors and conquered. Among the conquered the common people Starved. Among the conquerors The common people starved too.
+ - Let nothing be called natural In an age of bloody confusion, Ordered disorder, planned caprice, And dehumanized humanity, lest all things Be held unalterable!
+ - I don’t know what a man is. Only that every man has his price.
+ - People are too durable, that’s their main trouble. They can do too much to themselves, they last too long.
+ - I don’t like where I’m going and I don’t like where I’ve been. Why am I in a hurry?
+ - Who has good luck is good, Who has bad luck is bad.
+ - It’s all right to hesitate if you then go ahead.
+ - It is not enough to demand insight and informative images of reality from the theater. Our theater must stimulate a desire for understanding, a delight in changing reality.
+ - The human race tends to remember the abuses to which it has been subjected rather than the endearments. What’s left of kisses? Wounds, however, leave scars.
+ - There are many elements to a campaign. Leadership is number one. Everything else is number two.
+ - If you join the rat race – you’re in the race of rats.
+ - What rapture, oh, it is to know A good thing when you see it And having seen a good thing, oh, What rapture ’tis to flee it.
+ - Mixing one’s wines may be a mistake, but old and new wisdom mix admirably.
+ - All the gang of those who rule us Hope our quarrels never stop Helping them to split and fool us So they can remain on top.
+ - When the house of a great one collapses Many little ones are slain.
+ - Even hatred of vileness Distorts a mans features.
+ - Those who have had no share in the good fortunes of the mighty Often have a share in their misfortunes.
+ - Schoenberg is too melodious for me, too sweet.
+ - First the grub, then the morals.
+ - There are times when you have to choose between being human and having good taste.
+ - Writers can’t write as fast as governments make wars; because to write demands thinking.
+ - Some party hack decreed that the people had lost the government’s confidence and could only regain it with redoubled effort. If that is the case, would it not be be simpler, If the government simply dissolved the people And elected another?
+ - Terrible is the temptation to be good.
+ - A man who strains himself on the stage is bound, if he is any good, to strain all the people sitting in the stalls.
+ - Eats first, morals after.
+ - One must live well to know what living is.
+ - General, your tank is a powerful vehicle it smashes down forests and crushes a hundred men. but it has one defect: it needs a driver.
+ - For the villainy of the world is great, and a man has to run his legs off to keep them from being stolen out fom underneath him.
+ - What happens to the hole when the cheese is gone?
+ - The right to happiness is fundamental; men live so little time and die alone.
+ - It isn’t important to come out on top, what matters is to be the one who comes out alive.
+ - Would it not be simpler If the Government Dissolved the people And elected another?
+ - Life is short and so is money.
+ - Don’t be afraid of death so much as an inadequate life.
+ - What’s a joy to the one is a nightmare to the other.
+ - It’s never too late for those whose time has come.
+ - There are some with brains and some without. It makes for a better division of labour.
+ - You don’t need to pray to God any more when there are storms in the sky, but you do have to be insured.
+ - The defeats and victories of the fellows at the top aren’t always defeats and victories for the fellows at the bottom.
+ - It is easier to rob by setting up a bank than by holding up a bank clerk.
+ - Oh why do we not say the important things, it would be so easy, and we are damned because we do not.
+ - For what’s the use of talking with a man who has a disease and thinks about the stars?
+ - One forgets too easily the difference between a man and his image, and that there is none between the sound of his voice on the screen and in real life.
+ - One cannot be arraigned for declaring a war, which every ruler has to do once in a while, but only for running a war badly.
+ - The fate of man is man.
+ - We often do not know ourselves the grounds On which we act, though plain to others.
+ - It was never decreed that a god mustn’t pay hotel bills.
+ - Right is its own defense.
+ - For the task assigned them Men aren’t smart enough or sly Any rogue can blind them With a clever lie.
+ - People cannot remain good unless good is expected of them.
+ - A good soldier has his heart and soul in it. When he receives an order, he gets a hard on, and when he drives his lance through his enemy’s guts, he comes.
+
+155 quotes

@@ -1,0 +1,42 @@
+ - Loneliness is failed solitude.
+ - The feeling that ‘no one is listening to me’ make us want to spend time with machines that seem to care about us.
+ - What technology makes easy is not always what nurtures the human spirit.
+ - We expect more from technology and less from each other.
+ - Technology doesn’t just do things for us. It does things to us, changing not just what we do but who we are.
+ - We’re lonely, but we’re afraid of intimacy. And so from social networks to sociable robots, we’re designing technologies that will give us the illusion of companionship without the demands of friendship.
+ - Does virtual intimacy degrade our experience of the other kind and, indeed, of all encounters, of any kind?
+ - The most used program in computers and education is PowerPoint. What are you learning about the nature of the medium by knowing how do to a great PowerPoint presentation? Nothing. It certainly doesnt teach you how to think critically about living in a culture of simulation.
+ - Networked, we are together, but so lessened are our expectations of each other that we can feel utterly alone. And there is the risk that we come to see others as objects to be accessed – and only for the parts we find useful, comforting, or amusing.
+ - Someday, someday, but certainly not now, I’d like to learn how to have a conversation.
+ - These days, insecure in our relationships and anxious about intimacy, we look to technology for ways to be in relationships and protect ourselves from them at the same time.
+ - Technology challenges us to assert our human values, which means that first of all, we have to figure out what they are.
+ - Computers are not good or bad; they are powerful.
+ - We’re lonely, but we’re afraid of intimacy.
+ - We’re smitten with technology. And we’re afraid, like young lovers, that too much talking might spoil the romance. But it’s time to talk.
+ - If we’re not able to be alone, we’re going to be more lonely. And if we don’t teach our children to be alone, they’re only going to know how to be lonely.
+ - It is painful to watch children trying to show off for parents who are engrossed in their cell phones. Children are nostalgic for the ‘good old days’ when parents used to read to them without the cell phone by their side or watch football games or Disney movies without having the BlackBerry handy.
+ - As we distribute ourselves, we may abandon ourselves.
+ - People are lonely. The network is seductive. But if we are always on, we may deny ourselves the rewards of solitude.
+ - Thumbs up or thumbs down on a website is not a conversation. The danger is you get into a habit of mind where politics means giving a thumbs up or thumbs down to a website. The world is a much more complex place.
+ - Teenagers would rather text than talk. They feel calls would reveal too much.
+ - There are moments of opportunity for families; moments they need to put technology away. These include: no phones or texting during meals. No phones or texting when parents pick up children at school – a child is looking to make eye contact with a parent!
+ - We all really need to listen to each other, including to the boring bits.
+ - Not every advance is progress. Not every new thing is better for us humanly.
+ - Hold on to your passion – you’ll need it!
+ - What is so seductive about texting, about keeping that phone on, about that little red light on the BlackBerry, is you want to know who wants you.
+ - The computer takes up where psychoanalysis left off. It takes the ideas of a decentered self and makes it more concrete by modeling mind as a multiprocessing machine.
+ - Technology proposes itself as the architect of our intimacies.
+ - We expect more from technology and less from each other. We create technology to provide the illusion of companionship without the demands of friendship.
+ - People thought I was very pro-computer. I was on the cover of Wired magazine. Then things began to change. In the early 80s, we met this technology and became smitten like young lovers. But today our attachment is unhealthy.
+ - It used to be that we imagined that our mobile phones would be for us to talk to each other. Now, our mobile phones are there to talk to us.
+ - Because you can text while doing something else, texting does not seem to take time but to give you time. This is more than welcome; it is magical.
+ - What I’m seeing is a generation that says consistently, ‘I would rather text than make a telephone call.’ Why? It’s less risky. I can just get the information out there. I don’t have to get all involved; it’s more efficient. I would rather text than see somebody face to face.
+ - My own study of the networked life has left me thinking about intimacy – about being with people in person, hearing their voices and seeing their faces, trying to know their hearts. And it has left me thinking about solitude – the kind that refreshes and restores. Loneliness is failed solitude.
+ - I love sharing photographs and websites, I’m for all of these things. I’m for Facebook. But to say that this is sociability? We begin to define things in terms of what technology enables and technology allows.
+ - I think computers are the ultimate writing tool. I’m a very slow writer, so I appreciate it every day.
+ - We used to think, ‘I have a feeling; I want to make a call.’ Now our impulse is, ‘I want to have a feeling; I need to send a text.’
+ - If behind popular fascination with Freudian theory there was a nervous, often guilty preoccupation with the self as sexual, behind increasing interest in computational interpretations of mind is an equally nervous preoccupation with the self as machine.
+ - I think few people of education enter politics because it seems like a contact blood sport.
+ - We are not as strong as technology’s pull.
+
+40 quotes

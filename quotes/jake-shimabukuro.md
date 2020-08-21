@@ -1,0 +1,21 @@
+ - Because if everyone played the ukulele, this world would be a much happier place.
+ - There’s no ego when you’re a ukulele player.
+ - You know, I think music is very interactive. It’s a – it’s a language.
+ - Sometimes I can’t think of a better way to end my day than coming home and just strumming my ukulele for a few minutes. I mean, I joke around and tell people that it’s an entire yoga session in one strum, you know?
+ - Growing up, the ukulele was always a respected instrument. It’s a big part of our culture. It wasn’t until I started traveling outside of Hawaii that I realized people didn’t really consider the ukulele to be a real instrument.
+ - Most of my ukulele heroes were traditional players from Hawaii, like Eddie Kamae and Ohta-san. There may not be uke stars in popular culture, but there are certainly pop stars that play uke – George Harrison, Eddie Vedder, Taylor Swift, Train, and Paul McCartney.
+ - I always feel a little funny being in front of a lot of people trying to show them my approach to the ukulele, but I do enjoy it. I do get a little more nervous doing workshops rather than performing.
+ - Blues, rock and hip hop are more about a lifestyle and culture than notes on a page.
+ - The ukulele has always appealed to the older generation.
+ - If I could do something with Paul McCartney it would be just amazing. Or Eric Clapton.
+ - Now I know what a dulcimer is supposed to sound like.
+ - I actually got to perform for Queen Elizabeth, and I got to meet her after the show. She said she thought my performance was beautiful and I got to shake her hand and it was just an incredible moment.
+ - Hawaii is a small, close community.
+ - When you go into the studio or get up on the stage with people who have more experience or knowledge, you learn.
+ - Bill Gates recently picked up the ukulele. And Warren Buffett is a huge ukulele fan. I even got to strum a few chords with Francis Ford Coppola. It blows my mind that these people, who have everything in the world they could want, have picked up the ukulele and found a little bit of joy.
+ - I know a few chords on the guitar, but I wouldn’t be able do a show or even be part of a jam session with one.
+ - You know, Leonard Cohen is amazing, just a mastermind, and really one of the great geniuses of our time.
+ - Classical music presents some of the world’s most challenging pieces.
+ - Most people are awestruck when they see Lady Gaga and Bette Midler, but then the queen comes in.
+
+19 quotes

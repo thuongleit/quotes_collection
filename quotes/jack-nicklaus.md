@@ -1,0 +1,164 @@
+ - I’m tired of giving my best and not having it be good enough.
+ - Concentration is a fine antidote to anxiety.
+ - Success depends almost entirely on how effectively you learn to manage the game’s two ultimate adversaries: the course and yourself.
+ - Augusta National is a young man’s golf course, and you really need a young man’s nerves to play on it.
+ - Achievement is largely the product of steadily raising one’s level of aspiration and expectation.
+ - Confidence is the most important single factor in this game, and no matter how great your natural talent, there is only one way to obtain and sustain it: work.
+ - Resolve never to quit, never to give up, no matter what the situation.
+ - My ability to concentrate and work toward that goal has been my greatest asset.
+ - A kid grows up a lot faster on the golf course. Golf teaches you how to behave.
+ - Focus on remedies, not faults.
+ - Learn the fundamentals of the game and stick to them. Band-Aid remedies never last.
+ - Sometimes the biggest problem is in your head. You’ve got to believe you can play a shot instead of wondering where your next bad shot is coming from.
+ - Complacency is a continuous struggle that we all have to fight.
+ - Pursue what you love, what you are passionate about. Don’t let somebody else dictate your life’s path.
+ - Once you play a tournament, you’re playing against the golf course, you’re playing against yourself and trying to do the best you can.
+ - Talent isn’t as important as the work and dedication necessary to become competent.
+ - Don’t be too proud to take lessons. I’m not.
+ - I know it sounds selfish, wanting to do something no one else has done. But that’s what you’re out here for – to separate yourself from everyone else.
+ - You can win tournaments when you’re mechanical, but golf is a game of emotion and adjustment. If you’re not aware of what’s happening to your mind and your body when you’re playing, you’ll never be able to be the very best you can be.
+ - Golf is a nice game, but that’s all. It’s never going to be an exciting game to watch on TV. It’s not a circus and never will be one. The audience for golf is not going to change significantly. It’s always going to be people who play it, understand it, and love it.
+ - I’m a firm believer that in the theory that people only do their best at things they truly enjoy. It is difficult to excel at something you don’t enjoy.
+ - I’d rather be two strokes ahead going into the last day than two strokes behind. Having said that, it’s probably easier to win coming from behind. There is no fear in chasing. There is fear in being chased.
+ - But if I played well and prepared myself properly, then all I had to do was control myself and put myself in a position to win.
+ - It takes hundreds of good golf shots to gain confidence, but only one bad one to lose it.
+ - There are always new places to go fishing. For any fisherman, there’s always a new place, always a new horizon.
+ - Before every shot, I go to the movies.
+ - Temper is the one thing you can’t get rid of by losing it.
+ - Nobody ever remembers who finished second at anything.
+ - Whether it’s pool or Ping Pong, I can’t stand to have my kids beat me. Especially Ping Pong! And when they beat me, they just needle the devil out of me. That’s fine. I’d rather have that than let them win a shallow victory.
+ - I think that Pebble Beach is my favorite golf course to go to. I think Augusta is my favorite place to go play golf.
+ - I couldn’t care less who I’m paired with. There’s nobody I’ve ever played better or worse with, thank goodness. You don’t want any factor to be outside your control. What if Arnie’s Army had bothered me? What id I’d said, “Oh geez, I’m paired with Palmer,” I’d never had beaten him.
+ - People only do their best at things they truly enjoy.
+ - A perfectly straight shot with a big club is a fluke.
+ - I don’t think you ever will yourself to win. I think you prepare yourself the best you can, get yourself in the best mindset you can get in, and go after it.
+ - I never hit a shot, not even in practice, without having a very sharp, in-focus picture of it in my head.
+ - I had polio when I was 13. I started feeling stiff, my joints ached, and over a two-week period I lost my coordination and 20 pounds.
+ - Golf was my vehicle to competition, and I can’t play if I can’t compete.
+ - A big part of managing a golf course is managing your swing on the course. A lot of guys can go out and hit a golf ball, but they have no idea how to manage what they do with the ball. I’ve won as many golf tournaments hitting the ball badly as I have hitting the ball well.
+ - There isn’t a flaw in his golf or his makeup. He will win more majors than Arnold Palmer and me combined. Somebody is going to dust my records. It might as well be Tiger, because he’s such a great kid.
+ - Golf is not, and never has been, a fair game.
+ - The successful people seem to have blinders on. Everything is straight ahead. They go forward and know exactly what they’re going to do once they’ve made up their mind to do it, and by God they don’t look sideways.
+ - Confidence is believing in your own ability, knowing what you have to do to win. My confidence was developed through preparation.
+ - The holes are numbered.
+ - There is no room in your mind for negative thoughts. The busier you keep yourself with the particulars of shot assessment and execution, the less chance your mind has to dwell on the emotional. This is sheer intensity.
+ - It’s hard not to play golf that’s up to Jack Nicklaus standards when you are Jack Nicklaus.
+ - People don’t want to go to the dump and have a picnic, they want to go out to a beautiful place and enjoy their day. And so I think our job is to try to take the environment, take what the good Lord has given us, and expand upon it or enhance it, without destroying it.
+ - I like to catch fish and release them. I probably haven’t killed a fish that I’ve caught in sport fishing for 20 years. No reason to kill it. You know, just take it and release it.
+ - If you’d asked me at 30 where I’d be during the Masters when I was 46, I’d have pictured myself on a boat fishing, smoking a cigar, drinking a mint julep and watching it on television.
+ - Oakmont, you’ve got to be playing slope.
+ - Pete Egoscue has totally changed my life. Never have I experienced such complete pain relief as I have by following the Egoscue Method.
+ - Golf is game of respect and sportsmanship; we have to respect its traditions and its rules.
+ - I love design in general, the creativity. Whether it is golf courses, my apparel line, ads we do or our business with AriZona, design is fun.
+ - Bob Ford is a great guy. He’s a great friend. He’s done a great job at Oakmont and Seminole. He’s a very quiet man. He doesn’t get in the middle of everything, but he understands what a nice job he’s done at both places.
+ - I don’t think about winning the Masters as part of the slam. You want to win the Masters because of what it means to the game.
+ - Arnold’s place in history will be as the man who took golf from being a game for the few to a sport for the masses. He was the catalyst who made that happen.
+ - He has the finest, fundamentally sound golf swing I’ve ever seen.
+ - Golf is you against yourself.
+ - Reflection is a scene that I will cherish forever.
+ - Ask yourself how many shots you would have saved if you always developed a strategy before you hit, always played within your capabilities, never lost you temper, and never got down on yourself.
+ - I first saw Arnold Palmer when I was just a kid and he came to Columbus to play in a tournament. I watched him on the driving range hit balls that day. We went on to become great friends.
+ - The worse you’re performing, the more you must work mentally and emotionally. The greatest and toughest art in golf is “playing badly well.” All the true greats have been masters at it.
+ - One of the worst mistakes you can make in golf is trying to force the game.
+ - The importance of my legacy is not the golf course, it’s what my life is, and what my life is intended to be. The game of golf is a game. My family is my life.
+ - I couldn’t control Arnold Palmer, Gary Player, Tom Watson or Lee Trevino. The only person I could control was me. The only person I could prepare for events was me. And if I didn’t play well, I didn’t play well, and I wasn’t going to compete.
+ - If there is one thing I have learned during my years as a professional, it is that the only thing constant about golf is its inconstancy.
+ - Public appearances are a headache. I hold mine down to a minimum.
+ - Ben Hogan was not really a big hitter. He was long enough. But Ben Hogan today? Ben Hogan today could not compete at Augusta because he did not have the massive length to compete against the long hitters. Power was always an issue at Augusta, but never so dominant that you couldn’t play it.
+ - I always practice as I intend to play.
+ - This is a tournament. The others are all championships.
+ - If I have a weakness, it’s probably ice cream. That’s where I get lax, sloppy. I’ll sneak into the refrigerator at night and take two or three bites and put it back. Butter pecan. Only two or three bites, but it shows.
+ - Golf is a better game played downhill.
+ - Golf is a game of precision, not strength.
+ - Professional golf is the only sport where, if you win 20% of the time, you’re the best.
+ - Essentially, he has been retired since he was 21.
+ - I don’t play much golf anymore. I can’t – if I break 80, I’m doing pretty well.
+ - It’s a great sense of accomplishment when you can take something and really think it’s really tough, and then all of a sudden you conquer it. That makes you feel pretty good.
+ - If you’re going to be a player people will remember, you have to win the Open at St. Andrews.
+ - When you lip out several putts in a row, you should never think that means that you’re putting well. When you’re putting well, the only question is what part of the hole it’s going to fall in, not if it’s going in.
+ - And, of course, I’m constantly energized by designing courses around the world.
+ - I never missed a putt in my mind.
+ - I learned early in my career, where you get so wrapped up and so excited, that all of a sudden you don’t think. So I worked very hard to keep myself suppressed. And that’s one of the reasons I wasn’t gregarious with the gallery.
+ - Keeping the head still is golf’s one universal, unarguable fundamental.
+ - Scoring comes from being able to preserve what you’ve got and play your smart shots when you need to play them and not do stupid things and take advantage of things when have you them.
+ - He’s going to be around a long, long time, if his body holds up. That’s always a concern with a lot of players because of how much they play. A lot of guys can’t handle it. But it looks like he can.
+ - Writers have told me more than once that I’m a better interview in defeat than in victory, which is a compliment I am extremely proud of.
+ - I think I fail a bit less than everyone else.
+ - I never went into a tournament or round of golf thinking I had to beat a certain player. I had to beat the golf course. If I prepared myself for a major, went in focused, and then beat the golf course, the rest took care of itself.
+ - The one strongest, most important part of my game is that I want to be the best. I won’t accept anything less that that. My ability to concentrate and work toward hat goal has been my greatest asset.
+ - I think you’ve all heard my story about my daughter and how we felt Children’s Hospital saved her life when she was less than a year old. I won’t go through all of the details of that.
+ - He had a lot of talent, but didn’t have much dedication, wasn’t organized, didn’t know how to learn, didn’t know how to comprehend what he was doing, didn’t try to learn how to get better.
+ - I’ve been fortunate over my career to make a little history on the 16th hole at Augusta National.
+ - If there is one thing golf demands above all else, it is honesty.
+ - There’s a guy who won’t be in contention. There’s another one I don’t have to worry about.
+ - I don’t really have a problem saying good-bye to things. All things come to an end.
+ - Did you know there’s probably more golf played in Iceland than most places in the world? They play 24 hours a day in the summertime and the northern part is warmer than the southern part.
+ - Why are we building golf courses? Because we enjoy being outside, bringing man and nature together.
+ - Over the first three rounds you’re playing the course. In the final round, if you’re in contention, you’re playing the man.
+ - The best way to cope with trouble is to stay out of it as much as possible.
+ - There is no room in your mind for negative thoughts.
+ - I’ve never set up any golf course that would favor anybody. I try to make it exactly the opposite, which is what we did at Valhalla when we modernized it to accommodate the lengths players are hitting it today.
+ - I love the golf courses because it brought the best out of me. It made me prepare, made me work at it, made me do the things I needed to do to be better, and that’s what I loved about USGA events. If you couldn’t handle it, then you got beat, and that’s OK.
+ - If I had one golf course, from a design standpoint, one that I really love, it would probably be Pinehurst. There’s a totally tree-lined golf course where trees are not a part of the strategy.
+ - You have to love something and have a passion for it to be disciplined. My commitment was purely to golf.
+ - The way I pack is I look at how long I’ll be gone and I pack day for day. If I’m going on a three-day fishing trip, I plot each day. I put most of that in a little bag. If I’m going from there to work on golf courses for a few days, I plot that trip.
+ - The fact is, I diet every day of my life. I have to work at it. But I diet so I can pig out.
+ - I don’t know if I’ll ever do it again or not, but frankly I don’t really care.
+ - Crises are part of life. Everybody has to face them, and it doesn’t make any difference what the crisis is.
+ - To sink a six-foot putt with thirty million people looking over your shoulder, convince yourself that, if you miss it, you will be embarrassed and poor.
+ - I don’t believe in philosophies. I believe in fundamentals.
+ - You have to trust your kids. They have to experience life, and you just hope you’ve provided them a foundation for what’s right and what isn’t.
+ - I’m more proud of the good rounds I’ve played while hitting the ball badly than of the great rounds while hitting the ball well. I understand my swing well enough to get myself through a tournament and win it. I’ve made it work.
+ - That’s sort of overkill. We’ve had 70 years of the Ryder Cup, and it’s gotten along just fine. The pendulum will swing back without making a monumental thing about it.
+ - If you want to hit it farther, hit it better.
+ - All I ever wanted to do was play competitive golf against the best players in the world.
+ - The US Open flag eliminates a lot of players. Some players just weren’t meant to win the US Open. Quite often, they know it.
+ - I’m probably the only bottom-heavy golfer in the country.
+ - If somebody says they don’t watch the leaderboard, I don’t buy that, I’m sorry. Because you’ve got to know where you are to know how to play.
+ - I’ve had a lot of majors where I didn’t play well until the last round. Keep yourself in contention; that’s the name of the game. I usually ended up shooting a good round and all of a sudden, somehow, I won.
+ - Grand Haven will challenge the skilled player yet, because of some width to the holes, it also will be a fun course that the average player can enjoy.
+ - The Senior Tour is a good concept, although frankly I’m not astounded at its continued success. It gives a lot of guys an opportunity to extend their careers.
+ - I might cook occasionally, but I’m not a good cook. That’s not my passion.
+ - It’s great to win, but it’s also great fun just to be in the thick of any truly well and hard fought contest against opponents you respect, whatever the outcome.
+ - If I had only one more round to play, I would choose to play it at Pebble Beach. I’ve loved this course from the first time I saw it. It’s possibly the best in the world.
+ - I knew that if I kept the pressure on and didn’t do anything stupid I would probably win.
+ - How people keep correcting us when we are young! There is always some bad habit or other they tell us we ought to get over. Yet most bad habits are tools to help us through life.
+ - When I fly in a helicopter, I insist there be two sets of controls, one for me in case something happens to the pilot. I’m no expert, but I know enough to at least get the thing on the ground. Nothing scares me like the thought of not being in control.
+ - I never worried about money, except that I knew that all I had to worry about was golf. As long as I could play, I was going to make money.
+ - When I want a long ball, I spin my hips faster.
+ - Any golfer worth his salt has to cross the sea and try to win the British Open.
+ - Golf really excites me only when the course is difficult and challenging. I love competing. The pressure of competition against fine holes and fine players makes me feel very much alive.
+ - I’ve wanted to design golf courses ever since I was a kid. I suppose it comes from the way I’ve played the game. To find the proper way to play any hole, I’ve always begun by asking myself what the architect has tried to do with it.
+ - Through years of experience I have found that air offers less resistance than dirt.
+ - I understand golf is a game, and I’ve never treated it as anything else. Family is something that’s very special, and so they all contributed to the room. They all contributed to what my life was, my career was.
+ - Well, the biggest rival I had in my career was me.
+ - I thoroughly enjoy working with kids, whether it’s The First Tee or the lesson tee with my grandkids.
+ - The longer you play, the better chance the better player has of winning.
+ - Sometimes, I’m an ogre. I can be short. I’ll walk into the office some days and I’ve gotten up on the wrong side of the bed, and everybody knows it. I’m a perfectionist. I like to be organized, and I like to get everything done today.
+ - I don’t think you would have missed that putt, but in these circumstances, I would never give you the opportunity.
+ - I would never deny that Jack Nicklaus is the greatest player who ever lived.
+ - I can barely turn on my computer!
+ - A big part of managing a golf course is managing your swing on the course.
+ - In 1979, when I was 39, I had such a bad year, I thought it was all over. Thankfully it wasn’t.
+ - I never thought about being No. 1. I just kept trying to be No. 1.
+ - This is a game. That’s all it is. It’s not a war.
+ - The game is meant to be fun.
+ - Golfers have a tendency to be very masochistic. They like to punish themselves for some reason. A lot of them like tough courses.
+ - The long irons are the nemesis of the average golfer. I’m convinced that the underlying reason for this is that he keeps hearing how hard they are to handle. They’re not that difficult, truly.
+ - I like trying to win. That’s what golf is all about.
+ - It’s difficult to excel at something you don’t truly enjoy.
+ - There are no maladies in my golf game. My golf game stinks.
+ - As long as I’m prepared, I always expect to win.
+ - The golf course is always in good shape. Paul Latshaw does a reasonable job.
+ - I never used golf as a job. I used it as a game. I always thought if I played the game well, my financial rewards would be there, but it came from, because I played well. But I had to play well to get the financial rewards.
+ - I guess that’s why they call it Hell.
+ - Jones is the greatest golfer who ever lived and probably ever will live. That’s my goal. Bobby Jones. It’s the only goal.
+ - We all would like to struggle like Tiger is struggling.
+ - When the British Open is in Scotland, there’s something special about it. And when it’s at St. Andrews, it’s even greater.
+ - Confidence is when you stand over a shot and know you’re going to make it because you’ve done it time and time again.
+ - I’m deadly serious even when I play tennis against my kids. I want to beat their brains out.
+ - Mostly I built golf courses the way I played golf, which was left-to-right. But I learned very rapidly that people wanted to see more than just the way I played golf and that I had to balance up what I was doing, right-to-left, left-to-right, etc.
+ - Oakmont is probably the premier – Oakmont and Augusta National are probably the top two set of greens in the country.
+ - Every putt is different. Your feet dictate the stroke by how they feel on the green. I just never used the same stroke on every putt.
+
+162 quotes

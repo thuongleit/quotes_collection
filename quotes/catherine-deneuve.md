@@ -1,0 +1,99 @@
+ - At a certain age, you have to choose between your face and your ass.
+ - Men are good but women are magic.
+ - You should put scent where you like to be kissed.
+ - Love is suffering. One side always loves more.
+ - Marriage is obsolete and a trap.
+ - A woman has to be intelligent, have charm, a sense of humor, and be kind. It’s the same qualities I require from a man.
+ - I don’t enjoy. I suffer from enjoying. It’s very Christian.
+ - I love to do very long and complicated scenes.
+ - Even if there are a lot women in films, there are few who are lesbians, that people know about.
+ - To have a public life, you still have the right to a private life.
+ - I’m lucky; people write scripts for me.
+ - I get irritated, nervous, very tense or stressed, but never bored.
+ - Opportunities are often things you haven’t noticed the first time around.
+ - The paparazzi are nothing but dogs of war.
+ - I know who I am, how I was. I don’t want to know how I will be because nobody knows that.
+ - There are relatively few role models for young people. We are in a society that is ruled by men.
+ - I don’t see any reason for marriage when there is divorce.
+ - It has been very erotic and provocative for people to wonder about my feelings for women.
+ - This book was company for me – I wrote these things when I was in hotels, far from where I normally live. I never intended to publish it.
+ - Polanski was very precise. I think he still is.
+ - I’m so popular it’s scary sometimes. I suppose I’m just everybody’s type.
+ - You’ll be back. When the hunger knows no reason! And then you’ll need to feed, and you’ll need me to show you how.
+ - Mississippi Mermaid was a very special experience because we only had the dialogues for the scenes we were shooting the night before.
+ - Prostitution happens to you because of troubles you had. In reality no woman would choose to do that.
+ - I always try to keep that feeling of being on the edge. I’m afraid of knowing too well and seeming mechanical.
+ - Cinema is still a very young art form with extraordinary techniques and very impressive special effects but sometimes it seems the soul has been taken out of things.
+ - I think the clothes in Belle de Jour are very important to the style of the film. Even today, it is still timeless.
+ - To wait, for an actor, is not like someone who’s waiting to see the doctor. It’s not the kind of wait where you get bored.
+ - I’m not always the nicest person to meet, because I forget very easily that I’m an actress when I’m not working.
+ - I love to not work. I like to travel. I work maybe half the year, no more.
+ - Bjork is a very original, interesting person. I like her very much.
+ - I have a strong sense of responsibility. I like to be directed, it’s true. If I didn’t like that, I’d do something else.
+ - I am frivolous. Then I feel guilty.
+ - People who know me know I’m strong, but I’m vulnerable.
+ - If you try to measure the future, you will never risk the present. Playing it safe. A ghastly game.
+ - I was never a dangerous woman. I’m not the prissy blonde woman that could take your husband away.
+ - I think one of the few times I’ve been involved with real-life characters was the story of Marie Bonaparte. I think it’s really difficult to become someone that really existed.
+ - I admire Cate Blanchett and Kate Winslet. I like a lot of comedians. I like Cameron Diaz – she’s funny and has a very light spirit. That’s quite rare nowadays. There are many actresses I admire.
+ - I did important films when I was very young.
+ - It’s always difficult to play a scene of physical violence because you’re always afraid that you don’t know your own strength and might hurt someone.
+ - I never hoped that both my children would become actors. I expected them to do something else.
+ - I cannot imagine having a physical relationship with a woman. I have not done that. But I really love women.
+ - You suffer as an actor. It’s difficult to be an actor and live a good life, especially today.
+ - I am frivolous. But sometimes, that’s the problem of my Christian education, when I know I’ve been frivolous, and I know I have to do it, then I feel guilty.
+ - I live very normally, I go out with my friends, we go to the movies, I queue, we go to restaurants. Then if something happens to remind me that I’m an actress then I become a little different and things become a little heavy.
+ - All women who kill or have sexual obsessions or who are prostitutes have trouble with their fathers.
+ - Being an actor means being an instrument for someone else. I want to give myself completely.
+ - I’m afraid of being too sure, to just deliver. I think that’s the biggest danger for actors – after a certain time, when you’re known and recognised, people expect you to do what you’re supposed to do, and there’s almost no more criticism and that’s very dangerous.
+ - I like all these little animals that run and eat and hide all the time. I like their faces, They seem to be scared and curious at the same time.
+ - Some people fall in love with their co-stars and feel things that they never thought they would feel for them because they are touching.
+ - You can tell how nervous I am by how fast I am talking!
+ - I’m not an admirer of action movies. I just think, Oh my God, it must be so tiring.
+ - I like working with directors much, because I want to be able to give myself completely to their vision. Otherwise I would only do what I could do, again and again. I want to be taken by someone in a different direction.
+ - It is very fashionable for good-looking ladies to say how hard it is to be beautiful, but that’s not true. There are times when itdepresses and bothers me to see just how easy things are made for a beautiful woman.
+ - I would love to work with Robert De Niro or Al Pacino. I think they’re wonderful actors.
+ - I didn’t devote my life to acting. I give a lot to my work, but my life has always been more important.
+ - But I never gave up personal things to work, never.
+ - I have no physical courage, I’ve asked for a double.
+ - I think anything that has to do with sexuality makes people very interested.
+ - I wouldn’t say no to being in a film with Jude Law. I love English actors.
+ - Actors have to be there and do the work, and that’s enough.
+ - When you’re young, you try to meet that expectation that people have of you. It can be very stressful. But with time it’s become less of problem.
+ - You can express a lot of things, a lot of action without speaking.
+ - Being a film actor is very different from a theatre actor.
+ - Even if a woman is abused a very long time ago, it comes out in her life in a negative way.
+ - Charm and perfection hardly cooperate. Charm premises little mistakes which one would like to cover.
+ - I would have liked maybe to be in architecture or painting, something connected to the fine arts.
+ - On Belle de Jour, the producer was very protective. It was very hard for me.
+ - You’re better off not preparing, because what you prepare will always be wrong.
+ - It’s very difficult for me to speak about being an actor.
+ - Directors have to push me. I have to be pushed up. Not all the time, but often.
+ - Being an actress is a very physical thing. If I didn’t look the way I looked, I would never have started in films.
+ - Acting is also working with people who invite you into their dreams and trust you with their innermost being.
+ - Sometimes it’s more difficult to do very simple, low-key films.
+ - I had mice that I kept as pets when I was very young, and I’ve always liked the way they look. Even rats. I’m not scared of them.
+ - I love vampire stories. That’s why I did the movie. Women especially were taken with that movie-even more so when it came out on video.
+ - People expect a lot more from someone they think looks interesting. It’s a burden.
+ - I’ve always been able to decide what was more important at different points in my life, but I never gave up personal things to work, never.
+ - Truffaut loved actresses, and he was very intense. All the actresses I knew wanted to do a film with him.
+ - I go to the movies a lot, and I regret when I see some actor that I used to like, to find them offering no more surprises.
+ - What I do is I come in the morning and get involved in the character, but I’m always very pleased to leave it at night and have my life.
+ - Film is a very young art that is still evolving. Soon, we shall reach a balance between content and technology.
+ - Most of the time I’ve worked with directors who write their own scripts. The story is more important to me than the part. The project of the film has always been more important to me.
+ - That’s what I like about film-it can be bizarre, classic, normal, romantic. Cinema is to me the most versatile thing.
+ - I have been involved in some films other actresses would not have done.
+ - Sometimes, just to give the impression that you have the strength and the vitality demands a lot. You can’t always give that impression when you have heels and a wig on and it’s 40 degrees outside.
+ - I like some of the early silent films because I love to watch how actors had to play then. What would interest me today is to do a silent film.
+ - I admire directors so much, I find them incredible: they manage such a huge number of people of different characters, think of the money involved.
+ - I can be very critical on myself and on other people; I can be very demanding.
+ - You get involved with a character after spending a long time waiting, and this demands a lot of energy and concentration.
+ - I choose my roles carefully.
+ - People don’t know very much about me. They do not know what really goes on in my private life.
+ - When I first see the dailies, I look only at myself, but then you start to see the scene.
+ - In America you need a bodyguard to go out.
+ - I like being famous when it’s convenient for me and completely anonymous when it’s not.
+ - A lot of actors don’t like to see how they’ve done every day.
+ - I don’t live that much with the character. I find it hard enough having to spend so many hours with the character during the day.
+
+97 quotes

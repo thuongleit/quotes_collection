@@ -1,0 +1,28 @@
+ - The most terrifying thing that ever happened to me was that Keith Moon decided he liked me.
+ - I can’t complain, but sometimes I still do.
+ - My Maserati does 185, I lost my license, now I don’t drive.
+ - I go to parties sometimes until four, it’s hard to leave when you can’t find the door.
+ - Every Saturday we work in the yard, pick up the dog doo, hope that it’s hard.
+ - The song tells me what to play.
+ - Everybody else shares the same cloudy sky.
+ - I’ve been sober for so many years. It wasn’t like you flick a switch, and you’re sober. It takes a while. You have to learn how to do everything all over again. You can measure how long that takes in terms of years.
+ - The shackles and the chains, the violence and aggression, the pettiness and scorn, the jealousy and hatred, the tempest and discord.
+ - We keep grinning ’til the weekend comes, just a pinch between your cheek and gum, all night long.
+ - I am sober, grounded, focused, I’m writing again, I like where I am. I’m real positive and I got this great family that came along with my wife – I’m happily married and she’s a great part of me that was missing – and I feel real good.
+ - You can’t be a legend in your parent’s basement.
+ - It’s easy to get on to something like alcohol or drugs so my advice to musicians is don’t lose your perspective because you will waste time in terms of years.
+ - With any level of success you get some non-musical things that come along – money, ego – and it’s easy to lose your perspective and get off doing what you did to get there.
+ - I wrote these songs for a dying planet, I’m sorry, but I’m telling the truth.
+ - I probably hold more town halls than any member of Congress.
+ - Now I’m running against a woman who, my God, that’s all she talks about. Our true heroes, it’s the last thing in the world they talk about.
+ - I’m running against a woman who’s got David Axelrod and Rahm Emanuel running her campaign.
+ - I enjoy my solo career because I get to play smaller places like clubs and theaters, and the interaction with the audience is much higher quality. It also sounds better than a baseball stadium. Everybody has a good seat, and I don’t have to play a specific part like I do in the Eagles.
+ - I think the latest estimates were that we have about 250,000 millionaires and billionaires. President Obama wants to increase their taxes 13 percent.
+ - You can fix things with digital technology and there’s a temptation to fix everything or make it perfect and what you’re losing there is the human performance that may not be perfect but there may be magic in it. You can make it perfect but music doesn’t sound good perfect for some reason.
+ - Inside the silence is a melody.
+ - I’m making records, my fans they can’t wait. They write me letters, tell me I’m great.
+ - Digital technology has eaten classic radio as we know it. Independent stations with disc jockeys who chose their own music have all gone; it’s these huge parent companies that own a hundred stations and then decide what we should hear.
+ - If you raise taxes on millionaires and billionaires, you’ll do nothing to address the debt and the deficit. And the thing you might do is you might finally put this economy over another cliff. These millionaires and billionaires are the folks that try to create jobs and help grow the economy.
+ - Mass inflation, welfare line, gross economy, trade it all for what’s behind curtain number three.
+
+26 quotes

@@ -1,0 +1,40 @@
+ - I saw my rock ‘n’ roll past flash before my eyes. And I saw something else: I saw rock and roll future and its name is Bruce Springsteen. And on a night when I needed to feel young, he made me feel like I was hearing music for the very first time.
+ - Atlantic’s Jerry Wexler believes first-rate records are made by first-rate voices. He certainly has worked with enough of them: Clyde McPhatter, Joe Turner, La Vern Baker, Ray Charles, Otis Redding, Solomon Burke, Wilson Pickett and Aretha Franklin.
+ - The Beatles production is often so ‘perfect’ that it sounds computerized. ‘Sgt. Pepper’ really does sound like it took four months to make.
+ - The title song of David Bowie’s ‘Young Americans’ is one of his handful of classics, a bizarre mixture of social comment, run-on lyric style, English pop and American soul.
+ - The greatness of Mac Rebennack, alias, Dr. John, also known as John Crieux, rests on his command of the musical use of idiomatic expression. Not a technically well-endowed singer, nor a great songwriter, he leaves his mark through the discipline and control he exerts over all that he touches.
+ - Bob Dylan was the source of pop music’s unpredictability in the Sixties. Never as big a record-seller as commonly imagined, his importance was first aesthetic and social, and then as an influence.
+ - Ringo Starr may not have much of a voice, but when he sang a song on a Beatle album, it had its own special charm.
+ - As a performing group, the Beatles began by playing old rock favorites, for dancing, to tough audiences in Liverpool and Hamburg. When they began writing seriously, they discovered that they couldn’t compose in the early American rock tradition.
+ - To her audience, Janis Joplin has remained a symbol, artifact and reminder of late Sixties youth culture. Her popularity never derived from her musical ability, but from her capacity to link her fantasies of freedom and immortality with ours.
+ - Elton John himself never seems pretentious but Bernie Taupin’s lyrics often do – sometimes pretentious in a clever sort of way, but pretentious nonetheless. There is a conflict between Elton’s and Bernie’s personal styles, no doubt about it.
+ - The Rolling Stones are constantly changing, but beneath the changes they remain the most formal of rock bands. Their successive releases have been continuous extensions of their approach, not radical redefinitions, as has so often been the case with the Beatles.
+ - James Taylor may be an all-American boy but he isn’t Horatio Alger, and the lionizing of many rock stars by the rock press has as much to do with old fashioned rags-to-riches stories as does the straight culture’s deification of its idols.
+ - My ambition was to be a record producer, and I had started doing that in the late ’60s with my work with the MC5 and my friend Livingston Taylor.
+ - The only criticism heard with any frequency of Elton John’s first American album, ‘Elton John,’ was that the production was too grandiose. The melodies were superb, and lyrics frequently very good, and the performances flawless.
+ - While the Beatles always had George Martin around to clean up their act, the Rolling Stones had Andrew Loog Oldham to coarsen theirs.
+ - There is something complete about Stevie Wonder, and one senses that he is not only exceptionally important today, but will continue to be for as long as he chooses.
+ - The Rolling Stones are violence. Their music penetrates the raw nerve endings of their listeners and finds its way into the groove marked ‘release of frustration.’
+ - In the end, the sign of Aretha Franklin’s artistry is that she always leaves her mark – first, on the music, then on us.
+ - The Stones were always exemplary of one of the best of all rock qualities: tightness. They have always been economical, the opposite of ornamental. Having a very clear idea of what they wanted to say they could go into a studio and make it all up on a three minute cut.
+ - James Taylor is the kind of person I always thought the word ‘folksinger’ referred to. He writes and sings songs that are reflections of his own life, and performs in them in his own style. All of his performances are marked by an eloquent simplicity.
+ - There were many stars in Motown’s firmament – among them, Stevie, Marvin Gaye, Smokey Robinson, Martha Reeves and Diana Ross – but I happen to have loved the Four Tops most of all.
+ - On the surface, rock and roll changes at an amazing pace. The influence of a figure like the Maharishi can appear and disappear in a matter of months. Talk about old fashioned rock and roll finds itself dead before it begins.
+ - Bob Dylan has always sealed his decisions with the unexplainable. His motives for withholding the release of the magnificent ‘Basement Tapes’ will be as forever obscure as Brian Wilson’s reasons for the destruction of the tapes for ‘Smile.’
+ - It is by now beyond question that Elton John is a competent and classy entertainer. Few people who have achieved his popularity have succeeded in maintaining his standards for performance and professionalism.
+ - On first listening, Joni Mitchell’s ‘Court And Spark,’ the first truly great pop album of 1974, sounds surprisingly light; by the third or fourth listening, it reveals its underlying tensions.
+ - Often, equipment can as easily function as a security blanket for musicians unwilling or unable to risk anything personal in the studio. Whether one catches the feeling on a record is a subjective matter. How can you be sure? The machinery can hold out the promise of at least mechanical perfection.
+ - It didn’t matter that Charlie Chaplin may not have been a great director or a great anything else. He made great movies.
+ - Joni Mitchell seems destined to remain in a state of permanent dissatisfaction – always knowing what she would like to do, always more depressed when it’s done.
+ - There is absolutely no doubt that the extraordinary Donna Summer belongs in the Rock and Roll Hall of Fame.
+ - There is a ‘patrician arrogance’ to James Taylor that accounts in part for his popularity while it at the same time explains the critical resistance to his work.
+ - The Faces do not, as some have recently alleged, play badly. They are more than competent, especially at creating a mid-Sixties Rolling Stones-styled groove, as their excellent version of ‘Memphis’ proves.
+ - As long as Elton John can bring forth one performance per album on the order of ‘Someone Saved My Life Tonight,’ the chance remains that he will become something more than the great entertainer he already is and go on to make a lasting contribution to rock.
+ - Since her landmark ‘Tapestry,’ Carole King has both oversimplified and over elaborated that masterful album’s style until her music has become something more overtly but less effectively personal.
+ - The early Bob Dylan was compulsively drawn to the conflict between stability and the search for immortality.
+ - The Who, England’s most self-conscious band, have released ‘Quadrophenia,’ which in turn freezes in time our image of the mid-Sixties Mod sensibility.
+ - Sly Stone doesn’t make good albums: only good records. His style is so infinite and revolves around so many crucial aspects that it has only come together perfectly on a handful of his singles.
+ - Barry White seemed so filled with self-parody at first that it was easy to dismiss him. But it is becoming increasingly obvious with every additional release that he is a very talented man.
+ - Part of me believes that the completed record is the final measure of a pop musician’s accomplishment, just as the completed film is the final measure of a film artist’s accomplishments.
+
+38 quotes

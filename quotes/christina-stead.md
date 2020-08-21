@@ -1,0 +1,68 @@
+ - Money goes where money is, money yearns where money is.
+ - If equity and human natural reason were allowed there would be no law, there would be no lawyers.
+ - A self-made man is one who believes in luck and sends his son to Oxford.
+ - Loneliness is a terrible blindness.
+ - About myself – no. I’m unimportant, an observer, a wandering animal.
+ - It is a rule of creative ability that it does nothing of any value, while it is possessed by this afflatus of vanity.
+ - People who don’t like scandals shouldn’t be in finance.
+ - If all the rich people in the world divided up their money among themselves, there wouldn’t be enough to go around.
+ - All new money is made through the shifting of social classes and the dispossession of old classes.
+ - Intuition is not infallible; it only seems to be the truth. It is a message which we may interpret wrongly.
+ - Radicalism is the opium of the middle class.
+ - We are primitive men; we taboo what we desire and need. How did the denying of love come to be associated with the idea of morality.
+ - A dominant race did not lie, because it had the whip.
+ - Charm is a cunning self-forgetfulness.
+ - It was easy to see how upsetting it would be if women began to love freely where love came to them. An abyss would open in the principal shopping street of every town.
+ - Socialist writers are made of sterner stuff than those who only let their characters steeplechase through trouble in order to comeout first in the happy ending of moral uplift.
+ - Altruism is selfishness out with a pair of field glasses and imagination.
+ - Venus can see at night without eyes.
+ - A single girl must lead a double life don’t you think?
+ - Life is nothing but rags and tags and filthy rags at that.
+ - You want to be free and break new ground, speak your mind, fear no man, have the neighbours acknowledge that you’re a good man; and at the same time you want to be a success, make money, join the country club, get the votes and kick the other man in the teeth and off the ladder.
+ - Why is it every careerist tries to turn his mother into a Madonna – to prove his intellect is a virgin birth, papa had nothing to do with it? It’s the sign of the misogynist.
+ - Money has no country.
+ - It is most oppressive to be an aunt.
+ - The white man in the tropics degenerates every day.
+ - And gold has no name, it licks the hand of anyone who has it: good dog!
+ - I never wanted to marry anyone like my father; I always preferred those more shoddy.
+ - Men never believe a woman can do anything.
+ - Creation of something out of nothing is the most primitive of human passions and the most optimistic.
+ - All middle-class novels are about the trials of three, all upper-class novels about mass fornication, all revolutionary novels about a bad man turned good by a tractor.
+ - A speculator is a man who, if he dies at the right time, has a rich widow.
+ - I don’t know what imagination is, if not an unpruned, tangled kind of memory.
+ - Gentlemen are overestimated, that is my experience.
+ - Everyone likes the obscene; that is real life.
+ - Ye want to tell the plain truth all your life, woman, and speak straight; otherwise ye get to seeing double.
+ - Philosophy is by the timid for the timid.
+ - Pukka sahib or rank outsider – gentleman or bounder – and it’s accent, accent, all the way.
+ - A tory youth is a youth speculating on his future.
+ - The Chinese are a knowing people; and I daresay that is why they once made a religious odor about old age; to prevent their sons from seeing their own future.
+ - Women are outside the law; they make nothing, they say yes or no to some collections of whereases.
+ - Old age and youth cannot live together.
+ - I hate Bernard Shaw because he says that life is compromise.
+ - A mother! What are we worth really? They all grow up whether you look after them or not.
+ - Humorists are always pessimists. They’re reactionaries: because they see that every golden cloud has a black lining.
+ - The more we know, the better our intuitions.
+ - Anyone would think a thin stick like me, weak and miserable would go down with everything: do you think I get more than my cough every winter? I bet I live till ninety, with all my aches and pains. To think that’s fifty more years of the Great-I-Am.
+ - The City is a machine miraculously organised for extracting gold from the seas, airs, clouds, from barren lands, holds of ships, mines, plantations, cottage hearth-stones, trees and rocks; and he, wretchedly waiting in the exterior halls, could not even get his finger on one tiny, tiny lever.
+ - Love is feared: it dissolves society, it’s unpopular, and it’s very rare.
+ - No rich man is a patriot, no rich man is a friend. They have all only got one fatherland the Ritz-Carlton; and one friend the mistress they’re promising to divorce their wives for.
+ - A lie is real; it aims at success. A liar is a realist.
+ - Los Angeles is a Yukon for crime-story writers.
+ - There’ll be no sense in sexual theories until women start telling their minds; and, of course, until they have some.
+ - Each Australian is a Ulysses.
+ - Women have been brought up much like slaves, that is, to lie.
+ - I know your breed; all your fine officials debauch the younger girls who are afraid to lose their jobs: that’s as old as Washington.
+ - To me, all the juice of a book is in an unpublished manuscript, and the published book is like a dead tree – just good for cutting up and building your house with.
+ - Strange is the influence of Marx on character.
+ - Weak, tea-drinking, effeminate, ineffectual – masters of India, robbers of South Africa, bedevillers of all Europe.
+ - If misery spelled revolt, we should have had nothing but revolt from the beginning of time. On the contrary, it is quite rare.
+ - Every work of art should give utterance, or indicate, the awful blind strength and the cruelty of the creative impulse, that is why they must all have what are called errors, both of taste and style.
+ - The French are a tremendously verbal race: they kill you with their assurances, their repetitions, their reasons, their platitudes, their formulae, their propositions, their solutions.
+ - A bank is a confidence trick. If you put up the right signs, the wizards of finance themselves will come in and ask you to take their money.
+ - Behind the concept of woman’s strangeness is the idea that a woman may do anything: she is below society, not bound by its law, unpredictable; an attribute given to every member of the league of the unfortunate.
+ - She was able to feel active creation going on around her in the rocks and hills, where the mystery of lust took place; and in herself, where all was yet only the night of senses and wild dreams, the work of passion going on.
+ - It’s fine to be a great democrat when you’ve a slave to rub your boots on.
+ - Old age is perhaps life’s decision about us...
+
+66 quotes

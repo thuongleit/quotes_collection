@@ -1,0 +1,87 @@
+ - I’m an advocate of human nature.
+ - Facebook says, ‘Privacy is theft,’ because they’re selling your lack of privacy to the advertisers who might show up one day.
+ - The most important thing about a technology is how it changes people.
+ - I think most of the dramatic new ideas come from little companies that then grow big.
+ - Criticism is always easier than constructive solutions.
+ - You have to be somebody before you can share yourself.
+ - I’m hoping the reader can see that artificial intelligence is better understood as a belief system than as a technology.
+ - People degrade themselves in order to make machines seem smart all the time.
+ - Google’s thing is not advertising because it’s not a romanticizing operation. It doesn’t involve expression. It’s a link. What they’re doing is selling access.
+ - After my mother’s death, I had such difficulty relating to people.
+ - It is impossible to work in information technology without also engaging in social engineering.
+ - The interesting thing about advertising is that the things that annoy us sometimes about it are really human. It’s us looking at ourselves – and like all human endeavors it’s imperfect.
+ - Create a website that expresses something about who you are that won’t fit into the template available to you on a social networking site.
+ - We imagine “pure” cybernetic systems, but we can prove only that we know how to build fairly dysfunctional ones. We kid ourselves when we think we understand something, even a computer, merely because we can model or digitize it.
+ - Governments oppress people, but so do mobs. You need to avoid both to make progress.
+ - Advertisers and marketers should be looking to bring new experiences to different parts of the brain. It’s a more profound idea than just dropping a billboard into a video game.
+ - An economy where advertisers thrive while journalists and artists struggle, reflects the values of a society more interested in deception and manipulation than in truth and beauty.
+ - Separation anxiety is assuaged by constant connection. Young people announce every detail of their lives on services like Twitter not to show off, but to avoid the closed door at bedtime, the empty room, the screaming vacuum of an isolated mind.
+ - There is no difference between machine autonomy and the abdication of human responsibility.
+ - Spirituality is committing suicide. Consciousness is attempting to will itself out of existence.
+ - I think seeking perfection in human affairs is a perfect way to destroy them.
+ - Linux is a superbly polished copy of an antique – shinier than the original, perhaps, but still defined by it.
+ - If we allow our self-congratulatory adoration of technology to distract us from our own contact with each other, then somehow the original agenda has been lost.
+ - Information is alienated experience.
+ - Funding a civilization through advertising is like trying to get nutrition by connecting a tube from one’s anus to one’s mouth.
+ - If you listen first, and write later, then what you write will have had time to filter through your brain and you’ll be in what you say. This is what makes you exist. If you are only a reflector of information, are you really there?
+ - We already knew that kids learned computer technology more easily than adults, It is as if children were waiting all these centuries for someone to invent their native language.
+ - A market economy cannot thrive absent the well-being of average people, even in a gilded age.
+ - It’s as if you kneel to plant the seed of a tree and it grows so fast that it swallows your whole town before you can even rise to your feet.
+ - People have to be able to make money off their brains and their hearts. Or else we’re all going to starve, and it’s the machines that’ll get good.
+ - If you love a medium made of software, there’s a danger that you will become entrapped in someone else’s recent careless thoughts. Struggle against that.
+ - I’m not in any sense anti-Facebook.
+ - I’m astonished at how readily a great many people I know, young people, have accepted a reduced economic prospect and limited freedoms in any substantial sense, and basically traded them for being able to screw around online.
+ - There is nothing more gray, stultifying, or dreary than life lived inside the confines of a theory.
+ - A real friendship ought to introduce each person to unexpected weirdness in the other.
+ - A digital sound sample in angry rap doesn’t correspond to the graffiti but the wall.
+ - A file-sharing service and a hedge fund are essentially the same things. In both cases, there’s this idea that whoever has the biggest computer can analyze everyone else to their advantage and concentrate wealth and power. It’s shrinking the overall economy. I think it’s the mistake of our age.
+ - Writing and thinking is not economically sustainable.
+ - When developers of digital technologies design a program that requires you to interact with a computer as if it were a person, they ask you to accept in some corner of your brain that you might also be conceived of as a program.
+ - When you have a global mush, people lose their identity, they become pseudonyms, they have no investment and no consequence in what they do.
+ - Musicians and journalists are the canaries in the coalmine, but, eventually, as computers get more and more powerful, it will kill off all middle-class professions.
+ - Anonymous blog comments, vapid video pranks and lightweight mash-ups may seem trivial and harmless, but as a whole, this widespread practice of fragmentary, impersonal communication has demeaned personal interaction.
+ - If you want to know what’s really going on in a society or ideology, follow the money. If money is flowing to advertising instead of musicians, journalists, and artists, then a society is more concerned with manipulation than truth or beauty.
+ - I think complexity is mostly sort of crummy stuff that is there because it’s too expensive to change the interface.
+ - The most effective young Facebook users, however – the ones who will probably be winners if Facebook turns out to be a model of the future they will inhabit as adults – are the ones who create successful online fictions about themselves.
+ - Why do people deserve a penny when they update their Facebook status? Because they’ll spend some of it on you.
+ - We’re losing track of the vastness of the potential for computer science. We really have to revive the beautiful intellectual joy of it, as opposed to the business potential.
+ - Services like Google and Facebook only exist because of the social acceptance of a mass amount of distributed volunteer labor from tons and tons of people.
+ - Software breaks before it bends, so it demands perfection in a universe that prefers statistics.
+ - I do real paintings, you know. I’m a little messy in the studio, so I’m a bit of a danger. But I just adore it.
+ - The nerd flavor of masculinity has overwhelmed the macho kind in real-life power dynamics, and therefore in popular culture.
+ - At a minimum if we can just have enough distribution of clout in society so it isn’t run by a tiny minority, then at the very least it gives us some room to breathe.
+ - There will always be humans, lots of them, who provide the data that makes the networked realization of any technology better and cheaper.
+ - Siren Servers are narcissists; blind to where value comes from, including the web of global interdependence that is at the core of their own value.
+ - What does it mean to not be alone? I’ve approached that question through music, technology, writing and other means.
+ - An intelligent person feels guilty for downloading music without paying the musician, but they use this free-open-culture ideology to cover it.
+ - If you get deep enough, you get trapped. Stop calling yourself a user. You are being used.
+ - One good test of whether an economy is humanistic or not is the plausibility of earning the ability to drop out of it for a while without incident or insult.
+ - My parents were kind of like me in that they had tons and tons of weird, amazing stuff.
+ - A remarkable thing about the Silicon Valley culture is that its status structure is so based on technical accomplishment and prowess.
+ - The network by itself is meaningless. Only the people were ever meaningful.
+ - I mean, you can’t have advertising be the only official business of the information economy if the information economy is going to take over.
+ - The wisdom of crowds works when the crowd is choosing the price of an ox, when there’s a single numeric average. But if it’s a design or something that matters, the decision is made by committee, and that’s crap. You want people and groups who are able to think thoughts before they share.
+ - If anything, there’s a reverse Moore’s Law observable in software: As processors become faster and memory becomes cheaper, software becomes correspondingly slower and more bloated, using up all available resources.
+ - External reality is sort of an affectation of the nervous system.
+ - Pop culture has entered into a nostalgic malaise. Online culture is dominated by trivial mashups of the culture that existed before the onset of mashups, and by fandom responding to the dwindling outposts of centralized mass media. It is a culture of reaction without action.
+ - Web 2.0 ideas have a chirpy, cheerful rhetoric to them, but I think they consistently express a profound pessimism about humans, human nature and the human future.
+ - Individuals achieve optimal stupidity when they’re given substantial powers while being insulated from the results of their actions.
+ - Our willingness to suffer for the sake of the perception of freedom is remarkable.
+ - Advertising is the edge of what people know how to do and of human experience and it explains the latest ways progress has changed us to ourselves.
+ - Advertisers are not thinking radically enough – they look for technology to lead instead of trying the neuroscience approach and thinking about what parts of the brain haven’t been activated before. These new experiences bring new capabilities to the brain.
+ - The beauty of HTML was that one-way linking made it very simple to spread because you could put something up and take no responsibility whatsoever. And that creates a society in which people display no responsibility whatsoever. That’s the problem.
+ - Style used to be an interaction between the human soul and tools that were limiting. In the digital era, it will have to come from the soul alone.
+ - Of all the things you can spend a lot of money on, the only things you expect to fail frequently are software and medicine.
+ - Emphasizing the crowd means de-emphasizing individual humans in the design of society, and when you ask people not to be people, they revert to bad, mob-like behaviors.
+ - If you’re old enough to have a job and to have a life, you use Facebook exactly as advertised, you look up old friends.
+ - We have repeatedly demonstrated our species’s bottomless ability to lower our standards to make information technology look good.
+ - People try to treat technology as an object, and it can’t be. It can only be a channel.
+ - The great thing about crummy software is the amount of employment it generates.
+ - Our times demand rejection of seven word bios.
+ - I’ve occasionally been wrong about certain things, which is in a way more delightful than being right.
+ - Evolution has never found a way to be any speed but very slow.
+ - Books are really, really hard to write. They represent a kind of a summit of grappling with what one really has to say.
+ - Humans change themselves through technology.
+ - Mobs and dictators were made for each other, and when mobs appear, dictators will soon flourish.
+
+85 quotes

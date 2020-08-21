@@ -1,0 +1,44 @@
+ - There are things in American culture that want to wipe the class distinction. Blue jeans. Ready-made clothes. Coca-Cola.
+ - I used to be fond of Indian arm wrestling.
+ - I’ve been writing about James Fenimore Cooper. He was not a writer. Here was a man who was 30 years old and had never put anything more than his signature on paper.
+ - I have, I admit, a low tolerance for detached chronicling and cool analysis.
+ - It’s so wrong when I pick up a new edition of Huckleberry Finn and I look at the last page and it doesn’t say, Yours truly, at the end.
+ - I long for the raised voice, the howl of rage or love.
+ - Faulkner turned out to be a great teacher. When a student asked a question ineptly, he answered the question with what the student had really wanted to know.
+ - I think the pattern of my essays is, A funny thing happened to me on my way through Finnegans Wake.
+ - If there’s one thing I can’t stand, it’s somebody doing something because I pushed them in that direction.
+ - The text is merely one of the contexts of a piece of literature, its lexical or verbal one, no more or less important than the sociological, psychological, historical, anthropological or generic.
+ - All good criticism should be judged the way art is. You shouldn’t read it the way you read history or science.
+ - Unless criticism refuses to take itself quite so seriously or at least to permit its readers not to, it will inevitably continue to reflect the finicky canons of the genteel tradition and the depressing pieties of the Culture Religion of Modernism.
+ - Faulkner sat in our living room and read from Light in August. That was incredible.
+ - My assignment is what every writer’s assignment is: tell the truth of his own time.
+ - Foucault was the one person I met in France that I could talk to. He was a mensch. You know whether you agree with him or not because you know what he is saying.
+ - The novel is always pop art, and the novel is always dying. That’s the only way it stays alive. It does really die. I’ve been thinking about that a lot.
+ - Hemingway seems to be in a funny position. People nowadays can’t identify with him closely as a member of their own generation, and he isn’t yet historical.
+ - DeLillo never seems committed to me to what he is writing. Very nice surfaces, but he’s got nothing underneath.
+ - When all of us are forgotten, people will still be remembering Stephen King.
+ - The novel doesn’t come into existence until certain methods of reproducing fiction come along.
+ - The reason Saul Bellow doesn’t talk to me anymore is because he knows his new novels are not worth reading.
+ - Jane Austen is at the end of the line that begins with Samuel Richardson, which takes wonder and magic out of the novel, treats not the past but the present.
+ - I’ve had a tough time with Pynchon. I liked him very much when I first read him. I liked him less with each book. He got denser and more complex in a way that didn’t really pay off.
+ - One more recent novelist to come along is Cormac McCarthy. Him, I like.
+ - Gertrude Stein really thought of Hemingway as frail. He almost married Stein.
+ - It’s funny to be a critic.
+ - Saul Bellow never took my advice when he was my friend.
+ - Cooper wrote a novel which is absolutely indistinguishable from Austen, completely from a female point of view, completely English, no sense that he was an American.
+ - Of the female black authors, I really like Morrison’s early books a lot. But she’s really become so much a clone of Faulkner. He did it better.
+ - When I was 12 years old, someone took me to see Martha Graham. It was nothing like what I thought of as serious dancing and even then I knew I was having a great experience. It was as if somebody was moving through space like no one ever did before.
+ - The black situation has changed. They finally realized they’re Americans.
+ - I liked Camille Paglia. I liked her even better when I heard her talk.
+ - I never met anybody in my life who says, I want to be a critic. People want to be a fireman, poet, novelist.
+ - I admire Ginsberg as a poet, despite the fact that he seems not to know when he is being good and when he is bad. But he will last, or at least those poems will last.
+ - I like that people who are not experts can not only understand but get engaged by my work. I like that Joe Paterno can read me. Bill Bradley.
+ - When somebody asks me what I do, I don’t think I’d say critic. I say writer.
+ - Critics? How do they happen? I know how it happened to me. I would send a poem or story to a magazine and they would say this doesn’t suit our needs precisely but on the other hand you sound interesting. Would you be interested in doing a review?
+ - Raymond Carver is good. I think he’ll be appreciated more and more. He’s an easy writer to imitate.
+ - Henry Miller wrote novels, but he calls his protagonist Henry, often Henry Miller, and his books are in this gray area between memoir and novel.
+ - Kafka is still unrecognized. He thought he was a comic writer.
+ - Anybody in the next centuries wanting to know what it was like to be a poet in the middle of the 20th century should read Kaddish.
+ - I gave up writing blurbs because you make one friend and 200 enemies.
+
+42 quotes

@@ -1,0 +1,21 @@
+ - Love your life, live for the day.
+ - Desire means never quit.
+ - Fear is only a four letter word.
+ - Expand your Imagination.
+ - You haven’t broken me Taker, you haven’t broken me, I’m still standing.
+ - Resist. Unlearn. Defy.
+ - The extreme always makes an impression.
+ - I will take what is mine and keep it for as long as i want.
+ - When the time is yours, the future is waiting, The person you become, and the people you’re creating.
+ - I can feel you without even seeing you.
+ - Develop a depression.
+ - Don’t die to see me, live to love me.
+ - It’s all in the mind or it’s all in the head. Surrounded by bone, it’s nothing but muscle.
+ - I’m 31 years old and can’t complain about the money I make and the smiles I can create on people’s faces.
+ - Let me fill you in on a few of my beliefs. First of all, I believe that I’ll dress the way I want and I’ll act the way I want. But most importantly, these fans don’t just look at me for my appearance, they love me for what’s on the inside.
+ - I paint all the time. Each night I wrestle, I paint my face because I am an artist. It’s kind of all coming together where I am able to do everything I really love to do and need in my life.
+ - Naturally as a kid, I was inspired by Sting. I remember seeing him with the blonde hair, the neon tights, and the painted face.
+ - It’s always a challenge to top what I have done in the past.
+ - Even with my daughter now, I kind of know how my dad feels.
+
+19 quotes

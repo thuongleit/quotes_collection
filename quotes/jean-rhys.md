@@ -1,0 +1,79 @@
+ - You can pretend for a long time, but one day it all falls away and you are alone. We are alone in the most beautiful place in the world...
+ - I am empty of everything. I am empty of everything but the thin, frail ghosts in my room.
+ - I am the only real truth I know.
+ - Blot out the moon, Pull down the stars. Love in the dark, for we’re for the dark So soon, so soon.
+ - If I was bound for hell, let it be hell. No more false heavens. No more damned magic. You hate me and I hate you. We’ll see who hates best. But first, first I will destroy your hatred. Now. My hate is colder, stronger, and you’ll have no hate to warm yourself. You will have nothing.
+ - Yes, I am sad, sad as a circus-lioness, sad as an eagle without wings, sad as a violin with only one string and that one broken, sad as a woman who is growing old. Sad, sad, sad...
+ - Justice. I’ve heard that word. I tried it out. I wrote it down. I wrote it down several times and always it looked like a damn cold lie to me. There is no justice.
+ - She could give herself up to the written word as naturally as a good dancer to music or a fine swimmer to water. The only difficulty was that after finishing the last sentence she was left with a feeling at once hollow and uncomfortably full. Exactly like indigestion.
+ - Love was a terrible thing. You poisoned it and stabbed at it and knocked it down into the mud – well down – and it got up and staggered on, bleeding and muddy and awful. Like – like Rasputin.
+ - She had left me thirsty and all my life would be thirst and longing for what I had lost before I found it.
+ - Everything tender and melancholy – as life is sometimes, just for one moment.
+ - All of writing is a huge lake. There are great rivers that feed the lake, like Tolstoy or Dostoyevsky. And then there are mere trickles, like Jean Rhys. All that matters is feeding the lake. I don’t matter. The lake matters. You must keep feeding the lake.
+ - I like shape very much. A novel has to have shape, and life doesn’t have any.
+ - Today I must be very careful, today I have left my armor at home.
+ - I am sad, sad as a circus-lioness...
+ - I would never be part of anything. I would never really belong anywhere, and I knew it, and all my life would be the same, trying to belong, and failing. Always something would go wrong. I am a stranger and I always will be, and after all I didn’t really care.
+ - Next week, or next month, or next year I will kill myself. But I might as well last out my month’s rent, which has been paid up...
+ - The feeling of Sunday is the same everywhere, heavy, melancholy, standing still.
+ - Human beings are struggling, and so they are egoists. But it’s wrong to say that they are wholy cruel – it’s a deformed view.
+ - And what does anyone know about traitors, or why Judas did what he did?
+ - If I was bound for hell, let it be hell. No more false heaven. No more damned magic.
+ - London is like a cold dark dream sometimes.
+ - I want more of this feeling – fire and wings.
+ - They say when trouble comes close ranks, and so the white people did.
+ - I sit at my window and the words fly past me like birds – with God’s help I catch some.
+ - The perpetual hunger to be beautiful and that thirst to be loved which is the real curse of Eve.
+ - I must write. If I stop writing my life will have been an abject failure. It is that already to other people. But it could be an abject failure to myself. I will not have earned death.
+ - I took the red dress down and put it against myself. ‘Does it make me look intemperate and unchaste?’ I said.
+ - Even the one moment that you thought was your eternity fades out and is forgotten and dies.
+ - There are always two deaths, the real one and the one people know about.
+ - Have all beautiful things sad destinies?
+ - It’s funny, he said, have you ever thought that a girl’s clothes cost more than the girl inside them?
+ - She’ll have no lover, for I don’t want her and she’ll see no other.
+ - It is strange how sad it can be – sunlight in the afternoon, don’t you think?
+ - Now I no longer wish to be loved, beautiful, happy or successful. I want one thing and one thing only – to be left alone.
+ - Something came out from my heart into my throat and then into my eyes.
+ - Only the magic and the dream are true – all the rest’s a lie.
+ - There is always the other side, always.
+ - It was like letting go and falling back into water and seeing yourself grinning up through the water, your face like a mask, and seeing the bubbles coming up as if you were trying to speak from under the water. And how do you know what it’s like to try to speak from under water when you’re drowned?
+ - I often want to cry. That is the only advantage women have over men – at least they can cry.
+ - But they never last, the golden days. And it can be sad, the sun in the afternoon, can’t it? Yes, it can be sad, the afternoon sun, sad and frightening.
+ - And then the days came when I was alone.
+ - Cold – cold as truth, cold as life. No, nothing can be as cold as life.
+ - For the first time she had dimly realized that only the hopeless are starkly sincere and that only the unhappy can either give or take sympathy – even some of the bitter and dangerous voluptuousness of misery.
+ - He had discovered that people who allow themselves to be blown about by the winds of emotion and impulse are always unhappy people.
+ - Stephan was secretive and a liar, but he was a very gentle and expert lover. She was the petted, cherished child, the desired mistress, the worshipped, perfumed goddess. She was all these things to Stephan – or so he made her believe.
+ - It’s so easy to make a person who hasn’t got anything seem wrong.
+ - Sometimes the Earth trembles; sometimes you can feel it breathe.
+ - I have arranged my little life.
+ - Every word I say has chains round its ankles; every thought I think is weighted with heavy weights.
+ - I didn’t know, I didn’t know, I didn’t know.
+ - The last time you were happy about nothing; the first time you were afraid about nothing. Which came first?
+ - Some must cry so that others may be able to laugh the more heartily. Sacrifices are necessary...
+ - The woman had a humble, cringing manner. Of course, she had discovered that, having neither money nor virtue, she had better be humble if she knew what was good for her.
+ - A room is, after all, a place where you hide from the wolves. That’s all any room is.
+ - Not that she objected to solitude. Quite the contrary. She had books, thank Heaven, quantities of books. All sorts of books.
+ - When he talked his eyes went away from mine and then he forced himself to look straight at me and he began to explain and I knew that he felt very strange with me and that he hated me, and it was funny sitting there and talking like that, knowing he hated me.
+ - One realized all sorts of things. The value of an illusion, for instance, and that the shadow can be more important than the substance. All sorts of things.
+ - And I saw that all my life I had known that this was going to happen, and that I’d been afraid for a long time, I’d been afraid for a long time. There’s fear, of course, with everybody. But now it had grown, it had grown gigantic; it filled me and it filled the whole world.
+ - Of course she had some pathetic illusions about herself or she would not be able to go on living.
+ - All of a writer that matters is in the book or books. It is idiotic to be curious about the person.
+ - I’ve been so ridiculous all my life that a little bit more or a little bit less hardly matters now.
+ - The musty smell, the bugs, the lonliness, this room, which is part of the street outside-this is all I want from life.
+ - After all this, what happened? What happened was that, as soon as I had the slightest chance of a place to hide in, I crept into it and hid. Well, sometimes it’s a fine day isn’t it? Sometimes the skies are blue. Sometimes the air is light, easy to breathe. And there is always tomorrow...
+ - Life if curious when reduced to its essentials.
+ - I have been here five days. I have decided on a place to eat in at midday, a place to eat in at night, a place to have my drink in after dinner. I have arranged my little life.
+ - The rumble of the life outside was like the sound of the sea which was rising gradually around her.
+ - I found when I was a child that if I put the hurt into words, it would go.
+ - There is no doubt that running away on a fresh, blue morning can be exhilarating.
+ - Now at last I know why I was brought here and what I have to do.
+ - When I think about it, if I had to choose, I’d rather be happy than write.
+ - It was the darkness that got you. It was heavy darkness, greasy and compelling. It made walls round you, and shut you in so that you felt like you could not breathe.
+ - When you are a child you are yourself and you know and see everything prophetically. And then suddenly something happens and you stop being yourself; you become what others force you to be. You lose your wisdom and your soul.
+ - She haunted him, as an ungenerous action haunts one.
+ - If all good, respectable people had one face, I’d spit in it.
+ - What you take to be hyprocrisy is sometimes a certain caution, sometimes genuine, though ponderous, childish, sometimes a mixture of both.
+ - Something in her brain that still remained calm told her that she was doing a very foolish thing indeed.
+
+77 quotes

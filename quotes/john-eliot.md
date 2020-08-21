@@ -1,0 +1,26 @@
+ - History shows us that the people who end up changing the world – the great political, social, scientific, technological, artistic, even sports revolutionaries – are always nuts, until they are right, and then they are geniuses.
+ - As soon as anyone starts telling you to be “realistic,” cross that person off your invitation list.
+ - Confidence is consistency of thinking about what is possible and how to make it possible.
+ - Stick with your own perception of yourself-living in your own world-and letting your reality, not the reality presented by other people or particular situations, control your performance.
+ - Perfectionism is simply putting a limit on your future. When you have an idea of perfect in your mind, you open the door to constantly comparing what you have now with what you want. That type of self criticism is significantly deterring.
+ - You will not do incredible things without an incredible dream.
+ - Exceptional thinkers ignore their critics and go about their business making history.
+ - Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work.
+ - Overachievers don’t think reasonably, sensibly, or rationally.
+ - Overachievement is aimed at people who want to maximize their potential. And to do that, I insist you throw caution to the wind, ignore the pleas of parents, coaches, spouses, and bosses to be “realistic.”
+ - Stress is the high-level performers PowerBar.
+ - If you really want to break from the pack, you have to risk being perceived to be as eccentric as these people. You have to think exceptionally-a LOT!
+ - The idea of perfect closes your mind to new standards. When you drive hard toward one ideal, you miss opportunities and paths, not to mention hurting your confidence. Believe in your potential and then go out and explore it; don’t limit it.
+ - Like squirrels, the best in every business do what they have learned to do without questioning their abilities – they flat out trust their skills, which is why we call this high-performance state of mind the “Trusting Mindset.”
+ - Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition.
+ - What turns ordinary people into overachievers is the way they use their minds when they are called on to perform.
+ - High achievers dwell on what they do well and spend very little time evaluating themselves and their performances.
+ - We must not sit down and wait for miracles. Up and be going!
+ - I have discovered that I cannot enhance anybody’s performance without getting them not only to live with the butterflies that come with high-pressure jobs but to embrace that kind of physical response, enjoy it, get into it. That’s the first real ticket to being a performer who thinks exceptionally.
+ - Superstars perform so naturally and so instinctively that they seem to be able to enter a pressure-packed situation that would terrify or freeze most people as if nothing matters. They let it happen, let it go. They couldn’t care less about the results.
+ - The true exceptional performer is on super pilot. Every single sense, every fiber of his body is brought together in what he is doing.
+ - Superstars think like superstars long before the fans or the press anoint them.
+ - If you really want to find out what you’re capable of, you cannot put limits on yourself, and you definitely cannot be cautious.
+ - Anyone who strays too far from the majority view or the conventional wisdom is bound to be labeled “arrogant,” “a maverick,” “a Wildman,” “weird,” or even “crazy.”
+
+24 quotes

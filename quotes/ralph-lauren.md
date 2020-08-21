@@ -1,0 +1,67 @@
+ - I don’t design clothes, I design dreams.
+ - Books open windows to the world and have the power to transform lives.
+ - You have to create something from nothing.
+ - I believe in style, not fashion.
+ - Style is very personal. It has nothing to do with fashion. Fashion is over quickly. Style is forever.
+ - Fashion is not necessarily about labels. It’s not about brands. It’s about something else that comes from within you.
+ - I’m interested in longevity, timelessness, style – not fashion.
+ - People ask how can a Jewish kid from the Bronx do preppy clothes? Does it have to do with class and money? It has to do with dreams.
+ - Breast cancer is not just a woman’s issue – it affects all of us: the brothers, husbands, fathers, children and friends.
+ - What I do is about living. It’s about living the best life you can and enjoying the fullness of the life around you- from what you wear, to the way you live, to the way you love.
+ - I believe one can live many lives through personal style. Every day is an occasion to reinvent yourself.
+ - The best thing you can do is go away from this saying, ‘I can do this too,’ because it’s all possible and I’m living proof.
+ - Enjoy your family. Do things that you like to do. Stay strong. That’s the secret to remaining happy.
+ - More than ever I’m proud to be an American, to live in a country that respects the rights of all to marry whomever they love. The Supreme Court decision gives new meaning to the freedoms we cherish.
+ - As I started to buy cars, I didn’t know that I was building a collection. I just wanted the cars I was dreaming about. Once you drive a good one, it is like having a fever.
+ - Personal style is about a sense of yourself, a sense of what you believe in and wearing what you like.
+ - Success isn’t based on ‘look what I can do!’ but more on an inner sense of self and believing you have something to say in your own consistent way. And I think we all have to fight to maintain our unique style and taste in a world that would have us conform.
+ - I have had a lot of good things happen, but I’ve also had a lot of terrible things happen.
+ - It’s easier to follow fashion than it is to have personal style.
+ - I don’t think I’m the gift of the world – I just do what I do, and I love it and I’ve been lucky.
+ - I can drive a certain car one day with great pleasure, and the next day I’ll be disappointed that the experience isn’t as good as the day before. These cars have moods that change with the weather, or with the driver’s own moods.
+ - Glamour is an attitude-it’s the expression of a certain kind of confidence. A glamorous woman is always elegant, but she also possesses an air of mystery and excitement. She’s dramatic-almost untouchable.
+ - When friends enter a home, they sense its personality and character, the family’s style of living – these elements make a house come alive with a sense of identity, a sense of energy, enthusiasm, and warmth, declaring: “This is how we are; this is how we live.”
+ - Each day is an occasion to reinvent ourselves.
+ - Fashion is a function of lifestyle, and style a function of quality, integrity and timelessness.
+ - My wife Ricky is my muse. Her personal style and natural beauty have always been my inspiration.
+ - I have always loved things that are timeless and get better with age.
+ - Love the fun of clothes, not the status of fashion.
+ - Some days I have a knot in my stomach because I’ve got to sit down and come up with something in womenswear that no one else came up with.
+ - Some women think that if the look this season is minis, they have to wear minis. If you don’t have great legs, there are plenty of alternatives.
+ - Invention is 10% inspiration and 90% perspiration. Thomas Edison I don’t design clothes, I design dreams.
+ - I think I’m very fortunate to be born in America. And lucky to be able to have lived and had the opportunity to do what I want to do.
+ - I have always been drawn to the beauty of things designed to function. Mixing technical pieces with more traditional prints and patterns creates not only a quality experience, but a look that is unique, and for me, very exciting.
+ - They know they’re going to look beautiful, and I don’t think women should look like costumes. They shouldn’t look like fashion victims.
+ - I’ve never wanted to be in fashion. Because if you’re in fashion, you’re going to be out of fashion.
+ - I like romance, I like glamour and I like realism. I think that’s a great combination.
+ - My life has been a dream. If someone had to write a story about it, it would seem a little unreal. It’s the kind of story I would read and say, ‘Nah, that’s not possible.’
+ - My day is pretty much busy. I do 15 million things in the course of a day. I’m holding up I think. I don’t know how I look, but I think I’m holding up.
+ - For me, style is about quality, integrity and timelessness. It is free of trends but always feels fresh and new.
+ - I don’t like it when a woman looks like a fashion victim.
+ - I went through the extremes of amazing notoriety and also the dreaded things that you never thought you’d have to live through. Not everything works the way you want it to, but if I sit back and think, ‘Am I happy about this?’ Yeah. I wouldn’t have done anything any better.
+ - Personal style is about taking a risk, trying something unexpected, and having fun with fashion, but always being true to yourself.
+ - I think the people who work with me are people who love style themselves. I’m leaving the office and they’re still working. They’re passionate.
+ - I am constantly drawing inspiration from everything I see-the places I travel, the people I know and the movies I see.
+ - I’m designing what I want. If it’s a man’s coat with a pair of skinny-leg jeans, I’ll do that. It’s whatever my mood is. But it’s about style, and it’s about an understated taste that’s cool.
+ - I have a vision for living. It’s about elements of style. It’s about all the things that I love, that I believe in.
+ - Ralph Lauren has always stood for providing quality products, creating worlds and inviting people to take part in our dream. We were the innovators of lifestyle advertisements that tell a story and the first to create stores that encourage customers to participate in that lifestyle.
+ - Black is not as good as Purple.
+ - The clothes that I design and everything I’ve done is about life and how people live and how they want to live and how they dream they’ll live. That’s what I do.
+ - I like magazines. I love to look at a magazine. But the magazines have got to get better. Everything pushes someone else to get better. So the Internet pushes the magazines.
+ - I was very influenced by movies; I was very influenced by a world that had a sense of dream.
+ - When I create a collection, I approach it with a cinematic point of view-I am not designing clothes, I’m creating a world.
+ - I exercise at the gym with a trainer. I feel it’s very healthy, very important – important for everybody. I feel it’s good for you. It makes you feel better. It loosens you up a little bit.
+ - We all have to fight to maintain our unique style and taste in a world that would have us conform.
+ - My dreams are my work. I design out of the things that I love.
+ - What’s interesting about fashion is it’s a world, and I think that’s what I’ve done – I’ve made a contribution and I think I’ve built a world. The world is beyond just clothes. Taste and style is beyond clothes. It’s in food; it’s in quality.
+ - We all get report cards in many different ways, but the real excitement of what you’re doing is in the doing of it. It’s not what you’re gonna get in the end – it’s not the final curtain – it’s really in the doing it, and loving what you’re doing.
+ - I’m a fan of people that have quality, that do what they do and that are not into the showbiz.
+ - Every time I design clothes, I’m making a movie.
+ - My father was an artist. When life was harder and he couldn’t get jobs, he painted houses, but he was artistic. When I went to see his work, it was special. Somewhere along the line, I felt I was special. I didn’t know why.
+ - I am not looking like Armani today and somebody else tomorrow. I look like Ralph Lauren. And my goal is to constantly move in fashion and move in style without giving up what I am.
+ - I try to design into a world that is constantly moving, and moving me.
+ - I have always done what I love myself. My philosophy was that I never had focus groups. I did what I wear.
+ - I never went to fashion school. I didn’t know what a designer was. I knew I had something, but I didn’t know what it was. And it could just have easily been nothing.
+ - Our kitchen is warm; it’s who we are. And it has everything. Honestly, I could get rid of the rest of the house and just live in the kitchen.
+
+65 quotes

@@ -1,0 +1,43 @@
+ - Don’t overdo it, don’t underdo it. Do it just on the line.
+ - I dream a lot. I do more painting when I’m not painting. It’s in the subconscious.
+ - Believe in yourself and believe in love. Love something.
+ - I am not a juicy painter.
+ - Most artists look for something fresh to paint; frankly I find that quite boring. For me it is much more exciting to find fresh meaning in something familiar.
+ - If somehow I can, before I leave this earth, combine my absolutely mad freedom and excitement with truth, then I will have done something.
+ - I’m not at all interested in painting the object just as it is in nature. Certainly I’m much more interested in the mood of a thing than the truth of a thing.
+ - I don’t think that there is anything that is really magical unless it has a terrifying quality.
+ - I love to study the many things that grow below the corn stalks and bring them back to the studio to study the color. If one could only catch that true color of nature – the very thought of it drives me mad.
+ - I prefer winter and fall, when you feel the bone structure of the landscape. Something waits beneath it; the whole story doesn’t show.
+ - It’s a shock for me to go through and see all those years of painting my life, which is very personal for me. It’s a very difficult thing for an artist to look back at his work.
+ - God, I’ve frozen my ass off painting snow scenes!
+ - I get letters from people about my work. The thing that pleases me most is that my work touches their feelings. In fact, they don’t talk about the paintings. They end up telling me the story of their life or how their father died.
+ - I think one’s art goes as far and as deep as one’s love goes.
+ - With watercolour, you can pick up the atmosphere, the temperature, the sound of snow shifting through the trees or over the ice of a small pond or against a windowpane. Watercolour perfectly expresses the free side of my nature.
+ - I think a person permeates a spot, and a lost presence makes the environment timeless to me, keeps an area alive. It pulsates because of that.
+ - Artists today think of everything they do as a work of art. It is important to forget about what you are doing – then a work of art may happen.
+ - What you have to do is break all the rules.
+ - Well, being the youngest child and frail, I was left alone a great deal of the time.
+ - I think one’s art goes as far and as deep as one’s love goes. I see no reason for painting but that. If I have anything to offer, it is my emotional contact with the place where I live and the people I do.
+ - I surrender to the world of my imagination, reenacting all those wonderful tales my father would read aloud to me. I became a very active reader, especially history and Shakespeare.
+ - It’s a moment that I’m after, a fleeting moment, but not a frozen moment.
+ - And, of course, I began drawing so much – wild, undisciplined pencil drawings and watercolors of knights battling and such.
+ - I wanted to get it all down, maybe out of my system. I wanted to be able to say, Everything’s possible-if you believe and can get excited.
+ - My aim is to escape from the medium with which I work.
+ - If you clean it up, get analytical, all the subtle joy and emotion you felt in the first place goes flying out the window.
+ - My struggle is to preserve that abstract flash – like something you caught out of the corner of your eye, but in the picture you can look at it directly.
+ - I’ve never studied the Japanese. That’s something that must have crept in there. But the Japanese are my biggest clients. They seem to like the elemental quality.
+ - I don’t really have studios. I wander around around people’s attics, out in fields, in cellars, anyplace I find that invites me.
+ - I can’t work completely out of my imagination-I must put my foot in a bit of truth-and then I can fly free.
+ - To be interested solely in technique would be a very superficial thing to me. If I have an emotion, before I die, that’s deeper than any emotion that I’ve ever had, then I will paint a more powerful picture that will have nothing to do with just technique, but will go beyond it.
+ - I had whooping cough when I was very young, which left me with bronchial problems, and I would always pick up colds. I was very thin and nervous so my father and mother took me out of school and had me tutored at home.
+ - When you lose your simplicity, you lose your drama.
+ - I think you have to use your eyes as well as your emotion, and one without the other just doesn’t work.
+ - My pencil is like a fencer’s foil.
+ - My aim is to escape from the medium with which I work; to leave no residue of technical mannerisms to stand between my expression and the observer. To seek freedom through significant form and design rather than through the diversion of so-called free and accidental brush handling.
+ - To have all your life’s work and to have them along the wall, it’s like walking in with no clothes on. It’s terrible.
+ - My aim is not to exhibit craft, but rather to submerge it, and make it rightfully the handmaiden of beauty, power and emotional content.
+ - The most irritating experience for an artist is to have his work criticized before it is finished.
+ - At 18 I began painting steadily fulltime and at age 20 had my first New York show at the Macbeth Gallery.
+ - To be interested solely in technique would be a very superficial thing to me.
+
+41 quotes

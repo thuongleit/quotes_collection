@@ -1,0 +1,26 @@
+ - Young man, in mathematics you don’t understand things. You just get used to them.
+ - If people do not believe that mathematics is simple, it is only because they do not realize how complicated life is.
+ - Computers are like humans – they do everything except think.
+ - You insist that there is something a machine cannot do. If you tell me precisely what it is a machine cannot do, then I can always make a machine which will do just that.
+ - Truth is much too complicated to allow anything but approximations.
+ - There probably is a God. Many things are easier to explain if there is than if there isn’t.
+ - It is just as foolish to complain that people are selfish and treacherous as it is to complain that the magnetic field does not increase unless the electric field has a curl. Both are laws of nature.
+ - With four parameters I can fit an elephant, and with five I can make him wiggle his trunk.
+ - There’s no sense in being precise when you don’t even know what you’re talking about.
+ - Technological possibilities are irresistible to man. If man can go to the moon, he will. If he can control the climate, he will.
+ - When we talk mathematics, we may be discussing a secondary language built on the primary language of the nervous system.
+ - You don’t have to be responsible for the world that you’re in.
+ - All stable processes we shall predict. All unstable processes we shall control.
+ - I am thinking about something much more important than bombs. I am thinking about computers.
+ - I would like to make a confession which may seem immoral: I do not believe in Hilbert space anymore.
+ - The emphasis on mathematical methods seems to be shifted more towards combinatorics and set theory – and away from the algorithm of differential equations which dominates mathematical physics.
+ - Science, as well as technology, will in the near and in the farther future increasingly turn from problems of intensity, substance, and energy, to problems of structure, organization, information, and control.
+ - You wake me up early in the morning to tell me I am right? Please wait until I am wrong.
+ - The total subject of mathematics is clearly too broad for any of us. I do not think that any mathematician since Gauss has covered it uniformly and fully; even Hilbert did not and all of us are of considerably lesser width quite apart from the question of depth than Hilbert.
+ - Anyone who attempts to generate random numbers by deterministic means is, of course, living in a state of sin.
+ - Neumann, to a physicist seeking help with a difficult problem: Simple. This can be solved by using the method of characteristics. Physicist: I’m afraid I don’t understand the method of characteristics. Neumann: In mathematics you don’t understand things. You just get used to them.
+ - If one has really technically penetrated a subject, things that previously seemed in complete contrast, might be purely mathematical transformations of each other.
+ - Life is a process which may be abstracted from other media.
+ - The most vitally characteristic fact about mathematics is, in my opinion, its quite peculiar relationship to the natural sciences, or more generally, to any science which interprets experience on a higher than purely descriptive level.
+
+24 quotes

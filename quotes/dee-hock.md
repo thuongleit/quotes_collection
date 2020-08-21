@@ -1,0 +1,45 @@
+ - Simple, clear purpose and principles give rise to complex intelligent behavior. Complex rules and regulations give rise to simple stupid behavior.
+ - The problem is never how to get new, innovative thoughts into your mind, but how to get old ones out. Every mind is a building filled with archaic furniture. Clean out a corner of your mind and creativity will instantly fill it.
+ - Given the right circumstances, from no more than dreams, determination, and the liberty to try, quite ordinary people consistently do extraordinary things.
+ - Hire and promote first on the basis of integrity; second, motivation; third, capacity; fourth, understanding; fifth, knowledge; and last and least, experience.
+ - An organization’s success has more to do with clarity of shared purpose, common principles and strength of belief in them than to assets, expertise, operating ability or management competence, important as they may be.
+ - Making good judgments when one has complete data, facts, and knowledge is not leadership – it’s bookkeeping.
+ - Money motivates neither the best people, nor the best in people. It can move the body and influence the mind, but it cannot touch the heart or move the spirit; that is reserved for belief, principle, and morality.
+ - An organization, no matter how well designed, is only as good as the people who live and work in it.
+ - With the advent of genetic engineering the time required for the evolution of new species may literally collapse.
+ - Clean out a corner of your mind and creativity will instantly fill it.
+ - Heaven is purpose, principle, and people. Purgatory is paper and procedure. Hell is rules and regulations.
+ - Substance is enduring, form is ephemeral.
+ - If you look to lead, invest at least 40% of your time managing yourself – your ethics, character, principles, purpose, motivation, and conduct. Invest at least 30% managing those with authority over you, and 15% managing your peers.
+ - Only fools worship their tools.
+ - If you don’t understand that you work for your mislabeled ‘subordinates,’ then you know nothing of leadership. You know only tyranny.
+ - All organizations are merely conceptual embodiments of a very old, very basic idea – the idea of community. They can be no more or less than the sum of the beliefs of the people drawn to them; of their character, judgements, acts and efforts.
+ - You learn nothing form your successes except to think too much of yourself. It is from failure that all growth comes, provided you can recognize it, admit it, learn from it, rise above it, and then try again.
+ - It is far too late and things are far too bad for pessimism.
+ - If you think you can’t, why think.
+ - Failure is not to be feared. It is from failure that most growth comes.
+ - Every mind is a room packed with archaic furniture.
+ - Life will never surrender its secrets to a yardstick.
+ - Success follows those adept at preserving the substance of the past by clothing it in the forms of the future.
+ - The prudent course is to make an investment in learning, testing and understanding, determine how the new concepts compare to how you now operate and thoughtfully determine how they apply to what you want to achieve in the future.
+ - Lead yourself, lead your superiors, lead your peers, and free your people to do the same. All else is trivia.
+ - Make a careful list of all things done to you that you abhorred. Don’t do them to others, ever.
+ - It is not making better people of others that management is about. It’s about making a better person of self. Income, power, and titles have nothing to do with that.
+ - The essence of community, its heart and soul, is the non-monetary exchange of value; things we do and share because we care for others, and for the good of the place.
+ - Experience is easy to provide and quickly put to good use by people with all the other qualities.
+ - What will become compellingly important is absolute clarity of shared purpose and set of principles of conduct sort of institutional genetic code that every member of the organization understands in a common way, and with deep conviction.
+ - As I like to say, the entire collective memory of the species – that means all known and recorded information – is going to be just a few keystrokes away in a matter of years.
+ - We are at that very point in time when a 400-year old age is rattling in its death bed and another is struggling to be born.
+ - Far better than a precise plan is a clear sense of direction and compelling beliefs. And that lies within you. The question is, how do you evoke it?
+ - Community is composed of that which we don’t attempt to measure, for which we keep no record and ask no recompense. Most are things we cannot measure no matter how hard we try.
+ - We are now at a point in time when the ability to receive, utilize, store, transform and transmit data – the lowest cognitive form – has expanded literally beyond comprehension. Understanding and wisdom are largely forgotten as we struggle under an avalanche of data and information.
+ - Throughout history, it took centuries for the habits of one culture to materially affect another. Now, that which becomes popular in one country can sweep through others within months.
+ - Language was a huge expansion of that capacity to deal with information.
+ - The most abundant, least used, and most abused resource in the world is human spirit and ingenuity.
+ - If you go back to the first single-cell form of life, it clearly possessed the capacity to receive, to utilize, to store, to transform, and to transmit information.
+ - If you’re in such a position of power and your ego is such that this is not possible, then its essential to have a small cadre of very bright, committed people who are questioning, exploring and understanding these emerging concepts.
+ - Particularity and separability are infirmities of the mind, not characteristics of the universe.
+ - It won’t do away with hierarchy totally, but the principal leader will be the person who most exemplifies the kind of organization and behavior required who is best able to create the conditions such organizations require.
+ - The closest thing to a law of nature in business is that form has an affinity for expense, while substance has an affinity for income.
+
+43 quotes

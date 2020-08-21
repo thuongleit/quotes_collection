@@ -1,0 +1,93 @@
+ - I find inspiration everywhere. I love challenges and my favorite thing is to find something ridiculous and be like “if it’s all that I have available to me, I am gonna make it look the best that I can”.
+ - I have no control over what people think of me but I have 100% control of what I think of myself.
+ - I’ve had a ton of fast-food jobs – it changes your approach to human interaction forever.
+ - I work really well under pressure but I really hate doing things on a timeframe.
+ - Why wear pants when you can wear a muumuu?
+ - I said to my teacher, ‘I can’t be a singer because I’m not pretty enough, and I’m fat.’ And she looked at me and said, ‘Tell that to Nell Carter, babe.’ That changed my life forever!
+ - As with most phobias, the fear of flying does make some sense, but if ever there was a fear worth quashing then this is it. After all, life is short, and there’s a great big world to explore out there.
+ - My mother told me Homer Ditto was not my father. Nope. Mom had had a fling with some other guy who was my dad. Some dude who didn’t stick around too long who Mom was happy to get rid of. She chose Homer, and Homer chose me, so he lent me his name even though I didn’t have his blood.
+ - I knew that if I wanted to stop being a pushover I had to get comfortable with small rejections myself. That took some work, but because of it I can now say ‘no’ to other people with a clear conscience.
+ - I love sad songs. They say so much. I love country music but even the happy songs sound really sad.
+ - I’m shameless, and I love a pun. There’s a lot of Beth puns.
+ - This archaic idea – that a woman who is unmarried and childless at 30 is somehow unnatural – will probably always exist, and, like most social standards, it is ridiculous.
+ - Reclaiming the word ‘fat’ was the most empowering step in my progress. I stopped using it for insult or degradation and instead replaced it with truth, because the truth is that I am fat, and that’s ok. So now when someone calls me fat, I agree, whereas before I would get embarrassed and emotional.
+ - I’m a great believer in karma, and the vengeance that it serves up to those who are deliberately mean is generally enough for me.
+ - Aretha Franklin was a teenage mom, a musician who came from an incredibly Christian background, but there was a lot of love, which is really inspiring in a feminist way.
+ - Not everyone wants to be sexy everyday, wearing tight dresses and spanx...
+ - As a kid, I was always mad – just noticing the women at Thanksgiving, running around the kitchen, while the men were watching football. For one, I don’t want to cook, and for two, I hate football. I was stuck in the middle.
+ - I have no control over what people think of me but I have 100% control of what I think of myself, and that is so important. And not just about your body, but so many ways of confidence. You’re constantly learning how to be confident, aren’t you?
+ - You know how people love to glamorize poverty? There’s nothing glamorous about it. But it did make me really creative. Those days, I was literally taking t-shirts in the day and sewing them back together to make dresses for the night.
+ - I was given baby doll toys myself, and they proved a stark reminder that my life was expected to revolve around childbearing – just as my mom’s had before me, and her mom’s had before her.
+ - A beautiful plant is like having a friend around the house.
+ - I thought to be feminine was to give in to straight culture, or the beauty standard, but in my heart I had a flair for fashion and style. They were passions I kept secret because I didn’t understand I could love clothes and hair and makeup and still like girls.
+ - When I moved out of my mom’s house at 18 I was almost as sad to leave her sewing machine behind as anything else.
+ - In moments when I question if I should be having kids, I think of all those phone calls from my sister-in-law, in which, 3,000 miles away, I hear my nephews screaming for her attention. I tell her I have to go because I am packing to leave for Europe, and her tone flatlines: ‘That must be nice.’
+ - I really worshipped Mama Cass a lot. Mama Cass, who was really fat and she didn’t lose weight. Yeah, she went on diets but for the most part of her life and the better part of her career she was a big person.
+ - When you see a fantastic colour or cut in a magazine, perched up on some famous so-and-so’s head, it’s tempting to ask your stylist for the same, but do not be fooled. The hair in those fancy photos can be very high maintenance.
+ - For me the greatest revenge of all is having a happy adulthood, waking up in my gorgeous turquoise bedroom in the morning beside a person who really inspires me. That’s the best revenge a girl-loving girl from the Bible belt could possibly have. And, importantly, it’s healthy.
+ - I love Vivienne Westwood. Her work is so interesting, you can always find something that’s great and fits you.
+ - I hate to do what I’m told, that’s why I’m not good at 9-to-5s.
+ - My number-one theory in life is that style is proportional to your lack of resources – the less you have, the more stylish you’re likely to be.
+ - Even if you’re only wearing trainers and a vest, eyeliner will instantly transform you. People always look put-together when their make-up’s on and their eyes are popping – just ask Amy Winehouse!
+ - Do I ever think Gossip will be really massive in America? No, I don’t think it’ll happen – and that’s fine. It’s kind of nice because I get to experience everything at once. I get to come home and it not be weird, like in Paris or something. It is nice to be completely anonymous.
+ - I’m passionate about color. My best friend and I sit and look at Pantone books for fun.
+ - I certainly know first hand the waste one lady can create through her primping routine, because I am a victim of fashion: to me a day without makeup and a bouffant to match is a day wasted. I love it all – whether it’s fancy, cheap or, I’m ashamed to say, even if it’s bad for the environment.
+ - We all seek approval, and our mother’s seal is usually the most important. The nitty gritty is that we have to accept ourselves, even if it is just to be ready for the next cut-down. Mom’s blessing or not.
+ - Portland is a place where you can find a community as a feminist, a vegan or a fat activist. Artists, musicians, knitters, and filmmakers can all meet like-minded souls. It’s proved the perfect place for me and all my punk friends.
+ - Starting out really punk came from not knowing any better and listening to music like that, not knowing how to play music – well, still not knowing how to play music.
+ - Girls are taught to sing high and pretty, like Antony, not low and from the guts like Nina Simone. But we’re slowly trying to change that. There are so many things we’re not told growing up, and it’s our true feminist responsibility to take the truth to the people who need to hear it.
+ - I’ve never had a very quiet voice. I tried in choir to make it smaller, and it just didn’t work out. And I listened to a lot of soul music when I was growing up on my own accord. But I was mostly into Mama Cass and Gladys Knight, and they all had big voices too; just different than mine.
+ - There is something to be said for people who have to work hard, be creative, produce what they have with little – or no – means. Those of us from poor homes have the advantage of thinking for ourselves and of knowing that when times get hard, things could always be worse.
+ - You know, either I’m too fat or I’m flavour of the month. I don’t feel either, but maybe I’m both, who knows?
+ - Products are a must – full stop. I’m sorry to say it, but that bob won’t look so sleek on its own – you need a little help. It doesn’t have to be the high-end stuff that they sell in the salon. Products you find in the supermarket are just as good, and sometimes better.
+ - Growing up as a chubby kid with a ton of imaginary friends and a Cyndi Lauper obsession, I learned about rejection early on and was constantly trying to avoid it.
+ - Just like my straight friends, I am repeatedly asked when I plan to have kids, and have been told many times, by various branches of my bloodline, that ‘even lesbians can have babies these days.’
+ - I have been 130 lbs. as well as 215 lbs. I have had blond, strawberry blond, green, pink and purple hair, and none of that has ever exempted me from having lewd comments flung at me in the street.
+ - To be thin and to stay really thin, sometimes some people literally do coke all the time. Some people smoke cigarettes instead of eating. That’s crazy. But that’s ‘okay’ because you look healthier.
+ - There is no rule in the pink-triangle guide to coming out that you must wear a rainbow flag cap and organise a full band parade.
+ - My life hasn’t been conventional and it hasn’t been linear. I’ve had to make it up as I’ve gone along, which has taught me a lot. If you don’t accept the obvious options that are laid out for you, it’s up to you to work out where you’re going and to create your own specific rules and goals.
+ - I shave my body in all kinds of ways, wear tons of eyeliner and dye my hair pink.
+ - I’m naturally a mousy blonde, so I dye my hair, and my eyebrows would disappear if I didn’t get through at least a pencil a month.
+ - I always was really confident about myself, about my voice, myself as a person, my body, all of those things, but as a songwriter – I just didn’t identify as a songwriter at all.
+ - I was overcome by the Holy Ghost one time, but in a Baptist way. I was six or seven, and I was saved. I just cried and cried. It was joy!
+ - ABBA was a direct influence on me.
+ - A few years back, when my style was ‘punk grandma,’ I picked up an amazing pair of sandals – orthopaedic ones, with really thick soles. I’ve given them away to a friend now, because these days my look is more ‘1980s substitute teacher gone wild.’
+ - I have learned so much making first collection that I am excited to use all of it towards making the next one even better! It’s been an amazing learning curve and experience.
+ - I am tired of spending a little bit of money in a lot of pieces because they keep on falling apart.
+ - High school wasn’t so bad though because, by then, I had worked out that there were far more nerdy kids and poor kids than there were rich, popular kids, so, at the very least, we had them outnumbered.
+ - I believe I owe all the best parts of my adulthood to embracing my imperfections and showcasing them.
+ - I mean, if I was living to please people, I’d have never been in a band at all. I wouldn’t have anything awesome around. I’d just be bored.
+ - When I think about the idea of Rebel Wilson having to go to the Oscars and not having something amazing to wear that’s made for her, it drives me mad.
+ - I was born fat and have always been, which was just fine and even healthy and cute until I turned ten or so. Puberty hit like a hurricane and brought a new set of rules. All of a sudden it was my fault I was chubby.
+ - My dad liked to boil a squirrel head and suck the brains out the nose. Smaller than a chicken, bigger than a rat.
+ - I think it’s really cool that there are people like Adele on the cover of ‘Vogue’ and ‘Rolling Stone,’ and like I think it’s really important that people are talking about your body, because if they don’t, then you’ll never be able to break that barrier.
+ - I have a lot of feminist idols. My favorite thing about growing up in Arkansas – well, not favorite but something I’ve always felt grateful for – was that I really had to dig for what I could. There was no Internet. There wasn’t tons of feminist literature floating around.
+ - If you have a therapist who agrees with your every word, then your brain isn’t getting proper exercise.
+ - The fit is my main focus, I want the fit to be great and that’s the focal point for me.
+ - A weird thing about Gossip that I’ve always said: “If I weren’t in this band, I would never listen to it.” But I would go see it. It’s a band you would go see that you don’t necessarily listen to.
+ - I love Adele so much and it’s honestly not because we’re both big.
+ - All this fashion stuff – who’s cool now – is just a bigger version of the cool kids versus the nerds.
+ - I worshipped Ethel Merman and I worshipped Ethel Merman a lot. It’s incredible – Ethel Merman was a conventional singer. Her naming her child Ethel Merman, Jr., was, to me, one of the coolest feminist things.
+ - There is no shame like poor shame. It can make you warm and charming, bitter and resentful, all at once.
+ - Someone told me once that Lucinda Williams takes six years between albums, and that’s what stuck to me; it’s like, you really are a factory. You don’t do things to make them, on your own time.
+ - Even talking, I’m super-loud. I could never have that kind of meek, little wispy whimsical lavender and lace voice. It comes from my body. There’s no way I can fight it.
+ - The shape is the most important to me because it is what really matters and what’s really missing in the market. Anything else is easier.
+ - When I was a teenager I would lock myself in the bathroom for hours, bouffanting my hair like Patty Duke and trying to recreate Barbra Streisand’s flawless eyeliner, only to comb it all out and wash it all off before stepping out into the world a butchish bisexual teen.
+ - It’s funny how something so normal and mundane that you see every day-your body-can be controversial. The shock value is intense. It’s like carrying an art piece around with you all the time.
+ - I’ve belched a lot more since I had gall bladder surgery. I don’t know why.
+ - I love to make people feel like they are taking a part in their own body and evolution.
+ - I’m on a diet. It’s very strict: all hot dogs. Just sausages, constantly. It’s working out – I’ve gained fifteen pounds!
+ - I’m not sure that I am able to feel embarrassment.
+ - The black bubble dress is a must! The leggings are absolutely amazing too, they fit perfectly and let you breath when still being super high-waisted. They are everything and so easy to pair anything with.
+ - I’ve had people ask me in interviews what it’s like to have money, but that’s not how it is. I have a middle-class life. I have a room in London but not a house, nor a BMW.
+ - I never said I wanted to be a singer for the rest of my life.
+ - I don’t have a good attention span and can’t spend long in record stores or video shops or games emporiums without getting grumpy.
+ - When you get a certain amount of media attention, I think people are like, “Where’s your other album?”
+ - I don’t feel famous and I didn’t want my autobiography to be like a Paris Hilton story.
+ - We have to stop this idea that we have to be a certain shape.
+ - I don’t love the word luxury because it feels Bougy to me.
+ - With a stretch belt, anything can be a dress – a dinner napkin, a tablecloth, even a towel. Just wrap and snap, and away you go in an incredible outfit. Another plus is that the belt will pull all eyes to your lovely curves, and they even look good around a coat or a jacket.
+ - I’m 90% performer, 10% musician. I’ve always said that Gossip are a band I would go see, not a band I would listen to.
+ - I’m constantly thinking about what I’ll do next. I never count on music being a career of longevity. I mean, longevity is key, and I hope that it lasts, but you just don’t know, because it’s not in your hands, you don’t make the decision.
+
+91 quotes

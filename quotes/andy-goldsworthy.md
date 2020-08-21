@@ -1,0 +1,99 @@
+ - We often forget that WE ARE NATURE. Nature is not something separate from us. So when we say that we have lost our connection to nature, we’ve lost our connection to ourselves.
+ - Art is not a career – it’s a life.
+ - The essence of drawing is the line exploring space.
+ - I take the opportunity each day offers.
+ - Photography is a way of putting distance between myself and the work which sometimes helps me to see more clearly what it is that I have made.
+ - Art for me is a form of nourishment. I need the land. I need it.
+ - The relationship between the public and the artist is complex and difficult to explain. There is a fine line between using this critical energy creatively and pandering to it.
+ - A snowball is simple, direct and familiar to most of us. I use this simplicity as a container for feelings and ideas that function on many levels.
+ - Snow provokes responses that reach right back to childhood.
+ - We often forget that we are nature...
+ - Nature, for me is raw and dangerous and difficult and beautiful and unnerving.
+ - You must have something new in a landscape as well as something old, something that’s dying and something that’s being born.
+ - The things that I make are that which a person will make. They’re not meant to mimic nature. They are nothing but the result of a hand of a person.
+ - Movement, change, light, growth, and decay are the life-blood of nature, the energies that I try to tap through my work.
+ - Beauty is what sustains things, although beauty is underwritten by pain and fear.
+ - As you grow older you realize that art has an enormous effect. It’s frightening sometimes to think of the effect that we can have.
+ - I want to get under the surface. When I work with a leaf, rock, stick, it is not just that material in itself, it is an opening into the processes of life within and around it. When I leave it, these processes continue.
+ - There is life in a stone. Any stone that sits in a field or lies on a beach takes on the memory of that place. You can feel that stones have witnessed so many things.
+ - The underlying tension of a lot of my art is to try and look through the surface appearance of things. Inevitably, one way of getting beneath the surface is to introduce a hole, a window into what lies below.
+ - A stone is ingrained with geological and historical memories.
+ - My work comes first, reasons for it follow.
+ - Complete control can be the death of a work.
+ - If you lay in the rain, every rain shower, storm, whatever, is different. Every surface is different.
+ - If I had to describe my work in one word, that word would be time.
+ - One of the beauties of art is that it reflects an artist’s entire life. What I’ve learned over the past 30 years is really beginning to inform what I make. I hope that process continues until I die.
+ - It’s art that’s taught me to think and to write.
+ - We leave our presence in the pavement. We’re walking over it, sitting on steps.
+ - Even in winter an isolated patch of snow has a special quality.
+ - My art is an attempt to reach beyond the surface appearance. I want to see growth in wood, time in stone, nature in a city, and I do not mean its parks but a deeper understanding that a city is nature too-the ground upon which it is built, the stone with which it is made.
+ - My art recognizes the human place, the human context – especially in Britain, which is a landscape so worked by people for thousands of years, written, deeply ingrained with the presence of people.
+ - Winter makes a bridge between one year and another and, in this case, one century and the next.
+ - Occasionally I have come across a last patch of snow on top of a mountain in late May or June. There’s something very powerful about finding snow in summer.
+ - The main source of my income is through the commissions of the large-scale works and big sculptures, the projects.
+ - When I do the permanent projects or the big projects, when a work is finished, that’s the beginning of its life.
+ - The process of growth is obviously critical to my understanding of the land and myself. So the process is far more unpredictable with far more compromises with the day, the weather, the material.
+ - People are the nature of the city, and you can feel it in the pavement.
+ - I can’t edit the materials I work with. My remit is to work with nature as a whole.
+ - I’m dealing with the most important things there are: life and nature. If this doesn’t work, if this doesn’t sustain me, I can’t go back to nature. I’m right there. There’s nowhere to go, and that frightens me.
+ - People also leave presence in a place even when they are no longer there.
+ - Time gives growth, it gives continuity and it gives change. And in the case of some sculptures, time gives a patina to them.
+ - When I make a work, I often take it to the very edge of its collapse, and that’s a very beautiful balance.
+ - As with all my work, whether it’s a leaf on a rock or ice on a rock, I’m trying to get beneath the surface appearance of things. Working the surface of a stone is an attempt to understand the internal energy of the stone.
+ - I can’t edit the materials I work with. My remit is to work with nature as a whole. I find nature as a whole disturbing. Nature can be harsh – difficult and brutal, as well as beautiful. You couldn’t walk five minutes from here without coming across something that is dead or decaying.
+ - I’m cautious about using fire. It can become theatrical. I am interested in the heat, not the flames.
+ - At its most successful, my ‘touch’ looks into the heart of nature; most days I don’t even get close. These things are all part of a transient process that I cannot understand unless my touch is also transient – only in this way can the cycle remain unbroken and the process be complete.
+ - The reason why the stone is red is its iron content, which is also why our blood is red.
+ - The photography is not the aim of the work; the articulation of the work through photography is another way of understanding what’s going on and what’s happening outside.
+ - My sculpture can last for days or a few seconds – what is important to me is the experience of making. I leave all my work outside and often return to watch it decay.
+ - Ephemeral work made outside, for and about a day, lies at the core of my art and its making must be kept private.
+ - The difference between a theatre with and without an audience is enormous. There is a palpable, critical energy created by the presence of the audience.
+ - I think that any sculpture is a response to its environment. It can be brought to life or put to sleep by the environment.
+ - I just see myself as an object in the final image. I know I’m experiencing it when I’m there working on it. I’m there to be worked with, as anything else that I work with.
+ - I did tests on small stones before collecting and committing myself to the larger ones.
+ - In contact with materials, I can see so much more with my hands than I can just with my eyes. I’m a participant, not a spectator. I see myself both as an object and a material, and the human presence is really important to the landscapes in which I work.
+ - There’s a huge number of things that are occurring with the ice works which fascinate me enormously, but it’s driven by this kind of frantic race against time. And whilst that creates a huge amount of tension and problems, it’s a tension that I think I feed off.
+ - Once the fired stone is out of the kiln, it is still possible to mentally reconstruct it in its original form.
+ - Sometimes you need to stop doing something to really see it afresh.
+ - I love the winter. Well, I love all the seasons, but the winter is possibly one of the most intense.
+ - Generally in New York, people just walk over you with no problem about that. Other countries, people want to resuscitate you, like, after a bit.
+ - Not being able to touch is sometimes as interesting as being able to touch.
+ - I have worked with this red all over the world – in Japan, California, France, Britain, Australia – a vein running round the earth. It has taught me about the flow, energy and life that connects one place with another.
+ - I think I have been fashioned by the fickle weather of Britain that it is – it’s forever changing. There’s no kind of constant sun or dry weather or freezing weather, and I’m always having to change and adapt to that.
+ - The hardened mass of liquid stones had much stronger qualities than those which had simply torn. The skin remained a recognisable part of the molten stone.
+ - The main reason I went to digital was because I got time-lapse, video, and still images all in one camera. Having a minimal amount of gear is really important for someone who wants to walk around. That allowed me to have this flexibility to document things in different ways.
+ - When I’m working with materials it’s not just the leaf or the stone, it’s the processes that are behind them that are important. That’s what I’m trying to understand, not a single isolated object but nature as a whole.
+ - Abandoning the project was incredibly stressful after having gone through the process of building the room, installing the kiln, collecting the stones, sitting with the kiln day and night as it came to temperature, experiencing the failures.
+ - I go way beyond just the wood and stone but to the process of growth and farming and the tensions between the two.
+ - I’ve laid down in dried up streambeds, leaving a shadow. And then, five minutes later, it’s flash flooded, and where I once laid is now running water, which would’ve washed me away, you know? There’s that power and danger often in places that look so calm and pastoral to begin with.
+ - The early firings contained many stones.
+ - If you repeat something, it can become pointless. Some things can repeat and be endlessly fascinating.
+ - Three or four stones in one firing will all react differently. I try to achieve a balance between those that haven’t progressed enough and those about to go too far.
+ - Ideas must be put to the test. That’s why we make things; otherwise they would be no more than ideas. There is often a huge difference between an idea and its realization. I’ve had what I thought were great ideas that just didn’t work.
+ - It’s frightening and unnerving to watch a stone melt.
+ - I’m very fortunate to be able to do what I do and live the way I do.
+ - If I’m going to understand the land, I have to understand the wind, the snow, the rain, the leaves, the ice, and changes in temperature. It just reflects a reality for me.
+ - I am not a performer but occasionally I deliberately work in a public context. Some sculptures need the movement of people around them to work.
+ - I soon realised that what had happened on a small scale cannot necessarily be repeated on a larger scale. The stones were so big that the amount of heat required was prohibitively expensive and wasteful.
+ - Some of the snowballs have a kind of animal energy. Not just because of the materials inside them, but in the way that they appear caged, captured.
+ - Stones are checked every so often to see if any have split or at worst exploded. An explosion can leave debris in the elements so the firing has to be abandoned.
+ - The British climate, although it is very wet, it is quite mild in winter. We don’t get these severe – generally don’t get severe winters.
+ - There are occasions when I have moved boulders, but I’m reluctant to, especially ones that have been rooted in a place for many years.
+ - Confrontation is something that I accept as part of the project though not its purpose.
+ - I enjoy working in a quiet and subversive way.
+ - I knew the tree when it grew, and the tree is now gone. The farmers cut it up, and it’s become firewood. And there’s this tremendous sense of absence and shock and violence attendant to that collapsing tree.
+ - I see my work plagiarized in gardening programmes and decorating programmes and car adverts, and I suppose I have to accept that’s just the way art gets assimilated into culture.
+ - The first snowball I froze was put in my mother’s deep freeze when I was in my early 20s.
+ - Design implies a sense of mapping something out and then you follow the plan.
+ - People do not realise that many of my works are done in urban places. I was brought up on the edge of Leeds, five miles from the city centre-on one side were fields and on the other, the city.
+ - The stones tear like flesh, rather than breaking. Although what happens is violent, it is a violence that is in stone. A tear is more unnerving than a break.
+ - I’m not a performer, in that I don’t like the public, but I work in that respect.
+ - It’s just that when I work on someone else’s land, it makes me aware of the social nature of that landscape.
+ - It takes between three and six hours to make each snowball, depending on snow quality. Wet snow is quick to work with but also quick to thaw, which can lead to a tense journey to the cold store.
+ - I think that I’m always trying to get beyond the surface appearance of things, to go beyond what I can just see.
+ - If you’ve ever come across a tree that you’ve lived with for many years and then one day it’s blown over, there’s incredible shock and violence about that.
+ - Everything has the energy of its making inside it.
+ - I have to understand the nature of change. And I cannot just work with stone or the more permanent materials. I need to work with leaves and ice and snow and mud and clay and water and the rising tide and the wind and all these.
+ - A lot of my work is like picking potatoes; you have to get into the rhythm of it. It is different than patience. It is not thinking. It is working with the rhythm.
+
+97 quotes

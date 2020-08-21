@@ -1,0 +1,56 @@
+ - India is the mother of religion. In her are combined science and religion in perfect harmony, and that is the Hindu religion, and it is India that shall be again the spiritual mother of the world.
+ - Where love rules, laws are not needed.
+ - Purification is but the cleaning of the lamp-glass which hides the Light.
+ - The world, with all its beauty, its happiness and suffering, its joys and pains, is planned with the utmost ingenuity, in order that the powers of the Self may be shown forth in manifestation.
+ - There is far more misunderstanding of Islam than there is, I think, of the other religions of the world. So many things are said of it by those who do not belong to that faith.
+ - Knowledge is essential to conquest; only according to our ignorance are we helpless. Thought creates character. Character can dominate conditions. Will creates circumstances and environment.
+ - Not out of right practice comes right thinking, but out of right thinking comes right practice. It matters enormously what you think. If you think falsely, you will act mistakenly; if you think basely, your conduct will suit your thinking.
+ - There is no life without consciousness; there is no consciousness without life.
+ - Celibacy is not natural to men or to women; all bodily needs require their legitimate satisfaction, and celibacy is a disregard of natural law.
+ - After death we live for some time in the astral world in the astral body used during our life on earth, and the more we learn to control and use it wisely now the better for us after death.
+ - In a 50 mile radius around Chicago one can see the red aura of pain, agony, terror, anger from all the animals being butchered there.
+ - No soul that aspires can ever fail to rise; no heart that loves can ever be abandoned. Difficulties exist only that in overcoming them we may grow strong, and they who have suffered are able to save.
+ - The Roman Catholic Church, had it captured me, as it nearly did, would have sent me on some mission of danger and sacrifice and utilised me as a martyr; the Church established by law transformed me into an unbeliever and an antagonist.
+ - Thought creates character.
+ - To me in my childhood, elves and fairies of all sorts were very real things, and my dolls were as really children as I was myself a child.
+ - Socialism is the ideal state, but it can never be achieved while man is so selfish.
+ - What, after all, is the object of education? To train the body in health, vigor and grace, so that it may express the emotions in beauty and the mind with accuracy and strength.
+ - Morality is the Science of harmonious relations between intelligent beings.
+ - Never forget that life can only be nobly inspired and rightly lived if you take it bravely and gallantly, as a splendid adventure in which you are setting out into an unknown country, to face many a danger, to meet many a joy, to find many a comrade, to win and lose many a battle.
+ - No philosophy, no religion, has ever brought so glad a message to the world as this good news of Atheism.
+ - The man of meditation is the man who wastes no time, scatters no energy, misses no opportunity.
+ - Nature is always lavish of her gifts even to the most insignificant forms. The butterflies and moths are richly dowered in this respect.
+ - In the light of reincarnation life changes its aspect, for it becomes the school of the eternal Man within us, who seeks therein his development, the Man that was and is and shall be, for whom the hour will never strike.
+ - Never yet has a God been defined in terms which were not palpably self-contradictory and absurd; never yet has a God been described so that a concept of Him was made possible to human thought.
+ - Premonitions, presentiments, the sensing of unseen presences and many allied experiences are due to the activity of the astral body and its reaction on the physical; their ever-increasing frequency is merely the result of its evolution among educated people.
+ - The soul grows by reincarnation in bodies provided by nature, more complex, more powerful, as the soul unfolds greater and greater faculties. And so the soul climbs upward into the light eternal. And there is no fear for any child of man, for inevitably he climbs towards God.
+ - Empty-brained triflers who have never tried to think, who take their creed as they take their fashions, speak of atheism as the outcome of foul life and vicious desires.
+ - Man peoples his current living space with a world of his own, crowded with the offspring of his fancies, desires, impulses, and passions.
+ - Every person, every race, every nation, has its own particular keynote which it brings to the general chord of life and of humanity.
+ - The misery we inflict on sentient beings slackens our human evolution.
+ - There can be no wise politics without thought beforehand.
+ - This coarse and insulting way of regarding woman, as though they existed merely to be the safety-valves of men’s passions, and that the best men were above the temptation of loving them, has been the source of unnumbered evils.
+ - When we recognise that unity of all living things, then at once arises the question – how can we support this life of ours with least injury to the lives around us; how can we prevent our own life adding to the suffering of the world in which we live?
+ - God’ is always the equivalent of ‘I do not know.
+ - Death is but an aspect of life, and the destruction of one material form is but a prelude to building up of another.
+ - Control of the tongue! Vital for the man who would try to tread the Path, for no harsh or unkind word, no hasty impatient phrase, may escape from the tongue which is consecrated to service, and which must not injure even an enemy; for that which wounds has no place in the Kingdom of Love.
+ - As the heat of the coal differs from the coal itself, so do memory, perception, judgment, emotion, and will, differ from the brain which is the instrument of thought.
+ - Those who can serve best, those who help most, those who sacrifice most, those are the people who will be loved in life and honoured in death, when all questions of colour are swept away and when in a free country free citizens shall meet on equal grounds.
+ - Meditation means this opening out of the soul to the Divine and letting the Divine shine in without obstruction from the personal self. Therefore it means renunciation. It means throwing away everything that one has, and waiting empty for the light to come in.
+ - Theosophy tries to bridge the gulf between Buddhism and Christianity by pointing to the fundamental spiritual truths on which both religions are built, and by winning people to regard the Buddha and the Christ as fellow-laborers, and not as rivals.
+ - An accurate knowledge of the past of a country is necessary for everyone who would understand its present, and who desires to judge of its future.
+ - The idea that Buddhism denies what is called in the West individual immortality is a mistake, so far as the Buddhist scriptures are concerned.
+ - The wanting of advice is the sign that the Spirit in you has not yet spoken with the compelling voice that you ought to obey.
+ - Yoga is a science, and not a vague dreamy drifting or imagining.
+ - There is no birthright in the white skin that it shall say that wherever it goes, to any nation, amongst any people, there the people of the country shall give way before it, and those to whom the land belongs shall bow down and become its servants.
+ - When a man, a woman, see their little daily tasks as integral portions of the one great work, they are no longer drudges but co-workers with God.
+ - I will suggest that the great aim of our education is to bring out of the child who comes into our hands every faculty that he brings with him, and then to try to win that child to turn all his abilities, his powers, his capacities, to the helping and serving of the community which is a part.
+ - The Atheist waits for proof of God. Till that proof comes he remains, as his name implies, without God. His mind is open to every new truth, after it has passed the warder Reason at the gate.
+ - The essence of religion is the knowledge of God which is eternal life. That and nothing less than that is religion. Everything else is on the surface, is superfluous save for the needs of men.
+ - The Buddha over and over again spoke clearly and definitely on post-mortem states – as in his conversation with Vasetta.
+ - No circumstances can ever make or mar the unfolding of the spiritual life. Spirituality does not depend upon the environment; it depends upon one’s attitude towards life.
+ - When we realise our oneness with our RULER, then the matter shall have no longer power over us, and we shall see it as the unreality it is.
+ - As a man may be born with a mathematical faculty, and by training that faculty year after year may immensely increase his mathematical capacity, so may a man be born with certain faculties within him, faculties belonging to the soul, which he can develop by training and by discipline.
+ - Someone ought to do it, but why should I? Someone ought to do it, so why not I? Between these two sentences lie whole centuries of moral evolution.
+
+54 quotes

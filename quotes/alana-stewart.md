@@ -1,0 +1,22 @@
+ - Bitterness and resentment only hurt one person, and it’s not the person we’re resenting – it’s us.
+ - I’ve elected to age gracefully.
+ - Being friends with anyone for 30 years is no easy task – people change, they drift apart, they move on.
+ - I have a strong belief that there is a god or a higher power. I think that if you have a strong belief in that, then you won’t feel alone in life and you will feel you can get through anything.
+ - I wish I had been a better mother and a more compassionate and understanding wife in both of my marriages.
+ - One hopes, of course, that a relationship grows and becomes a deep and wonderful marriage and friendship that lasts forever. But that’s not always the case.
+ - I don’t worry about gaining weight. I’m fortunate in that I’ve never had to worry about that. Some people eat when they are stressed. I don’t eat enough.
+ - Divorce is never easy, but it’s even more painful when you find out your husband is having an affair with a beautiful model fifteen years younger than you.
+ - I don’t mind being single. In fact, I like it.
+ - For anyone going through a divorce or any other painful challenge, the first and most important recommendation I can make is to find some kind of spiritual and emotional support.
+ - In my life, there have been people that I was convinced would be around forever, and yet, somehow they managed to drift away after a couple of years. Likewise there have been people who have begun as casual acquaintances but become more important with each passing year.
+ - I used to think that divorce meant failure, but now I see it more as a step along the path of self-realization and growth.
+ - All the violence in videos and movies, you can’t tell me that that wouldn’t influence a disturbed person.
+ - I grew up poor and used to look at people in big houses and thought they had everything. Then later on I looked at models in magazines and thought they had it all.
+ - Our thoughts really do create our lives. They’ve done a lot of research showing if you’re an optimistic, positive person you will be a healthier person than if you’re a sad, depressed, negative person.
+ - A lot of people would think I have led this easy kind of charmed life, or maybe even a fairytale in some ways. But it has been anything but that.
+ - I sleep with my gun on my bedside table. I live alone; it is my protection and makes me feel safer.
+ - Young people don’t really study the facts; they watch the skewed MSNBC and get a primarily liberal education.
+ - I don’t regret either of my marriages – not for a minute.
+ - It bothers me when the Hollywood elite are all so against people having guns and want rigorous gun restrictions.
+
+20 quotes

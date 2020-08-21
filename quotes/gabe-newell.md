@@ -1,0 +1,42 @@
+ - The programmers of tomorrow are the wizards of the future. You’re going to look like you have magic powers compared to everybody else.
+ - I’ve always wanted to be a giant space crab.
+ - Piracy is almost always a service problem...
+ - The easiest way to stop piracy is not by putting antipiracy technology to work. It’s by giving those people a service that’s better than what they’re receiving from the pirates.
+ - It feels a little bit funny coming here and telling you guys that Linux and open source are the future of gaming. It’s sort of like going to Rome and teaching Catholicism to the pope.
+ - Don’t ever, ever try to lie to the internet...
+ - I’m a handsome man with a charming personality.
+ - The PS3 is a total disaster on so many levels, I think It’s really clear that Sony lost track of what customers and what developers wanted.
+ - Most DRM solutions diminish the value of the product by either directly restricting a customer’s use or by creating uncertainty.
+ - Valve wouldn’t have gotten its start.
+ - Ninety percent of games lose money; 10 percent make a lot of money. And theres a consistency around the competitive advantages you create, so if you can actually learn how to do the art, the design, and the programming, you would be consistently very profitable.
+ - One of the things that’s interesting is that the PC has always had a huge amount of scalability. It was sort of the wild dog that moved into Australia and killed all the local life because it could just adapt. There used to be these dedicated devices, like dedicated word processors.
+ - Everybody understands that you’re supposed to say ‘our employees are our most valuable asset’ to the point where, even if it’s really true, they’re not going to really trust you until you’ve earned that – same with customers.
+ - I think that Windows 8 is kind of a catastrophe for everybody in the PC space.
+ - George Lucas should have distributed the ‘source code’ to Star Wars. Millions of fans would create their own movies and stories. Most of them would be terrible, but a few would be genius.
+ - Greenlight is a bad example of an election process. We came to the conclusion pretty quickly that we could just do away with Greenlight completely, because it was a bottleneck rather than a way for people to communicate choice.
+ - The culture at Valve is pretty much crowdsourced. The handbook is a wiki. One of the first things we say to new hires is, ‘You have to change something in the handbook.’
+ - I have no direct knowledge of this, but I suspect that Apple will launch a living room product that redefines people’s expectations really strongly, and the notion of a separate console platform will disappear concurrent with Apple’s announcement.
+ - I’d like to thank Sony for their gracious hospitality, and for not repeatedly punching me in the face. If I seem a little nervous, it’s because Kevin Butler was introduced to me backstage as the VP of sharpening things.
+ - I think margins will be destroyed for a bunch of people. If that’s true, then it will be good to have alternatives to hedge against that eventuality.
+ - Steam is about creating tools for content creators and customers.
+ - About half the people at Valve have run their own companies, so they always have the option not just to take a job at another game company, but to go start their own company. The question you always have to answer is, ‘How are we making these people more valuable than they would be elsewhere?’
+ - If you look at the requirements for just one piece, like art, from one generation of games to the next, it will change radically. You need people who are adaptable because the thing that makes you the best in the world in one generation of games is going to be totally useless in the next.
+ - A store is just a collection of content. The Steam store is this very safe, boring entertainment experience. Nobody says, ‘I’m going to play the Steam store now.’
+ - As somebody who participates in the overall PC ecosystem, it’s totally great when faster wireless networks and standards come out or when graphics get faster. Windows 8 was like this giant sadness. It just hurts everybody in the PC business.
+ - The big problem that is holding back Linux is games. People don’t realize how critical games are in driving consumer purchasing behavior. We want to make it as easy as possible for the 2,500 games on Steam to run on Linux as well.
+ - I consider Apple to be very closed. Let’s say you have a book business, and you are charging 5 to 7 percent gross margins; you can’t exist in an Apple world because they want 30 percent, and they don’t care that you only have 7 percent to play with.
+ - Traditional credentialing really doesn’t have a lot of predictive value to if people will be successful.
+ - One of the things that’s important about family is the narrative history they create for themselves.
+ - The PC is successful because we’re all benefiting from the competition with each other. If Twitter comes along, our games benefit. If Nvidia makes better graphics technology, all the games are going to shine. If we come out with a better game, people are going to buy more PCs.
+ - Photoshop should be a free-to-play game. There’s not really a difference between very traditional apps and how they enhance productivity and wandering around a forest and killing bears.
+ - I think it’s highly likely that we’ll continue to have high-performance graphics capability in living rooms. I’m not sure we’re all going to put down our game controllers and pick up touch screens – which is a reasonable view, I’m just not sure I buy into it.
+ - The Internet is changing what entertainment and sports is. It’s not just a few people authoring an experience for others. It’s really growing out of what everybody does.
+ - I remember back in the early days of Microsoft that from the day that you decided that you were just going to put out an ad to a customer – and all you were usually able to tell them was that a new product was available – it was about nine months before you could actually reach the first customer.
+ - If you look at a multi-player game, it’s the people who are playing the game who are often more valuable than all of the animations and models and game logic that’s associated with it.
+ - If I buy a game on Steam and I’m running it on Windows, I can go to one of the Steam machines and already have the game. So you benefit as a developer; you benefit as a consumer in having the PC experience extended in the living room.
+ - What’s the right way to think about the distribution part of Steam? You need to worry about viruses and people trying to publish other people’s content, but the underlying thing is to eliminate that barrier between people who create stuff and people who want to have access to it.
+ - A lot of times I make people better by getting stupid, distracting, bureaucratic stuff off their desk. That’s an incredibly easy way to make a senior person more productive.
+ - Most people who end up being successful have good grades, but it’s orthogonal – there’s no extra information than if they put together a website and have bunch of fans who love coming and seeing what they’re doing.
+ - People who are constantly looking for the opportunity to do something new are also people who are not going to be helped by having job titles – job titles create expectations of specialization and focus which don’t map really well to creating the best possible experience for your customers.
+
+40 quotes

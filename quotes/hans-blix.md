@@ -1,0 +1,28 @@
+ - International cooperation, multilateralism is indispensable.
+ - It was to do with information management. The intention was to dramatise it.
+ - We have not found any smoking guns.
+ - Never humiliate anyone.
+ - There was a very consistent creation of a virtual reality, and eventually it collided with our old-fashioned, ordinary reality.
+ - The world has gotten so interwoven.
+ - I don’t think that anyone seriously fears that the world can be blown to pieces all together. But what one can fear and rightly so are regional things, like in the Middle East, India, Pakistan, the Korean Peninsula, borders in Africa, etc.
+ - It’s true the Iraqis misbehaved and had no credibility but that doesn’t necessarily mean that they were in the wrong.
+ - I did not think so at first. But the US is so incredibly dependent on oil, that they wanted to secure oil in case competition on the world market becomes too hard.
+ - I have my detractors in Washington. There are bastards who spread things around, of course, who planted nasty things in the media.
+ - Disarmament by war and democracy by occupation are difficult prospects.
+ - Iraq did not spontaneously opt for disarmament. They did it as part of a ceasefire, so they were forced to do it, otherwise the war might have gone on. So the motivation has been very different.
+ - What surprises me, what amazes me, is that it seems the military people were expecting to stumble on large quantities of gas, chemical weapons and biological weapons.
+ - If you take the biological weapons in the United States we still will have perhaps a single individual who was able to make anthrax, dry it, and spread it through the mail and cause terror.
+ - They have been saying for a long time that Iraq made an effort to import active uranium, and my colleague demonstrated the other day that they came to the conclusion that it was a fake document that everybody is relying upon.
+ - For some twenty years the window that opened at the end of the Cold War has been allowed to hang flapping in the wind. It is high time that the five nuclear-weapon states take seriously their commitment to negotiate toward nuclear disarmament.
+ - I also hear your president say that war is the means of last resort and I think he means that. I met him last autumn and he assured me that they wanted to come through and disarm Iraq by peaceful means, and that’s what we are trying to do as hard as we can.
+ - By and large my relations with the US were good.
+ - I found it peculiar that those who wanted to take military action could – with 100 per cent certainty – know that the weapons existed and turn out to have zero knowledge of where they were.
+ - But in the Middle Ages people were convinced there were witches. They looked for them and they certainly found them.
+ - The inspections started in 1991, right after the Gulf War. One of the conditions for the ceasefire was that Iraq had to do away with all of its weapons of mass destruction – biological, chemical and nuclear weapons and long-range missiles.
+ - Even on television, the wavelengths that you use, they have to be distributed between countries.
+ - So interviews are a valuable tool, but under certain circumstances they’d be more valuable than others.
+ - The South Africans decided that they would like to prove to the world they did not have any nuclear weapons and their decision was not doubted because it was the end of the Cold War, it was also the end of apartheid.
+ - But I would say if the Security Council is only relevant if it agrees with the United States, then we have come a long way in a direction that I do not like very much.
+ - Like I said, I’m more worried long term about the environmental issues then the use of arms.
+
+26 quotes

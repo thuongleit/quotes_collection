@@ -1,0 +1,25 @@
+ - Entrepreneurs are willing to work 80 hours a week, to avoid working 40 hours a week.
+ - Dear optimist, pessimist, and realist – while you guys were busy arguing about the glass of wine, I drank it! Sincerely, the opportunist!
+ - If your home environment is good and peaceful and easy, your life is better and easier.
+ - You can make anything happen if you put your mind to it.
+ - As an entrepreneur, you can always find a solution if you try hard enough.
+ - Entrepreneurship is the way we take control of our lives in a tough economy.
+ - Reach for the stars; you might just catch one.
+ - I learned that nobody’s better than you to get your business off the ground. The experience you get is priceless.
+ - I like helping people.
+ - People trust I know what I’m doing. I have lots of credibility. I’ve had years of learning. I know and understand my business.
+ - Entrepreneurialism is supposed to be fun!
+ - A brilliant idea doesn’t guarantee a successful invention. Real magic comes from a brilliant idea combined with willpower, tenacity, and a willingness to make mistakes.
+ - I roll out of bed in the morning, whenever I want, and I work right away because, to me, that’s the life. That’s freedom. The whole point for me is that I love the freedom of being an entrepreneur that I do what I want to do when I want to do it.
+ - Ive been making products for so long, I have a gut feel for what is right – what will work and what wont. I can tell instantly if its a hero or a zero.
+ - The big thing for me is, I never think about myself as a female in business. I’m a person in business.
+ - In business it is most often all about getting your foot in the door and once you do, everything opens up and things start to naturally progress into bigger and more opportunities.
+ - I prefer to like the people I invest in, but it’s not an absolute necessity, as long as they have a good mind and I know they’ll do whatever it takes to be successful.
+ - I have an innate instinct for knowing what’s going to work.
+ - I think running a business, doing what I’ve done for the last – since 1996, has taught me so many things because I started from just an idea and then had to figure out how to make it, market it, every single thing from soup to nuts on how to get a product done and out there.
+ - I think people don’t like when you’re not confident about what you’re pitching, and they don’t want to invest in you or get behind you.
+ - I’ve achieved a certain amount of success and now I’m thinking about the good things I can do.
+ - I had a history for starting something and maybe getting halfway done. Then I’d see the same thing I was doing on the bestseller list! My ideas were right, but I hadn’t done them fast enough.
+ - Hire prudently, go slow and don’t go overboard.
+
+23 quotes

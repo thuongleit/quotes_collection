@@ -1,0 +1,116 @@
+ - Patience and time do more than strength or passion.
+ - A person often meets his destiny on the road he took to avoid it.
+ - Help yourself, and Heaven will help you.
+ - I bend, but I do not break.
+ - Beware, so long as you live, of judging men by their outward appearance.
+ - Our destiny is frequently met in the very paths we take to avoid it.
+ - A cheerful mind is a vigorous mind.
+ - We risk all in being too greedy.
+ - Rare as is true love, true friendship is rarer.
+ - Patience et longueur de temps Font plus que force ni que rage. Patience and longevity Are worth more than force and rage.
+ - Man is so made that when anything fires his soul, impossibilities vanish.
+ - Friendship is the shadow of the evening, which increases with the setting sun of life.
+ - Sadness flies away on the wings of time.
+ - Often we find our own destiny on the same roads that we have been avoiding.
+ - There is no road of flowers leading to glory.
+ - In everything one must consider the end.
+ - By the work one knows the workman.
+ - Anyone entrusted with power will abuse it if not also animated with the love of truth and virtue, no matter whether he be a prince, or one of the people.
+ - Sensible people find nothing useless.
+ - Patience and perseverance at lengthAccomplish more than anger or brute strength.
+ - Diversity, that is my motto.
+ - Half of today is better than all of tomorrow.
+ - Man is ice to truth and fire to falsehood.
+ - Death never takes the wise man by surprise, he is always ready to go.
+ - Nothing weighs on us so heavily as a secret.
+ - Rely only on yourself; it is a common proverb.
+ - All roads lead to Rome, but our antagonists think we should choose different paths.
+ - It is twice the pleasure to deceive the deceiver.
+ - If you deal with a fox, think of his tricks.
+ - Everyone calls himself a friend, but only a fool relies on it: nothing is commoner than the name, nothing rarer than the thing.
+ - A hungry stomach cannot hear.
+ - People who make no noise are dangerous.
+ - A hare is not caught with a drum.
+ - It is said, that the thing you possess is worth more than two you may have in the future. The one is sure and the other is not.
+ - Is not moderation an old refrain Ringing in our ears? from which we all refrain.
+ - The ruins of a house may be repaired; why cannot those of the face?
+ - We are never content with our lot.
+ - Imitators are a slavish herd and fools in my opinion.
+ - Men of all ages have the same inclinations, over which reason exercises no control. Thus, wherever men are found, there are follies, ay, and the same follies.
+ - We ought to consider the end in everything.
+ - Every one turns his dreams into realities as far as he can; man is cold as ice to the truth, hot as fire to falsehood.
+ - Dressed in the lion’s skin, the ass spread terror far and wide.
+ - Never sell the bear’s skin before one has killed the beast.
+ - Better a living beggar than a buried emperor.
+ - He knows the universe and does not know himself.
+ - All the brains in the world are powerless against the sort of stupidity that is in fashion.
+ - Religious contention is the devil’s harvest.
+ - It is no use running; to set out betimes is the main point.
+ - Every journalist owes tribute to the evil one.
+ - Every flatterer lives at the expense of him who listens to him.
+ - Gentleness succeeds better than violence.
+ - Foxes are all tail, and women all tongue.
+ - Le geai pare des plumes du paon. A bluejay in peacock feathers.
+ - By time and toil we sever What strength and rage could never.
+ - Let ignorance talk as it will, learning has its value.
+ - If every man works at that for which nature fitted him, the cows will be well tended.
+ - To hell with pleasure that’s haunted by fear.
+ - To win a race, the swiftness of a dart Availeth not without a timely start.
+ - What a wonderful thing it is to have a good friend. He identifies your innermost desires, and spares you the embarrassment of disclosing them to him yourself.
+ - Everyone believes very easily whatever they fear or desire.
+ - Rather suffer than die is man’s motto.
+ - People must help one another; it is nature’s law.
+ - From a distance it is something; and nearby it is nothing.
+ - There’s nothing sweeter than a real friend: Not only is he prompt to lend – An angler delicate, he fishes The very deepest of your wishes, And spares your modesty the task His friendly aid to ask. A dream, a shadow, wakes his fear, When pointing at the object dear.
+ - Better to suffer than to die.
+ - Le mensonge et les vers de tout temps sont amis. Lies and literature have always been friends.
+ - No favor can win gratitude from a cat.
+ - Garde-toi, tant que tu vivras, De juger des gens sur la mine. Beware as long as you live, Of judging others according to appearance alone.
+ - You’ve tried to reform what will not learn. Shut doors on traits that you wish were dead; They will open a window and return.
+ - The good, we do it; the evil, that is fortune; man is always right, and destiny always wrong.
+ - The argument of the strongest is always the best.
+ - The best laid plot can injure its maker, and often a man’s perfidy will rebound on himself.
+ - The sign brings customers.
+ - A mountain in labour shouted so loud that everyone, summoned by the noise, ran up expecting that she would be delivered of a city bigger than Paris; she brought forth a mouse.
+ - The finest victory is to conquer one’s own heart.
+ - What is denominated discretion in man we call cunning in brutes.
+ - In every trouble the little ones duck more easily.
+ - One returns to the place one came from.
+ - We love good looks rather than what is practical, Though good looks may prove destructive.
+ - The strongest passion is fear.
+ - We heed no instincts but our own.
+ - One should oblige everyone to the extent of one’s ability. One often needs someone smaller than oneself.
+ - Rogues are always found out in some way. Whoever is a wolf will act like a wolf, that is most certain.
+ - We become innocent when we are unfortunate.
+ - But every one has a besetting sin to which he returns.
+ - O love, when thou gettest dominion over us, we may bid good-by to prudence.
+ - One should stick to the sort of thing for which one was made; I tried to be an herbalist, Whereas I should keep to the butchers trade.
+ - Nothing is so oppressive as a secret: women find it difficult to keep one long; and I know a goodly number of men who are women in this regard.
+ - In this world we must help one another.
+ - The fastidious are unfortunate; nothing satisfies them.
+ - Neither wealth or greatness render us happy.
+ - We ought never to scoff at the wretched, for who can be sure of continued happiness?
+ - Better to rely on one powerful king than on many little princes.
+ - It is good to be charitable; but to whom? That is the point. As to the ungrateful, there is not one who does not at last die miserable.
+ - It is impossible to please all the world and one’s father.
+ - Example is a dangerous lure: where the wasp got through the gnat sticks fast.
+ - Habit, to which all of us are more or less slaves.
+ - One often has need of one, inferior to himself.
+ - We read on the foreheads of those who are surrounded by a foolish luxury, that fortune sells what she is thought to give.
+ - Our condition never satisfies us; the present is always the worst. Though Jupiter should grant his request to each, we should continue to importune him.
+ - What God does, He does well.
+ - In short, luck’s always to blame.
+ - Love cries victory when the tears of a woman become the sole defence of her virtue.
+ - How wealthy the gods would be if we remembered the promises we made when we were in danger.
+ - The more wary you are of danger, the more likely you are to meet it.
+ - We believe no evil till the evil’s done.
+ - Everyone has his faults which he continually repeats: neither fear nor shame can cure them.
+ - Let us not overstrain our talents, lest we do nothing gracefully.
+ - We like to see others, but don’t like others to see through us.
+ - He is very foolish who aims at satisfying all the world and his father.
+ - Even if misfortune is only good for bringing a fool to his senses, it would still be just to deem it good for something.
+ - Nothing is more dangerous than a friend without discretion; even a prudent enemy is preferable.
+ - A pessimist and an optimist, so much the worse; so much the better.
+ - Cats know not how to pardon.
+
+114 quotes

@@ -1,0 +1,35 @@
+ - A man content to go to heaven alone will never go to heaven.
+ - Who would give a law to lovers? Love is unto itself a higher law.
+ - Nothing is miserable unless you think it so; and on the other hand, nothing brings happiness unless you are content with it.
+ - Music is so naturally united with us that we cannot be free from it – even if we so desired.
+ - I scarcely know the meaning of your question; much less can I answer it.
+ - So nothing is ever good or bad unless you think it so, and vice versa. All luck is good luck to the man who bears it with equanimity.
+ - One’s virtue is all that one truly has, because it is not imperiled by the vicissitudes of fortune.
+ - He who is virtuous is wise; and he who is wise is good; and he who is good is happy.
+ - Man is so constituted that he then only excels other things when he knows himself.
+ - A person is an individual substance of a rational nature.
+ - All fortune is good fortune; for it either rewards, disciplines, amends, or punishes, and so is either useful or just.
+ - Love has three kinds of origin, namely: suffering, friendship and love. A human love has a corporal and intellectual origin.
+ - Contemplate the extent and stability of the heavens, and then at last cease to admire worthless things.
+ - For in all adversity of fortune the worst sort of misery is to have been happy.
+ - Music is part of us, and either ennobles or degrades our behavior.
+ - Love binds people too, in matrimony’s sacred bonds where chaste lovers are met, and friends cement their trust and friendship. How happy is mankind, if the love that orders the stars above rules, too, in your hearts.
+ - If there is a God, whence proceed so many evils? If there is no God, whence cometh any good?
+ - Nothing is miserable unless you think it so.
+ - You know when you have found your prince because you not only have a smile on your face but in your heart as well. Love puts the fun in together, the sad in apart, and the joy in a heart. Who would give a law to lovers? Love is unto itself a higher law.
+ - As far as possible, join faith to reason.
+ - Inconsistency is my very essence; it is the game I never cease to play as I turn my wheel in its ever changing circle, filled with joy as I bring the top to the bottom and the bottom to the top.
+ - No man can ever be secure until he has been forsaken by Fortune.
+ - If there is anything good about nobility it is that it enforces the necessity of avoiding degeneracy.
+ - Every man must be content with that glory which he may have at home.
+ - He who has calmly reconciled his life to fate, and set proud death beneath his feet, can look fortune in the face, unbending both to good and bad; his countenance unconquered.
+ - In every kind of adversity, the bitterest part of a man’s affliction is to remember that he once was happy.
+ - Give me Thy light, and fix my eyes on Thee!
+ - Whose happiness is so firmly established that he has no quarrel from any side with his estate of life?
+ - Good men seek it by the natural means of the virtues; evil men, however, try to achieve the same goal by a variety of concupiscences, and that is surely an unnatural way of seeking the good. Don’t you agree?
+ - In other living creatures the ignorance of themselves is nature, but in men it is a vice.
+ - Nothing is miserable but what is thought so, and contrariwise, every estate is happy if he that bears it be content.
+ - The good is the end toward which all things tend.
+ - The science of numbers ought to be preferred as an acquisition before all others, because of its necessity and because of the great secrets and other mysteries which there are in the properties of numbers. All sciences partake of it, and it has need of none.
+
+33 quotes

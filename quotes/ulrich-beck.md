@@ -1,0 +1,23 @@
+ - We are living in a world that is beyond controllability.
+ - Electronic communication makes possible what has previously been excluded: namely, active, simultaneous and reciprocal contact between individuals across all frontiers constituted by countries, religions and continents.
+ - The basic assumption of the secular society is that modernity overcomes religion.
+ - And therefore we must seek dialogue in this networked world. We must ask which voice was actually attempting to make itself heard and saw no other possibility of gaining a hearing. To that extent, for a while this also represented a forced opening of a cosmopolitan view.
+ - Neither science, nor the politics in power, nor the mass media, nor business, nor the law nor even the military are in a position to define or control risks rationally.
+ - Europe itself is an embodiment of this diversity.
+ - You need education. You need subsistence protection. We need jobs and social security. These are preconditions under which it will perhaps be possible to deal with these complex circumstances.
+ - The world has become so complex that the idea of a power in which everything comes together and can be controlled in a centralized way is now erroneous.
+ - But it then very soon became clear that the response of a war against terrorism, initially conceived of in a metaphorical sense, began to be taken increasingly seriously and came to entail waging a real war.
+ - You cannot make peace with terrorists. The normal dividing lines between war and peace do not apply.
+ - Accordingly, globalization is not only something that will concern and threaten us in the future, but something that is taking place in the present and to which we must first open our eyes.
+ - And it also became clear that these conditions of inequality and historical injustice have given rise to a feeling of hate in the world – a deeply felt hate that cannot easily be overcome with a few good words.
+ - Relinquishing apparent national sovereignty does not have to entail a loss of national sovereignty, but can actually be a benefit.
+ - I held a conference in Harvard where Americans said they didn’t believe in risk. They thought it was just European hysteria. Then the terrorist attacks happened and there was a complete conversion. Suddenly terrorism was the central risk.
+ - The idea that you surrender your identity when you relinquish national powers is unhelpful. No, indeed, precisely the opposite is the case: if done in an intelligent way, you attain the sovereignty to better solve national problems in cooperation with others.
+ - Global conditions are far too complex to be able to imagine that they could ever be really controlled by one power.
+ - Western countries in particular can today no longer be separated from Muslim societies, because they have them within themselves. They are themselves internally globalized.
+ - In the first instance, therefore, global terrorism created a kind of global community sharing a common fate, something we had previously considered impossible.
+ - Initially, the horrific images of September 11th triggered an enormous wave of solidarity.
+ - In the final analysis, terror is also another proof of the fact that the superpower is not really a superpower. It was vulnerable.
+ - And the terror itself is an example of the world’s uncontrollability.
+
+21 quotes

@@ -1,0 +1,33 @@
+ - Marketing is not selling. Marketing is building a brand in the mind of the prospect.
+ - Good things happen when you narrow your focus.
+ - Positioning is not what you do to a product. Positioning is what you do to the mind of the prospect.
+ - The essence of positioning is sacrifice. You must be willing to give up something in order to establish that unique position.
+ - The most powerful concept in marketing is owning a word in the prospects mind.
+ - The crucial ingredient in the success of any brand is its claim to authenticity.
+ - The next generation product almost never comes from the previous generation.
+ - Your brand’s power lies in dominance. It is better to have 50% of one market, instead of 10% of five markets.
+ - Strategy and timing are the Himalayas of marketing. Everything else is the Catskills.
+ - If you want to build a brand, you must focus your branding efforts on owning a word in the prospect’s mind. A word that nobody else owns.
+ - War and marketing have many similarities.
+ - If you can build a powerful brand, you will have a powerful marketing program. If you CAN’T then all the advertising, fancy packaging, sales promotion and public relations in the world won’t help you achieve your objective.
+ - Positioning is how you differentiate yourself in the mind of the prospect. That is, you position the product in the mind of the prospect.
+ - What’s your brand? If you can’t answer that question about your own brand in two or three words, your brand’s in trouble.
+ - To get into the consumer’s mind, you have to sacrifice. You have to reduce the essence of your brand to a single thought or attribute. An attribute that nobody else already owns in your category.
+ - Strategy should evolve out of the mud of the marketplace, not in the antiseptic environment of an ivory tower.
+ - Branding is simply a more efficient way to sell things.
+ - Advertising is the way great brands get to be great brands.
+ - A successful branding program is based on the concept of singularity. It creates in the mind of the prospect the perception that there is no product on the market quite like your product.
+ - A branding program should be designed to differentiate your cow from all the other cattle on the range. Even if all the cattle on the range look pretty much alike.
+ - It’s better to be first in the mind than to be first in the marketplace.
+ - It’s the first company to build the mental position that has the upper hand, not the first company to make the product. IBM didn’t invent the computer; Sperry Rand did. But IBM was the first to build the computer position in the prospect’s mind.
+ - Successful brands get into the mind slowly. A blurb in a magazine. A mention in a newspaper. A comment from a friend. A display in a retail store. After a slow buildup, people become convinced that they have known about the brand forever.
+ - Today, communication itself is the problem. We have become the world’s first overcommunicated society. Each year we send more and receive less.
+ - A brand should strive to own a word in the mind of the consumer.
+ - Marketing is what a company is in business to do. Marketing is a company’s ultimate objective.
+ - The best way to make news is to announce a new category, not a new product.
+ - Changing the direction of a large company is like trying to turn an aircraft carrier. It takes a mile before anything happens. And if it was a wrong turn, getting back on course takes even longer.
+ - Everyone is interested in what‘s new. Few people are interested in what‘s better.
+ - Customers want brands that are narrow in scope and distinguishable by a single word, the shorter the better.
+ - The Internet is the ultimate in brand-centered buying.
+
+31 quotes

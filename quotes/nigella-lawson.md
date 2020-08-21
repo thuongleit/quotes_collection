@@ -1,0 +1,59 @@
+ - I don’t like conflict.
+ - I don’t wear anything in bed. But I’m not ready for a nude scene quite yet.
+ - And cooking is about balance and harmony.
+ - Everyone wants to be young, beautiful and rich. I don’t say that scornfully: there are worse things to want to be. But that’s why, for example, people don’t begrudge Kate Moss how much she earns for a day’s work but will fulminate over the take-home pay of some fat, old Water Board exec.
+ - Good olive oil, good butter, milk – they give food taste and depth and a richness that you cant reproduce with low-fat ingredients.
+ - Cake baking has to be, however innocently, one of the great culinary scams: it implies effort, it implies domestic prowess; but believe me, it’s easy.
+ - Statistically, people who have been happily married and then widowed tend to remarry.
+ - I took a fortnight off. But I’m not a great believer in breaks. I don’t want to be rattling around inside my own head. I did feel I was spiralling into a Kathy Burke character and tried going out, but I prefer it here. Filming keeps me busy. It absorbs me.
+ - You cannot truly say you live well unless you eat well.
+ - There is a vast difference between how things seem from the outside and how they feel on the inside.
+ - There is a kind of euphoria of grief, a degree of madness.
+ - I don’t believe in low-fat cooking.
+ - I think maybe when you live with someone who is really very ill for a long time, it somehow gives you more of a greedy appetite for life and maybe, yes, you are less measured in your behaviour than you would otherwise be.
+ - Then again, they’re not scripted and I feel it’s virtually impossible to be anything but yourself when you’re in front of the cameras and cooking so there is a measure of truth in what you see.
+ - You don’t go around grieving all the time, but the grief is still there and always will be.
+ - I am not a chef. I am not even a trained or professional cook. My qualification is as an eater.
+ - I used to refer to myself as Typhoid Mary. It wasn’t that I was jinxed, I just seemed to bring ill fortune to anybody I was close to.
+ - It’s true that I wouldn’t have written the first book had my sister and mother been alive. It was my way of continuing our conversation. It’s also this Jewish thing of naming and remembering people, and I think there is a sense of keeping that side of life going.
+ - You could probably get through life without knowing how to roast a chicken, but the question is, would you want to?
+ - I don’t believe you can ever really cook unless you love eating.
+ - I’m not much of a drinker. I’m an eater more than a drinker. So I feel that I don’t have to wait to get a hangover in order to eat these.
+ - I am not sure about facelifts because I wouldn’t want to be someone who just looks like she’s had a facelift.
+ - People who have fabulous childhoods have this sense that nothing is ever going to be that good again. With me, I have the sense that nothing is going to be that bad.
+ - Cooking is actually quite aggressive and controlling and sometimes, yes, there is an element of force-feeding going on.
+ - Also, in a funny way, if you have been happily married there are no unresolved areas, nothing to prove to yourself after the other dies.
+ - In fact I am quite snappy and irritable, and I don’t know if I’d like to make myself worse in that respect.
+ - I never taste the wine first in restaurants, I just ask the waiter to pour.
+ - I think we all live in a world that is so fast-paced, it’s threatening and absolutely saturated with change and novelty and insecurity. Therefore, the ritual of cooking and feeding my family and friends, whoever drops in, is what makes me feel that I’m in a universe that is contained.
+ - The thing I liked about writing about food when I started it was that I felt I was writing about food in a different way. Not like a food writer.
+ - I never have plans for the future as you never know how things will turn out.
+ - I am always surprised when people read double entendres into my innocuous babble.
+ - I lurch from chaos to chaos. I can’t find my driving licence and my clothes are everywhere – cooking is the neatest thing I do.
+ - I was a quiet teenager, introverted, full of angst.
+ - Sometimes it’s good just to be seduced by the particular cheeses spread out in front of you on a cheese counter.
+ - And, in a funny way, each death is different and you mourn each death differently and each death brings back the death you mourned earlier and you get into a bit of a pile-up.
+ - I do think awful things may happen at any moment, so while they are not happening, you may as well be pleased.
+ - But if you know that something has been really vicious, you don’t read it, you don’t let it into your head. What’s damaging is when sentences go through your head and you burn with the injustice of it.
+ - Gordon Ramsay makes me laugh because he knows that I’m not a chef.
+ - You need a balance in life between dealing with whats going on inside and not being so absorbed in yourself that it takes over.
+ - It s easier to impress someone than to give them pleasure.
+ - Tension translates to your guests. They’ll have a much better time having chili and baked potatoes than they would if you did roast duck with a wild cherry sauce and then had to lie down and cry for a while.
+ - In England and America people tend to graze all day long, but I think it’s such a waste to be constantly picking at food because you then can’t enjoy a proper full meal when the time comes.
+ - I think sometimes that people assume because I’m on television I’m an expert, but I think the whole point of what I do is that I’m not and I don’t have any training. My approach isn’t about a fancy ingredient or style. I cook what I love to eat.
+ - It sounds like something on a very trite T-shirt, but life is what happens.
+ - I need to be frightened of things. I hate it, but I must need it, because it’s what I do.
+ - I know the crew so well, so I forget I’m being filmed. It’s like cooking with a friend in the kitchen – you’re talking, as you do, and maybe you’re telling her about this wonderful way to prepare lamb chops – it’s more natural, more honest.
+ - Anyway, what makes people look youthful is the quality of their skin and I don’t think you can change that.
+ - On the whole, I prefer Christmas as an adult than I did as a child.
+ - I’m not someone who’s endlessly patient and wonderful.
+ - Glamour really has to do with good lighting, doesn’t it?
+ - Some people did take the domestic goddess title literally rather than ironically. It was about the pleasures of feeling like one rather than actually being one.
+ - At some stages of your life you will deal with things and at others you are overwhelmed with misery and anxiety.
+ - There is something wrong about being photographed that has nothing to do with vanity.
+ - I can understand why those primitive desert people think a camera steals their soul. It is unnatural to see yourself from the outside.
+ - If I could go into the woods and kill a bear myself, I’d wear it proudly as a trophy.
+ - I was shy as a child. Now I’m not really shy any more, unless I’m with shy people. I find it contagious and I don’t know what to say. But I don’t think shyness is something one should feel apologetic about.
+ - I wasn’t good with authority, went to lots of schools, didn’t like the fact that there was no autonomy.
+
+57 quotes

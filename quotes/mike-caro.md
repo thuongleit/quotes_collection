@@ -1,0 +1,22 @@
+ - Aces are larger than life and greater than mountains.
+ - You win some, you lose some, and you keep it to yourself.
+ - I am a lucky player; a powerful winning force surrounds me.
+ - Every conscious act requires risk. Every conscious act requires decision. Put these two facts together and you realize that the secret to life is not to avoid gambling but to gamble well.
+ - It’s hard to convince a winner that he’s losing.
+ - False hope is sometimes much worse and sometimes much better than no hope.
+ - Don’t leave it to the law of averages to make you break even.
+ - Many gamblers think they’re being singled out by fate as a target for cruel jokes. They feel they alone in all the universe are being tortured, experimented upon by some unknown force.
+ - Inside the mind of ‘America’s Mad Genius’ is not necessarily a place you want to visit.
+ - If you speak the truth, you spoil the game.
+ - In the beginning, everything was even money.
+ - All losers exaggerate because they want you to know how bad they feel.
+ - For any single thing you can do, there is one person who is best in the world. Usually it is Mike Caro.
+ - As long as people allow themselves to be shocked, outraged or disgusted, there will be those who see that this happens, just so they can watch.
+ - I’ve seen the future, and I survived the test of time.
+ - If an opponent won’t watch you bet, then you probably shouldn’t.
+ - After you do one thing, you’ve got one thing done.
+ - When you start somewhere, you’ve started.
+ - Adventurers tend to prance about the ladder of success, fearing less the sensation of a great fall than the humility of hanging idle.
+ - I have nothing against women. Some of my best wives were women.
+
+20 quotes

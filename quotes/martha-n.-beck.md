@@ -1,0 +1,161 @@
+ - Breathe in, breathe out, no fear, no doubt.
+ - Slow is fast, gentle is powerful and stillness moves mountains.
+ - What should you do now? Find a new way. A better way. Your way. The unknown, uncharted path through this wild new world that allows you – yourself, in your uniqueness – to reclaim the full measure of your true nature.
+ - The way we do anything is the way we do everything.
+ - Play until it’s time to rest, then rest until it’s time to play.
+ - The difference between success and failure isn’t the absence of fear but the determination to pursue your heart’s desires no matter how scared you are.
+ - Don’t hide love. If you feel it, express it-not to demand that others love you back, but simply to live outwardly the best of what you feel inwardly. The worst that can happen to your heart is not rejection by another person but failure to act on the love you feel.
+ - Life is full of tough decisions, and nothing makes them easy. But the worst ones are really your personal koans, and tormenting ambivalence is just the sense of satori rising. Try, trust, try, and trust again, and eventually you’ll feel your mind change its focus to a new level of understanding.
+ - People don’t cry when they lose their hope. They cry when they get it back.
+ - The only map of your right life is written on your soul at its most peaceful, and the only sure compass is your heart at its most open.
+ - The only way to the Place beyond Fear is to do the thing you fear most. This is how to surrender to your best destiny.
+ - The end goal of all of this striving is to live joyfully, and that there are often more direct ways of achieving this than conforming to rigid standards set by social custom.
+ - Where your attention goes, your life goes.
+ - A true leader is not someone who feels fully informed but someone who continuously receives insight and guidance.
+ - Imagine the choices you’d make if you had no fear-of falling, of losing, of being alone, of disapproval.
+ - Stop fixating on stuff you can touch and start caring about stuff that touches you.
+ - During the times we think we’re being “unproductive,” the seeds of new worlds are germinating within us, and they need peace to grow.
+ - The moment we begin tolerating meanness, in ourselves and others, we are using our authorial power in the service of wrongdoing. We have both the capacity and the obligation to do better.
+ - Do whatever work feeds your true self, even if it’s not a safe bet, even if it’s like a crazy risk, even if everyone in your life tells you you’re wrong or bad or crazy.
+ - Having fun is not a diversion from a successful life; it is the pathway to it.
+ - True freedom starts with absolute honesty. The moment you call a problem by its real name, you’re already learning how to make it less harmful.
+ - By the end of your incredibly arduous, disappointing, stressful journey, you will be your true self, in a place where you belong, with friends who truly understand you and bring all sorts of opportunities your way.
+ - In the pursuit of Knowledge, every day something is added. In the practice of the Way, every day something is dropped. Less and less do you need to force things, until finally you arrive at non-action. When nothing is done, nothing is left undone.
+ - When we run from our feelings, they follow us. Everywhere.
+ - External circumstances do not create feeling states. Feeling states create external circumstances.
+ - Be brave enough to turn away from shiny objects, and toward the light that makes them shine.
+ - Most of our stress and suffering come not from events, but from our thoughts. Reframe from negative thoughts, and stress subsides.
+ - Everything always passes, and everything is already okay. Stay in the place where you can see that, and nothing will resist you.
+ - It’s only by starting in a place of peace that we find our purpose and power.
+ - Just one mental shift-focusing on the abundance of your environment-switches your psychological settings so that your life automatically improves in many areas you may think are unrelated. This is essentially a leap from fear to faith.
+ - Conflict in close relationships is not only inevitable, it’s essential. Intimacy connects people who are inevitably different.
+ - Remember, intimacy increases with honesty. Share less to keep people away and more to draw them closer.
+ - To be really productive, it’s as important to rest when we’re tired as it is to work when we’re inspired.
+ - I am free, and always have been; free to accept my own reality, free to trust my perceptions, free to believe what makes me feel sane even if others call me crazy, free to disagree even if it means great loss, free to seek the way home until I find it.
+ - Judgments that constrain your giving are the very demons that are keeping you from receiving.
+ - Most unhappy people need to learn just one lesson: how to see themselves through the lens of genuine compassion, and treat themselves accordingly.
+ - If you feel stuck in your present life, if you feel no enthusiasm for anything, if you think you have no purpose or that you lost that purpose somewhere along the way, I guarantee you are living in a dungeon made of stories. And that none of those limiting stories are true.
+ - Remember that it’s okay to ask for help when you’re stumped, because sometimes you really can’t be expected to handle everything alone.
+ - Here is the crux of the matter, the distilled essence, the only thing you need to remember: When considering whether to say yes or no, you must choose the response that feels like freedom. Period.
+ - Own your failure openly, publicly, with genuine regret but absolutely no shame, and you’ll reap a harvest of forgiveness, trust, respect, and connection-the things you thought you’d get by succeeding. Ironic, isn’t it?
+ - To care for someone can mean to adore them, feed them, tend their wounds. But care can also signify sorrow, as in ‘bowed down by cares.’ Or anxiety, as in ‘Careful!’ Or investment in an outcome, as in ‘Who cares?’ The word love has no such range of meaning: It’s pure acceptance.
+ - Loneliness is proof that your innate search for connection is intact.
+ - The way that other people judge me is none of my business.
+ - Don’t let your life revolve around whatever you’re trying not to do or feel. Live to experience, not to avoid.
+ - Fear is the raw material from which courage is manufactured. Without it, we wouldn’t even know what it means to be brave.
+ - If your life is cloudy and you’re far, far off course, you may have to go on faith for a while, but eventually you’ll learn that every time you trust your internal navigation system, you end up closer to your right life.
+ - Pain is like a life coach in your body. It’s what made me a life coach because I started paying a lot of attention to what made me hurt and what didn’t. It turned out my body was trying to steer me away from a life that was absolutely wrong for me and into a life that was absolutely wonderful.
+ - Angels come in many shapes and sizes, and most of them are not invisible.
+ - Every instance of heartbreak can teach us powerful lessons about creating the kind of love we really want.
+ - Learning to quit while you’re not ahead, when the dull ooze of depression tells you things are not going to get any better, is one of the best financial and life skills you can master.
+ - Trust in your truth. It will be the best decision you ever make.
+ - Don’t expect the future to look like the past. Clear away expectations, and let yourself picture a wild, grand new world.
+ - The repercussions of one person living in stubborn gladness are incalculable.
+ - The power to bring me out of solitude – or to push me back into it – had never belonged to another person. It was mine and only mine.
+ - Every aspect of your life, whether it’s a task or relationship, personal or professional, will be based on love and joy. And when you get right down to it, nothing else really matters.
+ - Any transition serious enough to alter your definition of self will require not just small adjustments in your way of living and thinking but a full-on metamorphosis.
+ - Bad artists ignore the darkness of human existence. Good artists often get stuck there. Great artists embrace the full catastrophe of our condition and find beyond it an even deeper truth of peace, healing, and redemption.
+ - Forcing yourself to think happy lies doesn’t heal your dreams. Getting to the truth does.
+ - Don’t worry that you’ve wasted time. Each moment – no matter how frozen or confused – was a useful and necessary lesson.
+ - No part of your experience is wasted. Everything you’ve experienced so far is part of what you were meant to learn.
+ - The past doesn’t exist except as a memory, a mental story, and though past events aren’t changeable, your stories about them are. You can act now to transform the way you tell the story of your past, ultimately making it a stalwart protector of your future.
+ - If you’re doing something you love with people you love in a place you love, you are going to create something of value to the world.
+ - In fact, when care appears, unconditional love often vanishes.
+ - If we’re stuck with having expectations, there’s a very good reason to embrace positive ones: it’s that we often create what we anticipate.
+ - You do not owe anyone your time. When you realize that, others will respect your time much more.
+ - When you are in a creative or appreciative zone, you literally have no access to your inner lizard, to that fear-based, non creative, shrieking little beasty who’s so afraid you’re going to be a bag lady.
+ - What would you do if you knew that every good thing in your life depended on your getting enough rest? Because it does.
+ - Somewhere in there, among the worries, questions, advice and advertising jingles, lives your intuition, your true ‘inner voice.’ You can hear it to the extent that you give it your attention.
+ - Sometimes a psychic tells you something and it feels wrong and others may be right on the money. It’s your choice about whom to trust, and giving that trust is something we do ourselves.
+ - Truth itself is something you live, not something you think.
+ - Welcoming imperfection is the way to accomplish what perfectionism promises but never delivers. It gives us our best performance and genuine acceptance in the family of human – and by that I mean imperfect – beings.
+ - Connecting with the people who are meant to be part of your own North Star is much more important than any aspect of business. It’s the essence of happiness, the full realization of your potential for joy.
+ - Try seeing your world and yourself this way, eyes open to whatever is before you, mind free of dichotomies. Are you good or bad, fragile or tough, wise or foolish? Yes. And so am I.
+ - You’re exactly where you’re meant to be, meandering along a crooked path.
+ - When you’re weary, find relief. When you’re strong, find delight.
+ - Friends, there are many areas in which I need encouragement, but worrying is not one of them. I worry the way Renee Fleming sings high Cs: Effortlessly. Loudly. At length.
+ - Every day brings new choices.
+ - Many of us assume that we have to do things a certain way: ignore passion in favor of safer bets, act stoic amid inner turmoil, run on an upward trajectory of success and money acquisition at any emotional cost. But these are not rules.
+ - Good fortune has side effects.
+ - No one can give you anything-love, shame, self-esteem- until you give it to yourself. Today, give yourself good things.
+ - Absolutely lonely people have few personal interactions of any kind.
+ - Whenever you go somewhere that speaks to your soul, you are going home to yourself.
+ - To know what that true self is without social pressure is to know your true nature.
+ - Seek art from every time and place, in any form, to connect with those who really move you.
+ - My anguish came from my hypothesis that other people’s hypothetical hypotheses about me mattered. Ridiculous!
+ - When you do the thing you fear, the thing loses its power to scare.
+ - A joyful life isn’t about others; it’s about the brightness that is associated with being alive. Your path to it is through anything that replaces thinking with pure flight, pure joy.
+ - If you find yourself getting nervous stop and relax for three full breaths. Then take one small step, then another. That is how people get to the top of Everest.
+ - The important thing is to tell yourself a life story in which you, the hero, are primarily a problem solver rather than a helpless victim. This is well within your power, whatever fate might have dealt you.
+ - People who get what they want tend to be the ones who make the effort to KNOW what they want.
+ - Tiny steps will get you to your goal months and months sooner. A little is better than a lot.
+ - The heart is a tender but hardy organ. Daring to have a wonderful experience, even though you may get hurt, is the only way you’ll realize its deepest desires.
+ - Imagine what you’d do if it absolutely didn’t matter what people thought of you. Got it? Good. Never go back.
+ - I’m not saying we have power over everything in our lives – if that were true, my hair would look so, so different – but I am saying that there’s no circumstance in which we are completely powerless.
+ - Any moment you spend attacking yourself is a moment away from your higher purpose and your power to love. Don’t go there.
+ - This very moment of your life, if you experience it fully, will show you astonishing wonders and exquisite delights.
+ - There’s tons of magic in the world, and it’s all science.
+ - If you did nothing but pursue the truth about yourself for the rest of your life, you would never run out of fresh discoveries.
+ - A confession you make merely to illuminate the murky corners of your little life may end up lighting the path to freedom for a thousand other hearts.
+ - In the moments I get it right, every step I take seems to be matched by a universal mystery, which obligingly, incredibly, creates what I can’t.
+ - Adults under threat feel like children.
+ - As much horror as we have always created, we are a species that keeps moving forward, seeing new sights in new ways, and enjoying the journey.
+ - The more you claim your own destiny, the easier it will be to love unconditionally .
+ - If you’re living completely on your own, break out of solitary confinement. Seek to understand others, and help them understand you.
+ - There are things that can only happen through you when you are still. Silence is often the most important work you can do.
+ - Feel about yourself what you would have others feel about themselves.
+ - If you’re religious, it gives you a perspective.
+ - Make stuff up. Anyone who ever did something new or interesting was making it up as they went along.
+ - Don’t fight fearful thoughts. Just match each one with an alternative thought that brings you more peace.
+ - Good-looking individuals are treated better than homely ones in virtually every social situation, from dating to trial by jury.
+ - When making a decision, focus on what feels “shackles off” versus “shackles on”.
+ - You will know how to stop suffering as soon as suffering ceases to be valuable. If you are in pain, you are being led.
+ - Instead of hiding your loneliness, bring it into the light. Honor it. Treat it. Heal it. You’ll find that it returns the favor.
+ - I want you to notice is that-right here, right now-you’re okay. You may be in pain, you may be in fear, you may be in grief. But you’re here, you’re surviving; this moment is okay.
+ - Peace is more than just a feeling. It’s the mental and physical frequency where you’ll find all your real power.
+ - From a place of stillness, openness, forgiveness and acceptance you can renew your commitment to any eating plan you like.
+ - My deep belief is that all of us have the same lifelong work: to learn honesty, courage, and love. To learn, in other words, how to be our best selves.
+ - Does this feel warmer or colder?
+ - Stop trying to change your behavior; instead, rethink your beliefs.
+ - The process of spotting fear and refusing to obey it is the source of all true empowerment.
+ - I’ve developed the habit of mentally listing things that make me optimistic about the future. I do it every day.
+ - Recurrent floods of sadness and anger gradually wash away the rubble of the defunct relationship, leaving only the bits of treasure: the remembered moments of real communion, a new understanding of your own mistakes, a clear picture of the dysfunctions you will never tolerate again.
+ - We can’t save ourselves from fear by seeking safety, because safety always means there’s something to be safe from-in other words, something to fear. The way out of fear isn’t safety. It’s freedom.
+ - Perpetually doing, without ever tuning in to the center of our being, is the equivalent of fueling a mighty ship by tossing all its navigational equipment into the furnace.
+ - Most people think that once they’ve found their purpose and the power to practice it, they’ll finally be at peace. Actually, though, it’s only by starting in a place of peace that we find our purpose and power. Peace is the first step and the final lesson we all need to learn.
+ - Learning to spot narcissists and deal with their destructive behavior can save you the world of hurt that awaits anyone who mistakes the near enemy for a friend.
+ - Though we often see life troughs as the universe’s conspiracy to ruin us, they’re actually our own true nature inviting us to lay down our weary heads.
+ - Your first daily priority should be stillness, attention to what you really know and what you really feel.
+ - Question every thought that causes suffering and test it against your own sense of truth.
+ - Humans only really learn from each other by storytelling. We didn’t evolve to memorize things. We evolved to hear each other’s stories and feel them in our heart. Your life is the most powerful story you can tell.
+ - The holy days are the best times to focus on real enthusiasm, the inner source that lightens and sanctifies our lives all year.
+ - As soon as you think you know someone else’s truth better than they do, you are in deep water.
+ - To make an activity joyful, keep adding things until the activity as a whole becomes more appealing than repulsing.
+ - The way out of fear isn’t safety. It’s freedom.
+ - You can’t stay well without telling – and living – the truth.
+ - Creating ways to be happy is your life’s work, a challenge that won’t end until you die.
+ - Anyone who comes into your life, under any circumstances, has something to teach you.
+ - This is the part of us that makes our brief, improbable little lives worth living: the ability to reach through our own isolation and find strength, and comfort, and warmth for and in each other. This is what human beings do. This is what we live for, the way horses live to run.
+ - Take off your watch: the divine is speaking to you.
+ - Your life follows your attention. Wherever you look, you end up going.
+ - The idea is to identify a destructive thought pattern, then simply label it and watch it and let it pass by whenever it appears in your mind.
+ - I majored in Chinese. I was never really good at Chinese but I really, really benefited from having been exposed to Asian philosophy early in my life.
+ - If anything is worth doing, it is worth doing it badly.
+ - Constantly measuring ourselves against others sours and shortens our lives, robbing us of the very things we think it will bring: prosperity, love, inner peace, the knowledge that we’re good enough.
+ - If you’re a bit spongy, vulnerable to the unsettling energy of others, count yourself lucky. You’ve been given an incentive to armor up, to consciously screen out the ubiquitous stresses that afflict humanity.
+ - Heading towards that inner home will take you places-both inside yourself and in the external world-which your heart will recognize as its native environment, even though you have never been there before.
+ - I fell in love with Africa and began helping people fix things there.
+ - Many people think passion is a fuzzy feeling that makes taking action effortless. In fact, it’s the gritty courage and tenacity to forge onward...
+ - I want you to be supervised, all day every day, by people who forgive your errors and believe in your destiny.
+ - It seems to me at this moment that laughing is a serious thing, that it connects us with truth and love and God.
+ - To attract something that you want, become as joyful as you think that thing would make you.
+ - Your individuality is the most valuable thing you have.
+ - I don’t believe that there are no spiritual beings around us. I don’t know what to call them, I don’t know how they work. But I know they’re there.
+ - Bad habits fill needs, so find good alternatives for them.
+ - If you’re feeling abandoned by the world, interact with anyone you can.
+ - Menders of all times and places have taught that silencing the thoughts in our heads and opening to the experience of the body and emotions is the basis of all healing. It’s the only means by which we can reclaim our true nature or feel the subtle cues telling us how to find our way through life.
+ - Anger elicits anger, fear elicits fear, no matter how well meaning we may be.
+ - The position that I take partly as a result of living in Asia is where you stop living according to your expectations and you become available to experience things as they are.
+ - Do whatever it takes to convey your essential self.
+
+159 quotes

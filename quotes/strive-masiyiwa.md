@@ -1,0 +1,22 @@
+ - Whether you’re a farmer, builder or engineer, the opportunities are equal: Just add a little innovation.
+ - Being business minded requires you to always approach things with humility and respect.
+ - A vision on its own is not enough. Hard work and dedication is required to make that vision a reality.
+ - Attitude determines your altitude, if you have a bad attitude, even if you are way up there, you will come crashing down, and if you are still trying to take off, a bad attitude, will keep you on the ground, revving your engines but going nowhere.
+ - Integrity is better capital than money. You can accumulate it just like money, and you can use it just like money, but it goes further, and is enduring.
+ - If you say someone is good, at something, what is your benchmark? Who are you comparing them with? When evaluating capability, or success, in anything, don’t listen to mumbo-jumbo rubbish.
+ - I know no better way to show true patriotism and love for one’s country, than investing to create wealth and employment.
+ - Entrepreneurship without skills limits your growth potential.
+ - If you begin to think business whether you own it or work for it like you would a well managed sports team you will learn a lot of very interesting lessons.
+ - The opportunity is in the problem. The moment I see a problem, I immediately begin to think about the opportunities that can be created by trying to solve it.
+ - You can only find opportunities if you are looking for them.
+ - An Organisation That Does Not Invest In Itself, Has No Future.
+ - If we tackle corruption, no child would sleep hungry, there would be no injustice, every child would be in school. The most powerful force against corruption is one person saying “no”.
+ - Being promoted to a top position in your organisation, or even being elected to public office, does not suddenly endow you with financial literacy, if you did not acquire and develop it, earlier in your life.
+ - God will do nothing except you pray; and you have to be clear what you want.
+ - If you are working or you are running a business you have to set aside time and money to invest in your continued formal education and skills acquisition.
+ - If you are to be an effective nation builder, make it your business, to understand what is really happening in the economy, both nationally and globally.
+ - No matter what business you are in, and no matter how small or mundane, the activities, there must be continuous investment in it.
+ - The worst financial decision you can ever make in your life, is to steal something. The second is like it, and that is to cheat someone. Even, if it would appear that you were never brought to account for it.
+ - We Africans are able to build companies that can operate in the global environment.
+
+20 quotes

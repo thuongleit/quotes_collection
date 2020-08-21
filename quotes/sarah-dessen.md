@@ -1,0 +1,502 @@
+ - There is never a time or place for true love. It happens accidentally, in a heartbeat, in a single flashing, throbbing moment.
+ - Music is a total constant. That’s why we have such a strong visceral connection to it, you know? Because a song can take you back instantly to a moment, or a place, or even a person. No matter what else has changed in your or the world, that one song says the same, just like that moment.
+ - Don’t think or judge, just listen.
+ - There comes a time when the world gets quiet and the only thing left is your own heart. So you’d better learn the sound of it. Otherwise you’ll never understand what it’s saying.
+ - Music is the great uniter. An incredible force. Something that people who differ on everything and anything else can have in common.
+ - Let’s just start and see what happens.
+ - The choices you make now, the people you surround yourself with, they all have the potential to affect your life, even who you are, forever.
+ - If you expect the worst, you’ll never be disappointed.
+ - Sometimes, you get things right the first time. Others, the second. But the third time, they say, is the charm.
+ - Life’s too short to worry about the little things. Enjoy what you have today, not what you might get tomorrow.
+ - Some things are meant to be broken. Imperfect. Chaotic.
+ - If you have just one person believe in you, you’ll always find your way.
+ - The best gifts come from the heart, not the store.
+ - Life is an awful, ugly place to not have a best friend.
+ - True friendship is a promise you keep forever.
+ - Just because we don’t see eye to eye on everything doesn’t mean we can’t be close.
+ - Anyone can hide. Facing up to things, working through them, that’s what makes you strong.
+ - Silence is so freaking loud.
+ - Sometimes really, really bad things happen to people, and there is no explanation and no reason whatsoever.
+ - Hey, and for what it’s worth? Friends don’t leave you alone in the woods. Friends are the ones who come and take you out.
+ - It’s never long distance between friends.
+ - Too many locks, not enough keys.
+ - It’s all in the view. That’s what I mean about forever, too. For any one of us our forever could end in an hour, or a hundred years from now. You never know for sure, so you’d better make every second count.
+ - You can’t love anyone that way more than once in a lifetime. It’s too hard and it hurts too much when it ends.
+ - Everything, in the end, comes down to timing. One second, one minute, one hour could make all the difference.
+ - I am coming to terms with the fact that loving someone requires a leap of faith, and that a soft landing is never guaranteed.
+ - Accepting all the good and bad about someone. It’s a great thing to aspire to. The hard part is actually doing it.
+ - So I left him there alone to watch history repeat the same events retold again and again on his own.
+ - Some things don’t last forever, but some things do.
+ - Oh darling, don’t be bitter. It’s the first instinct of the weak.
+ - Your past is always your past. Even if you forget it, it remembers you.
+ - In the summer, the days were long, stretching into each other. Out of school, everything was on pause and yet happening at the same time, this collection of weeks when anything was possible.
+ - You don’t have to make things harder then they have to be just to prove a point.
+ - I was bored. Sad. Lonely. It was only a matter of time before I cracked.
+ - Friends are honest with each other. Even if the truth hurts. -Maggie.
+ - Your actions is like a raindrop; it falls into the pond making ripples and then its over...
+ - What is family? They were the people who claimed you. In good, in bad, in parts or in whole, they were the ones who showed up, who stayed there, regardless.
+ - Sometimes things don’t turn out the way you want them to, Haven. Sometimes the people you choose to believe are wrong.
+ - It’s so easy to get caught up in what people expect of you. Sometimes, you can just lose yourself.
+ - But all the love in the world won’t save a sinking ship. You have to either bail or jump overboard.
+ - There’s just something obvious about emptiness, even when you try to convince yourself otherwise.
+ - But when you’re alone in the world, really alone, you have no choice but to be open to suggestions.
+ - Wherever you will go, I will let you down, But this lullaby goes on.
+ - I always have a goal, even if I keep it to myself. It allows me to keep pushing myself.
+ - Some things don’t last forever, but some things do. Like a good song, or a good book, or a good memory you can take out and unfold in your darkest times, pressing down on the corners and peering in close, hoping you still recognize the person you see there.
+ - Look, the point is there’s no way to be a hundred percent sure about anyone or anything. So you’re left with a choice. Either hope for the best or just expect the worst.
+ - It was always late at night, when everything and everyone else was quiet, that those voices would rise like ghosts, soft and haunting, filling your mind until sleep finally came.
+ - With love like that, you can’t get pick about how it finds you or the details. All that matters is that it’s there. Better late than never.
+ - You know, when it works, love is pretty amazing. It’s not overrated. There’s a reason for all those songs.
+ - In the end, though, maybe it’s not how you reach a place that matters. Just that you get there at all.
+ - The bottom line is, what defines you isn’t how many times you crash, but the number of times you get back on the bike. As long as it’s one more. you’re all good.
+ - I like flaws. I think they make things interesting.
+ - I don’t know. Just because someone’s pretty doesn’t mean she’s decent. Or vice versa. I’m not into appearances. I like flaws, I think they make things interesting.
+ - Forgiveness is hard. Acceptance is doable.
+ - Everyone had a forever.
+ - The health of the people I love is all that really matters in this world. Period.
+ - It’s a funny feeling, being suddenly airborne. Just as you realize it, it’s over, and you’re sinking.
+ - Self respect, Colie. If you don’t have it, the world will walk all over you.
+ - All I’d ever wanted was to forget. but even when I thought I had, pieces had kept emerging, like bits of wood floating up to the surface that only hint at the shipwreck below.
+ - Love is needing someone. Love is putting up with someone’s bad qualities because they somehow complete you.
+ - Once I’m done with a book, I’m done! I’m just not a sequel kind of girl. By the time I’ve finished a book I’ve read it so many times that it’s time to move on.
+ - It’s funny how one summer can change everything.
+ - Home wasn’t a set house, or a single town on a map. It was wherever the people who loved you were, whenever you were together.
+ - You get what you give, but also what you’re willing to take. The night before, I’d offered up my hand. Now, if I held on, there was no telling what it was possible to recieve in return.
+ - Holding people away from you, and denying yourself love, that doesn’t make you strong. if anything, it makes you weaker. Because you’re doing it out of fear.
+ - It’s a lot easier to be lost than found. It’s the reason we’re always searching and rarely discovered – so many locks not enough keys.
+ - It was so risky and so scary, and yet at the same time, so beautiful. Maybe the truth was, it shouldn’t be easy to be amazing. Then everything would be. It’s the things you fight for and struggle with before earning that have the greatest worth.
+ - Don’t be a fool. Don’t give up something important to hold onto someone who can’t even say they love you.
+ - Because you have to just go with the flow. Your life is not your own, with people coming in and out all the time. You get mellow because you have to.
+ - Everything, in the end, comes down to timing. One second, one minute, one hour, could make all the difference. So much hanging on just these things, tiny increments that together build a life. Like words build a story, and what had Ted said? One word can change the entire world.
+ - Love is so unpredictable. Sometimes you’ll know a man for years and then one day, boom! Suddenly you see him in a different way. And other times, it’s that first date, that first moment. That’s what makes it so great.
+ - Everyone has their weak spot. The one thing that, despite your best efforts, will always bring you to your knees, regardless of how strong you are otherwise.
+ - I just thought to my self, all of a sudden, that we had something in common. A natural chemistry, if you will. And I had a feeling that something big was going to happen. To both of us. That we were, in fact, meant to be together.
+ - She stroked my hair and told me I was beautiful, but I was old enough by then to know not to believe it anymore.
+ - That was the thing. You never got used to it, the idea of someone being gone. Just when you think it’s reconciled, accepted, someone points it out to you, and it just hits you all over again, that shocking.
+ - If there’s one thing I’ve learned in the last few months, it’s that sometimes you just have to close your eyes and jump.
+ - No matter how much time has passed, these things still affect us and the world we live in. If you don’t pay attention to the past, you’ll never understand the future. It’s all linked together.
+ - Just me and the future, finally together. Now there was a happy ending I could believe in.
+ - If you didn’t love him, this never would have happened. But you did. And accepting that love and everything that followed it is part of letting it go.
+ - There has to be a middle. Without it, nothing can ever truly be whole. Because it is not just the space between, but also what holds everything together.
+ - I can say I made a lot of mistakes, but I don’t regret things. Because at least I didn’t spend a life standing outside, wondering what living would be like.
+ - You can’t act like you care about someone but not let them care about you.
+ - This was our common ground, the secret we shared but never spoke aloud. I should have been with him; she should have left him alone. Shoulda, coulda, woulda. It’s so easy in the past tense.
+ - Fall in love with someone who truly deserves your heart. Not with someone who plays with it.
+ - It’s hard to be nice when the rest of the world is so mean.
+ - Shoulda, coulda, woulda. It’s so easy in the past tense.
+ - It’s okay to accept things from people. It doesn’t make you weak or helpless.
+ - I’m always hopeful. I feel like I’m at the prom sitting against the wall waiting for someone to ask me to dance.
+ - But something, somehow, had made all these paths converge. You couldn’t find it on a checklist, or work it into the equation. It just happened.
+ - I had no illusions about love anymore. It came, it went, it left casualties or it didn’t. People weren’t meant to be together forever, regardless of what the songs say.
+ - I mean, at first, it was kind of disappointing. But people recover from disappointment. Otherwise we’d all be hanging from nooses. Right?
+ - It was just perfect, just right all at once.
+ - I knew that it wouldn’t last. It was just a moment, a perfect moment, as time stood still and fleetingly everything fell back into its proper place.
+ - I had to wonder whether it was possible that this wasn’t already decided for me, and if maybe, just maybe, this was my one last chance to try and prove it. There was no way to know. There never is. But I reached out and took it anyway.
+ - It’s funny how someone’s perception of you can be formed without you even knowing it.
+ - It was so easy to disown what you couldn’t recognize, to keep yourself apart from things that were foreign and unsettling. The only person you can be sure to control, always, is yourself. Which is a lot to be sure of, but at the same time, not enough.
+ - Editing is hard but nowhere NEAR as tough as facing that blank page and blinking cursor each day. You’re all alone and no one else can do it. At least with editing you have someone in the trench with you.
+ - I think readers are just looking for things that maybe they recognize or can relate to in the books.
+ - The further you go, the more you have to be proud of. At the same time, in order to come a long way, you have to be behind to begin with. IN the end, though maybe it’s not how you reach a place that matters. Just that you get there at all.
+ - Their words, like the music, had the potential to be endless.
+ - So many versions of just one memory, and yet none of them were right or wrong. Instead, they were all pieces. Only when fitted together, edge to edge, could they even begin to tell the whole story.
+ - Maybe it was true, and being a girl could be about interest rates and skinny jeans, riding bikes and wearing pink. Not about any one thing, but everything.
+ - I always wrote about girls that went to the beach and had that summer that changed everything. So I was interested in what it would be like to live in a tourist town where everyone has these life changing experiences, but your whole life is there.
+ - When you can’t save yourself or your heart, it helps to be able to save face.
+ - Like a blinking cursor on an empty page, it was just the first thing. The beginning of the beginning. But at least it was done.
+ - But there was only one truth about forever that really mattered, and that was this: it was happening.
+ - There were so many levels to the unknown, from safe to dangerous to outright nebulous, scariest of all.
+ - I knew that in the silence that followed, that anything could happen here. It might be too late again. I might have missed my chance. But I would at least know I tried, that I took my heart and extended my hand, whatever the outcome.
+ - What you need, what you deserve, is a guy who adores you for what you are. Who doesn’t see you as a project, but a prize. you know?
+ - This is a 911? You know you only text that when someone is dead or dying. You scared the crap out of me.
+ - You’re not supposed to have it all figured out in high school. If you knew it all, and it was the best, it’s all downhill from there.
+ - It’s only advice. Ignore it if you want.
+ - All those clean, fresh starts had made me forget what it was like, until now, to be messy and honest and out of control. To be real.
+ - He doesn’t love me. He might still love me as I was at fifteen, when I didn’t know any better. When I trusted everyone. I’m not that person any more. He’s just a boy. He was the first to really hurt me, but he’s just a boy. There were a lot of them.
+ - Look. We both know life is short, Macy. Too short to waste a single second with anyone who doesn’t appreciate and value you.
+ - Family isnt about blood relationships, its about the meaning behind them. I relize now that sharing chromosoms is not the only way to having a family, its about the friendship behind it.
+ - I wasn’t ready to think about the other yet: that it wasn’t that I wasn’t right for Macon, but that maybe he wasn’t right for me. There was a difference. Even for someone who things didn’t come easy for, someone like me.
+ - I think I’m way too much of a control freak to co-author anything with anyone. I have a hard enough time writing with myself! I admire people that can do it, but it’s not for me.
+ - If things don’t work out the way you want, hold your head up high and be proud. And try again. And again. And again!
+ - I was actually kind of a hot mess in high school. I did a lot of things in high school I’m not proud of. I wasn’t a good student and I wasn’t particularly a good daughter. I wasn’t very engaged.
+ - The worst thing you can do if you miss or need someone is let them know it.
+ - But the bottom line is that, as humans, we are by nature selfish creatures. The only way we care about anything, really, is by making it about us.
+ - The past did affect the present and the future, in ways you could see and a million ones you couldn’t. Time wasn’t a thing you could divide easily; there was no defined middle or beginning or end. I could pretend to leave the past behind, but it would not leave me.
+ - There were endless ways to spend your days, I knew that, none of them right or wrong. But given the chance for a real do-over, another way around, who would say no?
+ - And for one second, it was like I could feel the timing clicking together, finally pieces falling into place.
+ - You can’t just plan a moment when things get back on track, just as you can’t plan the moment you lose your way in the first place.
+ - Grief can be a burden, but also an anchor. You get used to the weight, how it holds you in place.
+ - It’s not always easy being her daughter.? I think,? she said, ’sometimes it’s hard no matter whose daughter you are.
+ - I had this wild thought that he was the only one in all this chaos who was just like me, and that was comforting and profound all at once.
+ - You can’t always get the perfect moment. Sometimes, you just have to do the best you can under the circumstances.
+ - And no relationship is perfect, ever. There are always some ways you have to bend, to compromise, to give something up in order to gain something greater.
+ - Maybe we were all destined to just keep doing the same stupid things, over and over again, never really learning a single thing.
+ - Something had changed in me, even if I didn’t know what it was just yet. All I could think was that I felt alive for the first time.
+ - You’re not a sucker. You’re just nice. You give people the benefit of the doubt.
+ - I don’t get it,? Caroline said, bemused. ‘She’s the only one with wings. Why is that?’ There were so many questions in life. You couldn’t ever have all the answers. But I knew this one. It’s so she can fly,? I said. Then I started to run.
+ - Sometimes, we just have to be happy with what people can offer us. Even if it’s not what we want, at least it’s something.
+ - You could just tell when a person belonged somewhere. That is something you can’t fake, no matter how hard you try.
+ - I mean, it’s not surprising, really. Once you love something, you always love it in some way. You have to. It’s, like, part of you for good.
+ - Only a weak person needed someone else around all the time.
+ - All the bitchy girls in the world are just a training ground for what men can do to you.
+ - There’s something nice about the silence of a car ride in the dark, going home. When you were tired of the radio and conversation, and it was okay to just be alone with your thoughts and the road ahead. If you’re that comfortable with someone, you don’t have to talk.
+ - I’d only met him once, at the mall. He was tall, with a big floppy shock of blond hair he was always getting out of his face by jerking his head suddenly to the side, whiplash-style. Rina found this incredibly sexy. It made me nervous. – Caitlin about Jeff.
+ - It’s the things you fight for and struggle with before earning that have the greatest worth.
+ - Who would have thought that grieving an old relationship and enjoying a new one could happen simultaneously, in parallel? Yet another thing you only find out once it’s happening to you.
+ - So I just decided to relax into it, bumpy and crazy as it might be, and try for once to just go along for the ride.
+ - Life has a way of disregarding even your best intentions.
+ - I’d chosen instead to just change my route, go miles out of the way, as if avoiding it would make it go away once and for all.
+ - In those first few hours officially single again the world seems like it expands, suddenly bigger and more vast now that you have to get through it alone.
+ - We didn’t talk about our scars, the ones you could see and the ones you couldn’t.
+ - It’s not always so simple, Haven. Sometimes there isn’t a good guy and a bad guy. Sometimes even the ones you want to believe turn out to be liars.
+ - Don’t give me no rotten tomato, ’cause all I ever wanted was your sweet potato.
+ - She fell, she hurt, she felt. She lived. And for all the tumble of her experiences, she still had hope. Maybe this next time would do the trick. Or maybe not. But unless you stepped into the game, you would never know.
+ - There are some things in this world you rely on, like a sure bet. And when they let you down, shifting from where you’ve carefully placed them, it shakes your faith, right where you stand.
+ - If something doesn’t work exactly right, or maybe needs some special treatment, you don’t just throw it away. Everything can’t be fully operational all the time. Sometimes, we need to have the patience to give something the little nudge it needs.
+ - Life is long. Just because you don’t get your chance right when you want or expect it doesn’t mean it won’t come. Fate doesn’t punch a time clock or consult a schedule.
+ - But if something was really important, fate made sure it somehow came back to you and gave you another chance.
+ - People don’t change. If anything, you get more set in your ways as you get older, not less.
+ - And trying to break it down this way, to minor and major offenses, maybes and what-ifs, was like arguing over the origin of cracks in a broken egg. It was done. How it happened didn’t matter anymore.
+ - It’s true. It’s like the hidden secret that no one tells you. we can all be beautiful girls, Colie. it’s so easy. it’s like Dorothy clicking her heels to go home. You could do it all along.
+ - But if everything was always smooth and perfect, you’d get too used to that, you know? You have to have a little bit of disorganization now and then. Otherwise, you’ll never really enjoy it when things go right.
+ - And guys don’t get attached, guys don’t give themselves over completely, and guys lie. That’s why they should be handled with great trepidation, not trusted, and held at arm’s length whenever possible.
+ - There comes a time in every life when the world gets quiet and the only thing left is your heart.
+ - You can never be sure of anyone until you’re close enough to see them clearly.
+ - The thing is, you can’t always have the best of everything. Because for a life to be real, you need it all: good and bad, beach and concrete, the familiar and the unknown, big talkers and small towns.
+ - The mistakes you make now count. Not for everything, and not forever. But they do matter, and they shape you.
+ - I realized how truly hard it was, really, to see someone you love change right before your eyes. Not only is it scary, it throws your balance off as well.
+ - Looking at her, I thought again how beautiful she was – even in jeans and a T-shirt, no makeup, she was breathtaking. So much so that it was hard to believe she could ever have looked at herself and seen anything else.
+ - I wasn’t ready for this, but then I probably never would be, and this year, like so much else, wouldn’t wait. I had no choice but to get out of my car, with everyone watching and begin in earnest, alone. So I did.
+ - Life is full of screwups. You’re supposed to fail sometimes. It’s a required part of the human existance.
+ - It takes so little to change everything. If you really thought about it, it would scare you to death.
+ - No one could tell you: you just had to go through it on your own. If you were lucky, you came out on the other side and understood. If you didn’t, you kept getting thrust back, retracing those steps, until you finally got it right.
+ - Family isn’t something that’s supposed to be static, or set. People marry in, divorce out. They’re born, they die. It’s always evolving, turning into something else.
+ - That was the thing. You just never knew. Forever was so many different things. It was always changing, it was what everything was really all about.
+ - You should never be surprised when someone treats you with respect, you should expect it.
+ - It was amazing how you could get so far from where you’d planned, and yet find it was exactly were you needed to be.
+ - I couldn’t tell her. I couldn’t tell anyone. As long as I didn’t say it aloud, it wasn’t real.
+ - I had stepped into his arms, showing him my raw, broken heart.
+ - But I’d long ago learned not to be picky in farewells. They weren’t guaranteed or promised. You were lucky, more than blessed, if you got a good-bye at all.
+ - I feel like Twitter was tailor-made for me, because I can do short spurts all day long. I loved my blog, but doing daily, then thrice weekly entries was really time consuming. 140 characters is perfect.
+ - What did it feel like, I wondered, to love someone that much? So much that you couldn’t even control yourself when they came close, as if you might just break free of whatever was holding you and throw yourself at them with enough force to easily overwhelm you both.
+ - You couldn’t just pick and choose at will when someone depended on you, or loved you. It wasn’t like a light switch, easy to turn on or off. If you were in, you were in. Out, you were out.
+ - We can’t expect everybody to be there for us, all at once. So it’s a lucky thing that really, all you need is someone.
+ - Told you. Everything sounds better in the car wash.
+ - It’s funny how two people can grow up in the same town, go to the same school, have the same friends, and end up so totally different. Family, or lack of it, counts for more than you’d think.
+ - It was like when you ripped a piece of paper into two: no matter how you tried, the seams never fit exactly right again.
+ - My sister, who never understood most of the things I wanted her to, might have been able to understand what had happened to me in this summer of weddings and beginnings. And she was right. The first boy was always the hardest.
+ - Being a star requires risk-taking shoes.
+ - During this time we’ve been apart, it’s you I’ve thought of when I’m at my weakest, and you who have pulled me through.
+ - That was the thing about being alone, in theory or in principle. Whatever happened-good, bad, or anywhere in between-it was always, if nothing else, all your own.
+ - She was just a shell of her former self, functioning and talking but hardly alive.
+ - And always remember how much your crazy sister loves you.
+ - Love can make up for a lot.
+ - Leaving was easy. It was everything else that was so damned hard.
+ - And I felt a sudden whirl in my head, knowing this leap was inevitable, that I wasn’t just standing on the cliff, toes poking over, but already in mid-air.
+ - Sawooon.
+ - People get mad Annabel. Its not the end of the world.
+ - After the group vet appointment – during which Lyle scratched the vet, the vet tech, and some poor woman minding her own business in the waiting room – we went back to Sabrina’s and re-released the cats to their natural habitat.
+ - It was becoming clear to me that I shouldn’t bother to get too attached to anything. Turn your back and you lose it. Just like that.
+ - It’s still a memory worth having, even if it’s not exactly what you imagined.
+ - Together, we looked down at the tiny house, the sole thing on this vast, flat surface. Like the only person living on the moon. It could be either lonely or peaceful, depending on how you looked at it. “It’s a start,” I said.
+ - I’ve always known who I am. I might not work perfectly, or be like them, but that’s okay. I know I work in my own way.
+ - Sometimes it seems safer to hold it all in, where the only person who can judge is yourself.
+ - I don’t talk about my books while I’m writing them: not even my husband knows what a novel’s about until it’s done.
+ - Needing was so easy: it came naturally, like breathing. Being needed by someone else, though, that was the hard part. But as with giving help and accepting it, we had to do both to be made complete-like links overlapping to form a chain, or a lock finding the right key.
+ - I was beginning to see, though, that the unknown wasn’t always the greatest thing to fear. The people who know you best can be risker, because the words they say and things they think have the potential to be not only scary but true, as well.
+ - I mean, to me, freaking out is different. More of a running away, not telling anyone what’s wrong, slowly simmering until you burst kind of thing.
+ - You get what you give, but also what you’re willing to take.
+ - I hated high school. I was not the greatest student, participated in no activities, and spent most of my time hanging out in my parking lot.
+ - I think when you’re a beginning author with any publishing company, there’s only so much they can put behind you.
+ - But there was something I liked about the idea of those seeds buried so deep having at least a chance to emerge.
+ - Whenever you made a choice, especially one you’d been resisting, it always affected everything else, some in big ways, like a tremor beneath your feet, others in so tiny a shift you hardly noticed a change at all. But it was happening.
+ - It was like reaching for someone’s hand, then missing their fingers, or even their arm, and hitting their shoulder instead. But no matter. You hang on tight anyway.
+ - This was how I was dealing with everyone and everything lately, taking the good when it came, and the bad the same way, knowing each would pass in its own time.
+ - An ending was an ending. No matter how many pages of sentences and paragraphs of great stories led up to it, it would always have the last word.
+ - I didn’t trot my pain out to show around. I kept it better hidden than anyone. I did.
+ - Love is so unpredictable. That’s what makes it so great.
+ - I wondered if emotions were like menstrual cycles, if you get enough women together. Give it time, and everyone was crying.
+ - I wasn’t very happy in high school: it was a confusing and sort of sad time for me.
+ - Teenagers are a great audience and they are fearless about asking what they want to know.
+ - During the long stretches of quiet two-lane highway, with the sun setting in the distance, it was somehow easier to say things aloud, and regardless of what was said, we just kept moving toward that horizon.
+ - Now I felt like I was drifting, sucked down by an undertow, and too far out to swim back to the shore.
+ - My first signing was at my hometown independent bookstore and everyone in the world came. It was so nice. My family was there, my parents, everybody I worked with, all my friends. So I had this great first reading with a like hundred people there.
+ - But it was okay not to fit in everywhere, as long as you did somewhere.
+ - I always say that teenagers are the first to know if you’re pandering to them.
+ - Even if you couldn’t see it beneath the surface, molecules were bonding, energy pushing up slowly, as something worked do hare, all alone to grow.
+ - A lot can change between planning something and actually doing it. But maybe all that really matters is that anything is different at all.
+ - Right now, though, I wanted not to think forward or backward, but only to lose myself in the words.
+ - Grieving doesn’t make you imperfect. It makes you human.
+ - Maybe you could go backwards and forwards at the same time, but it wasn’t easy. You had to want to.
+ - Like I, of all people, didn’t know better than to lead a total stranger to the point where they could hurt me most, knowing how easily they’d be able to find their way back to it.
+ - When someone starts to change, and it’s obvious, it’s sort of natural to wonder why. Right?
+ - Why does she have wings?? So she can fly.
+ - I’m just writing what I know. I’ve never been much of a reader of fantasy, and I think you write what you, personally, enjoy reading.
+ - The fate of your heart is your choice and no one else gets a vote.
+ - I was so scared about being discovered, but nobody came. Nobody heard. In my own ears, though, my sobs sounded primal and scary, like something I would have turned off if I’d been able to.
+ - I tried to hold myself apart, showing only what I wanted, doling out bits and pieces of who I was. But that only works out for so long. Eventually, even the smallest fragments can’t help but, make a whole.
+ - I don’t think anyone would think that an ellipsis represents doubt or anything. I think it’s more, you know, hinting at the future. What lies ahead.
+ - Again, it occurred to me how weird it was to be permanent in a place that to everyone else was only temporary. Like I could never be sure if they were the ones who weren’t real, or if I was.
+ - I trailed off and he didn’t push me to finish. I was finding that I liked that.
+ - Like a word on a page that you’ve printed and read a million times, that suddenly looks strange or wrong, foreign. And you feel scared for a second, like you’ve lost something, even if you’re not sure what it is.
+ - Impulsiveness can be charming but deliberation can have an appeal, as well.
+ - Clearly, sharing something could take you a long way, or at least to a different place than you’d planned. Like a friendship or a family, or even jsut alone on a curb on a Saturday, trying to get your bearings as best you can.
+ - As if he was beating me to the punch, his words living forever, while I was left speechless, no rebuttal, no words left to say.
+ - I used to worry I was entirely uninteresting, but the truth is I think if my life was more exciting I’d never have any time to write.
+ - Maybe marriage, like life, is’nt only about the big moments, whether they be good or bad. Maybe it’s all the small things – like being guided slowly forward, surely, day after day – that stretches out to strengthen even the most tenuous bond.
+ - It wasn’t like I was some expert on the meaning of being supportive. Was it being loyal even against your better judgement? Or, like Olivia, was it making your displeasure known from the start, even when someone didn’t want to hear it?
+ - Like life isn’t complicated enough. You should at least be able to follow the signs.
+ - Are you crazy? Flirting with Eli Stock in front of Belissa Norwood, in Belissa Norwood’s house, while eating Belissa Norwood’s cupcakes?
+ - Behind the camera, I was invisible. When I lifted it up to my eye it was like I crawled into the lens, losing myself there. and everything else fell away.
+ - If there was a way to recognize something you’d never seen but still knew by heart, I felt it as I looked at his face. Finally, someone understood.
+ - But you only get so many do-overs in this life, so many chances to, if not change your past, alter your future.
+ - I understood now. This voice, the one that had been trying to get my attention all this time, calling out to me, begging me to hear it – it wan’t Will’s. It was mine.
+ - This felt right. Not just leaving, but how I was doing it. Without regret, without second guessing. And with Wes right there, holding the door open for me as I walked out into the light.
+ - We can all be beautiful girls.
+ - It took a lot of work to be perfect. If you didn’t want to break a sweat, there was no point in even bothering.
+ - She took the sun when it came and the rain the same way.
+ - Call it crazy, or just chicken salad.
+ - Everything hurt. I closed my eyes, pressing my cheek to the street, and waited. What for, I didn’t know. To be rescued. Or found. But no one came. All I’d ever thought I wanted was to be left alone. Until I was.
+ - Teaching was great for me, because I got to show people how writing can really change the way you see not only yourself but the world.
+ - Believe in yourself up here and it will make you stronger than you could ever imagine.
+ - Remy: Did you really believe, that first day, that we were meant to be together? Dexter: You’re here, aren’t you?
+ - The language of solace, and comets, and the girls we all become, in the end.
+ - When you’ve never gotten love from someone, you don’t know what it might look like if it ever does appear. You look for it in everything: any bright light overhead could be a star.
+ - I think I’m too lazy a writer to do something like historical fiction. You have to do so much research. I just write what I know.
+ - I wondered which was harder, in the end. The act of telling, or who you told it to. Or maybe if, when you finally got it out, the story was really all that mattered.
+ - You can’t just turn your heart off like a faucet; you have to go to the source and dry it out, drop by drop.
+ - You didn’t fail. You just opted out. There’s a difference.
+ - Who knew three dots could make such a difference? Like everything else, a love or a wish or whatever, it was all in the way you read it.
+ - After everything that happened, how could I miss him? But I did, I did.
+ - I’ve found in my own life that if my writing isn’t going well, not much else will. It is the one constant, the key to everything else.
+ - I think my biggest problem, though, at least in drafts, is not repeating myself. After eight books I get worried that a character or piece of dialog might be too much like something I’ve already done. So it’s a challenge to keep it fresh.
+ - This was always the problem with my mother and me, I suddenly realized. There were so many things we thought we agreed on, but anythign can have two meanings. Like sides of a coin, it just matters how it falls.
+ - Because maybe, the best of times were yet to come. You never knew.
+ - But sometimes you lose. Nothing you can do but admit it. -Eli.
+ - Donneven, Bettaquit and Mmmhmmmm.
+ - But I always worked harder when I was up against something, or when someone assumed I couldn’t succeed. That’s what drove me, all those nights studying. The fact that so many figured I couldn’t do it.
+ - See, Colie, it’s all about understanding. We’re all worth something.
+ - And that was it. All this buildup to a great leap, and I didn’t fall or fly. Instead I found myself back on the edge of the cliff, blinking, wondering if I’d ever jumped at all. It’s not supposed to be like this.
+ - It was a basic plot in any number of her books: girl strikes out, makes good, finds love, gets revenge. In that order. The making good and striking out part I liked. The rest would just be bonus.
+ - You asked me to go out with you. I know you probably changed your mind. But you should know, the answer was yes. It’s always been yes when it comes to you.
+ - There comes a point when things are undeniable and can’t be hidden any longer. Even from yourself.
+ - I should have told you from the start. I will let you down.
+ - As if at the age of eighteen life already sucked beyond any hope of improvement.
+ - Fine just fine.
+ - Sometimes a question can hurt more than an answer.
+ - But those words were only the middle of the story. There was a beginning here, too.
+ - There are worse addictions than reality TV, chocolate and coffee.
+ - There’s a real bonding in someone beating the crap out of you. – Rolly.
+ - I mean, it’s impossible to fake anything if you’ve already seen the other person in a way they’d never choose for you to. You can’t go back from that.
+ - I wondered again why the right thing always seemed to be met with so much resistance, when you’d think it would be the easier path. You had to fight to be virtuous...
+ - Once, I was easy. Now, I was choosy. See? Big difference.
+ - Everything looks different when you’re older, not staring up at the world but down upon it.
+ - You own a Tic Tac. Gum is just borrowed. – Esther.
+ - In a way, I was almost happy to see her. The worst part of me, out in the flesh. Blinking back at me in the dim light, daring me to call her a name other than my own.
+ - But as i lay there, it only seemes like silence filling my ears. And the thing was, it was so freaking loud.
+ - So maybe it wasn’t the fairy tale. But those stories weren’t real anyway. Mine were.
+ - It seemed like this day could go in so many directions, like a spiderweb shooting out toward endless possibilities.
+ - In my group of friends, I was always the one who remembered everything. The stories, the boys my friends and I dated, all the details. So I think a part of me was always filing them away, although at the time I wasn’t sure why.
+ - I jammed my hand in my jacket pocket, bracing myself fo the next hit, and fel something. Something grainy and samll, sticking to the tips of my fingers: the sand from Commons Park. Oh Cass, I thought. I miss you so, so much.
+ - Some things you don’t have to tell. Some things, between sisters, are understood.
+ - All you could do was take on as much weight as you can bear. And if you’re lucky, there’s someone close enough by to shoulder the rest.
+ - This was just one night, one chance to vary and see where it took me. The fireflies were probably already out: maybe it wasn’t just a season or a time but a whole world I’d forgotten. I’d never know until I stepped out into it. So I did.
+ - When you don’t know where you’re going, maybe it wasn’t such a bad thing to have more than you need.
+ - Maybe I’d just figured out there were some things you were better off not knowing.
+ - As far as I was concerned, we’d come to a draw: I hadn’t wanted to come, and she didn’t want me to leave. We were even. But I knew my mother wouldn’t see it that way. Lately, we didn’t seem to see anything the same.
+ - This is personal, she’d said. Real. This moment was too, even if you couldn’t see it at first glance. It was fake on the outside, but so true within. You only had to look, really look to tell.
+ - What happened to goodbye?
+ - I knew I had to keep him to myself, as I’d slowly begun to keep everything. We had secrets now, truths and half-truths, that kept her always at arm’s length, behind a closed door, miles away.
+ - I always tried to imagine what it would be like to open your door to find something you had given up on. maybe it had seen places you never had, been rerouted and passed through so many strange hands, but still somehow found its way back to you, all before the day even began.
+ - But for now, I just sat there on the bed and listened to my song. The one that had been written for me by a man who knew me not at all, now sung by the one who knew me best.
+ - All of my stories, they don’t come from my high school experience, but they’re definitely based on things that happened to me in high school, or things that happened to friends of mine, or things that I wish had happened to me.
+ - Sometimes love can be an ugly thing.
+ - Really, it had been stupid to expect anything anyway. A few late nights does not a habit, or a relationship, make.
+ - It’s a choice, Annabel. And if you make the wrong one, you have only yourself to blame when there are consequences.
+ - I would miss Colby, but it wasn’t going anywhere. All the more reason why I should.
+ - Get back on that bike.
+ - Pieces and parts were always easier to process. The full picture, the entire story, was another thing entirely. But you just never knew. Sometimes, people could surprise you.
+ - Everything always gets crazy at the end. You just have to keep going, regardless of how awful it gets. So that’s what I do.
+ - It was like that part of my life, was just gone. It was almost too easy, for something I once thought had meant everything.
+ - You knew the truth all along, Colie. That’s all matters. You knew.
+ - He always did the leaving. But not this time. She kept walking, and did not look back.
+ - What do you do when you finally hear everything you’ve always thought said aloud?
+ - None of it meant anything, and all of it was important.
+ - Odd how it was so easy for a stranger to assume such familiarity. Especially when those who were supposed to know you best often didn’t, not at all.
+ - There was no short answer to this; like so much else, it was a long story. But what really makes any story real is knowing someone will hear it. And understand.
+ - This Lullaby is only a few words, a simple run of chords, quiet here in this spare room, but you can hear it, hear it, wherever you may go, even if I let you down, this lullaby plays on...
+ - If nothing else, now we knew where to find each other, even if only time would tell if either of us would ever come looking.
+ - Says the girl with no thyme.
+ - It was as familiar to me as a song I’d been hearing my whole life, covered by various people but the basic tune the same.
+ - Because anyone that can make you feel that bad about yourself is toxic.
+ - She bought seeds and raided nurseries and mulched and composted and spent full days with her hands full of earth, coaxing life our of the dry, dull grass my father had spent years pushing a mower over.
+ - For two hours I’d felt myself stretching tighter and tighter, like a rubber band pulled to the point of snapping. And now, I could feel the smaller, weaker part of myself beginning to fray, tiny bits giving way before the big break.
+ - This was our common ground, the secret we shared but never spoke aloud.
+ - All we had was her room, her stories, and the quiet that settled in as we tried in vain to spread ourselves out and fill the space she’d left behind.
+ - I waited. Because with Eli, he was never trying to get you to finish for him. He always knew where he was going, even if it took a little while to get there.
+ - And that was it; it was so easy for her. My own memories did not even belong to me. But I knew she was wrong. I had seen that comet. I knew it as well as I knew my own face, my own hands. My own heart.
+ - At the same time, though, I was beginning to wonder if this was just how it was supposed to be for me, like perhaps I wasn’t capable of having that many people in my life at any one time. My mom turned up, Nate walked away, one door opening as another clicked shut.
+ - Conciseness is underrated.
+ - He’d always had that fearless optimism that made cynics like me squirm. I wondered if it was enough for both of us. I would never know from here, though. And time was passing. Crucial minutes and seconds, each one capable of changing everything.
+ - That was the hard thing about grief, and the grieving. They spoke another language, and the words we knew always fell short of what we wanted them to say.
+ - It’s not forever’, she’d said, but to my mother, it might as well have been. She had make her choice, and this was it, where she felt safe, in a world she could, for the most part, control.
+ - When he stopped walking and kissed me a few minutes later, it was like time had stopped, with the air, my heart, and the world all so still. And it was this I remembered every other time I was with Marshall.
+ - You can’t make any one person your world. The trick is to take what each can give you and build a world from it.
+ - He’s getting dumped. And he doesn’t even know it yet. He’s probably eating a cheeseburger or flossing or picking up his dry cleaning, and he has no idea. No inkling.
+ - We laughed ourselves silly, taking back our shared past, gently, piece by piece.
+ - The first boy was always the hardest.
+ - The only trick was never giving more that you were willing to lose.
+ - Because if you were the problem, chances were you could also be the solution. The only way to find out was to take another shot.
+ - I’d been through so much, falling short again and again, and only recently had found a place where who I was, right now, was enough.
+ - Honesty in principle was one thing. In someone’s face, it was another.
+ - When I pictured myself, it was always like just an outline in a colouring book, with the inside not yet completed.
+ - It’s so, so stupid what we do to ourselves because we’re afraid. It’s so stupid.
+ - At every wedding someone stays home.
+ - I was just stock in the middle, vague and undefined.
+ - As I rolled over, stretching out, my only thought was to go back to the dream I’d been having, which I couldn’t remember, other than that it had been good, in that distant, hopeful way unreal things can be.
+ - I’d seen another shade of him, and if it had been light where we were now, he’d have seen the same of me. So I was grateful, as I had been so often in my life, for the dark.
+ - Not for the first time, I wished both of us could just say what we meant. But that, like so much else, was impossible.
+ - And to know me, as you have discovered, is to love me.
+ - Whenever something great happens, you’re always kind of poised for the universe to correct itself.
+ - If he’d been any other boy, and this was any other world, I would have kissed him. Nothing could have stopped me.
+ - But I think, personally, that it would be worse to have been alone all that time. Sure, maybe I would have protected my heart from some things, but would that really have been better? To hold myself apart because I was too scared that something might no be forever?
+ - I have SO many books I didn’t sell. Some my agent rejected outright, others made it all the way to my editor to be turned away. Not everything is a winner, which is tough when you’ve devoted eight or nine months of your life to something.
+ - So I learned another system: When in doubt, keep it out – out of earshot, out of the house – even if this meant, really, just keeping it in.
+ - It was great. Freedom even the imagined kind always is.
+ - We were willing to do so much for the people we loved, even if it meant hurting ourselves. Maybe that, in the end, was what love- all kinds- was really about.
+ - I was so thrilled that I was having a girl, because I just am so girly myself, but I think the teenage years are going to be very interesting.
+ - All I’d wanted for so long was for someone to explain everything that had happened to me in this same way. To label it neatly on a page: this leads to this leads to this.
+ - It took a lot of work to be perfect.
+ - If you could just be nice, then you wouldn’t have to worry about arguments at all. but being nice wasn’t as easy as it seemed, especially when the rest of the world could be so mean.
+ - Never would forever, with all its meanings, be so clear and distinct as in the true, guaranteed end of the world.
+ - I took his wildness from him and tried to fold it into myself, filling up the empty spaces all those second place finishes left behind.
+ - It’s always very pure, that last moment before an ugly, unsettling truth hits someone. The most stark of before-and-afters.
+ - You bought me some forks. And knives. And spoons. Because you love me!
+ - I was tired of hanging on, taking the torn pieces to make something whole with them.
+ - In midair, dangling lost above the world.
+ - We all have one idea of what the color blue is, but pressed to describe it specifically, there are so many ways: the ocean, lapis lazuli, the sky, someone’s eyes. Our definitions are as different as we are ourselves.
+ - That was the thing about being on the inside: the world was just going on, even when it seemed like time for you had stopped for good.
+ - Because this is what happens when you try to run from the past. it doesn’t just catch up: it overtakes, blotting out the future, the landscape, the very sky, until there is no path left except that which leads through it, the only one that can ever get you home.
+ - If someone is really close with you, your getting upset or them getting upset is okay, and they don’t change because of it. It’s just part of the relationship. It happens. You deal with it.
+ - You know, feeling and action are always linked, one can’t exist without the other. It’s sort of a hippie thing.-Wes.
+ - Maybe it was just part of growing up with someone. Once you have a rhythm and stay with it long enough, it’s not hard to find again.
+ - How ballsy it was to just assume you know, with one glance, the things another person could live without. As if it was the same for everyone, that simple.
+ - Some writers pick a topic and write around that, but I like to include it all.
+ - The kind who live for music and are constantly seeking it out, anywhere they can. Who can’t imagine a life without it. They’re enlightened.
+ - Just because someone’s pretty, doesn’t mean she’s decent.
+ - Wes wants to be with Macy. And Macy, whether she’ll admit it or not, wants to be with Wes. And yet they’re not together, which is not only unjust, but when you think about it, tragical!
+ - It’s a big deal when you finally get the chance to do the one thing you want to do -need to do- more than anything. It can kind of scare the crap out of you.
+ - He was the closest thing I’d ever had to something, or someone, that mattered. But in the end, close didn’t count. You were either in, or you weren’t.
+ - That was the nice thing about the Spot: you could hear everything, but no one could see you.
+ - My agent is so totally honest, which is just what every writer needs. She won’t let me sell a crappy book, even if I want to.
+ - Then I’d crawl back into bed, smelling her all around me, and tell myself that next time, I would lock that window. But I never did.
+ - So finally, I decided that the best response – the safest – was none at all.
+ - I wanted to tell him so. Find the right words, string them together in the ideal way, knowing that here they would have the best chance of sounding perfect.
+ - You just had to know where to look.
+ - This is the problem with dealing with someone who is actually a good listener. They don’t jump in on your sentences, saving you from actually finishing them, or talk over you, allowing what you do manage to get out to be lost or altered in transit. Instead, they wait, so you have to keep going.
+ - It wasn’t about being happy or unhappy. I just didn’t want to be me anymore.
+ - How it felt to have the world moving beneath me, a hand gripping mine, knowing if I fell, at least I wouldn’t do it alone.
+ - So many times it seemed like there were chances to stop things before they started. Or even stop them in midstream. But it was even worse when you knew in that very moment that there was still time to save yourself, and yet you couldn’t even budge.
+ - Here was a boy who liked flaws, who saw them not as failings but as strengths. Who knew such a person could exist, or what would have happened if we’d found each other under different circumstances? Maybe in a perfect world. But not in this one.
+ - And while it is hard enough to take away something that makes a person happy it’s even more difficult when it seems like it’s the only thing.
+ - How weird that must be, to stay the same as everyone else changes.
+ - Nothing like being scolded by a hippie.
+ - It was such a weird thing how a breakup stretched much wider than you expected. You didn’t just lose a person, but their entire world as well.
+ - It doesn’t matter, anyway, why you like me. Just that you do.
+ - But it was too early to know: there were always more pages to go, more words to be written, before the story was over.
+ - It’s always been hard to call myself a writer. I think a part of me still thinks it’s too good to be true.
+ - It’s never something huge that changes the everything, but instead the tiniest of details, irrevocably tweaking the balance of the universe while you’re busy focusing on the big picture.
+ - I was worn out, broken: He had taken almost everything. But he’d been all I’d had, all this time. And when the police led him away, I pulled out of the hands of all these loved one, sobbing, screaming, everything hurting, to try and make him stay.
+ - If you’re not getting hurt, you’re not riding hard enough.
+ - I just have to be super strong when it comes to my work time. Shut the browser, ignore the email alerts, and just WRITE.
+ - I think if you’re going to show a true representation of any one life, it can’t be about any one thing. I try to see more of a full picture, with the romance just a single part.
+ - I just do the best I can under the circumstances.
+ - I’m starting to think, though, that some things never get that. The replay, and all. So at some point you have to make peace with it as it is, not keep waiting for a chance to change it.
+ - Say what you will, but you’re never prepared for the surprise attack.
+ - Because now, I didn’t care what they thought. It wasn’t new, this realization that I would never be like them. What was different now was that I was glad. Macy page 199.
+ - How do you even begin to return to someone, much less convince them to do the same for you? I had no idea. More than ever, though, right then I had to believe the answer would just come to me.
+ - Events conspired to bring you back to where you’d been. It was what you did then that made all the difference: it was all about potential.
+ - I think part of the problem sometimes is that there’s so much happening in my books, to whittle it down into a single script is hard.
+ - So you should remember that, when you’re thinking about what other people can deal with. Maybe it’s not so bad.
+ - I thought again how you could never really know what you were seeing with just a glance, in motion, passing by. Good or bad, right or wrong. There was always so much more.
+ - As he heard me approach, he quickly leaped up, grabbing a nearby loaf of bread and holding it in front of him as if struck by a sudden desire to make a sandwich.
+ - She tried to be someone people liked. She tried to be someone people disliked. But all I became was someone who didn’t succeed with anything I tried to be.
+ - This is what daughters did. They left, and came home later with lives of their own.
+ - Despite our differences, we did have a history. No one understood where I was coming from the way he did.
+ - Story of my life.
+ - I never really know what I’m going to write next until it comes to me. So we’ll just have to see what happens.
+ - As if it didnt matter what was on, but instead how hard i was listening.
+ - I always thought I was different.
+ - Quiet and incredible. I really envy that.
+ - It was like discovering that some part of you wasn’t yours at all. And it made me wonder what else I couldn’t claim.
+ - With my mom, when someone was gone, they were gone. She didn’t waste another minute thinking about them, and neither should you.
+ - That first love. And the first one who breaks your heart. For me, they just happen to be the same person.
+ - I find that the more I depend on real life, the less interesting the story is. It’s much more common for me to take something that almost-happened, or I wish had happened, and then follow that possibility.
+ - Every book teaches me something about my process, and they are all challenging in one way or another.
+ - When you have a kid, you sign on for the whole package: good, bad, everything in between. you can’t just dip in and out, picking and choosing the parts you want and quitting when it’s not perfect.
+ - The world is speaking to you every day, you just don’t know how to listen.
+ - No, no, no to Tallyho.
+ - Was it really this easy, once you escaped, to just not care?
+ - It was kind of soothing, these sounds of lives being lived all around me, for better or for worse. And there I was, in the middle of them all, newly reborn and still waiting for mine to begin.
+ - But anyone can begin. It was the part with all the promise, the potential, the things I loved. More and more, though, I was finding myself wanting to find out what happened in the end...
+ - So it just wasn’t in my house. Anywhere, I looked like I knew about the toilet.
+ - The end of a wedding reception is always so depressing. And only the bride and groom are spared, jetting off into the sunset while the rest of us wake up the next morning to just another day.
+ - If what you’re asking is how I debated whether or not to love her the answer is I didn’t. Not at all. It just happened. I didn’t ever question it; by the time I realized what was happening, it was already done.
+ - Its 75 Degrees! In December!
+ - But all I could think of was how when nothing made sense and hadn’t for ages, you just have to grab onto anything you feel sure of.
+ - I thought of all the times we’d been together, how I kept coming closer, then retreating, while he stayed right where he was. A constant in a world where few, if any, really existed.
+ - Why don’t you ever wait a second and see what I’m planning, or thinking, before you burst in with your opinions and ideas? You never even give me a chance.
+ - The truth was, I wasn’t sure. But I wanted to keep believing people could change, and it was certainly easier to do so when you were in the midst of it.
+ - I wondered if he ever thought of me, and hated the pang I felt when I told myself he didn’t.
+ - It passed, though. That was the bad thing. It always passed.
+ - It was like when you’re a little kid and you run into your teacher or librarian at the grocery store or Wal-mart and it’s just so startling, because it never occurred to you they existed outside of school.
+ - I didnt pay atteniton to times or distance, instead focusing on how it felt just to be in motion, knowing it wasn’t about the finish line but how I got there that mattered.
+ - In school, writing was the only thing that really came naturally to me, but it wasn’t until college that I realized that I could do it for more than just fun.
+ - My books are so tame!
+ - Just like that, with one phone call, she was a daughter again.
+ - With total strangers, it had always been my policy to expect the worst. Usually they-and those that you knew best, for that matter-did not disappoint.
+ - I’d been running for years: there was nothing scarier, to me, than to just be still with someone. And yet, there on that dark road, going home, I was.
+ - Whether it was a song, a person, or a story, there was a lot you couldn’t know from just an excerpt, a glance, or part of a chorus.
+ - Doesn’t it seem sometimes that the whole world’s uphill but at least we know the way back will be easy...
+ - It wasn’t so much that I was positive. I just wasn’t fully subscribing to such a negative way of thinking anymore.
+ - You punched him by accident.
+ - There was something so heavy about the burden of history, of the past. I wasn’t sure I had it in me to keep looking back.
+ - I reached up with my finger and traced the scar over my eyebrow, remembering when that was the greatest hurt I’d ever known.
+ - If this was my forever, I wouldn’t want to spend it here.
+ - But against love, the case was solid. Easily argued. And you could, indeed, hold it in your hand.
+ - Harder to get in than out, like so little else.
+ - He wasn’t what I’d thought he was; maybe he never had been. I wasn’t what I’d thought I was, either.
+ - There was something striking about a single key. It was like a question waiting to be answered, a whole missing a half. Useless on its own, needing something else to be truly defined.
+ - You’re not the kind of person who smiles for nothing, Colie. I have to earn every one.
+ - Everyone had a forever, but given a choice, this would be mine. The one that began in this moment, with Wes, in a kiss that took my breath away, then gave it back – leaving me astounded, amazed, and most of all, alive.
+ - I think whenever a writer is really enjoying themselves and liking what they are doing, that shows on the page.
+ - That’s the thing about someone who rarely gets upset: when they do, you notice.
+ - It was so weird, because usually I was totally nervous talking to guys. But Eli was different. He made me want to say more, not less. Which was maybe not a good thing.
+ - I’d been convinced I was on the outside, but really, I’d always been within arm’s reach. All I had to do was ask, and I, too, would be easily brought back, surrounded and immersed, finding myself safe, somewhere in between.
+ - So he didn’t have to prove how he felt about me. Like so much else, I should just know.
+ - When you had to do something, you had to do it. And eventually, if you were lucky, you did it well.
+ - It’s nice to have options even if you can’t take them.
+ - This is exactly what i wanted, as commitments had never really been my thing. And it wasn’t like it was hard, either. The only trick was never giving more than you were willing to lose.
+ - But even more so, it reminded me that this was all really happening. Stanford. The end of the summer. The beginning of my real life. It was no longer just creeping up, peeking over the horizon, but instead lingering in plain sight.
+ - Because it is so hard, in any life, to believe in what you can’t fully understand.
+ - If only you could really use a fail-proof system to know who was worth keeping and who needed to be thrown away. It would make it so much easier to move through the world, picking and choosing what connections to make, or whether to make any at all.
+ - Nothing happens for ages, and then all the changes come at once.
+ - Obviously it won’t all run smoothly. But it’s important to awknowledge that while we may make mistakes, in the long run, we may also learn fromt them.
+ - So this had been all I wanted, a boy who understood how I felt. Now, though, I sometimes wished for more.
+ - I felt like I’d been swimming so hard, and the water growing warmer and warmer the closer I got to the top. I wasn’t there yet, but now I could see the surface, rippling just beyond my fingers.
+ - I didn’t want to talk about what happened, so it seemed safest not to talk at all.
+ - So while it seemed like you were seeing everything, you really weren’t. Just bits and pieces that looked like a whole.
+ - Eventually, it wasn’t even your dad I wanted, just anybody. Anybody at all.
+ - Her life was perfect. But as was often the case, the rest of us were still adjusting.
+ - I was heading off to my new world. But I was taking a part of my past, and the future, along with me for the ride.
+ - As Isabel acted out her date, both of them laughing, I stayed in the kitchen, out of sight, and pretended she was telling me, too. And that, for once, I was part of this hidden language of laughter and silliness and girls that was, somehow, friendship.
+ - Relationships dont always make sense. Especially from the outside.
+ - I’ve always written in first person. It gives the readers more insight.
+ - How it seemed like you could see everything, but certain things were blocked out, hidden.
+ - An empty frame, in which the picture is always changing, makes a statement about how time is always passing. It doesn’t really stop, even in a single image. I t just feels that way.
+ - She said writting novels was like childbirth: if you truly remembered how awful it got, you’d never do it again.
+ - Looking at the pond, all I could think was that it is an incredivle thing, how a whole world can rise from what seems like nothing at all.
+ - It hadn’t even occured to me that somebody would believe mine.
+ - The only thing I can’t stand more than seeing something done wrong is seeing it done slowly.
+ - I sat up, sliding them off, and the quiet around me did not, for once, seem empty and vast. Instead, for the first time in a while, it felt like it already was full.
+
+500 quotes

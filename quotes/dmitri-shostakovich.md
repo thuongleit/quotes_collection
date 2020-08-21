@@ -1,0 +1,28 @@
+ - When a man is in despair, it means that he still believes in something.
+ - Music is a means capable of expressing dark dramatism and pure rapture, suffering and ecstasy, fiery and cold fury, melancholy and wild merriment – and the subtlest nuances and interplay of these feelings which words are powerless to express and which are unattainable in painting and sculpture.
+ - What you have in your head, put down on paper. The head is a fragile vessel.
+ - Football is the ballet of the masses.
+ - Those who have ears to hear, will hear.
+ - The real geniuses know where their writing has to be good and where they can get away with some mediocrity.
+ - A creative artist works on his next composition because he was not satisfied with his previous one.
+ - The best way to hold on to something is to pay no attention to it. The things you love too much perish. You have to treat everything with irony, especially the things you hold dear. There’s more of a chance then that they’ll survive.
+ - A great piece of music is beautiful regardless of how it is performed. Any prelude or fugue of Bach can be played at any tempo, with or without rhythmic nuances, and it will still be great music. That’s how music should be written, so that no-one, no matter how philistine, can ruin it.
+ - People knew about Babi Yar before Yevtushenko ’s poem, but they were silent. And when they read the poem, the silence was broken. Art destroys silence.
+ - Real music is always revolutionary, for it cements the ranks of the people; it arouses them and leads them onward.
+ - The majority of my symphonies are tombstones.
+ - In the long run, any words about music are less important than the music.
+ - I write music, it’s performed. After all, my music says it all. It doesn’t need historical and hysterical commentaries. In the long run, any words about music are less important than the music.
+ - Music is good, not evil. Poetry is good, not evil. Primitive, but oh, so true!
+ - I live in the USSR, work actively and count naturally on the worker and peasant spectator. If I am not comprehensible to them I should be deported.
+ - If they cut off both hands, I will compose music anyway holding the pen in my teeth.
+ - It’s about the people, who have stopped believing because the cup of evil has run over.
+ - Stravinsky the composer I worship. Stravinsky the thinker I despise.
+ - Our business is rejoicing, our business is rejoicing.
+ - I don’t know what will become of this piece. Our brave critics will no doubt charge me with imitating Ravel’s Bolero. Too bad – this is how I hear war.
+ - A great piece of music is beautiful, regardless of how it is performed.
+ - What can be considered human emotions? Surely not only lyricism, sadness, tragedy? Doesn’t laughter also have a claim to that lofty title? I want to fight for the legitimate right of laughter in serious music.
+ - I feel eternal pain for those who were killed by Hitler, but I feel no less pain for those killed on Stalin ’s orders. I suffer for everyone who was tortured, shot, or starved to death.
+ - I always try to make myself as widely understood as possible; and if I don’t succeed, I consider it my own fault.
+ - The most uninteresting part of the biography of a composer is his childhood. All those preludes are the same and the reader hurries on to the fugue.
+
+26 quotes

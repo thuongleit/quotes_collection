@@ -1,0 +1,21 @@
+ - As a kid, I was always a tomboy, playing sport and doing martial arts. And I’m pretty opinionated – I’ve never been told that I’m a weak person.
+ - There are different types of talents and intelligences, and traditional schools sometimes ignore the creative ones. It is important for us to give kids every platform for them to find what they are good at and what they love. The arts also provide a space for newfound creativity.
+ - I’ve danced my whole life. Martial arts is just fun for me, it’s all choreographed a bit like dance. I have done Muay Thai and Wushu, which is cool because it’s very fluid dance. I also do Tricking. It’s kind of like Taekwondo with the big kicks and flips and showier aspects of martial arts.
+ - Wittiness turns me on more than anything else.
+ - On ‘Death Valley,’ I fought this werewolf, and he was picking me up and slamming me down. They put padding down in the garbage so he could really slam me down. They’re flying around and I’m doing these jumping flying triangles pulling the guy down. It’s just fun.
+ - The power of the human spirit inspires me. Movies, books, stories, people, anything that reminds us that we are more than just this physical body and our capacity for love and courage can bend reality.
+ - Sometimes people can put way too much emphasis on looking ‘hot’ which can be stressful and put you in your head.
+ - If Lady Gaga is like an orange Bugatti Veyron, then I am like a black 1970 Chevelle.
+ - In high school, during lunchtime I would go in the room where the wrestling mats were and try different flips and different moves. Like windmills. I just started mixing martial arts with jazz and contemporary stuff and it would get mashed together and became my style.
+ - I started classes and it wasnt because I was like, I want to be an actor! – I was really interested in the theory of what acting can be and what its about. Its all about living in the moment and kind of being present, which is something that at that time in my life I really wanted to explore.
+ - We did some cool wire work in ‘The Pact’ – they had me strapped to a harness underneath my shirt so they could fling me around the house and slam me into doors. I definitely got some bruises even with all the padding!
+ - I had no idea what I was signing up for. I auditioned for some random character. I knew the sides were fake, but what they were trying to capture was an emotional toughness and a woundedness. I knew I liked the character. I didn’t know who the character was, but I liked the spirit of the character.
+ - I was never a big fan of horror. I got into it making these films, but I don’t ever see myself doing slasher movies. The kind of horror film I like is ‘The Shining.’ I don’t really like slashers, but I love thrillers with tension.
+ - I was a dancer before I was an actress, so I’ve always been someone who likes to communicate from my body and movement.
+ - Lady Gaga? She’s cool! She works really hard. When we would have our dance rehearsals, she wasn’t the singer that was like, ‘Oh, I’ll just stand in front.’ She wanted to learn everything – she was doing the dance moves. She’s a good dancer.
+ - I love it when a guy compliments my vibe.
+ - Acting is my number one, but dancing will always be a part of who I am and in my heart. I love doing stunts when they are a part of my acting.
+ - I was a martial artist. So, for me to be able to do all of the fights is a blast. It’s so fun. It’s like dancing, but more bad-ass. I really enjoy doing it.
+ - Dance has always been my number one. I started when I was seven years old and I’ve had the opportunity to work with some really amazing artists.
+
+19 quotes

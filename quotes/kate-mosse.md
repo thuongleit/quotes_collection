@@ -1,0 +1,23 @@
+ - Pas a pas, se va luenh. Step by step, we make our way.
+ - History is written by the victors, the strongest, the most determined. Truth is found most often in the silence, in the quiet places.
+ - People have different views of how you deal with different issues in literature, and, frankly, long may it last that there is a range of views.
+ - Free and fair access to books – to reading – is a right and one we should fight for.
+ - Love – true love – is a precious thing. It is painful, uncomfortable, makes fools of us all, but it is what breathes meaning and color and purpose into our lives.
+ - Too often I am jealous and my jealousy leads me to say things-things-that I regret.
+ - The message is clear: libraries matter. Their solid presence at the heart of our towns sends the proud signal that everyone – whoever they are, whatever their educational background, whatever their age or their needs – is welcome.
+ - What we leave behind in this life is the memory of who we were and what we did. An imprint, no more.
+ - The dead leave their shadows, an echo of the space within which once they lived. They haunt us, never fading or growing older as we do. The loss we grieve is not just their futures but our own.
+ - One cannot always marry the person one loves...
+ - Usually I decide on what it is I’m writing next by the books I’m reading.
+ - Lots of people have objections to prizes of all types, and it would be extraordinary if everybody agreed on anything that’s worthwhile – they never do.
+ - Actually, I can write anywhere – airport lounges, in bed, on a rattling train going north.
+ - All prizes have a role, if they are run with integrity and with a clear focus on reading and quality writing. I don’t think any of them is necessary, but they all play an incredibly important role in building a body of literature, in introducing new authors to new readers, and extending reading.
+ - I am not a fan of historical fiction that is sloppy in its research or is dishonest about the real history.
+ - People think that I’m very serious.
+ - Library campaigners are not prepared to stand by and watch something they cherish be dismantled brick by brick.
+ - There comes always a moment when the desire to act, however ill the cause, is stronger than the wish to listen.
+ - What we attempt to do is not without danger. What we attempt to do may not succeed. But it is right and it is just. We act for the good of all.
+ - I really like people and I keep friendships. I have people from all parts of my life.
+ - I read a lot of thrillers, especially American crime novels.
+
+21 quotes

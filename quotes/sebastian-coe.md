@@ -1,0 +1,31 @@
+ - Sport is a universal language, building more bridges between people than anything else I can think of.
+ - Tomorrow is another day, and there will be another battle!
+ - Competing is exciting and winning is exhilarating, but the true prize will always be the self-knowledge and understanding that you have gained along the way.
+ - Inspirational leaders need to have a winning mentality in order to inspire respect. It is hard to trust in the leadership of someone who is half-hearted about their purpose, or only sporadic in focus or enthusiasm.
+ - This is not going to be business as usual. This is business unusual.
+ - I don’t think I am a workaholic. I prefer to keep busy. It is better than the alternative.
+ - I’ve always felt that long, slow distance produces long, slow runners.
+ - All pressure is self-inflicted. It’s what you make of it or how you let it rub off on you.
+ - The nine inches right here; set it straight and you can beat anybody in the world.
+ - Nobody ever becomes an expert parent. But I think good parenting is about consistency. Its about being there at big moments, but its also just the consistency of decision making. And its routine.
+ - Throughout my athletic career, the overall goal was always to be a better athlete than I was at the moment – whether next week, next month or next year. The improvement was the goal. The medal was simply the ultimate reward for achieving that goal.
+ - I became a great runner because if you’re a kid in Leeds and your name is Sebastian you’ve got to become a great runner.
+ - World records are only borrowed.
+ - We need to be confident. We need not to blink.
+ - If you lived in Sheffield and were called Sebastian, you had to learn to run fast at a very early stage.
+ - The Paralympians have lifted the cloud of limitation.
+ - It is to create the best Games the world has ever seen by unlocking the UK’s unrivalled passion for sport, by delivering the best Games for athletes to compete in, by showcasing London’s unmatched cultural wealth and diversity and by creating a real and lasting legacy.
+ - Our success in Singapore was a Herculean effort by the whole team. Now I am determined to deliver on all we promised. I will be watching like a hawk.
+ - Quite simply the Games are the biggest opportunity sport in this country has ever had. It is one that we must not squander.
+ - I wouldn’t have raced a horse. But you’ll then throw back at me that Jesse Owens raced against a horse, and he’s one of my heroes, so I’m not going to say it was a silly stunt. I know too much about horses. They’re highly unreliable, and they’ve got brains the size of golf balls.
+ - The London Games will be designed for the athletes and we will provide them with the very best venues and the very best conditions to pursue their sporting dreams in London.
+ - It is really important that we promote competitive support in schools. It is very important that we recognise that has to be underpinned by good quality physical education and by getting people into patterns of exercise.
+ - To anyone who has started out on a long campaign believing that the gold medal was destined for him, the feeling when, all of a sudden, the medal has gone somewhere else is quite indescribable.
+ - Blink and you miss a sprint. The 10,000 meters is lap after lap of waiting. Theatrically, the mile is just the right length: beginning, middle, end, a story unfolding.
+ - The Americans sowed the seed, and now they have reaped the whirlwind.
+ - I believed that we had to answer the question: Why are we doing this? And it wasn’t until we started to articulate, internally as an organisation, that it was about using the Games to inspire young people to participate in sports that we each understood what we had to do.
+ - I might have to consider coaching- I’m getting too old to be a world class runner and my mind isn’t gone enough to become an official.
+ - Im not sure there are enough coaches in the system that can take young talent and consistently get them into the top five in the world.
+ - There may be problems we still need to tease out, but we will leave no stone unturned in our bid to make London the host city.
+
+29 quotes

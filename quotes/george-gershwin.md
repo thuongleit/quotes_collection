@@ -1,0 +1,32 @@
+ - I like to think of music as an emotional science.
+ - True music must repeat the thought and inspirations of the people and the time.
+ - I frequently hear music in the heart of noise.
+ - My people are Americans. My time is today.
+ - Music sets up certain vibration which unquestionably results in a physical reaction. Eventually the proper vibration for every person will be found and utilized.
+ - When I’m in my normal mood, music drips from my fingers.
+ - Out of my entire annual output of songs, perhaps two, or at the most three, came as a result of inspiration. We can never rely on inspiration. When we most want it, it does not come.
+ - All great composers of the past spent most of their time studying. Feeling alone won’t do the job. A man also needs technique.
+ - What the hell do you want to work for somebody else for? Work for yourself!
+ - It is always possible to create something original.
+ - Gershwin’s tragedy was not that he failed to cross the tracks, but rather that he did, and once there in his new habitat, was deprived of the chance to plunge his roots firmly into the new soil.
+ - The extraordinary thing about my mother, she’s so modest about me.
+ - It took me three weeks to write the ‘Rhapsody in Blue.’ I had always wanted to write something blue and Paul Whiteman inspired.
+ - Why should I limit myself to only one woman when I can have as many women as I want?
+ - Jazz is one of the best things that you can find in your life, it can always be your friend.
+ - For suddenly, I saw you there And through foggy London town The sun was shining everywhere...
+ - Originality is the only thing that counts. But the originator uses material and ideas that occur round him and pass through him. And out of his experience comes the original creation.
+ - Upper berth, lower berth, that’s the difference between talent and genius.
+ - A skyscraper is at the same time a triumph of the machine and a tremendous emotional experience, almost breath-taking. Not merely its height but its mass and proportions are the result of an emotion, as well as of calculation.
+ - Jazz is the result of the energy stored up in America.
+ - Look at the piano. You’ll notice that there are white notes and black notes. Figure out the difference between them and you’ll be able to make whatever kind of music you want.
+ - All these tales of people sitting down and composing symphonies just as though they were writing a letter are very much exaggerated; at least, it isn’t that way in my work.
+ - Jazz I regard as an American folk music; not the only one, but a very powerful one which is probably in the blood and feeling of the American people more than any other style of folk music.
+ - It sounds simple, of course, but personally I can think of no more mentally arduous task than making music.
+ - Writing music is not so much inspiration as hard work.
+ - The European boys have small ideas but they sure know how to dress ’em up.
+ - I didn’t even start playing the piano until I was about 13 or 14. I guess I must have had a little talent or whatever-you-call-it, but I practised regularly, and that’s what counts.
+ - Not many composers have ideas. Far more of them know how to use strange instruments which do not require ideas.
+ - An entire composition written in jazz could not live.
+ - When jazz is played in another nation, it is called American. When it is played in another country, it sounds false. Jazz is the result of the energy stored up in America.
+
+30 quotes

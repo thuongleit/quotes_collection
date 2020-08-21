@@ -1,0 +1,26 @@
+ - There are good people who are dealt a bad hand by fate, and bad people who live long, comfortable, privileged lives. A small twist of fate can save or end a life; random chance is a permanent, powerful player in each of our lives, and in human history as well.
+ - The niftiest turn of phrase, the most elegant flight of rhetorical fancy, isn’t worth beans next to a clear thought clearly expressed.
+ - In politics, Bugs Bunny always beats Daffy Duck. Daffy’s always going berserk, jumping up and down, yelling. Bugs’s got that sly smile, like he always knows what’s up, like nothing can ruffle him.
+ - Well, politics is war, and in war, truth is the first casualty.
+ - I grew up in New York City, where we played highly unorganized sports: stick ball, stoop ball, and the occasional game of baseball with no adult supervision.
+ - History doesn’t turn on a dime; it turns on a plugged nickel.
+ - Describing the jury in the OJ Simpson murder trial: These people have served a longer sentence than some people who have committed murder.
+ - Something about her eyes or voice has always suggested the hint of a free spirit, trapped in a Peck and Peck cage, dreaming of making rude noises at public gatherings of Republicans.
+ - Think about one of the most powerful influences on a young child’s life – the absence of a father figure. Look back on recent presidents, and you’ll find an absent, or weak, or failed father in the lives of Lyndon Johnson, Richard Nixon, Ronald Reagan, Bill Clinton and Barack Obama.
+ - Victory has 1,000 fathers; defeat has 1,000 kibitzers.
+ - Conservatives may worship Adam Smith’s ‘invisible hand,’ but for Obama, the helping hand comes in large measure from the public, not the private sector. To call this ‘socialism’ is to do violence to the word and to the concept. To call it ‘un-American’ is a smear.
+ - After immersing myself in the mysteries of the Electoral College for a novel I wrote in the ’90s, I came away believing that the case for scrapping it is less obvious than I originally thought.
+ - Protestations of indifference to higher office are hard to take seriously when the ‘non-candidate’ is busily engaged in testing the waters.
+ - As a personal matter, I stopped voting more than a decade ago, on the grounds that it helped me as an analyst not to think about making a choice in the voting booth.
+ - Somebody is going to have to do fancy footwork to make sure Elizabeth and John Edwards get their prime-time shot .
+ - George Washington, Andrew Jackson, William Henry Harrison, Zachary Taylor, Ulysses Grant, Rutherford Hayes, James Garfield, Benjamin Harrison, Theodore Roosevelt and Dwight Eisenhower all rode their wartime heroics into the White House.
+ - Television is one of the most fickle businesses that there are, you are in favour one minute and out the next.
+ - In another life, before taking the veil of journalistic purity, I practiced the black arts of a political operative, including ’debate prep.
+ - I got into writing and thinking about politics because I was told there would be no math.
+ - More things in politics happen by accident or exhaustion than happen by conspiracy.
+ - There is no such thing as political science, but there are tenancies so strong that they might as well be called laws of nature.
+ - For millions, Roger Ebert will be remembered as a writer and television personality who brought a sense of passion and excellence to his craft. For me, he is a man who fused joy and courage as few others ever have. My life was enriched by having such a friend; it is poorer for losing such a friend.
+ - If Obama’s vision of the public sector is socialism, then so too were the visions of Theodore Roosevelt, Franklin Roosevelt, Harry Truman, Dwight Eisenhower, John Kennedy, Lyndon Johnson, and Richard Nixon.
+ - In every debate, whatever the format, whatever the questions, there is one and only one way to identify the winner: Who commands the room? Who drives the narrative? Who is in charge?
+
+24 quotes

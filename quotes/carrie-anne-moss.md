@@ -1,0 +1,21 @@
+ - Nobody sets the rules but you. You can design your own life.
+ - People tell you the world looks a certain way. Parents tell you how to think. Schools tell you how to think. TV. Religion. And then at a certain point, if you’re lucky, you realize you can make up your own mind. Nobody sets the rules but you. You can design your own life.
+ - Are you gonna fuel your faith or fuel your fear? I’m all about fueling my faith, especially when it’s hard to do so.
+ - To experience life you have to kind of face a lot of fears.
+ - The writers are so smart, I can only imagine. I would love to be in that room. I love the creative process.
+ - I’m a very simple person. I don’t use computers.
+ - My husband jokes that I’ll invite people over for dinner and he won’t know who they are or where I met them. But in my work world, I’ve never really been tempted to tell too much of my story.
+ - Where it gets clear for me about the privacy issue is with my kids because they didn’t choose this kind of life. I’m an incredibly open person, though – I’ll tell anyone anything.
+ - It’s an exciting time to be in television, and it’s a really exciting time to be on a Netflix show. I remember when Netflix first came out, I didn’t quite understand the DVD thing and why my husband was mailing it back.
+ - I don’t believe in being typecast. If I believed it, it probably would have happened to me. You attract what you make.
+ - I’m not a writer, so I don’t know what that looks like, but I can only imagine that you get all those great minds in that room, of those particular writers that created the show, and it’s going to be great.
+ - For me, the biggest thing is someone who’s kind. I’m not into the bad-boy thing.
+ - Eventually I want to be a full-time mother who works occasionally – and being an actor you have that freedom.
+ - I was 30 when I did ‘The Matrix.’ When you turn 30, your life and your world view change. I remember feeling relieved – it was like I was seeing things in a deeper way.
+ - When I did the first ‘Matrix,’ after it came out, I had a woman come up to me and just thank me for Trinity because she was an action writer. She said she was getting really good opportunities now.
+ - I just can’t stand the sound of my voice sometimes, or how my face looks. There are always a few times at every premiere when I just have to cover my eyes when I’m up there.
+ - After ‘The Matrix,’ I cannot wear sunglasses. As soon as I put them on, people recognize me.
+ - When you play a doctor, you have to look like you can do it but you don’t actually go and do it. It’s not like you learn how to cut open somebody and go do surgery. You have to think of a human being and not play the idea of what that would look like.
+ - I definitely acknowledge that ‘The Matrix’ and Trinity had an influence on female action-oriented characters in television and in film. I think it’s awesome.
+
+19 quotes

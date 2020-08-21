@@ -1,0 +1,40 @@
+ - Cinema is an art form.
+ - Films are like oxygen for me.
+ - Entertainment’s definition has been reduced to making people happy.
+ - Cinema is much more than heroes and villains.
+ - I want my films to be seen everywhere.
+ - I don’t know if I’d ever want to show my college life in the films I make. I think I’ve passed that stage long ago.
+ - I love Back Stage. I have lots of theater friends and actors who depend on Back Stage.
+ - I shoot reality-based movies, and in actual locations, shooting them with a star is next to impossible.
+ - If you get validation from outside, then suddenly everything you do at home is justified.
+ - There is more to Indian cinema than just Bollywood. I think regional cinema, especially Tamil and Marathi cinema, are exploring some really bold themes.
+ - I love travelling, and most scripts have been written while I have been travelling.
+ - I am not born to make dreamy movies.
+ - I think the Internet has changed the world.
+ - I am a straight talker. I am not politically correct or diplomatic.
+ - I’m very emotional and possessive about all my films.
+ - Conventional Indian cinema is about people falling in love. They sing, they dance.
+ - Chennai is the birthplace of a new language in cinema. The audiences here are the most evolved moviegoers to be found anywhere in India.
+ - I’m a huge Coppola fan. But more of ‘Apocalypse Now’ and ‘The Conversation.’ ‘The Godfather’ for me is, like, number three or four on the list.
+ - I think the perspective that small-town directors bring to films is very different.
+ - For me, any kind of thing that has stood for 100 years tells me of the health of that thing. So, cinema completing a hundred years in India just says that it is very healthy.
+ - Politicians need a film appreciation course.
+ - I do not make movies to send any message, but my treatment makes my viewers think on the subject.
+ - I didn’t ask anyone to make me a poster boy, because poster boys always end up on dart boards.
+ - The censor boards are mere redundant forces conspiring to keep the ‘bold’ films out of reach of the audience.
+ - One must go for a film with an open mind; a film best impacts you when your mind is a blank page to the film.
+ - There was a time I had resentment against everything mainstream.
+ - All those pseudo-Hollywood movies set nowhere, with everybody good looking and having great physique – that’s not working any more.
+ - I used to spend a lot of time cutting out film posters from papers and putting them up on the wall in my room.
+ - The quality of mainstream cinema has changed. A lot of independent voices feel they can leave everything behind and make independent films.
+ - The West sometimes doesn’t understand Bollywood, but they can definitely understand how Bollywood influences people.
+ - Indian films have this obsession with hygienic clean spaces, even though the country’s not so clean. They’re either shot in the studios or shot in London, in America, in Switzerland – clean places. Everywhere except India.
+ - Through movies, I have met nearly everyone I have wanted to, except Woody Allen.
+ - Studios never put pressure. They know the kind of films I want to make.
+ - I think about my films for a long time, maybe years, but I write them in days.
+ - When people who are seeking change start out, they are driven by commitment to a cause. But as internecine power struggles take over, one-time idealists fall prey to corruption. They become just as corrupt and manipulative as the system that they want to overthrow.
+ - It was only in the early 1990s – during my student years as an aspiring scientist at Delhi University – that I discovered the world of cinema.
+ - Every film has an origin. It is made under certain circumstances, and that is a very important point that should be kept in mind during a review.
+ - Kalki is the best thing that has ever happened to me. I am madly in love with her.
+
+38 quotes

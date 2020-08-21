@@ -1,0 +1,40 @@
+ - I’m gonna live like tomorrow doesn’t exist.
+ - I’ve got thick skin and an elastic heart.
+ - I have social anxiety. It’s easier up on stage because there’s security in being there. When I’m off stage I’m trying not to be a manic freak. I’m quite shy.
+ - I’m an advocate of ‘it’s not what you are, it’s who you are.’
+ - I don’t know anything about the history of music.
+ - I’m just completely obsessed with Die Antwoord.
+ - If anyone besides famous people knew what it was like to be a famous person, they would never want to be famous.
+ - I don’t read reviews or interviews or anything, just because I’m afraid; If I believed the good, then I’d believe the bad, and there will be bad.
+ - I’ll be the songwriter for pop stars and then they can be the front person and I don’t have to be famous.
+ - There’s time limits on how long people’s attention spans will work. There’s six weeks in each territory that you’re really famous, then you, thank god, disappear again.
+ - I’m a fan of the Strokes, so my big fantasy was that one day I would get to sing with them.
+ - I liked when I was naive and I thought it was just about making good music.
+ - I don’t need to be rich anymore; I don’t need to be a millionaire.
+ - I’m sensitive and get easily upset and insulted.
+ - Help, I have done it again I have been here many times before Hurt myself again today And the worst part is There’s no-one else to blame.
+ - I was born pretty lucky, an Aryan Australian, friendly girl, that gives you a lot of advantages in the world. I was unaware of people’s fights or struggles for equality. I was really naive.
+ - I think that it depends what you mean by successful. If you mean ‘make money’ you need to be part of the machine unless you’re one of those superhuman people who can do everything by yourself, and have workaholic tendencies and really good advisers and a good investor.
+ - When I was 10, my parents really valued success in the arts, and I thought if I was a famous ‘something artistic,’ that they would love me more.
+ - I don’t go to shows because I just want to listen to the music performed live. I want to get to know the person who’s performing it. Or I want to, like, take away a sense that I had an experience that nobody else is going to have again, or a unique experience for that moment.
+ - Knowing now what goes into making a successful artist, it’s disheartening.
+ - Being hunted, paparazzi-style, doesn’t appeal to me.
+ - I liked myself much more before I got famous. I was much friendlier and had more energy.
+ - People aren’t honest about the horrors of fame. The downsides are so overwhelming that, for me, there is no payoff.
+ - I like bands for a long time, even when they’re not trendy anymore. I still like Arcade Fire. I’ve always liked Stevie Wonder.
+ - Like when I’m singing live I can’t hear myself. I’m just listening to the rest of the band. To listen to my voice, it doesn’t even feel like it’s me.
+ - It was really shocking to me that when I was dating a dude I could get married and my taxes were 8 grand less, blah blah blah.
+ - There are probably five songs in the world that I get excited about when I hear them on the radio.
+ - I think it would be very difficult to maintain one kind of art or whatever for your whole life. I think it’s unrealistic.
+ - I was weirdly obsessed with music until I was 11, and then I turned into a nerd.
+ - A lot of people come up to me expecting to meet the person they have seen perform. It’s not going to happen, unless my mania, my stage person, responds to them and not the real me.
+ - People call me for the ballads. Apparently that’s where I’ve been pigeonholed. But it’s really interesting and really fun. It’s my favourite part of the job, writing.
+ - I hope I am a psychotherapist’s dream. I’ve spent enough hours in therapy.
+ - I love visual gags and gimmicks; I love them.
+ - I don’t really even go out that much now except to walk my dogs, because I don’t want to be recognised.
+ - When you’re entertaining all day long and that’s your work, you end up really very tired. You don’t have a lot of energy left over for your loved ones.
+ - Fame made me develop a panic disorder.
+ - I’m really visually stimulated more than anything. I don’t really listen to music. I’m more into watching telly or watching movies and visual art.
+ - I love watching reality TV, but being part of making it was just demoralizing.
+
+38 quotes

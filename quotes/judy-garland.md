@@ -1,0 +1,40 @@
+ - Always be a first rate version of yourself and not a second rate version of someone else.
+ - For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.
+ - My life, my career has been like a roller coaster. I’ve either been an enormous success or just a down-and-out failure.
+ - The greatest treasures are those invisible to the eye but found by the heart.
+ - Give the people what they want and then go have a hamburger.
+ - Wouldn t it be wonderful if we could all be a little more gentle with each other, and a little more loving, have a little more empathy, and maybe we’d like each other a little bit more.
+ - Behind every cloud is another cloud.
+ - We cast away priceless time in dreams, born of imagination, fed upon illusion, and put to death by reality.
+ - I can live without money, but I cannot live without love.
+ - How strange when an illusion dies. It’s as though you’ve lost a child.
+ - In the silence of night I have often wished for just a few words of love from one man, rather than the applause of thousands of people.
+ - As for my feelings toward ‘Over the Rainbow,’ it’s become part of my life. It is so symbolic of all my dreams and wishes that I’m sure that’s why people sometimes get tears in their eyes when they hear it.
+ - Birds fly over the rainbow. Why then, oh, why can’t I?
+ - If I am a legend, then why am I so lonely?
+ - I’ve always taken ‘The Wizard of Oz’ very seriously, you know. I believe in the idea of the rainbow. And I’ve spent my entire life trying to get over it.
+ - If I’m such a legend, then why am I so lonely? If I’m such a legend, then why do I sit at home for hours staring at the damned telephone, hoping it’s out of order, even calling the operator asking her if she’s sure it’s not out of order?
+ - When you have lived the life I’ve lived, when you’ve loved and suffered, and been madly happy and desperately sad – well, that’s when you realize you’ll never be able to set it all down. Maybe you’d rather die first.
+ - If you have to be in a soap opera try not to get the worst role.
+ - He gave me a look at myself I’ve never had before. He saw something in me nobody else ever did. He made me see it too. He made me believe it.
+ - When I die I have visions of fags singing ‘Over the Rainbow’ and the flag at Fire Island being flown at half mast.
+ - You are never so alone as when you are ill on stage. The most nightmarish feeling in the world is suddenly to feel like throwing up in front of four thousand people.
+ - Soon the sun beams will smile through. Before you jump out of that bed, just know, the thought of you was the first thing that hit my head. Good morning my darling.
+ - Velveeta: you can eat it – or wax your car with it!
+ - I’ve seen the ticket, and I still can’t believe it. When I see the money, I hope I don’t hit the floor.
+ - I try to bring the audience’s own drama – tears and laughter they know about – to them.
+ - Audiences have kept me alive.
+ - If I’m such a legend, then why am I so lonely? Let me tell you, legends are all very well if you’ve got somebody around who loves you.
+ - I’m just an Irish biddy.
+ - I’ve been in love with audiences all my life, and I’ve tried to please. I hope I did.
+ - I’ve never looked through a keyhole without finding someone was looking back.
+ - On daughter Liza Minnelli: I think she decided to go into show business when she was an embryo, she kicked so much.
+ - I was born at the age of twelve on an MGM lot.
+ - I’m the original take-orders girl.
+ - I was born in a lovely white house with a garden.
+ - You know something? I’m decent! There isn’t a great deal of decency in the world, especially in our business, and I’m one of the few really decent ladies around.
+ - Hollywood is a strange place if you’re in trouble. Everybody thinks it’s contagious.
+ - I truly have a great love for an audience, and I used to want to prove it to them by giving them blood.
+ - I think there’s something peculiar about me that I haven’t died. It doesn’t make sense but I refuse to die.
+
+38 quotes

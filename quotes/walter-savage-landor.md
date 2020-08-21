@@ -1,0 +1,206 @@
+ - Music is God’s gift to man, the only art of Heaven given to earth, the only art of earth we take to Heaven.
+ - Delay in justice is injustice.
+ - We are no longer happy so soon as we wish to be happier.
+ - There is no easy path leading out of life, and few are the easy ones that lie within it.
+ - I strove with none, for none was worth my strife. Nature I loved and, next to Nature, Art: I warm’d both hands before the fire of life; It sinks, and I am ready to depart.
+ - Cruelty is the highest pleasure to the cruel man; it is his love.
+ - There is no more certain sign of a narrow mind, of stupidity, and of arrogance, than to stand aloof from those who think differently from us.
+ - Nature I loved, and next to Nature, Art.
+ - Death stands above me, whispering low I know not what into my ear; Of his strange language all I know Is, there is not a word of fear.
+ - The assailant is often in the right; the assailed is always.
+ - It is easy to look down on others; to look down on ourselves is the difficulty.
+ - Solitude is the audience-chamber of God.
+ - Many laws as certainly make bad men, as bad men make many laws.
+ - A man’s vanity tells him what is honor, a man’s conscience what is justice.
+ - We may receive so much light as not to see, and so much philosophy as to be worse than foolish.
+ - Next in criminality to him who violates the laws of his country, is he who violates the language.
+ - My thoughts are my company; I can bring them together, select them, detain them, dismiss them.
+ - I strove with none; for none was worth my strife.
+ - A smile is ever the most bright and beautiful with a tear upon it. What is the dawn without the dew? The tear is rendered by the smile precious above the smile itself.
+ - No good writer was ever long neglected; no great man overlooked by men equally great. Impatience is a proof of inferior strength, and a destroyer of what little there may be.
+ - The Siren waits thee, singing song for song.
+ - The present, like a note in music, is nothing but as it appertains to what is past and what is to come.
+ - In argument, truth always prevails finally; in politics, falsehood always.
+ - We oftener say things because we can say them well, than because they are sound and reasonable.
+ - Principles do not mainly influence even the principled; we talk on principle, but we act on interest.
+ - No ashes are lighter than those of incense, and few things burn out sooner.
+ - Friendship is a vase, which, when it is flawed by heat, or violence, or accident, may as well be broken at once; it can never be trusted after.
+ - No truer word, save God’s, was ever spoken, Than that the largest heart is soonest broken.
+ - Every witticism is an inexact thought; that which is perfectly true is imperfectly witty.
+ - What is companionship where nothing that improves the intellect is communicated, and where the larger heart contracts itself to the model and dimension of the smaller?
+ - The spirit of Greece, passing through and ascending above the world, hath so animated universal nature, that the very rocks and woods, the very torrents and wilds burst forth with it.
+ - A good cook is the peculiar gift of the gods. He must be a perfect creature from the brain to the palate, from the palate to the finger’s end.
+ - There is only one word of tenderness we could say, which we have not said oftentimes before ; and there is no consolation in it. The happy never say, and never hear said, farewell.
+ - Those who are quite satisfied sit still and do nothing; those who are not quite satisfied are the sole benefactors of the world.
+ - Clear writers, like fountains, do not seem so deep as they are; the turbid look the most profound.
+ - Nothing is pleasanter to me than exploring in a library.
+ - We talk on principal, but act on motivation.
+ - How delightful it is to see a friend after a length of absence! How delightful to chide him for that length of absence to which we owe such delight.
+ - Friendship may sometimes step a few paces in advance of truth.
+ - The wise become as the unwise in the enchanted chambers of Power, whose lamps make every face the same colour.
+ - Ambition is but avarice on stilts, and masked. God sometimes sends a famine, sometimes a pestilence, and sometimes a hero, for the chastisement of mankind; none of them surely for our admiration.
+ - To my ninth decade I have totter’d on, And no soft arm bends now my steps to steady; She, who once led me where she would, is gone, So when he calls me, Death shall find me ready.
+ - Harmonious words render ordinary ideas acceptable; less ordinary, pleasant; novel and ingenious ones, delightful. As pictures and statues, and living beauty, too, show better by music-light, so is poetry irradiated, vivified, glorified’, and raised into immortal life by harmony.
+ - Belief in the future life is the appetite of reason.
+ - A wise man will always be a Christian, because the perfection of wisdom is to know where lies tranquillity of mind and how to attain it, which Christianity teaches.
+ - The happy never say, and never hear said, farewell.
+ - Religion is the eldest sister of philosophy: on whatever subjects they may differ, it is unbecoming in either to quarrel, and most so about their inheritance.
+ - The tomb is the pedestal of greatness. I make a distinction between God’s great and the king’s great.
+ - No thoroughly occupied person was ever found really miserable.
+ - Shakespeare is not our poet, but the world’s.
+ - I see the rainbow in the sky, the dew upon the grass; I see them, and I ask not why they glimmer or they pass. With folded arms I linger not to call them back; ’twere vain: In this, or in some other spot, I know they’ll shine again.
+ - The heart that once has been bathed in love’s pure fountain retains the pulse of youth forever.
+ - Circumstances form the character; but, like petrifying matters, they harden while they form.
+ - Authors are like cattle going to a fair: those of the same field can never move on without butting one another.
+ - Virtue is presupposed in friendship.
+ - Men universally are ungrateful towards him who instructs them, unless, in the hours or in the intervals of instruction, he presents a sweet-cake to their self-love.
+ - Politeness is not always a sign of wisdom; but the want of it always leaves room for a suspicion of folly, if folly and imprudence are the same.
+ - We often fancy that we suffer from ingratitude, while in reality we suffer from self-love.
+ - It often comes into my head That we may dream when we are dead, But I am far from sure we do. O that it were so! then my rest Would be indeed among the blest; I should for ever dream of you.
+ - Let a gentleman be known to have been cheated of twenty pounds, and it costs him forty a-year for the remainder of his life.
+ - The sublime is contained in a grain of dust.
+ - If there were no falsehood in the world, there would be no doubt, if there were no doubt, there would be no inquiry; if no inquiry, no wisdom, no knowledge, no genius; and Fancy herself would lie muffled up in her robe, inactive, pale, and bloated.
+ - Hope is the mother of faith.
+ - Every good writer has much idiom; it is the life and spirit of language.
+ - Justice is often pale and melancholy; but Gratitude, her daughter, is constantly in the flow of spirits and the bloom of loveliness.
+ - We listen to those whom we know to be of the same opinion as ourselves, and we call them wise for being of it; but we avoid such as differ from us.
+ - We cannot conquer fate and necessity, yet we can yield to them in such a manner as to be greater than if we could.
+ - If in argument we can make a man angry with us, we have drawn him from his vantage ground and overcome him.
+ - It appears to be among the laws of nature, that the mighty of intellect should be pursued and carped by the little, as the solitary flight of one great bird is followed by the twittering petulance of many smaller.
+ - God made the rose out of what was left of woman at the creation. The great difference is, we feel the rose’s thorns when we gather it; and the other’s when we have had it for some time.
+ - It is delightful to kiss the eyelashes of the beloved – is it not? But never so delightful as when fresh tears are on them.
+ - A true philosopher is beyond the reach of fortune.
+ - There is nothing on earth divine except humanity.
+ - The very beautiful rarely love at all; those precious images are placed above the reach of the passions: Time alone is permitted to efface them.
+ - When the mind loses its feeling for elegance, it grows corrupt and groveling, and seeks in the crowd what ought to be found at home.
+ - Ah what avails the sceptred race, Ah what the form divine! What every virtue, every grace! Rose Aylmer, all were thine. Rose Aylmer, whom these wakeful eyes May weep, but never see, A night of memories and of sighs I consecrate to thee.
+ - Those who speak against the great do not usually speak from morality, but from envy.
+ - It is as wise to moderate our belief as our desires.
+ - Cats like men are flatterers.
+ - We fancy that our afflictions are sent us directly from above; sometimes we think it in piety and contrition, but oftener in moroseness and discontent.
+ - The sweetest souls, like the sweetest flowers, soon canker in cities, and no purity is rarer there than the purity of delight.
+ - There is a vast deal of vital air in loving words.
+ - The damps of autumn sink into the leaves and prepare them for the necessity of their fall; and thus insensibly are we, as years close around us, detached from our tenacity of life by the gentle pressure of recorded sorrow.
+ - Fame, they tell you, is air; but without air there is no life for any; without fame there is none for the best.
+ - The most pernicious of absurdities is that weak, blind, stupid faith is better than the constant practice of every human virtue.
+ - I delight in the diffusion of learning; yet, I must confess it, I am most gratified and transported at finding a large quantity of it in one place; just as I would rather have a solid pat of butter at breakfast, than a splash of grease upon the table-cloth that covers half of it.
+ - When a woman hath ceased to be quite the same to us, it matters little how different she becomes.
+ - Despotism sits nowhere so secure as under the effigy and ensigns of freedom.
+ - Truth, like the juice of the poppy, in small quantities, calms men; in larger, heats and irritates them, and is attended by fatal consequences in excess.
+ - Kings play at war unfairly with republics; they can only lose some earth, and some creatures they value as little, while republics lose in every soldier a part of themselves.
+ - Study is the bane of childhood, the oil of youth, the indulgence of adulthood, and a restorative in old age.
+ - There is a desire of property in the sanest and best men, which Nature seems to have implanted as conservative of her works, and which is necessary to encourage and keep alive the arts.
+ - I never did a single wise thing in the whole course of my existence, although I have written many which have been thought so.
+ - O Music! how it grieves me that imprudence, intemperance, gluttony, should open their channels into thy sacred stream.
+ - We cannot be contented because we are happy, and we cannot be happy because we are contented.
+ - Wherever there is excessive wealth, there is also in the train of it excessive poverty.
+ - O what a thing is age! Death without death’s quiet.
+ - In honest truth, a name given to a man is no better than a skin given to him; what is not natively his own falls off and comes to nothing.
+ - Of all failures, to fail in a witticism is the worst, and the mishap is the more calamitous in a drawn-out and detailed one.
+ - Cruelty is no more the cure of crimes than it is the cure of sufferings; compassion, in the first instance, is good for both; I have known it to bring compunction when nothing else would.
+ - Political men, like goats, usually thrive best among inequalities.
+ - Of all studies, the most delightful and the most useful is biography. The seeds of great events lie near the surface; historians delve too deep for them. No history was ever true. Lives I have read which, if they were not, had the appearance, the interest, and the utility of truth.
+ - An ingenuous mind feels in unmerited praise the bitterest reproof. If you reject it you are unhappy, if you accept it you are undone.
+ - I have suffered more from my bad dancing than from all the misfortunes and miseries of my life put together.
+ - A little praise is good for a shy temper; it teaches it to rely on the kindness of others.
+ - He who brings ridicule to bear against truth finds in his hand a blade without a hilt. The most sparkling and pointed flame of wit flickers and expires against the incombustible walls of her sanctuary.
+ - Tyrants never perish from tyranny, but always from folly,-when their fantasies have built up a palace for which the earth has no foundation.
+ - The flame of anger, bright and brief, sharpens the barb of love.
+ - Not dancing well, I never danced at all – and how grievously has my heart ached when others where in the full enjoyment of that conversation which I had no right even to partake.
+ - Teach him to live unto God and unto thee; and he will discover that women, like the plants in woods, derive their softness and tenderness from the shade.
+ - Other offences, even the greatest, are the violation of one law: despotism is the violation of all.
+ - Friendships are the purer and the more ardent, the nearer they come to the presence of God, the Sun not only of righteousness but of love.
+ - We cannot at once catch the applauses of the vulgar and expect the approbation of the wise.
+ - Cruelty, if we consider it as a crime, is the greatest of all; if we consider it as a madness, we are equally justifiable in applying to it the readiest and the surest means of oppression.
+ - Truth is a point, the subtlest and finest; harder than adamant; never to be broken, worn away, or blunted. Its only bad quality is, that it is sure to hurt those who touch it; and likely to draw blood, perhaps the life blood, of those who press earnestly upon it.
+ - Heat and animosity, contest and conflict, may sharpen the wits, although they rarely do; they never strengthen the understanding, clear the perspicacity, guide the judgment, or improve the heart.
+ - The foundation of domestic happiness is faith in the virtue of woman.
+ - Cruelty in all countries is the companion of anger; but there is only one, and never was another on the globe, where she coquets both with anger and mirth.
+ - Why cannot we be delighted with an author, and even feel a predilection for him, without a dislike of others? An admiration of Catullus or Virgil, of Tibullus or Ovid, is never to be heightened by a discharge of bile on Horace.
+ - As the pearl ripens in the obscurity of its shell, so ripens in the tomb all the fame that is truly precious.
+ - Every great writer is a writer of history, let him treat on almost any subject he may.
+ - Dignity, in private men and in governments, has been little else than a stately and stiff perseverance in oppression; and spirit, as it is called, little else than the foam of hard-mouthed insolence.
+ - Everything that looks to the future elevates human nature.
+ - Something of the severe hath always been appertaining to order and to grace; and the beauty that is not too liberal is sought the most ardently, and loved the longest.
+ - The moderate are not usually the most sincere, for the same circumspection which makes them moderate makes them likewise retentive of what could give offence.
+ - Sculpture and painting are moments of life; poetry is life itself.
+ - What is reading but silent conversation?
+ - The writing of the wise are the only riches our posterity cannot squander.
+ - The only effect of public punishment is to show the rabble how bravely it can be borne; and that every one who hath lost a toe-nail hath suffered worse.
+ - The religion of Christ is peace and good-will, – the religion of Christendom is war and ill-will.
+ - Experience is our only teacher both in war and peace.
+ - Every sect is a moral check on its neighbour. Competition is as wholesome in religion as in commerce.
+ - The highest price we can pay for anything; is to ask it.
+ - Great men too often have greater faults than little men can find room for.
+ - The deafest man can hear praise, and is slow to think any an excess.
+ - Prose on certain occasions can bear a great deal of poetry; on the other hand, poetry sinks and swoons under a moderate weight of prose.
+ - States, like men, have their growth, their manhood, their decrepitude, their decay.
+ - Fame often rests at first upon something accidental, and often, too, is swept away, or for a time removed; but neither genius nor glory, is conferred at once, nor do they glimmer and fall, like drops in a grotto, at a shout.
+ - Merit has rarely risen of itself, but a pebble or a twig is often quite sufficient for it to spring from to the highest ascent. There is usually some baseness before there is any elevation.
+ - Life is but sighs; and, when they cease, ’tis over.
+ - As we sometimes find one thing while we are looking for another, so, if truth escaped me, happiness and contentment fell in my way.
+ - How sweet and sacred idleness is!
+ - Vast objects of remote altitude must be looked at a long while before they are ascertained. Ages are the telescope tubes that must be lengthened out for Shakespeare; and generations of men serve but a single witness to his claims.
+ - There is a gravity which is not austere nor captious, which belongs not to melancholy nor dwells in contraction of heart: but arises from tenderness and hangs upon reflection.
+ - Life and death appear more certainly ours than whatsoever else; and yet hardly can that be called ours, which comes without our knowledge, and goes without it.
+ - Do not expect to be acknowledged for what you are, much less for what you would be; since no one can well measure a great man but upon the bier.
+ - I sometimes think that the most plaintive ditty has brought a fuller joy and of longer duration to its composer that the conquest of Persia to the Macedonian.
+ - He who brings ridicule to bear against truth finds in his hand a blade without a hilt.
+ - Falsehood is for a season.
+ - Cats ask plainly for what they want.
+ - You should indeed have longer tarried By the roadside before you married.
+ - Moroseness is the evening of turbulence.
+ - A great man knows the value of greatness; he dares not hazard it, he will not squander it.
+ - The eyes of critics, whether in commending or carping, are both on one side, like a turbot’s.
+ - We are poor, indeed, when we have no half-wishes left us. The heart and the imagination close the shutters the instant they are gone.
+ - Absurdities are great or small in proportion to custom or insuetude.
+ - Contentment is better than divinations or visions.
+ - Greatness, as we daily see it, is unsociable.
+ - Children are what the mothers are.
+ - Ridicule has followed the vestiges of truth, but never usurped her place.
+ - In the morn of life we are alert, we are heated in its noon, and only in its decline do we repose.
+ - True wit, to every man, is that which falls on another.
+ - The vain poet is of the opinion that nothing of his can be too much: he sends to you basketful after basketful of juiceless fruit, covered with scentless flowers.
+ - A mercantile democracy may govern long and widely; a mercantile aristocracy cannot stand.
+ - I would recommend a free commerce both of matter and mind. I would let men enter their own churches with the same freedom as their own houses; and I would do it without a homily or graciousness or favor, for tyranny itself is to me a word less odious than toleration.
+ - Great men lose somewhat of their greatness by being near us; ordinary men gain much.
+ - Avoid, which many grave men have not done, words taken from sacred subjects and from elevated poetry: these we have seen vilely prostituted. Avoid too the society of the barbarians who misemploy them.
+ - Piety – warm, soft, and passive as the ether round the throne of Grace – is made callous and inactive by kneeling too much.
+ - Wisdom consisteth not in knowing many things, nor even in knowing them thoroughly; but in choosing and in following what conduces the most certainly to our lasting happiness and true glory.
+ - A critic is never too severe when he only detects the faults of an author. But he is worse than too severe when, in consequence of this detection, be presumes to place himself on a level with genius.
+ - Such is our impatience, such our hatred of procrastination, to everything but the amendment of our practices and the adornment of our nature, one would imagine we were dragging Time along by force, and not he us.
+ - There is delight in singing, though none hear beside the singer.
+ - Great men always pay deference to greater.
+ - God scatters beauty as he scatters flowers O’er the wide earth, and tells us all are ours. A hundred lights in every temple burn, And at each shrine I bend my knee in turn.
+ - Where power is absent we may find the robe of genius, but we miss the throne.
+ - Old trees in their living state are the only things that money cannot command.
+ - Two evils, of almost equal weight, may befall the man of erudition; never to be listened to, and to be listened to always.
+ - Goodness does not more certainly make men happy than happiness makes them good.
+ - I hate false words, and seek with care, difficulty, and moroseness, those that fit the thing.
+ - Modesty and diffidence make a man unfit for public affairs; they also make him unfit for brothels.
+ - Nations, like individuals, interest us in their growth.
+ - Wrong is but falsehood put in practice.
+ - There is no eloquence which does not agitate the soul.
+ - Democracy is always the work of kings. Ashes, which in themselves are sterile, fertilize the land they are cast upon.
+ - The happiest of pillows is not that which love first presses! it is that which death has frowned on and passed over.
+ - The worse of ingratitude lies not in the ossified heart of him who commits it, but we find it in the effect it produces on him against whom it was committed.
+ - Men, like nails, lose their usefulness when they lose their direction and begin to bend.
+ - Truth sometimes corner unawares upon Caution, and sometimes speaks in public as unconsciously as in a dream.
+ - We care not how many see us in choler, when we rave and bluster, and make as much noise and bustle as we can; but if the kindest and most generous affection comes across us, we suppress every sign of it, and hide ourselves in nooks and covert.
+ - Fleas know not whether they are upon the body of a giant or upon one of ordinary size.
+ - We must distinguish between felicity and prosperity; for prosperity leads often to ambition, and ambition to disappointment; the course is then over, the wheel turns round but once, while the reaction of goodness and happiness is perpetual.
+ - Was genius ever ungrateful? Mere talents are dry leaves, tossed up and down by gusts of passion, and scattered and swept away; but, Genius lies on the bosom of Memory, and Gratitude at her feet.
+ - Even the weakest disputant is made so conceited by what he calls religion, as to think himself wiser than the wisest who thinks differently from him.
+ - Immoderate power, like other intemperance, leaves the progeny weaker and weaker, until nature as in compassion covers it with her mantle and it is seen no more.
+ - The habit of pleasing by flattery makes a language soft; the fear of offending by truth makes it circuitous and conventional.
+ - He who first praises a book becomingly is next in merit to the author.
+ - That which moveth the heart most is the best poetry; it comes nearest unto God, the source of all power.
+ - There are proud men of so much delicacy that it almost conceals their pride, and perfectly excuses it.
+ - Consciousness of error is, to a certain extent, a consciousness of understanding; and correction of error is the plainest proof of energy and mastery.
+ - Those who in living fill the smallest space, In death have often left the greatest void.
+ - Ambition does not see the earth she treads on: The rock and the herbage are of one substance to her.
+ - Consult duty not events.
+ - All schools of philosophy, and almost all authors, are rather to be frequented for exercise than for weight.
+ - Fancy is imagination in her youth and adolescence. Fancy is always excursive; imagination, not seldom, is sedate.
+
+204 quotes

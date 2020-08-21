@@ -1,0 +1,82 @@
+ - Speed has never killed anyone. Suddenly becoming stationary, that’s what gets you.
+ - Sometimes I stagger even myself with my genius.
+ - You’re a car, but most of all, what you are, what you’ve become, is a mate. And that’s what makes a car special. That’s what makes a car great. You start to think of it as a person. You start to love it.
+ - Multi-tasking is the ability to screw everything up simultaneously.
+ - Speed focuses the mind. It cuts through the fog of drab everyday living and keeps us on our toes. Speed works. Speed saves lives. Speed is good. And we should have more of it, not less.
+ - A turbo: exhaust gasses go into the turbocharger and spin it, witchcraft happens and you go faster.
+ - Being smarter than you look is better than looking smarter than you are.
+ - Looking good in Italy is even more important than looking where you’re going.
+ - The only person to ever look good in the back of a 4-seater convertible was Adolf Hitler.
+ - I’d like to consider Ferrari as a scaled down version of God.
+ - The “public” seems to have bought into this belief that life can, and should, be run without risk, that all accidents are avoidable, and that death is something that only happens to people who eat meat and smoke.
+ - I started to realise that being impolite saves an awful lot of time and costs you nothing.
+ - I think Koenigsegg is Swedish for: Oh no, my head has just exploded!
+ - This car is more fun than the entire French air force crashing into a firework factory.
+ - Do not cruise through red lights. Because if I’m coming the other way, I will run you down, for fun.
+ - I’m sorry, but having an Aston Martin DB9 on the drive and not driving it is a bit like having Keira Knightley in your bed and sleeping on the couch.
+ - If you go through the pearly gates backwards in a fireball, that’s a cool way to die!
+ - Ambition is a very dangerous thing because either you achieve it and your life ends prematurely, or you don’t, in which case your life is a constant source of disappointment. You must never have ambition.
+ - There are many rules for the elderly in the Highway Code. I have one too, and here it is: get a bloody move on.
+ - In the olden days I always got the impression that TVR built a car, put it on sale, and then found out how it handled. Usually when one of their customers wrote to the factory complaining about how dead he was.
+ - The problem is that television executives have got it into their heads that if one presenter on a show is a blonde-haired, blue-eyed heterosexual boy, the other must be a black Muslim lesbian.
+ - Italy’s youngsters complain, apparently, about having to live at home until they are 72 but that’s because they spend all their money on suits and coffee and Alfa Romeos rather than mortgages.
+ - Column writing is like gas – it fills the available space.
+ - I don’t understand bus lanes. Why do poor people have to get to places quicker than I do?
+ - Some say his droppings have been found as far north as York, and that he has a full size tattoo of his face, on his face. All we know is he’s called the Stig.
+ - The Americans lecture the world on democracy and then won’t let me turn the traction control off!
+ - This is a hard job. Change gear, change gear, change gear, check mirror, murder a prostitute, change gear, change gear, murder. That’s a lot of effort in a day.
+ - This is the Renault Espace, probably the best of the people carriers. Not that that’s much to shout about. That’s like saying “Ooh good I’ve got syphilis, the BEST of the sexually transmitted diseases.”
+ - I rang up Jay Kay, who’s got one, and said: ‘Can we borrow yours?’ and he said, ‘Yeah, if I can borrow your daughter, because it amounts to the same thing.’
+ - Whenever I’m suffering from insomnia, I just look at a picture of a Toyota Camry and I’m straight off.
+ - Hollywood movies are designed for 15-year-old youths from North Dakota who, intellectually speaking, are on equal terms with a British zoo animal.
+ - Americans are good at herding Bison. The end.
+ - All this health and safety talk is just killing me.
+ - Usually, a Range Rover would be beaten away from the lights by a diesel powered wheelbarrow.
+ - The air conditioning in Lamborghinis used to be an asthmatic sitting in the dashboard blowing at you through a straw.
+ - There are shantytowns in South Africa that are built better than Renaults!
+ - We all know that small cars are good for us. But so is cod liver oil. And jogging.
+ - I therefore have to use The Force. And weirdly, this doesn’t work very well. I don’t understand why, because on the last census, I put my religion down as Jedi Knight...
+ - Owning a TVR in the past was like owning a bear. I mean it was great, until it pulled your head off, which it would.
+ - God may have created the world in six days, but while he was resting on the seventh, Beelzebub popped up and did this place.
+ - Driving most supercars is like trying to manhandle a cow up a back staircase, but this is like smearing honey onto Keira Knightley.
+ - I’m not capable of having an affair. You can ask my wife. I’m not physically capable.
+ - I’m a horse of a man!
+ - If a football official were to call for a slow-motion replay every time Didier Drogba fell over, each match would last about six weeks.
+ - Telling people at a dinner party you drive a Nissan Almera is like telling them you’ve got the Ebola virus and you’re about to sneeze.
+ - Cows eat grass and silage. This is melting the ice caps and killing us all. So they need a new foodstuff: something that is rich in iron, calcium and natural goodness. Plainly they cannot eat meat so here is an idea to chew on. Why not feed them vegetarians?
+ - I don’t often agree with the RSPCA as I believe it is an animal’s duty to be on my plate at supper time.
+ - Racing cars which have been converted for road use never really work. It’s like making a hard core adult film, and then editing it so that it can be shown in British hotels. You’d just end up with a sort of half hour close up of some bloke’s sweaty face.
+ - I like to be loved by my children, and I quite like the Guardian hating me.
+ - I’m having a nice cold pint and waiting for this to blow over.
+ - We live in the worst country in the world. At least we do for lazy, inefficient, office-bound police, whose response to an extraordinary rise in violent crime is to order more speed cameras.
+ - Like many men, I can never find anything that I’m looking for, even when I’m actually looking at it. In a fridge, I think milk is actually invisible to the male eye. And so, it turns out, are dirty great holes in the fence.
+ - Let’s be perfectly clear, shall we. The fox is not a little orange puppy dog with doe eyes and a waggly tail. It’s a disease-ridden wolf with the morals of a psychopath and the teeth of a great white shark.
+ - Some say he never blinks, and that he roams around the woods at night foraging for wolves. All we know is he’s called the Stig.
+ - If the Scottish want to break away, I shall stand on Hadrian’s Wall with a teary handkerchief, and say: ‘Good riddance to the lot of you, and take your stupid bagpipes with you.’
+ - If you’re thinking of coming to America, this is what it’s like: you’ve got your Comfort Inn, you’ve got your Best Western, and you’ve got your Red Lobster where you eat. Everybody’s very fat, everybody’s very stupid and everybody’s very rude – it’s not a holiday programme, it’s the truth.
+ - Ooh good I’ve got syphilis, the BEST of the sexually transmitted diseases.
+ - My epiglottis is full of bees!
+ - Governments would rather spend their money on another bomber than education, and why do we fear black men when every bit of suffering in our lives has a Caucasian face attached to it?
+ - Biathletes need to eat 6.000 calories a day: six thousand! That’s the equivalent of 2 pounds of butter, 70 slices of bread, 112 eggs, 86 tabs of yogurts, 28 potatoes, 117 biscuits and 21 TWIX bars. On that basis, I could be an Olympic biathlete!
+ - Mix an anorexic body with a heart made of pure fire and you are going to go with a savagery that’s hard to explain.
+ - You have city centre pubs where men go to meet girls, not realising that all girls in city centre pubs have thighs like tug boats and morals that would surprise a zoo animal.
+ - It was as relaxing as being tickled.
+ - I have a pathological terror of falling through ice. I nearly drowned once. I fell off a boat and got a cramp, and was rescued by an oil-rig diver, a great bear of a man who simply leant into the water and scooped me out with one finger.
+ - Unlike furious thin-lipped feminists, I tend not to draw distinctions between men and women, apart from in bed where you really do need to spot the difference.
+ - Because drug dealers shoot each other in London, Norfolk farmers can’t have guns to defend their homes. I mean, no one wants a gun – except at 4am when they hear a strange sound in the kitchen.
+ - Nothing can prepare you for the yawning chasm of time that passes in Canada before the healthcare system actually does any healthcare.
+ - I wore a groove in the kitchen floor with endless trips to the fridge, hoping against hope that I had somehow missed a plateful of cold sausages on the previous 4,000 excursions. Then, for no obvious reason, I decided to buy a footstool.
+ - If we build three million new houses by 2020, where will we grow all the stuff needed to feed the people who live in them?
+ - Like every big organisation these days, the BBC is obsessed with the wellbeing of those who set foot on its premises. Studios must display warning notices if there is real glass on the set, and the other day I was presented with a booklet explaining how to use a door. I am not kidding.
+ - This is perfect for India because everyone who comes here gets the trots.
+ - Now we get quite a lot of complaints that we don’t feature enough affordable cars on the show so we’ll kick off tonight with the cheapest Ferrari of them all!
+ - You know what, I distinctly remember my boat blew up and I was killed!
+ - Tonight, the new Viper, which is the American equivalent of a sportscar in the same way, I guess, that George Bush is the equivalent of a President.
+ - I don’t think I am particularly funny. In fact, I know I’m not.
+ - You take out an injunction against somebody or some organisation and immediately news of that injunction and the people involved and the story behind the injunction is in a legal-free world on Twitter and the Internet. It’s pointless.
+ - They are by far the worst drivers. They are spiteful, dithering, old and in the way. They should have their licences taken away.
+ - I dish the dirt out and I can take it. But why should my mother and children have to take it?
+ - When I was 16, I wanted to look like Lord Byron. It’s not really a haircut so much as a hair-not-cut, but I’ve never changed it. It’s a bit Byron, a bit Don Juan DeMarco and other things that I aspire to be.
+ - I think it’s a good idea to tie Peter Mandelson to a van. Such an act would be cruel and barbaric and inhuman. But it would at least cheer everyone up a bit.
+
+80 quotes

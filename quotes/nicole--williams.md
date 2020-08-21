@@ -1,0 +1,35 @@
+ - Every morning we get a chance to be different. A chance to change. A chance to be better. Your past is your past. Leave it there. Get on with the future part, honey. ~~Nicole Williams
+ - When you find someone you want to spend forever with you, you don’t let them go, whether forever turns out to be a day or a year of fifty years. Don’t let the fear of losing them keep you from loving them. ~~Nicole Williams
+ - Sometimes we just have to cut off the dead branches in our life. Sometimes that’s the only way we can keep the tree alive. It’s hard and it hurts, but it’s what’s best. ~~Nicole Williams
+ - Freelance isn’t for everyone – you’ve got to be aggressive and enjoy working alone. But you could make more money than you ever imagined. ~~Nicole Williams
+ - I’ll be here, each day and every day on, as long as you want me to be. ~~Nicole Williams
+ - Black absorbs all color, accepts them, takes them into it and let them define it. Gray isn’t anything but itself. It absorbs nothing but itself. ~~Nicole Williams
+ - Honey, a girl can’t keep a man like that as a friend. He’s a lover or an ex-lover, but never a friend. Men like that weren’t created to be a woman’s friend – they were created to make a woman hit high C three times in row. ~~Nicole Williams
+ - Caring for someone is scary, because you both know how it feels to lose someone in the span of a heartbeat. ~~Nicole Williams
+ - It always amazes me how when we’re sure we’ve lost something for good, it winds up finding us. ~~Nicole Williams
+ - Wealth can be created. Wit and intelligence can’t. ~~Nicole Williams
+ - The name’s Jude Ryder, since I know you’re all but salivating like a rabid dog to know, and I don’t do girlfriends, relationships, flowers or regular phone calls. If that works for you, I think we could work out something special. ~~Nicole Williams
+ - I just wanted you to know I’d be chasing after you right now, naked if need required it. But because I’m respecting your need for time and space, I’ll force myself to lie here in bed and pretend I’m asleep. ~~Nicole Williams
+ - Luce. We fight. I’m used to that. Sure, that fight was the scariest ass one we’ve ever had, but you’re here now. That’s all that matters. No matter how many fights we have, or how much they tip the Richter scale, none of it matters as long as at the end of the day, you’re still with me. ~~Nicole Williams
+ - Ease my suffering. Make me the happiest, most tortured man in the world. Marry me? ~~Nicole Williams
+ - Don’t underestimate the power of the nonverbal. You’d be amazed how many people come in for interviews with poor posture, weak handshakes, and blank stares. ~~Nicole Williams
+ - You can’t be friends with the person you were meant to spent your life with. ~~Nicole Williams
+ - If you say you’re going to trust your man, then trust your man. Don’t revoke that privilege when he needs it most. ~~Nicole Williams
+ - I try to keep the happy memories. If that’s what you call selective memories, I’m good with that. ~~Nicole Williams
+ - I don’t want a girl, or a woman, or a supermodel. I want you. ~~Nicole Williams
+ - I’m cancer, Luce. And not the kind that you can kill off with radiation. The kind that kills you in the end. ~~Nicole Williams
+ - Jude wasn’t just my first love. He was my forever love. ~~Nicole Williams
+ - We will all, at some point in our lives, fall. Every single one of us. We shouldn’t spend our time trying to avoid falling. We should spend it finding someone who will help us up! ~~Nicole Williams
+ - A lower-paying job can still help you advance your career. ~~Nicole Williams
+ - He made me happy. He made me crazy. He made me thank the heavens for the day I’d met him. He made me curse the same heavens for the day I’d met him. ~~Nicole Williams
+ - My life wasn’t how I planned it would be. It wasn’t even close. It was a thousand times better. ~~Nicole Williams
+ - We shouldn’t get hung up on the questions we can’t answer because life, by definition, is confusing. We’re never going to have all the answers. Never. We should focus on the questions we can answer and make peace with the ones we can’t. ~~Nicole Williams
+ - You may very well be the death of me one day. But what a way to go. ~~Nicole Williams
+ - I can forgive a man’s past faults, his present shortcomings, and his future failures if every minute of every day he loves me like it’s his religion. ~~Nicole Williams
+ - The few things I’d sacrificed, or put on hold, to be with my husband and baby were worth it. ~~Nicole Williams
+ - I’d discovered another of life’s cliches by being with jude: the happier you are in life, the faster it passes you by. ~~Nicole Williams
+ - There weren’t perfect people, nor were there perfect lives or perfect relationships. There were, however, perfect moments. And this was one of them. ~~Nicole Williams
+ - Happily ever after wasn’t a destination, it was a journey. And we were well on our way. ~~Nicole Williams
+ - The thing was, if staying away from him made me unsmart, I never wanted to be smart again. ~~Nicole Williams
+
+33 quotes

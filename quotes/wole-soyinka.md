@@ -1,0 +1,71 @@
+ - Be yourself. Ultimately just be yourself.
+ - A tiger does not proclaim his tigritude, he pounces.
+ - We live in a materialist world, and materialism appeals so strongly to humanity, no matter where.
+ - Books and all forms of writing are terror to those who wish to suppress the truth.
+ - I grew up in an atmosphere where words were an integral part of culture.
+ - I am a glutton for tranquility.
+ - Power is domination, control, and therefore a very selective form of truth which is a lie.
+ - It’s the place to begin, always – to return to home, literally.
+ - The man dies in all those that keep silent.
+ - We do not ask the mountain’s aid to crack a walnut.
+ - But the ultimate lesson is just sit down and write. That’s all.
+ - Under a dictatorship, a nation ceases to exist. All that remains is a fiefdom, a planet of slaves regimented by aliens from outer-space.
+ - You cannot live a normal existence if you haven’t taken care of a problem that affects your life and affects the lives of others, values that you hold which in fact define your very existence.
+ - I never hesitated, as a student, in embracing the necessity of violence. In South Africa, I didn’t just accept it; I looked forward to it as a mission.
+ - Colonialism bred an innate arrogance, but when you undertake that sort of imperial adventure, that arrogance gives way to a feeling of accommodativeness. You take pride in your openness.
+ - The greatest threat to freedom is the absence of criticism.
+ - Romance is the sweetening of the soul With fragrance offered by the stricken heart.
+ - No man beholds his mother’s womb Yet who denies it’s there? Coiled To the navel of the world is that Endless cord that links us all To the great Origin. If I lose my way. The trailing cord will bring me to the roots.
+ - The hand that dips into the bottom of the pot will eat the biggest snail.
+ - I don’t know any other way to live but to wake up everyday armed with my convictions, not yielding them to the threat of danger and to the power and force of people who might despise me.
+ - Each time I think Ive created time for myself, along comes a throwback to disrupt my private space.
+ - Sadness is twilight’s kiss on earth.
+ - And I believe that the best learning process of any kind of craft is just to look at the work of others.
+ - I consider the process of gestation just as important as when you’re actually sitting down putting words to the paper.
+ - My father used to tell me stories before I fell asleep. When the children would gather, at a certain point, I had a tendency to make up my own elementary variations on stories I had heard, or to invent totally new ones.
+ - Don’t take shadows too seriously. Reality is your only safety. Continue to reject illusion.
+ - I cannot accept the definition of collective good as articulated by a privileged minority in society, especially when that minority is in power.
+ - I am convinced that Nigeria would have been a more highly developed country without the oil. I wished we’d never smelled the fumes of petroleum.
+ - Looking at faces of people, one gets the feeling there’s a lot of work to be done.
+ - Suddenly the world has run amok and left you alone and sane behind.
+ - I have one abiding religion-human liberty.
+ - Well, some people say I’m pessimistic because I recognize the eternal cycle of evil. All I say is, look at the history of mankind right up to this moment and what do you find?
+ - History teaches us to beware of the excitation of the liberated and the injustices that often accompany their righteous thirst for justice.
+ - African film makers are scraping by on a mere pittance.
+ - One thing I can tell you is this, that I am not a methodical writer.
+ - Some of us – poets are not exactly poets. We live sometimes – beyond the word.
+ - There is something really horrific for any human being who feels he is being consumed by other people.
+ - But theater, because of its nature, both text, images, multimedia effects, has a wider base of communication with an audience. That’s why I call it the most social of the various art forms.
+ - As I grew older and more mature, I’ve been able to move beyond the immediate response of violence to a projection of the pragmatic, political consequences of that violence. So it’s an effort to attain equilibrium.
+ - Writers are human. I shudder to think how I must sometimes appear to others.
+ - You go to conferences, and your fellow African intellectuals – and even heads of state – they all say: ‘Nigeria is a big disappointment. It is the shame of the African continent.’
+ - I know there are writers who get up every morning and sit by their typewriter or word processor or pad of paper and wait to write. I don’t function that way. I go through a long period of gestation before I’m even ready to write.
+ - Even when I’m writing plays I enjoy having company and mentally I think of that company as the company I’m writing for.
+ - Let’s say there are prospects for a new Nigeria, but I don’t think we have a new Nigeria yet.
+ - It’s my duty to fight those who have chosen to belong to the party of death, those who say they receive their orders from God somewhere and believe they have a duty to set the world on fire to achieve their own salvation.
+ - There’s something about the theater which makes my fingertips tingle.
+ - I found, when I left, that there were others who felt the same way. We’d meet, they’d come and seek me out, we’d talk about the future. And I found that their depression and pessimism was every bit as acute as mine.
+ - I’m not one of those writers I learned about who get up in the morning, put a piece of paper in their typewriter machine and start writing. That I’ve never understood.
+ - One, a mass movement from within, which, as you know, is constantly being put down brutally but which, again, regroups and moves forward as is happening right now as we are speaking.
+ - Very conscious of the fact that an effort was being made to destroy my mind, because I was deprived of books, deprived of any means of writing, deprived of human companionship. You never know how much you need it until you’re deprived of it.
+ - For me, justice is the prime condition of humanity.
+ - See, even despite pious statements to the contrary, much of the industrialized world has not yet come to terms with the recognition of the fallacy of what I call the strong man syndrome.
+ - I can look violence in the face and either reject or accept it.
+ - I think that feeling that if one believed absolutely in any cause, then one must have the confidence, the self-certainty, to go through with that particular course of action.
+ - Being the first black Nobel laureate, and the first African, the African world considered me personal property. I lost the remaining shreds of my anonymity, even to walk a few yards in London, Paris or Frankfurt without being stopped.
+ - A human feast is an indifferent morsel to a god.
+ - And gradually they’re beginning to recognize the fact that there’s nothing more secure than a democratic, accountable, and participatory form of government. But it’s sunk in only theoretically, it has not yet sunk in completely in practical terms.
+ - Well, first of all I’ll say that I come alive best in theater.
+ - I don’t really consider myself a novelist, it just came out purely by accident.
+ - If man cannot, what god dare claim perfection?
+ - Obasanjo has openly endorsed violence as a means of governance, embraced and empowered individuals whose avowed declarations, confessions and acts are cynically contrary to the mandate that alone upholds the legitimacy and dignity of his office.
+ - The idea of having to make constant reference to politics is anathema to my calling as a writer.
+ - My horizon on humanity is enlarged by reading the writers of poems, seeing a painting, listening to some music, some opera, which has nothing at all to do with a volatile human condition or struggle or whatever. It enriches me as a human being.
+ - But when you’re deprived of it for a lengthy period then you value human companionship. But you have to survive and so you devise all kinds of mental exercises and it’s amazing.
+ - The novel, for me, was an accident. I really don’t consider myself a novelist.
+ - There’s a kind of dynamic quality about theater and that dynamic quality expresses itself in relation to, first of all, the environment in which it’s being staged; then the audience, the nature of the audience, the quality of the audience.
+ - Writers who open up horizons for other people are performing a function every bit as important as a consciously politicized writer.
+ - There are different kinds of artists and very often, I’ll be very frank with you, I wish I were a different kind.
+ - There is not a special imposition on writers to be activists. All that does is encourage writers to write propaganda.
+
+69 quotes

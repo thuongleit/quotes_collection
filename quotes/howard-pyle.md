@@ -1,0 +1,32 @@
+ - Paint your picture by means of the lights. Lights define texture and color – shadows define form.
+ - All the students have shown more advance in two months of summer study than they have in a year of ordinary instruction, largely due to their free and wholesome life in the open air.
+ - An I must drink sour ale, I must, but never have I yielded to a man before, and that without would or mark upon my body. Nor, when I bethink me, will I yield now.
+ - Art is the expression of those beauties and emotions that stir the human soul.
+ - What is done is done; and the cracked egg cannot be cured.
+ - Will you come with me, sweet Reader? I thank you. Give me your hand.
+ - The stories of childhood leave an indelible impression, and their author always has a niche in the temple of memory from which the image is never cast out to be thrown on the rubbish heap of things that are outgrown and outlived.
+ - He who jumps for the moon and gets it not leaps higher than he who stoops for a penny in the mud.
+ - So passed the seasons then, so they pass now, and so they will pass in time to come, while we come and go like leaves of the tree that fall and are soon forgotten.
+ - Throw your heart into the picture and then jump in after it.
+ - I put on my dream-cap one day and stepped into Wonderland.
+ - You who so plod amid serious things that you feel it shame to give yourself up even for a few short moments to mirth and joyousness in the land of Fancy; you who think that life hath not to do with innocent laughter that can harm no one; these pages are not for you.
+ - My objective in teaching my pupils is that they should be fitted for any kind of art.
+ - When the flood cometh it sweepeth away grain as well as chaff.
+ - Your subjects have had a history – try to reveal it in your picture.
+ - A good deal of large and rather interesting work is drifting my way.
+ - The student learns rules but all the rules in the world never make a picture.
+ - I criticise these compositions by analysis but an illustration cannot be made that way – it must be made by inspiration.
+ - Don’t take my criticisms as iron-clad rules but more as suggestions.
+ - For ages past the Genius of Literature and the Genius of Art have walked together hand in hand. For the Goddess of letters is blind, and only she of Art can lend her sight.
+ - I take back all I ever said about the Old Masters. They give great lessons.
+ - Talk about life – but in your own way.
+ - I should like to make myself free to all who care to attend my lectures.
+ - Project your mind into your subject until you actually live in it.
+ - Paint ideas, paint thought.
+ - I doubt if there is a single really excellent art school now available in New York.
+ - If in making a picture you introduce two ideas, you weaken it by half-if three, it weakens by compound ratio-if four, the picture will be really too weak to consider at all and the human interest would be entirely lost.
+ - I am of use to the younger artists through the advice and criticism which I give them.
+ - The right to suffer is one of the joys of a free economy.
+ - I think it likely that some of my pupils will reach unusual distinction.
+
+30 quotes

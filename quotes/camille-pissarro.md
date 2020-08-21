@@ -1,0 +1,26 @@
+ - Blessed are they who see beautiful things in humble places where other people see nothing.
+ - Everything is beautiful, all that matters is to be able to interpret.
+ - It is absurd to look for perfection.
+ - All the sorrow, all the bitterness, all the sadness, I forget them and ignore them in the joy of working.
+ - I think when one has talent one finally breaks through; so don’t pass up any opportunity to do some work.
+ - It is only by drawing often, drawing everything, drawing incessantly, that one fine day you discover to your surprise that you have rendered something in its true character.
+ - Painting, art in general, enchants me. It is my life. What else matters? When you put all your soul into a work, all that is noble in you, you cannot fail to find a kindred soul who understands you, and you do not need a host of such spirits. Is not that all an artist should wish for?
+ - When you do a thing with your whole soul and everything that is noble within you, you always find your counterpart.
+ - We are all the subjects of impressions, and some of use seek to convey the impressions to others. In the art of communicating impressions lies the power of generalizing without losing that logical connection of parts to the whole which satisfies the mind.
+ - I regard it as a waste of time to think only of selling: one forgets one’s art and exaggerates one’s value.
+ - Paint the essential character of things.
+ - God takes care of imbeciles, little children and artists.
+ - Don’t be afraid in nature: one must be bold, at the risk of having been deceived and making mistakes.
+ - Watercolour is not especially difficult, but I must warn you to steer clear of those pretty English watercolourists, so skilful and alas so weak, and so often too truthful.
+ - It is the brushwork of the right value and color which should produce the drawing.
+ - Don’t be afraid of putting on color, refine the work little by little.
+ - Cover the canvas at the first go, then work at it until you see nothing more to add.
+ - I remember that, although I was full of fervour, I didn’t have the slightest inkling, even at forty, of the deeper side to the movement we were pursuing by instinct. It was in the air!
+ - It does not astonish me that the critics in London relegate me to the lowest rank. Alas! I fear that they are only too justified!
+ - At times I come across works of mine which are soundly done and really in my style, and at such moments I find great solace.
+ - At fifty, that is in 1880, I formulated the idea of unity, without being able to render it. At sixty, I am beginning to see the possibility of rendering it.
+ - But as I see it, the most corrupt art is the sentimental the art of orange blossoms which make pale women swoon.
+ - I began to understand my sensations, to know what I wanted, at around the age of forty – but only vaguely.
+ - One can do such lovely things with so little. Subjects that are too beautiful end by appearing theatrical.
+
+24 quotes

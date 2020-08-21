@@ -1,0 +1,54 @@
+ - I’ve always believed that one woman’s success can only help another woman’s success.
+ - If you have health, you have everything.
+ - I love to think that animals and humans and plants and fishes and trees and stars and the moon are all connected.
+ - You breathe in and out; you breathe in and you breathe out, and you live one moment into the next moment, and then time goes by, and you find you’re able to put one foot in front of the other.
+ - The minute that you bring a unicorn into a story, you know that it’s a fairy tale or a fable, because unicorns don’t exist as animals. They exist as fantasy creatures.
+ - One of the goals of life is to try and be in touch with one’s most personal themes-the values, the ideas, styles, colors that are the touchstones of one’s own individual life, its real texture and substance.
+ - I love to decorate and redecorate. Now it’s called interior design, but the term decorating is fine with me.
+ - To be happy – one must find one’s bliss.
+ - I think something wonderful is going to happen to me. Maybe tomorrow. The phone can ring and your whole life can change.
+ - I do take very good care of myself, and I’m always in love. And by that I mean I have an appetite for life. I’m in love with beauty and things and people and love and being in love, and those things I think, on the inside, show on the outside.
+ - You must always have great, secret, big fat hopes for yourself in love and in life. The bigger, the better.
+ - If you don’t have a father, you don’t miss it, because you don’t know what it is. It was really only when I married Wyatt Cooper that I understood what it was like to have a father, because he was just an extraordinary father.
+ - I was born during an eclipse. I believe very much in astrology. If you were born on an eclipse it indicates your destiny is chaotic.
+ - Why not me? Suffering, she understood, is, in fact, random, universal.
+ - In mythology and palmistry, the left hand is called the dreamer because the ring finger on the left hand leads directly to the heart. I find it a very poetic idea. And thats why I only wear nail polish on my left ring finger.
+ - Some of us are born with a sense of loss. It is not acquired as we grow. It is already there from the beginning, and it pervades us throughout our lives.
+ - In anything there has to be dark and light. There’s a lot of joy in my paintings and a lot of darkness.
+ - I don’t read anything about myself. As a child, there was something in me that was just instinctive. I want to be clear in my spirit, and I don’t want to be blocked by things that get inside of you and kill you.
+ - The heart of another is a dark forest.
+ - I was fearless. Wild horses couldn’t stop me.
+ - A home is very, very important to me. But I do change things around a lot.
+ - Throughout my life I have taken detours in acting and writing, but art remains my abiding passion.
+ - Everything in life is elusive.
+ - I’ll always remain friends with men I’ve been in love with. Each one gave me so much, in so many ways.
+ - I’ve been really very fortunate with the men I’ve been involved with. They’ve always really treated me very, very wonderfully. And whenever anything broke up, I was always the one to leave. So I think I’ve been really very, very lucky.
+ - I’ve had many, many loves. I always feel that something wonderful is going to happen. And it always does.
+ - Many times, working is kind of like channeling, and I really don’t know what’s going to fall on the page. I just did this image of a fat girl and put her on a tiny mountain peak of grass that she’s walking over. It just amused me.
+ - I’ve resolved so many things in my life. I like the idea of showing that you can go through a lot and still be on your feet, still be working, and still be positive about life.
+ - Nobody should get married at 17.
+ - I do spend money. I like to spend money, on houses – on furnishing houses. And I love to give presents to people. It’s just in my nature to be that way. I always spent money I had. And I always spent what I made. I’m not stingy.
+ - I believe in marriage and fidelity.
+ - I do think all art is autobiographical, and I do think I know quite a bit about women. I don’t know anything about men.
+ - I’m the girliest girl you are ever going to meet.
+ - I don’t categorize myself as an 85-year-old woman who has written an erotic novel. I categorize myself as a writer who’s written an erotic novel.
+ - I don’t like cold people at all. It makes me feel really insecure.
+ - When anybody says, ‘Why me?’ Why is ‘me’ exempt?
+ - The fame you earn has a different taste from the fame that is forced upon you.
+ - Have great, secret, big, fat hopes for yourself.
+ - And it came to me, and I knew what I had to have before my soul would rest. I wanted to belong – to belong to my mother. And in return – I wanted my mother to belong to me.
+ - Sinatra created a kind of magic. You want those people to be part of your life.
+ - I have a tremendous appetite for life; the phone rings and your whole life could change.
+ - The only thing that would ever embarrass me would be something I would write that would be badly written.
+ - When I was being photographed, I always felt very much in my own skin. That’s probably one of the reasons why I enjoy being photographed.
+ - A work of fiction is conceived very much the same way as a dream occurs in the mind of a sleeper.
+ - I don’t think age has anything to do with what you write about.
+ - I’m a ham. I always like to answer spontaneously.
+ - Cats are so interesting – endlessly fascinating.
+ - When I was photographed, I didn’t feel I was acting. I just felt I was being photographed. It sort of taught me things about myself that I didn’t know and was trying to find out.
+ - There’s a saying I read recently; I painted it on the fireplace and in my studio: “Be kind to everyone you meet, for everyone is fighting a great battle.” We all are. Everyone.
+ - I’m always in love. If it’s not with a man, it’s something else. I love beauty. I love the sky I see outside the window. There’s so much beauty in the world.
+ - If you’ve never had a mother or a father, you grow up seeking something you’re never going to find, ever. You seek it in love and in people and in beauty.
+ - Even death is wonderful because, as Woody Allen says, we’re not going to know when it happens.
+
+52 quotes

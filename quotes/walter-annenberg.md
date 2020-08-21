@@ -1,0 +1,30 @@
+ - I shall participate, I shall contribute, and in so doing, I will be the gainer.
+ - Accomplish something every day of your life.
+ - Live rich, die poor; never make the mistake of doing it the other way ’round.
+ - The greatest power is not money power, but political power.
+ - People who think about art as an investment are pathetic.
+ - The test of character is having the ability to meet challenges.
+ - Few things are as essential as education.
+ - What matters is that you are doing what you think is right based on the standards which you hold.
+ - My country has been very good to me; I must be good to my country.
+ - Don’t worry about it. Babe Ruth struck out on occasion, too.
+ - Unless young blacks are brought into the mainstream of economic life, they will continue to be on the curbstone.
+ - All I ever seek from good deeds is a measure of respect.
+ - I didn’t feel the Depression at all. I always had a pocketful of money.
+ - I have very little respect for Nancy Reagan. There is something about her that is very petty.
+ - I cannot compromise or inhibit my independence.
+ - TV is like theater. You can’t enjoy it without a program.
+ - When we hold back out of laziness, that is when we tie ourselves into knots of boredom.
+ - My success? Being born the son of Moses Annenberg.
+ - Carter’s done a lot more good since he’s been out of the White House than when he was in it.
+ - Everybody around the world wants to send their kids to our universities. But nobody wants to send their kids here to public school.
+ - Only when you are moved by a painting should you buy it. Being moved is what collecting is all about.
+ - Just to pile up money for my own sake, I just can’t view that as good citizenship.
+ - Some people find an interest in making money, and though they appear to be slaving, many actually enjoy every minute of their work.
+ - Our blood will turn from red to blue, although our money is but new.
+ - Adversity tests us from time to time and it is inevitable that this testing continues during life.
+ - In the world today, a young lady who does not have a college education just is not educated.
+ - It is not easy to find something that will intrigue and bind your interest and enthusiasm. This you must seek for yourself.
+ - Never buy four C-plus paintings when you can buy one A.
+
+28 quotes

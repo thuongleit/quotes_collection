@@ -1,0 +1,30 @@
+ - Whether you like it or not, learn to love it, because its the best thing going. Wooooo!
+ - Space Mountain may be the oldest ride in the park, but it has the longest line.
+ - If you’re a man, you don’t cry about it, you take life, the ups and downs; if you’re a real man you never go down, you just stay up!
+ - Diamonds are forever, and so is Ric Flair!
+ - All the women want to be with me, all the men want to be like me.
+ - To be that man, you’ve got to beat the man. Woooo!
+ - I’m gonna walk down the aisle in style and profile.
+ - If you don’t like it, learn to love it!
+ - I’m every woman’s dream and every man’s nightmare.
+ - I love the military. They don’t get nearly enough credit for all the hard work they do to protect us, keep us in a safe place so we can enjoy ourselves every day.
+ - My problem is that I think everybody needs to work as hard as I worked when I was in my prime.
+ - I bleed like nobody else.
+ - Whenever I hear the crowds going WOOOOO!! It makes me feel very good, it means I’ve worked very hard and earned a lot of respect, each night I go out there I go out there for the fans to make them smile, or make them cry.
+ - I’ve had more world championships than you’ve had women!
+ - This ain’t no garden party, brother, thisis wrestling, where only the strongest survive.
+ - And Chris Benoit, as magnificent as he looks, is not medically cleared yet.
+ - When somebody has convinced you that you’re not worth anything to anybody anymore, and they spend a lot of time doing it, you start believing it yourself.
+ - It’s the greatest show on earth. It’s unbelievable.
+ - In my life, I’ve been a movie star, a rock star, and a sports star, all wrapped up into one-and worked harder at it than anybody else.
+ - I can take more punishment than anyone in the business.
+ - None of this was written to hurt anybody’s feelings.
+ - Hell you’re Shawn Michaels! The greatest wrestler of all time!
+ - The guy who could be me, but he knows when to draw the line, is John Cena. John Cena can rock ‘n’ roll, let me tell you.
+ - The old saying is: ‘Time off is a wrestler’s worst enemy.’
+ - I was really good at being a bad guy.
+ - I’ve always been a very good heel!
+ - I had my first ‘Survivor Series’ in 1991 and I was fortunate enough to be an instrumental part of the shows I was on.
+ - Nobody has wrestled everybody in the business like I have, especially not Bret Hart.
+
+28 quotes

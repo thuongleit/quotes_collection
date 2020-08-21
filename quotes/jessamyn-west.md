@@ -1,0 +1,47 @@
+ - Writing is so difficult that I feel that writers, having had their hell on earth, will escape all punishment hereafter.
+ - A broken bone can heal, but the wound a word opens can fester forever.
+ - Sleeplessness is a desert without vegetation or inhabitants.
+ - Teaching is the royal road to learning.
+ - To meet at all, one must open ones eyes to another; and there is no true conversation no matter how many words are spoken, unless the eye, unveiled and listening, opens itself to the other.
+ - Fiction reveals truths that reality obscures.
+ - Writing is a solitary occupation. Family, friends, and society are the natural enemies of the writer. He must be alone, uninterrupted, and slightly savage if he is to sustain and complete an undertaking.
+ - I’ve done more harm by the falseness of trying to please than by the honesty of trying to hurt.
+ - The emotion, the ecstasy of love, we all want, but God spare us the responsibility.
+ - Talent is helpful in writing, but guts are absolutely necessary.
+ - There is no royal path to good writing; and such paths as exist do not lead through neat critical gardens, various as they are, but through the jungles of self, the world, and of craft.
+ - You make what seems a simple choice: choose a man or a job or a neighborhood- and what you have chosen is not a man or a job or a neighborhood, but a life.
+ - A taste for irony has kept more hearts from breaking than a sense of humor, for it takes irony to appreciate the joke which is on oneself.
+ - Each death and departure comes to us as a surprise, a sorrow never anticipated. Life is a long series of farewells; only the circumstances should surprise us.
+ - A good time for laughing is when you can.
+ - There are two barriers that often prevent communication between the young and their elders. The first is middle-aged forgetfulness of the fact that they themselves are no longer young. The second is youthful ignorance of the fact that the middle aged are still alive.
+ - It is very east to forgive others their mistakes; it takes more grit and gumption to forgive them for having witnessed your own.
+ - At fourteen you don’t need sickness or death for tragedy.
+ - The past is really almost as much a work of the imagination as the future.
+ - People who keep journals have life twice.
+ - Memory is a magnet. It will pull to it and hold only material nature has designed it to attract.
+ - A rattlesnake that doesn’t bite teaches you nothing.
+ - Knowledge of what you love somehow comes to you; you don’t have to read nor analyze nor study. If you love a thing enough, knowledge of it seeps into you, with particulars more real than any chart can furnish.
+ - The sick soon come to understand that they live in a different world from that of the well and that the two cannot communicate.
+ - It is not easy to be solitary unless you are also born ruthless. Every solitary repudiates someone.
+ - Being consistent meant not departing from convictions already formulated; being a leader meant making other persons accept these convictions. It was a narrow track, and a one-way, but a person might travel a considerable distance on it. A number of dictators have.
+ - Faithfulness to the past can be a kind of death above ground. Writing of the past is a resurrection; the past then lives in your words and you are free.
+ - I seem to be the only person in the world who doesn’t mind being pitied. If you love me, pity me. The human state is pitiable: born to die, capable of so much, accomplishing so little; killing instead of creating, destroying instead of building, hating instead of loving. Pitiful, pitiful.
+ - A religious awakening which does not awaken the sleeper to love has roused him in vain.
+ - Justice is a terrible but necessary thing.
+ - The conversation of two people remembering, if the memory is enjoyable to both, rocks on like music or lovemaking. There is a rhythm and a predictability to it that each anticipates and relishes.
+ - The source of one’s joy is also often the source of one’s sorrow.
+ - Some people are always thirsting for water from other people’s wells.
+ - If you train people properly, they won’t be able to tell a drill from the real thing. If anything, the real thing will be easier.
+ - I am always jumping into the sausage grinder and deciding, even before I’m half ground, that I don’t want to be a sausage after all.
+ - We can love an honest rogue, but what is more offensive than a false saint?
+ - Nothing is so dear as what you’re about to leave.
+ - If you want a baby, have a new one. Don’t baby the old one.
+ - Somehow I have the feeling that in some book is the great treasure I’ve been looking for all my life.
+ - In their sympathies, children feel nearer animals than adults. They frolic with animals, caress them, share with them feelings neither has words for. Have they ever stroked any adult with the love they bestow on a cat? Hugged any grownup with the ecstasy they feel when clasping a puppy?
+ - With enough libraries, all content is free.
+ - It is the loving, not the loved, woman who feels loveable.
+ - The West is color. Its colors are animal rather than vegetable, the colors of earth and sunlight and ripeness.
+ - Only a fool would refuse to enter a fool’s paradise when that’s the only paradise he’ll ever have a chance to enter.
+ - In their sympathies, children feel nearer animals than adults.
+
+45 quotes

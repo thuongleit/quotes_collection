@@ -1,0 +1,225 @@
+ - The mountains are calling and I must go.
+ - Going to the mountains is going home.
+ - The world is big and I want to have a good look at it before it gets dark.
+ - The power of imagination makes us infinite.
+ - In every walk with nature one receives far more than he seeks.
+ - The clearest way into the Universe is through a forest wilderness.
+ - I am losing precious days. I am degenerating into a machine for making money. I am learning nothing in this trivial world of men. I must break away and get out into the mountains to learn the news.
+ - When one tugs at a single thing in nature, he finds it attached to the rest of the world.
+ - Between every two pines is a doorway to a new world.
+ - Climb the mountains and get their good tidings. Nature’s peace will flow into you as sunshine flows into trees. The winds will blow their own freshness into you, and the storms their energy, while cares will drop away from you like the leaves of Autumn.
+ - Nothing truly wild is unclean.
+ - I only went out for a walk and finally concluded to stay out till sundown, for going out, I found, was really going in.
+ - One touch of nature makes the whole world kin.
+ - When we try to pick out anything by itself, we find it hitched to everything else in the universe.
+ - Keep close to Nature’s heart... and break clear away, once in awhile, and climb a mountain or spend a week in the woods. Wash your spirit clean.
+ - Most people are on the world, not in it.
+ - One day's exposure to mountains is better than a cartload of books.
+ - We all travel the Milky Way together, trees and men.
+ - How glorious a greeting the sun gives the mountains.
+ - Who wouldn't be a mountaineer! Up here all the world's prizes seem nothing.
+ - Most people who travel look only at what they are directed to look at. Great is the power of the guidebook maker, however ignorant.
+ - Earth has no sorrow that earth can not heal.
+ - I care to live only to entice people to look at Nature's loveliness.
+ - We are now in the mountains and they are in us, kindling enthusiasm, making every nerve quiver, filling every pore and cell of us.
+ - As long as I live, I’ll hear waterfalls and birds and winds sing. I’ll interpret the rocks, learn the language of flood, storm, and the avalanche. I’ll acquaint myself with the glaciers and wild gardens, and get as near the heart of the world as I can.
+ - The world, we are told, was made especially for man – a presumption not supported by all the facts.
+ - I’d rather be in the mountains thinking of God, than in church thinking about the mountains.
+ - When we contemplate the whole globe as one great dewdrop, striped and dotted with continents and islands, flying through space with other stars all singing and shining together as one, the whole universe appears as an infinite storm of beauty.
+ - This grand show is eternal. It is always sunrise somewhere; the dew is never dried all at once; a shower is forever falling; vapor is ever rising. Eternal sunrise, eternal dawn and gloaming, on sea and continents and islands, each in its turn, as the round earth rolls.
+ - In God’s wildness lies the hope of the world.
+ - Society speaks and all men listen, mountains speak and wise men listen.
+ - The sun shines not on us but in us.
+ - God has cared for these trees, saved them from drought, disease, avalanches, and a thousand tempests and floods. But he cannot save them from fools.
+ - Thousands of tired, nerve-shaken, over-civilized people are beginning to find out going to the mountains is going home; that wilderness is a necessity...
+ - Tug on anything in nature and you will find it connected to everything else.
+ - Handle a book as a bee does a flower, extract its sweetness but do not damage it.
+ - It may not be easy, life isn’t easy, but dreams keep you alive.
+ - I am well again, I came to life in the cool winds and crystal waters of the mountains.
+ - I will follow my instincts, and be myself for good or ill.
+ - Wander a whole summer if you can. Time will not be taken from the sum of life. Instead of shortening, it will definitely lengthen it and make you truly immortal.
+ - To sit in solitude, to think in solitude with only the music of the stream and the cedar to break the flow of silence, there lies the value of wilderness.
+ - Nature is always lovely, invincible, glad, whatever is done and suffered by her creatures. All scars she heals, whether in rocks or water or sky or hearts.
+ - Another glorious Sierra day in which one seems to be dissolved and absorbed and sent pulsing onward we know not where. Life seems neither long nor short, and we take no more heed to save time or make haste than do the trees and stars. This is true freedom, a good practical sort of immortality.
+ - Walk away quietly in any direction and taste the freedom of the mountaineer. Camp out among the grasses and gentians of glacial meadows, in craggy garden nooks full of nature’s darlings.
+ - Doubly happy, however, is the man to whom lofty mountain tops are within reach.
+ - A lifetime is so little a time that we die before we get ready to live. I should like to study at a college, but then I have to say to myself: “You will die before you can do anything else”.
+ - I might have become a millionaire, but I chose to become a tramp.
+ - Books are but steeping stones to show you where other minds have been.
+ - How many hearts with warm, red blood in them are beating under cover of the woods, and how many teeth and eyes are shining? A multitude of animal people, intimately related to us, but of whose lives we know almost nothing, are as busy about their own affairs as we are about ours.
+ - Writing is like the life of a glacier; one eternal grind.
+ - Another glorious day, the air as delicious to the lungs as nectar to the tongue.
+ - Rivers flow not past, but through us; tingling, vibrating, exciting every cell and fiber in our bodies, making them sing and glide.
+ - Keep in view the common good of the people for all time.
+ - The mountains are fountains not only of rivers and fertile soil, but of men.
+ - One learns that the world, though made, is yet being made; that this is still the morning of creation; that mountains long conceived are now being born, channels traced for coming rivers, basins hollowed for lakes...
+ - Better to toil blindly, beating every stone in turn for grains of gold, whether they contain any or not, than lie down in apathetic decay.
+ - Yosemite Park is a place of rest, a refuge from the roar and dust and weary, nervous, wasting work of the lowlands, in which one gains the advantages of both solitude and society...
+ - Divine love is the sublime boss of the universe.
+ - Hidden in the glorious wildness like unmined gold.
+ - Who reports the works and ways of the clouds, those wondrous creations coming into being every day like freshly upheaved mountains?
+ - Listen to them! How wholly infused with God is this one big word of love that we call the world!
+ - Of all the fire mountains which like beacons, once blazed along the Pacific Coast, Mount Rainier is the noblest.
+ - But to gain a perfect view, one must go yet further, over a curving brow to a slight shelf on the extreme brink.
+ - The body seems to feel beauty when exposed to it as it feels the campfire or sunshine, entering not by the eyes alone, but equally through all one’s flesh like radiant heat, making a passionate ecstatic pleasure glow not explainable.
+ - Only spread a fern-frond over a man’s head and worldly cares are cast out, and freedom and beauty and peace come in.
+ - I wish I knew where I was going. Doomed to be carried of the spirit into the wilderness, I suppose. I wish I could be more moderate in my desires, but I cannot, and so there is no rest.
+ - Trees go wandering forth in all directions with every wind, going and coming like ourselves, traveling with us around the sun two million miles a day, and through space heaven knows how fast and far!
+ - Bread without butter or coffee without milk is an awful calamity, as if everything before being put in our mouth must first be held under a cow.
+ - No words will ever describe the exquisite beauty and charm of this mountain park – Nature’s landscape garden at once tenderly beautiful and sublime. No wonder it draws nature-lovers from all over the world.
+ - Any fool can destroy trees. They cannot run away; and if they could, they would still be destroyed-chased and hunted down as long as fun or a dollar could be got of their bark hides.
+ - Any fool can destroy trees, they cannot run away.
+ - How infinitely superior to our physical senses are those of the mind!
+ - I made these Sierra trips, carrying only a sackful of bread with a little tea and sugar, and was thus independent and free...
+ - I always befriended animals and have said many a good word for them. Even to the least-loved mosquitoes I gave many a meal, and told them to go in peace.
+ - Heaven knows that John the Baptist was not more eager to get all his fellow sinners into the Jordan than I to baptize all of mine in the beauty of God’s mountains.
+ - What is worthwhile in life? I think it is worth living and dreaming. If you don’t you may be dead anyhow – inside.
+ - Man has injured every animal he has touched.
+ - Yet how hard most people work for mere dust and ashes and care, taking no thought of growing in knowledge and grace, never having time to get in sight of their own ignorance.
+ - The substance of the winds is too thin for human eyes, their written language is too difficult for human minds, and their spoken language mostly too faint for the ears.
+ - The wrongs done to trees, wrongs of every sort, are done in the darkness of ignorance and unbelief, for when the light comes, the heart of the people is always right.
+ - Large flocks of butterflies, all kinds of happy insects, seem to be in a perfect fever of joy and sportive gladness.
+ - Oh, these vast, calm, measureless mountain days, inciting at once to work and rest!
+ - Few in these hot, dim, strenuous times are quite sane or free; choked with care like clocks full of dust, laboriously doing so much good and making so much money – or so little, they are no longer good for themselves.
+ - By forces seemingly antagonistic and destructive Nature accomplishes her beneficent designs – now a flood of fire, now a flood of ice, now a flood of water; and again in the fullness of time an outburst of organic life...
+ - Wildness was ever sounding in our ears, and Nature saw to it that besides school lessons some of her own lessons should be learned, perhaps with a view to the time when we should be called to wander in wildness to our heart’s content.
+ - One can make a day of any size.
+ - Every purely natural object is a conductor of divinity, and we have but to expose ourselves in a clean condition to any of these conductors, to be fed and nourished by them. Only in this way can we procure our daily spirit bread.
+ - Many of Nature’s finest lessons are to be found in her storms, and if careful to keep in right relations with them, we may go safely abroad with them, rejoicing in the grandeur and beauty of their works and ways.
+ - The most distinctive, and perhaps the most impressive, characteristic of American scenery is its wilderness.
+ - I never saw a discontented tree. They grip the ground as though they liked it, and though fast rooted they travel about as far as we do.
+ - Quench love, and what is left of a man’s life but the folding of a few jointed bones and square inches of flesh? Who would call that life?
+ - My meals were easily made, for they were all alike and simple, only a cupful of tea and bread.
+ - While cares will drop off like autumn leaves.
+ - See how God writes history. No technical knowledge is required; only a calm day and a calm mind.
+ - There is a love of wild nature in everybody, an ancient mother-love showing itself whether recognized or no, and however covered by cares and duties.
+ - Galen Clark was the best mountaineer I ever met, and one of the kindest and most amiable of all my mountain friends.
+ - Nature had gathered her choicest treasures, to draw her lovers into close and confiding communion with her.
+ - You know that I have not lagged behind in the work of exploring our grand wilderness, and in calling everybody to come and enjoy the thousand blessings they have to offer.
+ - I am hopelessly and forever a mountaineer.
+ - One can make a day of any size and regulate the rising and setting of his own sun and the brightness of its shining.
+ - The battle for conservation will go on endlessly. It is part of the universal battle between right and wrong.
+ - So extraordinary is Nature with her choicest treasures, spending plant beauty as she spends sunshine, pouring it forth into land and sea, garden and desert. And so the beauty of lilies falls on angels and men, bears and squirrels, wolves and sheep, birds and bees...
+ - I’ve had a great time in South America and South Africa. Indeed it now seems that on this pair of wild hot continents I’ve enjoyed the most fruitful year of my life.
+ - As long as I live, I’ll hear waterfalls and birds and winds sing.
+ - Nature in her green, tranquil woods heals and soothes all afflictions.
+ - No synonym for God is so perfect as Beauty.
+ - No wonder the hills and groves were God’s first temples, and the more they are cut down and hewn into cathedrals and churches, the farther off and dimmer seems the Lord himself.
+ - Wherever we go in the mountains, we find more than we seek.
+ - It is a vast wilderness of rocks in a sea of light, colored and glowing like oak and maple in autumn, when the sun gold is richest.
+ - God has to nearly kill us sometimes, to teach us lessons.
+ - In this silent, serene wilderness the weary can gain a heart-bath in perfect peace.
+ - Take a course in good water and air; and in the eternal youth of Nature you may renew your own. Go quietly, alone; no harm will befall you.
+ - Few are altogether deaf to the preaching of pine trees. Their sermons on the mountains go to our hearts; and if people in general could be got into the woods, even for once, to hear the trees speak for themselves, all difficulties in the way of forest preservation would vanish.
+ - In drying plants, botanists often dry themselves. Dry words and dry facts will not fire hearts.
+ - No synonym for God is so perfect as Beauty. Whether as seen carving the lines of the mountains with glaciers, or gathering matter into stars, or planning the movements of water, or gardening – still all is Beauty!
+ - So also there are tides and floods in the affairs of men, which in some are slight and may be kept within bounds, but in others they overmaster everything.
+ - I ran home in the moonlight with firm strides; for the sun-love made me strong.
+ - I never saw a discontented tree.
+ - What wonders lie in every mountain day!
+ - Every good thing great and small needs defense.
+ - Only by going alone in silence, without baggage, can one truly get into the heart of the wilderness. All other travel is mere dust and hotels and baggage and chatter.
+ - The moon is looking down into the canyon, and how marvelously the great rocks kindle to her light! Every dome, and brow, and swelling boss touched by her white rays, glows as if lighted with snow.
+ - Look! Nature is overflowing with the grandeur of God!
+ - The Big Tree is Nature’s forest masterpiece, and so far as I know, the greatest of living things.
+ - Any glimpse into the life of an animal quickens our own and makes it so much the larger and better in every way.
+ - I wonder if leaves feel lonely when they see their neighbors falling?
+ - In God’s wildness lies the hope of the world-the great fresh unblighted, unredeemed wilderness. The galling harness of civilization drops off, and wounds heal ere we are aware.
+ - The blessings of one mountain day, whatever his fate, long life, short life, stormy or calm, he is rich forever.
+ - No temple made with hands can compare with Yosemite.
+ - Eternal sunrise, eternal sunset, eternal dawn and gloaming, on seas and continents and islands, each in its turn, as the round earth rolls.
+ - The gross heathenism of civilization has generally destroyed nature, and poetry, and all that is spiritual.
+ - The last days of this glacial winter are not yet past; we live in ‘creation’s dawn.’ The morning stars still sing together, and the world, though made, is still being made and becoming more beautiful every day.
+ - I am often asked if I am not lonely on my solitary excursions. It seems so self-evident that one cannot be lonesome where everything is wild and beautiful and busy and steeped with God that the question is hard to answer.
+ - None of Nature’s landscapes are ugly so long as they are wild.
+ - Spring work is going on with joyful enthusiasm.
+ - Ihave precious little sympathy for theselfish proprietyof civilized man, and if awarof racesshould occurbetween the wild beasts and Lord Man, I would be tempted to sympathise with the bears.
+ - I am learning to live close to the lives of my friends without ever seeing them. No miles of any measurement can separate your soul from mine.
+ - Government protection should be thrown around every wild grove and forest on the mountains, as it is around every private orchard, and the trees in public parks. To say nothing of their value as fountains of timber, they are worth infinitely more than all the gardens and parks of towns.
+ - How narrow we selfish conceited creatures are in our sympathies! How blind to the rights of all the rest of creation!
+ - A few minutes ago every tree was excited, bowing to the roaring storm, waving, swirling, tossing their branches in glorious enthusiasm like worship. But though to the outer ear these trees are now silent, their songs never cease.
+ - Every atom in creation may be said to be acquainted with and married to every other, but with universal union there is a division sufficient in degree for the purposes of the most intense individuality.
+ - In every country the mountains are fountains, not only of rivers but of men. Therefore we all are born mountaineers, the offspring of rock and sunshine.
+ - How lavish is Nature building, pulling down, creating, destroying, chasing every material particle from form to form, ever changing, ever beautiful.
+ - Memories may escape the action of the will, may sleep a long time, but when stirred by the right influence, though that influence be light as a shadow, they flash into full stature and life with everything in place.
+ - One should go to the woods for safety, if for nothing else.
+ - Man is always and everywhere a blight on the landscape.
+ - Over the summit, I saw the so-called Mono desert lying dreamily silent in the thick, purple light – a desert of heavy sun-glare beheld from a desert of ice-burnished granite.
+ - Everybody needs beauty as well as bread.
+ - Climb the mountains and get their good tidings.
+ - The water in music the oar forsakes. The air in music the wing forsakes. All things in move in music and write it. The mouse, lizard, and grasshopper sing together on the Turlock sands, sing with the morning stars.
+ - Go quietly alone, no harm will befall you.
+ - What a psalm the storm was singing, and how fresh the smell of the washed earth and leaves, and how sweet the still small voices of the storm!
+ - All Nature’s wildness tells the same story: the shocks and outbursts of earthquakes, volcanoes, geysers, roaring, thundering waves and floods, the silent uprush of sap in plants, storms of every sort, each and all, are the orderly, beauty-making love-beats of Nature’s heart.
+ - This time it is real – all must die, and where could mountaineer find a more glorious death!
+ - I have a low opinion of books: they are piles of stones set up to show coming travelers where other minds have been, or at best signal smokes to call attention...
+ - John Muir, Earth-planet, Universe.
+ - We live with our heels as well as head and most of our pleasure comes in that way.
+ - God cannot save them from fools.
+ - Wherever a Scotsman goes, here goes Burns. His grand whole, catholic soul squares with the good of all; therefore we find him in everything, everywhere.
+ - Our lives are rounded with a sleep.
+ - When a man plants a tree, he plants himself.
+ - I wandered away on a glorious botanical and geological excursion, which has lasted nearly fifty years and is not yet completed, always happy and free, poor and rich, without thought of a diploma or of making a name, urged on and on through endless, inspiring Godful beauty.
+ - Lizards of every temper, style, and color dwell here, seemingly as happy and companionable as the birds and squirrels.
+ - If the Creator were to bestow a new set of senses upon us, or slightly remodel the present ones, leaving all the rest of nature unchanged, we should never doubt we were in another world, and so in strict reality we should be, just as if all the world besides our senses were changed.
+ - Nature as a poet, an enthusiastic workingman, becomes more and more visible the farther and higher we go; for the mountains are fountains – beginning places, however related to sources beyond mortal ken.
+ - Men use care in purchasing a horse, and are neglectful in choosing friends.
+ - Living artificially in towns, we are sickly, and never come to know ourselves.
+ - In the woods is perpetual youth.
+ - Thus godlike sympathy grows and thrives and spreads far beyond the teachings of churches and schools, where too often the mean, blinding, loveless doctrine is taught that animals have no rights that we are bound to respect, and were only made for man, to be petted, spoiled, slaughtered or enslaved.
+ - The United States government has always been proud of the welcome it has extended to good men of every nation, seeking freedom and homes and bread.
+ - Most people are on the world, not in it – having no conscious sympathy or relationship to anything about them – undiffused seporate, and rigidly alone like marbles of polished stone, touching but seporate.
+ - These temple destroyers, devotees of ravaging commercialism, seem to have a perfect contempt for Nature, and, instead of lifting their eyes to the God of the mountains, lift them to the Almighty Dollar.
+ - The redwood is one of the few conifers that sprout from the stump and roots, and it declares itself willing to begin immediately to repair the damage of the lumberman and also that of the forest-burner.
+ - No Sierra landscape that I have seen holds anything truly dead or dull, or any trace of what in manufactories is called rubbish or waste; everything is perfectly clean and pure and full of divine lessons.
+ - All the world was before me and every day was a holiday, so it did not seem important to which one of the world’s wildernesses I first should wander.
+ - To ask me whether I could endure to live without friends is absurd. It is easy enough to live out of material sight of friends, but to live without human love is impossible.
+ - Few places in this world are more dangerous than home. Fear not, therefore, to try the mountain passes. They will kill care, save you from deadly apathy, set you free, and call forth every faculty into vigorous, enthusiastic action.
+ - There is that in the glance of a flower which may at times control the greatest of creation’s braggart lords.
+ - Winds are advertisements of all they touch, however much or little we may be able to read them; telling their wanderings even by their scents alone.
+ - Nothing can be done well at a speed of forty miles a day. The multitude of mixed, novel impressions rapidly piled on one another make only a dreamy, bewildering, swirling blur, most of which is unrememberable.
+ - No right way is easy in this rough world. We must risk our lives to save them.
+ - We all flow from one fountain.
+ - Raindrops blossom brilliantly in the rainbow, and change to flowers in the sod, but snow comes in full flower direct from the dark, frozen sky.
+ - Come to the woods, for here is rest. There is no repose like that of the green deep woods.
+ - All wilderness seems to be full of tricks and plans to drive and draw us up into God’s light.
+ - Who publishes the sheet-music of the winds or the music of water written in river-lines?
+ - The forests of America, however slighted by man, must have been a great delight to God; for they were the best he ever planted.
+ - They tell us that plants are not like man immortal, but are perishable-soul -less. I think that is something that we know exactly nothing about.
+ - Come to the woods, for here is rest.
+ - It is always interesting to see people in dead earnest, from whatever cause, and earthquakes make everybody earnest.
+ - Surely all God’s people, however serious or savage, great or small, like to play.
+ - To the sane and free it will hardly seem necessary to cross the continent in search of wild beauty, however easy the way, for they find it in abundance wherever they chance to be.
+ - To the lover of wilderness, Alaska is one of the most wonderful countries in the world.
+ - Strange the faithless fuss made about taking a walk in the safest and pleasantest of all places, a wilderness.
+ - I always enjoyed the hearty society of a snowstorm.
+ - Surely all God’s people, however serious or savage, great or small, like to play. Whales and elephants, dancing, humming gnats, and invisibly small mischievous microbes- all are warm with divine radium and must have lots of fun in them.
+ - Gigantic second and third growth trees are found in the redwoods, forming magnificent temple-like circles around charred ruins more than a thousand years old.
+ - The tide of visitors will float slowly about the bottom of the valley as harmless scum collecting in hotel and saloon eddies, leaving the rocks and falls eloquent as ever.
+ - A man, in his books, may be said to walk the earth a long time after he is gone.
+ - God never made an ugly landscape. All that sun shines on is beautiful, so long as it is wild.
+ - One may as well dam for water tanks the people’s cathedrals and churches, for no holier temple has ever been consecrated by the heart of man.
+ - In the eternal youth of Nature, you may renew your own.
+ - I don’t agree with you in saying that in all human minds there is poetry. Man as he came from the hand of his Maker was poetic in both mind and body, but the gross heathenism of civilization has generally destroyed nature, and poetry, and all that is spiritual.
+ - I am very blessed. The Valley is full of people, but they do not annoy me. I revolve in pathless places and in higher rocks than the world and his ribbony wife can reach.
+ - Imagination is usually regarded as a synonym for the unreal. Yet is true imagination healthful and real, no more likely to mislead than the coarse senses. Indeed, the power of imagination makes us infinite.
+ - Everybody needs beauty as well as bread, places to play in and pray in, where nature may heal and give strength to body and soul.
+ - I must return to the mountains-to Yosemite. I am told that the winter storms there will not be easily borne, but I am bewitched, enchanted, and tomorrow I must start for the great temple to listen to the winter songs and sermons preached and sung only there.
+ - I know that our bodies were made to thrive only in pure air, and the scenes in which pure air is found.
+ - In the beauty and grandeur of individual trees, and in number and variety of species, the Sierra forests surpass all others.
+ - Every hidden cell is throbbing with music and life, every fiber thrilling like harp strings.
+ - Word lessons, in particular the wouldst couldst shouldst have loved kind, were kept up, with much warlike thrashing, until I had committed the whole of French, Latin, and English grammars to memory...
+ - It is a fine thing to see people in hot earnest about anything.
+ - A little pure wildness is the one great present want, both of men and sheep.
+ - At the touch of this divine light, the mountains seemed to kindle to a rapt, religious consciousness, and stood hushed like devout worshippers waiting to be blessed.
+ - There is not a fragment in all nature, for every relative fragment of one thing is a full harmonious unit in itself.
+ - Man and other civilized animals are the only creatures that ever become dirty.
+ - Some people miss flesh as a drunkard misses his dram...
+ - There is no estimating the wit and wisdom concealed and latent in our lower fellow mortals until made manifest by profound experiences; for it is through suffering that dogs as well as saints are developed and made perfect.
+ - Let children walk with Nature, let them see the beautiful blendings and communions of death and life, their joyous inseparable unity, as taught in woods and meadows, plains and mountains and streams of our blessed star, and they will learn that death is stingless indeed, and as beautiful as life.
+ - Walk away quietly in any direction and taste the freedom of the mountaineer.
+ - Going to the woods is going home, for I suppose we came from the woods originally.
+ - Plants, animals, and stars are all kept in place, bridled along appointed ways, with one another, and through the midst of one another – killing and being killed, eating and being eaten, in harmonious proportions and quantities.
+ - To myself, mountains are the beginning and the end of all natural scenery; in them, and in the forms of inferior landscape that lead to them, my affections are wholly bound up.
+
+223 quotes

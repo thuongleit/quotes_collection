@@ -1,0 +1,24 @@
+ - You only live once. You don’t want your tombstone to read: ‘Played it Safe.’
+ - It’s extremely important for women to be writing their own stories and giving them to people to really be emotionally impacted by.
+ - I love watching a movie that is smart, that makes me think, that includes me as an audience member, and I especially love it when I know that the people that I’m working with also do that.
+ - This future is ours to embrace. Whether we, the established generations, choose to accept that is in our court.
+ - I don’t know my biological father. That could have had a huge impact on my life had it not been for the fact that my dad married my mom when I was one and raised me as his own.
+ - You really can’t just take someone who’s got a drug addiction and just put ’em in rehab. It doesn’t work that way. You can’t choose it for them. They have to choose it for themselves – because that’s scary. It’s really hard.
+ - It’s like our relationship is always about the other side that isn’t the obvious side.
+ - It was funny actually because that was still during the time we were dating. He would get all these calls because supposedly before we broke up, we had already broken up in the trades, in the rags or whatever.
+ - Anything that has to deal with our mortality is always going to be interesting to us. Life and death is always going to be something that draws our attention.
+ - It’s so much easier to get high than how scary it must be to see who you actually are and take responsibility for it. Denial is an easy place to live in.
+ - I remember everyone asking, ‘What did you do to get so thin? You looked great.’ I looked emaciated.
+ - The American future is here, and there’s great news: the future votes.
+ - When I see a woman who is all gaunt and emaciated, I don’t think she’s beautiful. She reminds me of a Chihuahua that’s freezing and shaking.
+ - I’m a really smiley person, so I’ve just learned when I’m doing my own makeup, I have to make sure it’s smile ready and not too heavy. As amazing as the Victoria Beckham pout is for photos, I just can’t do it!
+ - When you look at the gladiator times or at any of the things in human history, people are and have always been attracted to violence to the point where they’re in stadiums still to this day watching people getting stoned to death.
+ - I always thought my jaw line was manly. I have this pockmark on my chin from when I was 9. I used to get freaked out about it because people thought it was a pimple. But those are the things I’ve become really comfortable with as I’ve gotten older. My scars.
+ - I’d love to be the first one to say this, but it automatically turns into – we all have those responsibilities that we ignore because we don’t feel like they’re ours.
+ - When I was a kid, I had this idea that I would have a beard when I got older. I thought it’d be nice to rub my chin.
+ - Whenever we do voter registration, we ask, ‘Why haven’t you voted before?’ The response is often, ‘No one’s asked us.’ It’s not about telling people what to do – it’s about sharing what they can do.
+ - There are so many different reasons as to why I love riding trains. But I think ultimately it’s the romantic feeling of it. There’s something about it that just transports me into old films.
+ - When we meet, I’m interested and I’m curious about what he’s doing because he’s burning a number from a client. And I’m like, ‘Who is this?’ and my girlfriend’s like, ‘That’s a drug dealer. Stay away from him.’
+ - In my family, I’m short.
+
+22 quotes

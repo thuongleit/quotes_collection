@@ -1,0 +1,28 @@
+ - The restaurant industry is brutal.
+ - Fine dining is an occasional treat for most people.
+ - Close interaction with farmers and scientists can expose the chef to new flavours that can be used to delight diners.
+ - When you get close to the raw materials and taste them at the moment they let go of the soil, you learn to respect them.
+ - I never cooked at home – my father was the chef.
+ - When people are grownups they’re grown ups. They make their own decisions you know.
+ - I still cook at home. A lot of chefs I think don’t cook at home. But I still do, I love cooking at home, I love having friends.
+ - If you see someone in the kitchen that has good hands and a quick brain, then you need that person to be in the front of everything.
+ - There’s no media training. In cooking school, there’s not even manager training. You learn the fundamentals of cooking. Everything else is learning by doing.
+ - If you see how a plant grows and you taste it in situ you have a perfect example of how it should taste on the plate.
+ - I had turned down other head chef jobs. I didn’t want to take over someone else’s cuisine. I wanted to start from scratch.
+ - People will travel anywhere for good food – it’s crazy.
+ - I know every movement of my kitchen.
+ - When you start at catering college, nobody prepares you for a book tour or public speaking.
+ - I can’t crack jokes because I don’t have any.
+ - All of the people who work in the kitchen with me go out into the forests and on to the beach. It’s a part of their job. If you work with me you will often be starting your day in the forest or on the shore because I believe foraging will shape you as a chef.
+ - Scandinavian-Danish cuisine was something quite rustic, mostly known for pastries and smorgasbord cuisine, which in itself has become a joke.
+ - My last meal on Earth, I would love it to be a bowl of blueberries with cold cream.
+ - Chefs have a new opportunity – and perhaps even an obligation – to inform the public about what is good to eat, and why.
+ - I would love to eat a really great burger, but it doesn’t exist in our part of the world.
+ - I only have the restaurant. If I do other things, it’s only to do with the restaurant.
+ - I’m a bit of a glutton – I eat too much of all that is good to eat.
+ - I’ve never had anything but the freedom to do what I wanted just as long as it made me happy.
+ - There is no conflict between a better meal and a better world.
+ - A gastronomical supermeal didn’t necessarily have to involve the things I had brought from other top kitchens.
+ - Learning about issues such as sustainability and locavorism are things that you need to have as part of you as a chef because it will make you cook more delicious food.
+
+26 quotes

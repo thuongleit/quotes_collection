@@ -1,0 +1,177 @@
+ - Winners never quit and quitters never win.
+ - The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack in will.
+ - The man on top of the mountain didn't fall there.
+ - The only place success comes before work is in the dictionary.
+ - Perfection is not attainable, but if we chase perfection we can catch excellence.
+ - Practice does not make perfect. Perfect practice makes perfect.
+ - Once you learn to quit, it becomes a habit.
+ - The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand.
+ - Leaders are made, they are not born. They are made by hard effort, which is the price which all of us must pay to achieve any goal that is worthwhile.
+ - The dictionary is the only place that success comes before work. 
+ - Life’s battles don’t always go to the stronger or faster man. But sooner or later, the man who wins is the man who thinks he can.
+ - The harder you work, the harder it is to surrender.
+ - Winning isn’t everything, but the will to win is everything.
+ - Winning is a habit. Unfortunately, so is losing.
+ - The greatest accomplishment is not in never falling, but in rising again after you fall. 
+ - I firmly believe that any man's finest hour, the greatest fulfillment of all that he holds dear, is that moment when he has worked his heart out in a good cause and lies exhausted on the field of battle - victorious.
+ - If winning isn't everything, why do they keep score?
+ - If you can accept losing, you can’t win.
+ - Success is never final. Failure is never fatal. It's courage that counts.
+ - The quality of a man's life is in direct proportion to his commitment to excellence, regardless of his chosen field of endeavor.
+ - Most people fail, not because of lack of desire, but, because of lack of commitment.
+ - It's not whether you got knocked down; it's whether you get back up.
+ - Confidence is contagious. So is lack of confidence.
+ - We would accomplish many more things if we did not think of them as impossible.
+ - Everyone Has A Will To Win But Very Few Have The Will To Prepare To Win.
+ - Individual commitment to a group effort – that is what makes a team work, a company work, a society work, a civilization work.
+ - Praise in public; criticize in private.
+ - In great attempts it is glorious even to fail.
+ - We didn't lose the game; we just ran out of time.
+ - The price of success is hard work, dedication to the job at hand.
+ - If you are five minutes early, you are already ten minutes late.
+ - We will be relentless in our pursuit for perfection. We won’t ever be perfect – but in the process we will achieve greatness.
+ - You've got to keep yourself in prime physical condition, because fatigue makes cowards of us all.
+ - The real glory is being knocked to your knees and then coming back. That's real glory. Thats the essence of it.
+ - Mental toughness is essential to success.
+ - If you aren't fired with enthusiasm, you will be fired with enthusiasm. 
+ - Leaders are not born, they’re made.
+ - Winning is not a sometime thing; it’s an all time thing. You don’t win once in a while, you don’t do things right once in a while, you do them right all the time. Winning is habit. Unfortunately, so is losing.
+ - Hard work is the price we must pay for success.
+ - Success demands singleness of purpose.
+ - You carry on no matter what are the obstacles. You simply refuse to give up – and, when the going gets tough, you get tougher. And, you win.
+ - Success is not a sometimes thing. In other words, you don’t do what is right once in awhile, but all the time. Success is a habit. Winning is a habit.
+ - Winning isn’t everything, it’s the only thing. If you can shrug off a loss, you can never be a winner!
+ - There’s only one way to succeed in anything, and that is to give it everything.
+ - The measure of who we are is what we do with what we have.
+ - If you’ll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.
+ - The good Lord gave you a body that can stand most anything. It’s your mind you have to convince.
+ - Inches make champions.
+ - Winning is not the most important thing; it’s everything.
+ - Gentlemen, we will chase perfection, and we will chase it relentlessly, knowing all the while we can never attain it. But along the way, we shall catch excellence.
+ - The achievements of an organization are the results of the combined effort of each individual.
+ - Preparedness is the ultimate confidence builder.
+ - Build for your team a feeling of oneness, of dependence on one another and of strength to be derived by unity.
+ - Once a man has made a commitment to a way of life, he puts the greatest strength in the world behind him. It’s something we call heart power. Once a man has made this commitment, nothing will stop him short of success.
+ - Some of us will do our jobs well and some will not, but we will be judged by only one thing-the result.
+ - Show me a good loser, and I’ll show you a loser.
+ - The strength of the group is the strength of the leaders.
+ - If you don’t think you’re a winner, you don’t belong here.
+ - It’s easy to have faith in yourself and have discipline when you’re a winner, when you’re number one. What you got to have is faith and discipline when you’re not a winner.
+ - You never win a game unless you beat the guy in front of you. The score on the board doesn’t mean a thing. That’s for the fans. You’ve got to win the war with the man in front of you. You’ve got to get your man.
+ - The darkest moments of our lives are not to be buried and forgotten, rather they are a memory to be called upon for inspiration to remind us of the unrelenting human spirit and our capacity to overcome the intolerable.
+ - Nobody is hurt. Hurt is in the mind. If you can walk, you can run.
+ - When you’re tired, you rationalize. You make excuses in your mind. You say, “I’m too tired; I’m bushed; I can’t do this; I’ll loaf.” Then you’re a coward.
+ - I don’t necessarily have to like my players and associates but as their leader I must love them. Love is loyalty, love is teamwork, love respects the dignity of the individual. This is the strength of any organization.
+ - Dictionary is the only place that success comes before work. Hard work is the price we must pay for success. I think you can accomplish anything if you’re willing to pay the price.
+ - Mistakes are the necessary steps in the learning process; once they have served their purpose, they should be forgotten and not repeated.
+ - Those who have invested the most are the last to surrender.
+ - The spirit, the will to win, and the will to excel are the things that endure. These qualities are so much more important than the events that occur.
+ - There are three things important to every man in this locker room. His God, his family, and the Green Bay Packers. In that order.
+ - Don’t succumb to excuses. Go back to the job of making the corrections and forming the habits that will make your goal possible.
+ - You defeat defeatism with confidence.
+ - Unless a man believes in himself and makes a total commitment to his career and puts everything he has into it – his mind, his body, his heart – what’s life worth to him?
+ - Leadership is based on a spiritual quality; the power to inspire, the power to inspire others to follow.
+ - Once a man has made his commitment, nothing will stop him short of success.
+ - Leaders are made, they are not born.
+ - Gentleman, this is a football.
+ - Brains without competitive hearts are rudderless.
+ - The successful man is himself. To be successful, you’ve got to be honest with yourself.
+ - Mental toughness is Spartanism, with all its qualities of self-denial, sacrifice, dedication, fearlessness, and love.
+ - Live as if you were living already for the second time.
+ - Each of us, if we would grow, must be committed to excellence. The championships, the money, the color; all of these things linger only in the memory. It is the spirit, the will to excel, the will to win; these are the things that endure.
+ - Success is like anything worthwhile. It has a price. You have to pay the price to get to the point where success is possible.
+ - If it doesn’t matter who wins or loses, then why do they keep score?
+ - Once you agree upon the price you and your family must pay for success, it enables you to ignore the minor hurts, the opponent’s pressure, and the temporary failures.
+ - I don’t build character. I eliminate the people who don’t have it.
+ - I think you’ve got to pay the price for anything that’s worthwhile, and success is paying the price. You’ve got to pay the price to win, you’ve got to pay the price to stay on top, and you ’ve got to pay the price to get there.
+ - Gentlemen, we are going to relentlessly chase perfection, knowing full well we will not catch it.
+ - Football is blocking and tackling. Everything else is mythology.
+ - It is essential to understand that battles are primarily won in the hearts of men. Men respond to leadership in a most remarkable way and once you have won his heart, he will follow you anywhere.
+ - There’s no such thing as Perfection. But, in striving for perfection, we can achieve excellence.
+ - To me, the big thing in being a successful team is repetition of what you’re doing, either by word of mouth, blackboard, or specifically by work on the field. You repeat, repeat, repeat as a unit.
+ - There is no room for second place. There is only one place in my game and that is first place. I have finished second twice in my time at Green Bay and I never want to finish second again.
+ - The true measure of a man is how he treats someone who can do him absolutely no good. Ann Landers It’s not whether you get knocked down; it’s whether you get back up.
+ - Some need a whip and others a pat on the back and others are better off when they are ignored.
+ - Choose to achieve perfection. We won’t achieve it because perfection is impossible. But by pursuing perfection, we will achieve excellence.
+ - Football is a great deal like life in that it teaches that work, sacrifice, perseverance, competitive drive, selflessness, and respect for authority are the price each and every one of us must pay to achieve any goal that is worthwhile.
+ - Coaches who can outline plays on a black board are a dime a dozen. The ones who win get inside their player and motivate.
+ - I derived my strength from daily mass and communion.
+ - People who work together will win, whether it be against complex football defenses, or the problems of modern society.
+ - Teamwork is what the Green Bay Packers were all about. They didn’t do it for individual glory. They did it because they loved one another.
+ - Before I can embrace freedom, I should be aware of what duties I have.
+ - It is time for us all to stand and cheer for the doer, the achiever – the one who recognizes the challenges and does something about it.
+ - Watch your actions, they become your habits. Watch your habits, they become your character.
+ - If you cheat yourself in practice, you’ll cheat yourself in a game; and if you cheat in a game, you’ll cheat yourself for the rest of your life.
+ - The best game plan in the world never blocked or tackled anybody.
+ - Success rests not only on ability, but upon commitment, loyalty, and pride.
+ - I’ve never known a man worth his salt who, in the long run, deep down in his heart, didn’t appreciate the grind, the discipline.
+ - I think good physical conditioning is essential to any occupation. A man who is physically fit performs better at any job. Fatigue makes cowards of us all.
+ - Mental toughness is a state of mind – you could call it ‘character in action.’
+ - When you travel with the team and you eat with the team – you eat what the team eats.
+ - It is essential to understand that battles are primarily won in the hearts of men.
+ - Champions make their own luck.
+ - The Green Bay Packers never lost a football game. They just ran out of time.
+ - The man who wins, is the man who thinks he can.
+ - Leadership is not just one quality, but rather a blend of many qualities; and while no one individual possesses all of the needed talents that go into leadership, each man can develop a combination to make him a leader.
+ - A school without football is in danger of deteriorating into a medieval study hall.
+ - If you really want something, you can have it if you’re willing to pay the price. And the price means you have to work better and harder than the next guy.
+ - In order to succeed, this group will need a singleness of purpose, they will need a dedication, and they will have to convince all of their prospects of the willingness to sacrifice.
+ - To achieve success, whatever the job we have, we must pay a price.
+ - Football isn’t a contact sport; it’s a collision sport. Dancing is a contact sport...
+ - Second place is meaningless. You can’t always be first, but you have to believe that you should have been – that you were never beaten – that time just ran out on you.
+ - Football is like life – it requires perseverance, self-denial, hard work, sacrifice, dedication and respect for authority.
+ - I will demand a commitment to excellence and to victory, and that is what life is all about.
+ - The joy is in creating, not maintaining.
+ - We win our games in practice. We learn and follow the fundamentals of our game better than anyone in the league. All of our games are won in practice.
+ - If you get into the endzone, act as if you’ve been there before.
+ - One comes to believe whatever one repeats to oneself sufficiently often, whether the statement be true of false. It comes to be the dominating thought in one’s mind.
+ - While statistics are interesting, they’re all in the past.
+ - They do not truly love who do not show their love.
+ - If a man is running down the street with everything you own, you won’t let him get away. That’s tackling.
+ - Offensively, you do what you do best and you do it again and again. Defensively, you attack your opponent’s strength.
+ - There is only one kind of discipline, and that is the perfect discipline. As a leader, you must enforce and maintain that discipline; otherwise, you will fail at your job.
+ - A team that thinks it’s going to lose is going to lose.
+ - We shall play every game to the hilt with every ounce of fiber we have in our bodies.
+ - A disciplined person is the one who follows the will of the one who gives the orders.
+ - In a game like football, where you have very little time to decide what you are going to do, you have to react almost instinctively, naturally.
+ - Many more things would be accomplished if we didn’t consider them impossible.
+ - A good executive goes around with a worried look on his assistants.
+ - We know how rough the road will be, how heavy here the load will be, we know about the barricades that wait along the track, but we have set our soul ahead upon a certain goal ahead and nothing left from hell to sky shall ever turn us back.
+ - The challenge of every team is to build a feeling of oneness, of dependence on one another because the question is usually not how well each person performs, but how well they work together.
+ - If you give me anything less than your best, you’re not only cheating yourself. your coaches, your teamates, everybody in Green Bay, and everything pro football stands for. Your also cheating the Maker who gave you the talent.
+ - We don’t pray to win. We pray to play the best we can, and to keep us free from injury. And the prayer we say after the game is one of thanksgiving.
+ - I would say that the quality of each man’s life is the full measure of that man’s commitment of excellence and victory – whether it be football, whether it be business, whether it be politics or government or what have you.
+ - If you’re lucky enough to find a guy with a lot of head and a lot of heart, he’s never going to come off the field second.
+ - It is and has always been an American zeal to be first in everything we do, and to win...
+ - Football is a game of cliches, and I believe in every one of them.
+ - One must not hesitate to innovate and change with the times. The leader who stands still is not progressing, and he will not remain a leader for long.
+ - Teams do not go physically flat, they go mentally stale.
+ - I think you can accomplish anything if you’re willing to pay the price.
+ - To the winner, there is 100-percent elation, 100-percent fun, 100-percent laughter; and yet the only thing left to the loser is resolution and determination.
+ - Regardless of what you do put in, every game boils down to doing the things you do best and doing them over and over again.
+ - Faithfulness and truth are the most sacred excellences and endowments of the human mind.
+ - I’ve been accused of lacking compassion. But that just shows I’m not without compassion.
+ - The objective is to win: fairly, squarely, decently, win by the rules, but still win.
+ - If you can’t get emotional about what you believe in your heart, you’re in the wrong business.
+ - Running a football team is no different than running any other kind of organization...
+ - They may not love you at the time, but they will later.
+ - Morally, the life of the organization must be of exemplary nature. This is one phase where the organization must not have criticism.
+ - One’s desire, not ability, determines success.
+ - When you are through trying to improve, you are through.
+ - In all my years of coaching, I have never been successful using somebody else’s play.
+ - Having the capacity to lead is not enough. The leader must be willing to use it.
+ - Illness and fatigue can be career ending. It mean the fans are sick and tired of you.
+ - Chuck Noll is building one hell of a football team up in Pittsburgh.
+ - The leader can never close the gap between himself and the group. If he does, he is no longer what he must be. He must walk a tightrope between the consent he must win and the control he must exert.
+ - Football is and always will be a game of blocking and hitting.
+ - Some people try to find things in this game that don’t exist but football is only two things – blocking and tackling.
+ - I said, ‘You missed practice yesterday didn’t you?’ The player replied, ‘No coach, not a bit.’
+ - I hold it more important to hold the player’s confidence than their affection.
+ - The only true satisfaction a player receives is the satisfaction that comes from being part of a successful team, regardless of his personal accomplishments.
+ - There is something good in men that really yearn for discipline.
+ - I don’t think there’s a punch-line scheduled, is there?
+ - A man is known by the company he owns.
+ - At many a moment on many a day, I am convinced that pro football must be a game for madmen, and I must be one of them.
+ - No leader, however great, can long continue unless he wins battles. The battle decides all.
+
+175 quotes

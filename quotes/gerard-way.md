@@ -1,0 +1,146 @@
+ - One day your life will flash before your eyes. Make sure it’s worth watching.
+ - Being happy doesn’t mean that everything is perfect. It means that you’ve decided to look beyond the imperfections.
+ - It’s OK to be different.
+ - Heroes are ordinary people who make themselves extraordinary.
+ - Tears are words the heart can’t express.
+ - Sometimes you have to kind of die inside in order to rise from your own ashes and believe in yourself and love yourself to become a new person.
+ - My Chemical Romance is done. But it can never die. It is alive in me, in the guys, and it is alive inside all of you. I always knew that, and I think you did too. Because it is not a band- it is an idea.
+ - I’m not okay.
+ - Anything can be art. Anything can be self-expression. Now you take the weapon and run with it.
+ - If you look in the mirror and don’t like what you see, you can find out first hand what it’s like to be me.
+ - Be yourself, don’t take anything from anyone, and never let them take you alive.
+ - I see you lying next to me, with words I thought i’d never speak, awake and unafraid, asleep or dead?
+ - If you’re ever in a dark place, don’t resort to violence. Talk to someone; whether it be a therapist, teacher, parent, or just someone you can trust. We all have our dark places and it’s important that you get help.
+ - You can do amazing things when you believe.
+ - I thought ‘Eternal Sunshine of the Spotless Mind’ was so interesting the way it was made and the texture of it.
+ - I’m just a man, not a hero. just a boy, who wants to sing this song.
+ - Human nature at times is unfortunately very ugly and I learned the world can be a very ugly place. For as much beauty there is, there’s just as much brutality and violence and ugliness.
+ - Make your life your art. It doesn’t have to be that you’re an artist. I know I talk about art a lot, but I mean a very broad thing with that. You could be a veterinarian, that’s your art. Find your art; find your thing you love.
+ - I Just Got So Emo That I Just Fell Apart!!
+ - It’s important to keep up momentum, when I’m home alone I get stagnant, I go crazy and have to see my therapist. Being on the road keeps me busy. I’m okay when I’m busy.
+ - Don’t let anyone tell you you’re not good enough. You’re good enough, you are too good. Love your family with all your heart and listen to it.
+ - Let me tell you how the story ends, where the good guys die and the bad guys win. It doesn’t matter how many friend you make, but the graffite they write on your grave.
+ - I learned to see beauty in everything and ugliness in everything. I developed a very honest perspective.
+ - You just go with your gut instinct, because your gut is smarter than your heart.
+ - Never forget how beautiful you are.
+ - It’s okay to be messed up, because there are five other dudes who are just as messed up as you.
+ - The future is bulletproof, the aftermath is secondary.
+ - Hey girls, you’re beautiful. Whether you’re a size 32 or a size 18. As long as you’re a good person. As long as you respect others and yourself. Don’t listen to those fashion magazines. Hey girls, you’re beautiful.
+ - Oh how wrong we were to think immortality meant never dying.
+ - My Chemical Romance is done. But it can never die.
+ - Life is very, very short, and you can choose to live it how you want. You can choose to dumb yourself down and not express yourself just so you can fit in, just so people won’t dislike you.
+ - I’m not drunk, just a little stoned.
+ - I am not afraid to keep on living. I am not afraid to walk this world alone. Honey if you stay you’ll be forgiven, nothing you can say will set me going home.
+ - Life is but a dream for the dead.
+ - Stay beautiful, keep it ugly.
+ - Real revenge is making something of yourself.
+ - Say what you want but you NEVER say it with violence!
+ - I wasn’t bullied in high school, I was just ignored.
+ - There’s something very romantic about self-destruction and sabotaging your life, and taking a hammer to it.
+ - There’s such a lack of sex in music.
+ - Learning to be extremely disciplined has been the key for me. I work really hard during work hours and family really hard during family hours. Family does always come first though, in any situation.
+ - I am living proof that no matter how bad life gets, it gets better.
+ - Don’t ever let the media tell you what your body is supposed look like. You’re beautiful the way you are. Stay beautiful, keep it ugly.
+ - And after all this time that you still owe, you’re still a good-for nothing I don’t know.
+ - Because one day I’ll leave you a phantom to lead you in the summer to join the black parade.
+ - I believe in ghosts because I had a paranormal expierience once that was very personal. Though, every fiber in my being tries to convince me they don’t exist.
+ - I love watching ‘Twilight Zone.’ New Year’s Eve they do the marathon; I watch it every year.
+ - Life is very, very short, and you can choose to live it how you want.
+ - So many people treat you like you’re a kid so you might as well act like one and throw your television out of the hotel window.
+ - I’m a big fan of domino masks, like Zorro, or Robin. You could put a domino mask on anything, and it becomes a superhero. You put a domino mask on a milkman, and he becomes, like, Super Milkman.
+ - We’re just as screwed up as you.
+ - I don’t think having a My Chemical Romance action figure will make a kid start his own band, I like to think it will make him save children from a burning building.
+ - The more people that learn about you, even if you’re an underdog, then you can come under fire a lot and the more attention you get and the more threatening or dangerous you appear to people. And the more people try to knock you down.
+ - None. I think we should send a country some cupcakes. You think some cupcakes would cheer up North Korea? Kill ’em with deliciousness.
+ - The boys and girls in the clique. The awful names that they stick. You’re never gonna fit in much kid, but it you’re troubled and hurt, what you’ve got under your shirt will make them pay for the things that they did!
+ - In those perfect moments you find beauty you never knew existed. You find yourself and you friends all over again, you find something to fight for, something to love. Something to show the world.
+ - We’ve always been fighters. There will always be something to fight against. So we’ll always fight, underdogs or not. If you put a wall in front of us, we don’t look to go round it. We just bust straight through.
+ - You are gorgeous, whether you’re a size 4 or 14. It doesn’t matter what you look like on the outside, as long as you’re a good person, as long as you respect others.
+ - I want to be a vampire. They’re the coolest monsters.
+ - If you’re gonna buy me a present, don’t spend more than twenty five bucks, you’ll get a blowjob anyway.
+ - Hey, girls, you’re beautiful. Don’t look at those stupid magazines with sticklike models. Eat healthy and exercise.
+ - Beach balls at festivals are the work of the devil.
+ - Like, you should never want to hurt yourself. You should love yourself.
+ - There are really so many people trying to get control over you on a daily basis and steal your soul in some way, take a part of you...
+ - It is not a band. It is an idea.
+ - I’ve always had bizarre, negative feelings about anything traditional, like marriage and family. I never thought something like that worked.
+ - I would like to continue to make art by being able to do what I love and have that make it possible for me to support my family. I’d like to make people happy, show people a good time, and hopefully inspire some people.
+ - It reminded me of a meat grinder. From when I was a kid. Going to school it felt like you were in a meat grinder. It chews you up and pours out this mess that can’t function.
+ - I am who I am. There’s no facade. No put-on. And being voted sexiest doesn’t concern me. Maybe that’s the sexy part.
+ - You should love yourself.
+ - I’m the master of the wicket!
+ - Drawing and Drinking Coffe.
+ - My wife totally backs the way I am on stage; that’s one of the amazing things about her. I have 120 per cent respect for her when I’m on stage, so there are definitely certain things I would never do.
+ - I didn’t want to say anything. I liked Star Wars when I was ten.
+ - It takes a while to tell stories, I think it’s because I was drunk for three years.
+ - Playing in front of millions of people erases everything I hate about myself. Nothing can hurt me.
+ - I do a lot of research, I try to think about how it relates to music and I just do a ton of drawing. It’s much easier to work your ideas out that way.
+ - I feel like theres so many people out there who have the kids in the palm of their hand, listening but there are so few people saying something.
+ - Suicide is a serious thing. And if you know anyone who is suicidal, you need to get them help. No one should be in pain. Everyone should love themselves.
+ - The Black Parade has to go home soon, so you’re gonna be stuck with My Chemical Romance. I’m sorry. That singer has a despicable mouth, he dresses funny, and he can’t sing!
+ - Singing songs that make you slit your wrists.
+ - I feel like my mission is to be honest with myself. My mission is to share my truth – share, not give. I think that’s what an artist is supposed to do: I think they share.
+ - Did Superman really want to save the world, or did he just feel like he had to? Would he much rather be a farmer? Maybe. Would he much rather be hanging out with his dad and his mom and his dog? Probably.
+ - When you are kissing a guy with a beard, it’s different.
+ - Comics are my first love, and I hate seeing an art form that I love suffer.
+ - I’d enjoy it if a guy grabbed my ass. I guess it all depends on how he grabbed it, too.
+ - Ray Toro is a very eccentric, crazy genius type guy. I think he’s a genius. He just got this thing at the VMA. The way he played, it makes you go ‘Jesus!’ He’s really sweet, really kind of lovable. He’s like a cartoon character.
+ - I got sunburnt which is obviously a drag for me because in theory the sun is supposed to kill me.
+ - I was this weird loner kid who got drunk by himself all the time.
+ - You can’t be two people in your brain, one rock dude and a dad – there’s something in the middle of them, and that’s really what you are and that’s going to make you the best dad – not when you try to be one or the other.
+ - Well, I’m half Italian, so last year on Warped Tour I got this really good tan and I was like, bummer.
+ - The best thing about wearing black is that you can hide pretty easily, unless you’re in like Hawaii, then you can’t hide.
+ - You have to destroy something to make it beautiful.
+ - When youre touring and the minute you tell someone that youre from Jersey its the equivalent of telling them you just got out of jail.
+ - My favorite band at the moment is the Dresden Dolls, they’re from Boston. It’s a guy and a girl. She plays piano and he plays the drums and she also sings. You can find them on the web they’re incredible.
+ - Can I be your only hope? Because your the only hope for me.
+ - I do enjoy manga but would not consider myself a ‘super-fan,’ only really connecting with certain works such as ‘Lone Wolf and Cub,’ or ‘Tekkon Kinkreet,’ the more breakthrough works, and ‘Akira,’ to me, is the daddy of them all.
+ - Sing, that’s the most powerful weapon you have.
+ - Who wouldn’t want to catch a guy in a bear suit?
+ - I’d rather be a creature of the night than an old dude.
+ - It erases everything I hate about myself. Nothing can hurt me. I feel completely invincible. I feel like everyone else on that stage is invincible and we’re capable of anything. There’s no stopping us.
+ - Cigarettes and coffee: an alcoholic’s best friend!
+ - It is often my nature to be abstract, hidden in plain sight, or nowhere at all.
+ - The clearest actions come from truth, not obligation.
+ - It’s always a longer walk to the men’s room, buckaroo.
+ - I’d rather goto Hell than be in Purgatory.
+ - I’ve always seen My Chemical Romance as the band that would have represented who me and my friends were in high school, and the band that we didn’t have to represent us – the kids that wore black – back then.
+ - It’s like the drag fairy coming and saying ‘What would you like to do?’ Um, yeah karate.
+ - If you chase the art, you really can’t fail because you’ll always be able to look at yourself in the mirror. And that’s not about making angry decisions, either, it’s about always doing the right thing for you, your fans and your art.
+ - When Scorsese shoots a violent scene, it’s very uncomfortable – it’s not like watching ‘Rambo.’
+ - I just wanna kind of give the world something special.
+ - If you don’t go to highschool you will definately go to jail.
+ - Oh, and I heard a rumor that I died in a car accident. I didn’t.
+ - It’d be cool to be a vampire. Vampires are the best beast you can ever be. Call me egotistical, but I love the whole idea of immortality.
+ - As soon as I go into a Starbucks I take off my sunglasses. I want to be recognised and I want free coffee.
+ - I had no direction. I thought, ‘I need to make a difference in my life,’ and music was my answer.
+ - Alan Moore is a prophetic writer.
+ - So how was Christmas for you guys? Did you all get lots of nice black t-shirts?
+ - It tastes like somebody stole my wallet. Ya know?
+ - We have to do it, so there’s no point in bitching.
+ - All your quirks and all your problems – even your depressions and your failures – that’s what makes you you.
+ - Every big adventure should feel like your last. Every attempt should feel like a final charge up the hill. Tomorrow doesn’t exist.
+ - What I like about The Sims is that I don’t have a normal life at all, so I play this game where these people have these really boring, mundane lives. It’s fun.
+ - I’ve gotta get out of the basement. I’ve gotta see the world. I’ve gotta make a difference.
+ - As free and crazy as we want to be, and how much we want to make the world a canvas, there’s also a part of us that doesn’t want to make any mark.
+ - Were not a festival band, playing during the day was something we had to get over, I was like uhh this sun stuff kind of sucks.
+ - All of my favourite albums have this incredible amount of conceptual glue to them, even if they are not telling a story.
+ - There’s not a lot of art forms where you can control your presentation and your ideas.
+ - My Sims family is called the Cholly family. I don’t know why I picked that name, it’s kinda of random.
+ - Shut up and let me see your jazz hands.
+ - The only thing I learnt in high school is that people are very violent and territorial.
+ - The thing about ‘Watchmen’ that people should know is that when it came out there was absolutely nothing like it. Up until then, comics were about the same thing: a guy in tights fighting another guy in tights and saving the girl – that was it.
+ - I don’t know if commerce can every truly be information. I think that’s just commerce, that’s just selling you something.
+ - I think there needs to be people that are doing something different in music. There’s a need for that as much as there’s a need for a scene.
+ - The Jersey mentality is: I work, I drink, I stay up all night, I try to meet a girl, it’s a waste of time.
+ - My music is – I don’t want to say my main focus, but it’s what comes most naturally to me.
+ - Most times with vanity projects, publishers don’t believe in the work; they just believe in the name.
+ - To me, the coolest, shiniest, sexiest, darkest, scariest thing you can be is pop.
+ - You put an old Misfits record on, and it sounds like it came out yesterday.
+ - All we ever wanna do is inspire somebody to be who they wanna be and to give them a little bit of hope.
+ - There was a moment in my life when I really wanted to kill myself. And there was one other moment when I was close to that. But even in my most jaded times, I had some hope.
+ - It was harder to break into comics than it was to become a singer in a rock band.
+ - My parents didn’t have records, they didn’t have radios, and they didn’t listen to music. My grandmother was my main connection to art and music. She could play piano very well, and she had perfect pitch.
+ - I think that a lot of journalists don’t really listen to music before they review it.
+
+144 quotes

@@ -1,0 +1,67 @@
+ - Incrementalism is innovation’s worst enemy.
+ - Good education has got to be good entertainment.
+ - Kids drop out of school mostly because school is boring and not particularly relevant.
+ - Rote learning is a killer for most of us and for some people, it really excludes them.
+ - Computer science departments have always considered ‘user interface’ research to be sissy work.
+ - It’s not computer literacy that we should be working on, but sort of human-literacy. Computers have to become human-literate.
+ - It makes no sense to ship atoms when you can ship bits.
+ - Programming allows you to think about thinking, and while debugging you learn learning.
+ - Where do new ideas come from? The answer is simple: differences. While there are many theories of creativity, the only tenet they all share is that creativity comes from unlikely juxtapositions. The best way to maximize differences is to mix ages, cultures, and disciplines.
+ - MIT is governed by a second, even higher rule: the inalienable right of academic freedom.
+ - Learning by doing, peer-to-peer teaching, and computer simulation are all part of the same equation.
+ - Nations have the wrong granularity. They’re too small to be global and too big to be local, and all they can think about is competing.
+ - The change from atoms to bits is irrevocable and unstoppable. Why now? Because the change is also exponential – small differences of yesterday can have suddenly shocking consequences tomorrow.
+ - By the year 2020 the largest employer in the developed world will be the self.
+ - Giving the kids a programming environment of any sort, whether it’s a tool like Squeak or Scratch or Logo to write programs in a childish way – and I mean that in the most generous sense of the word, that is, playing with and building things – is one of the best ways to learn.
+ - I had come to a stage in life where I didn’t need to earn an income, I didn’t need to earn a reputation, I didn’t need fame, I didn’t need any of the things you might want in your early career.
+ - Very often kids don’t ask questions in class because they don’t want to be seen asking a question.
+ - You can see the future best through peripheral vision.
+ - I’ve spent my whole life worrying about the human-computer interface, so I don’t want to suggest that what we have today is even close to acceptable.
+ - Nature is pretty good at networks, self-organizing systems. By contrast, social systems are top-down and hierarchical, from which we draw the basic assumption that organization and order can only come from centralism.
+ - Digital living will include less and less dependence upon being in a specific place at a specific time, and the transmission of place itself will start to become possible.
+ - In the world of computers and just devices in general, the lifespan, or the shelf life, is relatively short just because technology moves so fast and the costs drop so quickly and the power, whether it’s computing power or memory rises very, very quickly.
+ - The computer provides the only way to give students a real foundation in 21st-century skills.
+ - In Uruguay, the President of the country announced that this would be his legacy, “One laptop per child.”
+ - Companies cannot really see beyond their current customer base. They explicitly or implicitly do things to protect their current customers. And the last person to want real change is your customer. This is why most new ideas come from small companies that have nothing to lose.
+ - It’s hard to propose a $100 laptop for a world community of kids and then not say in the same breath that you’re going to depend on the community to make software for it.
+ - The cost of electronics in a modern car now exceeds the cost of its stall.
+ - This is just the beginning, the beginning of understanding that cyberspace has no limits, no boundaries.
+ - My goal is not selling laptops. OLPC is not in the laptop business. It’s in the education business.
+ - If you take any world problem, any issue on the planet, the solution to that problem certainly includes education. In education, the roadblock is the laptop.
+ - Access by kids to the Internet should be like kids breathing clean air.
+ - A Wired reader told me once, Get a life, which I read from the back of a yacht in the Aegean, while eating fresh sea urchins and drinking terrific Montrachet.
+ - What’s the difference between obsolete and cutting edge? Obsolete works.
+ - The ability to make big leaps of thought is a common denominator among the originators of breakthrough ideas.
+ - Linux is its own worst enemy: it’s splintered, it has different distributions, it’s too complex to run for most people.
+ - When we go to school, very often, we don’t see that passion because the way school is run, the disciplinary nature of it and the rote learning are so, sort of, offensive actually, that children sort of lose that passion more often than not.
+ - Every child in Uruguay has a little green laptop.
+ - But just as elevators have changed the shape of buildings and cars have changed the shape of cities, bits will change the shape of organizations, be they companies, nations, or social structures.
+ - There is a belief that children drop out of school because they’re needed by their families to work, or the little girls are needed to take care of younger siblings. It turns out that’s not really true.
+ - Most children in the world go to schools in two shifts, there’s a morning shift and an afternoon shift.
+ - The process of debugging, going an correcting the program and then looking at the behavior, and then correcting it again, and finally iteratively getting it to a working program, is in fact, very close to learning about learning.
+ - Young people, I happen to believe, are the world’s most precious natural resource.
+ - The laptop brings back a more seamless kind of learning.
+ - Computing is not about computers any more. It is about living.
+ - By the year 2000, most Americans will be online one way or another.
+ - I think life’s turning into an omelet and people will just have to live with that.
+ - Big companies are looking closer term, and even the most technological companies spend less than 1% of sales on research. Startups have suffered the burst bubble.
+ - I’m not good at selling laptops. I’m good at selling ideas.
+ - Even in the developing parts of the world, kids take to computers like fish to water.
+ - While a significant part of learning certain comes from teaching – but good teaching and by good teachers – a major measure comes from exploration, from reinventing the wheel and finding out for oneself.
+ - Remember that the military used wind-up radios for years.
+ - Juan Enriquez will change your view of change itself.
+ - The best way to guarantee a steady stream of new ideas is to make sure that each person in your organization is as different as possible from the others. Under these conditions, and only these conditions, will people maintain varied perspectives and demonstrate their knowledge in different ways.
+ - Machines need to talk easily to one another in order to better serve people.
+ - Scale will get you strategy.
+ - Google has a very powerful and new advertising model that, for them, prints money.
+ - You go to developing countries today and you’ll find automobiles that you haven’t seen since you’re childhood and that’s because they really are valuable, they’re taken care of, they’re repaired, and when something breaks, they just don’t buy a new one, they actually fix it.
+ - To compare books to computers, I mean, computers are the way to get books. That is the medium for distributing text because it doesn’t require paper.
+ - I’m not against paying at all. What I’m against is the complexity of paying. And you very often go to a website and you try to click on something and sometimes it will even say it’s free, but you have to fill out this form.
+ - It’s even hard for people to imagine today that telephones were wired, and they certainly were and you went to the end of a wire to make a phone call.
+ - My advice to graduates is to do anything except what you are trained for. Take that training to a place where it is out of place and stimulate ideas, shake up establishments, and don’t take no for an answer.
+ - The notion of collective contribution, like the Wikipedia, is a very powerful one.
+ - I grew up with free television. Now, it wasn’t free, there was these commercials, and so the economic model was driven through commercials and through advertising.
+ - When you meet a head of state, and you say, ‘What is your most precious natural resource?’ they will not say children at first, and then when you say, ‘children,’ they will pretty quickly agree with you.
+ - If you were to hire household staff to cook, clean, drive, stoke the fire, and answer the door, can you imagine suggesting that they not talk to each other, not see what each other is doing, not coordinate their functions?
+
+65 quotes

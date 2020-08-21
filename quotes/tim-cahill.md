@@ -1,0 +1,42 @@
+ - A journey is best measured in friends, not in miles.
+ - The explorer is the person who is lost.
+ - I take compliments and I take constructive criticism. Not everyone loves you. It’s the way you react as a footballer. I use it all to make me play better.
+ - You become a better writer by writing. You become a better travel writer by writing about travel.
+ - My idea of a vacation is staying home and doing short day hikes, floating the river and things like that.
+ - Mystery is a resource, like coal or gold, and its preservation is a fine thing.
+ - An adventure is never an adventure when it happens. An adventure is simply physical and emotional discomfort recollected in tranquility.
+ - New Orleans jazz is a complex and embracing art form that began about the same time as the blues and encompassed many of its excellences.
+ - No amount of money could make me play for Liverpool, that isn’t disrespect to Liverpool or their fans, it’s respect for Everton.
+ - The hard wind we get around here on the eastern slopes of the Rockies is called a Chinook. It’s a katabatic wind and comes from mountains to the west of us and the mountains to the south.
+ - It was Muddy Waters who took the Delta blues north to Chicago, electrified the sound, and changed the course of popular music as we know it. That’s pretty much the judgment of history, and it is mine as well.
+ - Healthier, perhaps, to find beauty in life and feel it expand inside of us.
+ - My first book was called ‘Buried Dreams,’ about a serial-killer, which was probably about ten years ahead of the serial-killer curve. It was a national bestseller, but it was three years of living in the sewer of this guy’s mind.
+ - In my life outdoors, I’ve observed that animals of almost any variety will stand in a windy place rather than in a protected, windless area infested with biting insects. They would rather be annoyed by the wind than bitten.
+ - The dirty little secret about adventure writing is that something has to go wrong.
+ - My problem with most athletic challenges is training. I’m lazy and find that workouts cut into my drinking time.
+ - The only use for a knife during a shark attack is pure treachery: Stab your buddy, swim like hell, and hope the munchies take him.
+ - My first real writing job was at ‘Rolling Stone,’ so I wrote about rock-and-roll and politics and the like. At the time, I really didn’t know what I wanted to write, and I did a bunch of investigative journalism.
+ - In the sago palms, you’ll often find sago beetles which are about the size of your little finger. The Karowai put those on the fire until they’re crispy and eat them. They taste a little bit like creamy snails. But compared to sago, the sago beetle is really pretty good.
+ - For me, Brett Emerton is the heart and soul of the Australian team. Him signing for Sydney FC, it has to be the biggest catch in the history of Australian football. He’s a machine and he’s probably the best pro I’ve ever trained and worked with.
+ - My concept of drama requires obstacles, and there’s no obstacles in comfort.
+ - The blues style – moody or rollicking or boastful or bashful – developed in the Delta around 1900 and was, for a time, exclusively African-American. That isn’t the case anymore.
+ - Publishing your work is important. Even if you are giving a piece to some smaller publication for free, you will learn something about your writing. The editor will say something, friends will mention it. You will learn.
+ - Stanley Kubrick went with his gut feeling: he directed ‘Dr. Strangelove’ as a black comedy. The film is routinely described as a masterpiece.
+ - There’s a story everywhere. Being bored to death someplace is basically a funny proposition. What you have to watch out for is you don’t write a boring story about a boring place.
+ - In my house, it is always a scramble from paycheck to paycheck.
+ - It’s often hilarious to me that I’m writing about Tonga or some tropical place and there’s a blizzard outside and the cows are on their backs with their hooves in the air.
+ - I am living out my adolescent dream of travel and adventure.
+ - The traces of our life here will lie cold and still, dreaming, like the brittle eyes of dolls in an abandoned cabin, and the last men will look to them for explanations, or apologies.
+ - Charlie Patton, who was born in 1891, recorded some of the very first blues. In ‘Pony Blues’ and ‘Peavine Blues,’ he manages to pile dense layers of rhythms one upon the other.
+ - Many people go into the wilderness to experience it, and if they experience it in comfort, there’s very little in a literary sense for them to write about.
+ - I write early in the morning. I just wake up whenever I feel awake and I have to be sitting and writing pretty soon after that. If I take too long to think about the impossibility of what I’m trying to, I’ll be defeated by it.
+ - I see many people trying to write well about the wilderness, and essentially failing. To me there are basically two aspects of a failed outdoor story. One is the phony epiphany on the mountain top.
+ - Adventure travel existed before I started, I just didn’t know it.
+ - You have to first be a writer and somebody who loves to write. If I couldn’t travel, I would still write.
+ - A constant ongoing joke among the people that I travel with is my absolutely hopeless sense of direction. I’m able to get lost a half an hour from camp. I don’t know how I do this.
+ - For me, to find a place that doesn’t have an organized tour going to it is becoming more and more difficult. A lot of times it involves danger of a political nature – places where the adventure-travel trips can’t go because they can’t get any liability insurance.
+ - The way one approaches a wilderness story is to fashion a quest – find something that you are truly interested in finding or discovering.
+ - I wanted to be a writer from my early teenage years, but I never told anyone. Writers, in my opinion, were god-like creatures, and to say I was striving to be a writer would be incredibly arrogant.
+ - Stanley Kubrick, I had been told, hates interviews. It’s hard to know what to expect of the man if you’ve only seen his films. One senses in those films painstaking craftsmanship, a furious intellect at work, a single-minded devotion.
+
+40 quotes

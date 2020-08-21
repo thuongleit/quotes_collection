@@ -1,0 +1,30 @@
+ - I was always looking outside myself for strength and confidence but it comes from within. It is there all the time.
+ - It is there all the time.
+ - Creative minds have always been known to survive any kind of bad training.
+ - In our dreams we can have our eggs cooked exactly how we want them, but we can’t eat them.
+ - The horrors of war, pale beside the loss of a mother.
+ - It is only when parental feelings are ineffective or too ambivalent or when the mother’s emotions are temporarily engaged elsewhere that children feel lost.
+ - We are aware only of the empty space in the forest, which only yesterday was filled with trees.
+ - If some longing goes unmet, don’t be astonished. We call that Life.
+ - Everything becomes so problematic because of basic faults: from a discontent with myself.
+ - My different personalities leave me in peace now.
+ - We are imprisoned in the realm of life, like a sailor on his tiny boat, on an infinite ocean.
+ - Sometimes the most beautiful thing is precisely the one that comes unexpectedly and unearned, hence something given truly as a present.
+ - Who promised you that only for joy were you brought to this earth?
+ - How can one know anything at all about people?
+ - I am no longer afraid to say anything.
+ - I am glad that I do not have any children.
+ - Children usually do not blame themselves for getting lost.
+ - We live trapped, between the churned-up and examined past and a future that waits for our work.
+ - Create around one at least a small circle where matters are arranged as one wants them to be.
+ - How one can live without being able to judge oneself, criticize what one has accomplished, and still enjoy what one does, is unimaginable to me.
+ - Why do we go around acting as though everything was friendship and reliability when basically everything everywhere is full of sudden hate and ugliness?
+ - Papa always makes it clear that he would like to know me as much more rational and lucid than the girls and women he gets to know during his analytic hours.
+ - If I have a stupid day, everything looks wrong to me.
+ - The selection of leadership must follow practical considerations. Maybe I look at things too pessimistically?
+ - Things are not as we would like them to be. There is only one way to deal with it, namely to try and be all right oneself.
+ - A first visit to a madhouse is always a shock.
+ - Papa continually emphasizes how much remains unexplained. With the other psychoanalytic writers, everything is always so known and fixed.
+ - What I have always wanted for myself is much more primitive. It is probably nothing more than the affection of the people with whom I am in contact, and their good opinion of me.
+
+28 quotes

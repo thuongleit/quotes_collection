@@ -1,0 +1,31 @@
+ - Only barbarians are not curious about where they come from, how they came to be where they are, where they appear to be going, whether they wish to go there, and if so, why, and if not, why not.
+ - The fundamental sense of freedom is freedom from chains, from imprisonment, from enslavement by others. The rest is extension of this sense, or else metaphor.
+ - Freedom for the wolves has often meant death to the sheep.
+ - The intellectual power, honesty, lucidity, courage, and disinterested love of the truth of the most gifted thinkers of the eighteenth century remain to this day without parallel. Their age is one of the best and most hopeful episodes in the life of mankind.
+ - But to manipulate men, to propel them toward goals which you-the social reformers-see, but they may not, is to deny their human essence, to treat them as objects without wills of their own, and therefore to degrade them.
+ - Both liberty and equality are among the primary goals pursued by human beings throughout many centuries; but total liberty for wolves is death to the lambs, total liberty of the powerful, the gifted, is not compatible with the rights to a decent existence of the weak and the less gifted.
+ - We are doomed to choose and every choice may entail irreparable loss.
+ - The trouble with academics and commentators is that they care more about whether ideas are interesting than whether they are true.
+ - Liberty is liberty, not equality or fairness or justice or human happiness or a quiet conscience.
+ - Out of the crooked timber of humanity, nothing completely straight was ever made.
+ - The very desire for guarantees that our values are eternal and secure in some objective heaven is perhaps only a craving for the certainties of childhood or the absolute values of our primitive past.
+ - Utopias have their value – nothing so wonderfully expands the imaginative horizons of human potentialities – but as guides to conduct they can prove literally fatal.
+ - One must look at what impiety hates, what puts it in a rage, what it attacks always, everywhere, and with fury – that will be the truth.
+ - There is no a prior reason for supposing that the truth, when it is discovered, will necessarily prove interesting.
+ - Few new truths have ever won their way against the resistance of established ideas save by being overstated.
+ - When a man speaks of the need for realism one may be sure that this is always the prelude to some bloody deed.
+ - The underlying assumption that human nature is basically the same at all times, everywhere, and obeys eternal laws beyond human control, is a conception that only a handful of bold thinkers have dared to question.
+ - Life may be seen through many windows, none of them necessarily clear or opaque, less or more distorting than any of the others.
+ - No perfect solution is, not merely in practice, but in principle, possible in human affairs, and any determined attempt to produce it is likely to lead to suffering, disillusionment and failure.
+ - The case against the notion of historical objectivity is like the case against international law, or international morality; that it does not exist.
+ - All central beliefs on human matters spring from a personal predicament.
+ - Science cannot destroy the consciousness of freedom, without which there is no morality and no art, but it can refute it.
+ - The first people totalitarians destroy or silence are men of ideas and free minds.
+ - Those who have ever valued liberty for its own sake believed that to be free to choose, and not to be chosen for, is an unalienable ingredient in what makes human beings human.
+ - When one is engaged in a desperate defense of one’s world and its values, nothing can be given away, any breach in the walls might be fatal, every point must be defended to the death.
+ - The desire not to be impinged upon, to be left to oneself, has been the markof high civilisation both on the part of individuals and communities.
+ - True knowledge is knowledge of why things are as they are, and not merely what they are.
+ - The history of society is the history of the inventive labors that man alter man, alter his desires, habits, outlook, relationships both to other men and to physical nature, with which man is in perpetual physical and technological metabolism.
+ - Lenin could listen so intently that he exhausted the speaker.
+
+29 quotes

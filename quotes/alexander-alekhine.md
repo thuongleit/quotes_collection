@@ -1,0 +1,31 @@
+ - Play on both sides of the board is my favourite strategy.
+ - Chess is a matter of vanity.
+ - I study chess eight hours a day, on principle.
+ - During a chess tournament a master must envisage himself as a cross between an ascetic monk and a beast of prey.
+ - Psychology is the most important factor in chess.
+ - Chess is not only knowledge and logic.
+ - Deux fous gagnent toujours, mais trois fous, non!
+ - A lifetime in not enough to learn everything about chess.
+ - Young players expose themselves to grave risks when they blindly imitate the innovations of masters without themselves first checking all the details and consequences of these innovations.
+ - The purpose of human life and the sense of happiness is to give the maximum what the man is able to give.
+ - I do not play chess – I fight at chess. Therefore, I willingly combine the tactical with the strategic, the fantastic with the scientific, the combinative with the positional, and I aim to respond to the demands of each given position.
+ - During a Chess competition a Chessmaster should be a combination of a beast of prey and a monk.
+ - Combination is a soul of chess.
+ - In my opinion, a master is morally obliged to seize every sort of opportunity and to try to solve the problems of the position without fear of some simplifications.
+ - As a rule, so-called “positional” sacrifices are considered more difficult, and therefore more praise-worthy, than those which are based exclusively on an exact calculation of tactical possibilities.
+ - The infallible criterion by which to distinguish the true from the would-be strategist is the degree of originality of his conceptions. It makes little difference whether this originality is carried to excess, as was the case with Steinitz and Nimzowitsch.
+ - I consider chess an art, and accept all those responsibilities which art places upon its devotees.
+ - That which Steinitz gave to the theoretical aspect of the game when he was at his best is very remote to all out home-bred chess philosophers, but with his views on Morphy, whom he tries to discredit completely, it is of course impossible to agree.
+ - I have had to work long and hard to eradicate the dangerous delusion that, in a bad position, I could always, or nearly always, conjure up some unexpected combination to extricate me from my difficulties.
+ - I did not believe I was superior to him. Perhaps the chief reason for his defeat was the overestimation of his own powers arising out of his overwhelming victory in New York, 1927, and his underestimation of mine.
+ - When asked, -How is that you pick better moves than your opponents?, I responded: I’m very glad you asked me that, because, as it happens, there is a very simple answer. I think up my own moves, and I make my opponent think up his.
+ - You can become a big master in chess only if you see your mistakes and short-comings. Exactly the same as in life itself.
+ - Capablanca was snatched too early from the chess world. With his death we have lost a great chess genius, the like of whom we will never see again.
+ - I believe that true beauty of chess is more than enough to satisfy all possible demands.
+ - The fact that a player is very short of time is to my mind, as little to be considered as an excuse as, for instance, the statement of the law-breaker that he was drunk at the time he committed the crime.
+ - Chess, like other arts, must be practiced to be appreciated.
+ - Playing for complications is an extreme measure that a player should adopt only when he cannot find a clear and logical plan.
+ - Never before and never since have I seen – and I cannot even imagine, such an amazing rapidity of chess thinking that Capablanca possessed in 1913-14. In blitz games he gave all the St. Petersburg players odds of five minutes to one – and he won.
+ - The retreat of a minor piece to the back rank, where it cuts the lines of communication between the rooks, is permissable only in exceptional cases.
+
+29 quotes

@@ -1,0 +1,58 @@
+ - The kingdom of God is a glorious and gigantic party!
+ - Your past is important but it is not nearly as important to your present as the way you see your future.
+ - Our call is to be God’s agents, to rescue not only the human race but the whole of creation.
+ - There’s nothing wrong with making a lot of money, there’s something wrong with keeping it.
+ - Grandchildren are God’s reward for not killing your kids.
+ - I don’t know how your theology works, but if Jesus has a choice between stained glass windows and feeding starving kids in Haiti, I have a feeling he’d choose the starving kids in Haiti.
+ - Jesus is the only Savior, but not everybody who is saved by Him is aware that He is the one who is doing the saving.
+ - I do not mean that others represent Jesus for us. I mean that Jesus actually is present in each other person.
+ - When you listen to Christian radio stations – and there are thousands of them now in the United States – and when you listen to Christian television networks – and there are thousands of Christian television shows across the country – they are all politically right.
+ - Don’t be satisfied with just pumping blood.
+ - Often, we ignore the fact that our spiritual condition and psychological state of mind are highly affected by what is happening to us physically. Sometimes depression is simply the result of exhaustion.
+ - That’s what they do in Europe. You go down to the city hall and you become legally connected. You have a civil union there. Then, if you’re religious, you go down to the church, and the church blesses the union. That gets the problem solved.
+ - Rise up, you suckers, and go out and do the work of Jesus!
+ - One of the most startling discoveries of my life was the realization that the Jesus that I love, the Jesus who died for me on Calvary, that Jesus, is waiting, mystically and wonderfully, in every person I meet. I find Jesus everywhere.
+ - Even if there were no heaven and there were no hell, would you still follow Jesus? Would you follow him for the life, joy and fulfilment he gives you right now?
+ - I’ve always been skeptical of those television healers who are bald. If I had that gift, that’d be the first thing I’d fix.
+ - If we were to set out to establish a religion in polar opposition to the Beatitudes Jesus taught, it would look strikingly similar to the pop Christianity that has taken over the airwaves of North America.
+ - There is a gift of the Holy Spirit that is given to both men and women in the New Testament. This is what makes the New Testament a New Testament rather than the Old Testament, in which women did not have such privileges.
+ - Certain things happened in the early church. Women who had never had any freedom suddenly have the ability to stand up and speak and be treated as equals within the life of the church.
+ - Like most Christians, I believe the Genesis account of creation is a description of six different stages of creation, each of which may have taken eons of time.
+ - That a new humanity will be brought forth from this Christ consciousness in each person.
+ - The real problem that I think those of us who are evangelicals and Democrats have to face up to is that the political right controls the religious media.
+ - If fulfillment is gained through giving ourselves through intimate relationships, then allowing ourselves to be consumed with the cares of things, instead of the care of persons, is foolish.
+ - Artists are the best theologians. They feel things that are true before theologians can jargonize them into obscurity.
+ - I’m not convinced that Jesus only lives in Christians.
+ - Evangelicals need to take a good look at what their issues are. Are they really being faithful to Jesus? Are they being faithful to the Bible?
+ - It is hard to say what the future holds, but this is probable – it won’t be just like the past.
+ - Getting the government to put money into social programs run by religious institutions is a practice that started during the Clinton years, when Bill Clinton advocated the AmeriCorps program.
+ - Anyone who resists the notion of women preachers is functioning as a tool of the devil.
+ - Sigmund Freud was the apostle of disbelief. He was the one who made psychoanalysis a part of our culture, and in so doing he kicked out a flying buttress that had been essential for holding up our cathedral of faith.
+ - The first reason for the preponderant influence of those Evangelicals who define themselves as advocates of Religious Right theological and political ideologies is that they have both the financial means and technological know-how to make widespread use of modern electronic forms of communication.
+ - I don’t know what to make of the Muslim mystics, especially those who have come to be known as the Sufis. What do they experience in their mystic experiences? Could they have encountered the same God we do in our Christian mysticism?
+ - Women have the same privileges and opportunities as men, given the New Testament.
+ - And we’ve got to ask ourselves some very serious questions as to whether or not certain religious leaders, in terms of raising money – I hate to bring this up – are pushing hot buttons.
+ - I think it goes back to the fact that the evangelical community often does not have a biblical vision of God.
+ - If marriage really is a sacred institution, then why is the government controlling it, especially in a nation that affirms separation of church and state?
+ - I’ve got some repenting to do.
+ - But isn’t it time for Christians to admit that we should reject bargains if they are gained by the exploitation of the poorest of the poor in developing countries?
+ - We must not be so concerned with the unborn that we fail to pay attention to the born.
+ - I am saying that there is no salvation apart from Jesus; that’s my evangelical mindset. However, I am not convinced that Jesus only lives in Christians.
+ - So I really would like to see both parties respond to the poor with greater commitment. But I’ve got to tell you, the Democrats, I feel, are doing a better job in that respect than Republicans are.
+ - What I am trying to say is that Jesus who incarnated God 2,000 years ago is mystically present and waiting to be discovered in EVERY person you and I encounter.
+ - Today, some of the most spiritual people I know claim to be without religion.
+ - Most Evangelicals claim to be politically non-partisan, and say they only identify with the Republican Party because the Republicans are committed to ’family values.
+ - A strong case can be made for religious leaders to speak out on political issues.
+ - I am not suggesting that all those missionary organizations working in Haiti should pack up and go home, but I am urging them to understand that Haiti does not need clever Americans with newly contrived schemes for saving their country.
+ - An evangelical is somebody who, first of all, has a very high view of Scripture, believes it’s an infallible message from God.
+ - Christianity isn’t the only group that has fundamentalists.
+ - But I think it’s up to a local congregation to determine whether or not a marriage should be blessed of God. And it shouldn’t be up to the government.
+ - Rituals keep us from forgetting what must not be forgotten and keep us rooted in a past from which we must not be disconnected.
+ - I contend that Bush would be a lot more moderate if there weren’t some fundamentalists breathing down his neck every time he wants to establish the state of Israel, every time he wants to do justice for the Palestinian people.
+ - Clinton’s successor in the White House, George W. Bush, was committed to expanding government spending for faith-based initiatives.
+ - A person is as young as their dreams and as old as their cynicism.
+ - It has been said that people never do evil with more enthusiasm than when they do it in the name of God.
+ - When you talk about evangelicals, don’t forget that a significant proportion of the evangelical community is African American. And most African Americans – well over 90 percent, thoroughly evangelical, thoroughly biblical – will probably vote Democratic.
+ - If being human requires freedom, then enslavement to the cares of this world is dehumanizing.
+
+56 quotes

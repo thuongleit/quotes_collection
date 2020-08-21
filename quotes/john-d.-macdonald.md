@@ -1,0 +1,29 @@
+ - If the cards are stacked against you, reshuffle the deck.
+ - Integrity is not a conditional word. It doesn’t blow in the wind or change with the weather. It is your inner image of yourself, and if you look in there and see a man who won’t cheat, then you know he never will.
+ - We were about to give up and call it a night when somebody threw the girl off the bridge.
+ - Now it stands to reason, mister, any damn fool stares into the sun long enough, he’ll end up seeing exactly what some other damn fool tells him he’s going to see.
+ - The only thing in the world worth a damn is the strange, touching, pathetic, awesome nobility of the individual human spirit.
+ - The only thing that prisons demonstrably cure is heterosexuality.
+ - If you would be thrilled by watching the galloping advance of a major glacier, you’d be ecstatic watching changes in publishing.
+ - You have to start knowing yourself so well that you begin to know other people. A piece of us is in every person we can ever meet.
+ - Being an adult means accepting those situations where no action is possible.
+ - People cannot endure inexplicable worthlessness.
+ - I am not suited to the role of going around selling the life-can-be-beautiful idea. It can be, indeed. But you don’t buy the concept from your friendly door-to-door lecture salesman.
+ - Friendships like marriages are dependent on avoiding the unforgivable.
+ - It’s no good telling somebody they’re trying too hard. It’s very much like ordering a child to go stand in a corner for a half hour and never once think about elephants.
+ - Up with life. Stamp out all small and large indignities. Leave everyone alone to make it without pressure. Down with hurting. Lower the standard of living. Do without plastics. Smash the servo-mechanisms. Stop grabbing. Snuff the breeze and hug the kids. Love all love. Hate all hate.
+ - At times it seems as if arranging to have no commitment of any kind to anyone would be a special freedom. But in fact the whole idea works in reverse. The most deadly commitment of all is to be committed only to one’s self. Some come to realize this after they are in the nursing home.
+ - To enjoy enduring success we should travel a little in advance of the world.
+ - I want story, wit, music, wryness, color, and a sense of reality in what I read, and I try to get it in what I write.
+ - A man with a credit card is in hock to his own image of himself.
+ - All thinking is done with the glands. Logic is added later to tidy things up.
+ - In the morning I’m often anti-semantic.
+ - When you see the ugliness behind the tears of another person, it makes you take a closer look at your own.
+ - My purpose is to entertain myself first and other people secondly.
+ - I am wary of the whole dreary deadening structured mess that we have built into such a glittering top-heavy structure that there is nothing left to see but the glitter, and the brute routines of maintaining it.
+ - We have been endowed with the capacity and the power to create desirable pictures within and to find them automatically in the outer world of our environment.
+ - A nonreader is somebody standing there in a blindfold.
+ - Now each one of us, black or white, is a symbol. The war is out in the open and the skin color is a uniform. All the deep and basic similarities of the human condition are forgotten so that we can exaggerate the few differences that exist.
+ - Way over half the murders committed in this country are by close friends or relatives of the deceased. A gun makes a loud and satisfying noise in a moment of passion and requires no agility and very little strength. How many murders wouldn’t happen, if they all had to use hammers and knives?
+
+27 quotes

@@ -1,0 +1,80 @@
+ - Some of these things are true and some of them lies. But they are all good stories.
+ - You’re only young once, they say, but doesn’t it go on for a long time? More years than you can bear.
+ - In my 20s I was in constant pain from undiagnosed endometriosis. With no prospect of a cure, I decided I needed a career – writing – that could accommodate being ill.
+ - History is always changing behind us, and the past changes a little every time we retell it.
+ - Over the city lies the sweet, rotting odor of yesterday’s unrecollected sins.
+ - The things you think are the disasters in your life are not the disasters really. Almost anything can be turned around: out of every ditch, a path, if you can only see it.
+ - For what’s the point of breeding children, if each generation does not improve on what went before.
+ - For myself, the only way I know how to make a book is to construct it like a collage: a bit of dialogue here, a scrap of narrative, an isolated description of a common object, an elaborate running metaphor which threads between the sequences and holds different narrative lines together.
+ - If you have a good story idea, don’t assume it must form a prose narrative. It may work better as a play, a screenplay or a poem. Be flexible.
+ - It is all very well planning what you will do in six months, what you will do in a year, but it’s no good at all if you don’t have a plan for tomorrow.
+ - A novel should be a book of questions, not a book of answers.
+ - You don’t get on by being original. You don’t get on by being bright. You don’t get on by being strong. You get on by being a subtle crook.
+ - At New Year’s he had given Anne a present of silver forks with handles of rock crystal. He hopes she will use them to eat with, not to stick in people.
+ - I am usually protective of my work, not showing it to anyone until it has been redrafted and polished.
+ - History is a set of skills rather than a narrative.
+ - Imagination only comes when you privilege the subconscious, when you make delay and procrastination work for you.
+ - Insight cannot be taken back. You cannot return to the moment you were in before.
+ - Once you’re labeled as mentally ill, and that’s in your medical notes, then anything you say can be discounted as an artefact of your mental illness.
+ - Like a historian, I interpret, select, discard, shape, simplify. Unlike a historian, I make up people’s thoughts.
+ - But an experienced reader is also a self-aware and critical reader. I can’t remember ever reading a story without judging it.
+ - I used to think that when I set out that doing the research was enough! But then the gaps would emerge that could only be filled by the imagination. And imagination only comes when you privilege the subconscious, when you make delay and procrastination work for you.
+ - Write a book you’d like to read. If you wouldn’t read it, why would anybody else? Don’t write for a perceived audience or market. It may well have vanished by the time your book’s ready.
+ - Like every writer, I’m drawn by unlikely juxtapositions, precisely-dated and once-only collisions between people from different worlds.
+ - I’m one of these children who grew up at the knee of my grandmother and her elder sister, listening to very old people talk about their memories.
+ - Those who are made can be unmade.
+ - You learn nothing about men by snubbing them and crushing their pride. You must ask them what it is they can do in this world, that they alone can do.
+ - A statute is written to entrap meaning, a poem to escape it.
+ - It is the absence of facts that frightens people: the gap you open, into which they pour their fears, fantasies, desires.
+ - Why are we so attached to the severities of the past? Why are we so proud of having endured our fathers and our mothers, the fireless days and the meatless days, the cold winters and the sharp tongues? It’s not as if we had a choice.
+ - Busyness, I feel increasingly, is the writer’s curse and downfall. You read too much and write too readily, you become cut off from your inner life, from the flow of your own thoughts, and turned far too much towards the outside world.
+ - He thinks, I remembered you, Thomas More, but you didn’t remember me. You never even saw me coming.
+ - When I was thin, I had no notion of what being fat is like. When I worked in a department store, I had sold clothes to women of most sizes, so I should have known; but perhaps you have to experience the state from the inside, to understand what fat is like.
+ - God takes out your heart of flesh, and gives you a heart of stone.
+ - I think it took me half a page of ‘Wolf Hall’ to think: ‘This is the novel I should have been writing all along.’
+ - It is better not to try people, not to force them to desperation. Make them prosper; out of superfluidity, they will be generous. Full bellies breed gentle manners. The pinch of famine makes monsters.
+ - When you are writing laws you are testing words to find their utmost power. Like spells, they have to make things happen in the real world, and like spells, they only work if people believe in them.
+ - Insights don’t usually arrive at my desk, but go into notebooks when I’m on the move. Or half-asleep.
+ - History offers us vicarious experience. It allows the youngest student to possess the ground equally with his elders; without a knowledge of history to give him a context for present events, he is at the mercy of every social misdiagnosis handed to him.
+ - My first career ambitions involved turning into a boy; I intended to be either a railway guard or a knight errant.
+ - Beneath every history, another history.
+ - As a writer, you owe it to yourself not to get stuck in a rut of looking at the world in a certain way.
+ - It is almost a joke, but a joke that nobody tells.
+ - I once stole a book. It was really just the once, and at the time I called it borrowing. It was 1970, and the book, I could see by its lack of date stamps, had been lying unappreciated on the shelves of my convent school library since its publication in 1945.
+ - I didn’t cry much after I was 35, but staggered stony-faced into middle age, a handkerchief still in my bag just in case.
+ - Fiction leaves us so much work to do, allows the individual so much input; you have to see, you have to hear, you have to taste the madeleine, and while you are seemingly passive in your chair, you have to travel.
+ - By the tits of Holy Agnes.
+ - Though I have never thought of myself as a book collector, there are shelves in our house browsed so often, on so many rainy winter nights, that the contents have seeped into me as if by osmosis.
+ - I would have been a disaster as a career politician. I would never have toed a party line.
+ - You can be merry with the king, you can share a joke with him. But as Thomas More used to say, it’s like sporting with a tamed lion. You tousle its mane and pull its ears, but all the time you’re thinking, those claws, those claws, those claws.
+ - You can have a silence full of words. A lute retains, in its bowl, the notes it has played. The viol, in its strings, holds a concord. A shriveled petal can hold its scent, a prayer can rattle with curses; an empty house, when the owners have gone out, can still be loud with ghosts.
+ - Fear of commitment lies behind the fear of writing.
+ - I think I would have been a reasonably good lawyer. I have a faculty for making sense of mountains of information.
+ - So many years of preparation, for what was called adult life: was it for this?
+ - Truth can break the gates down, truth can howl in the street; unless truth is pleasing, personable and easy to like, she is condemned to stay whimpering at the back door.
+ - Memory isn’t a theme; it’s part of the human condition.
+ - It follows that if you are not a mother you are not a grandmother. Your life has become unpunctuated, whereas the lives of other women around you have these distinct phases.
+ - When you have committed enough words to paper, you feel you have a spine stiff enough to stand up in the wind. But when you stop writing, you find that’s all you are – a spine, a row of rattling vertebrae, dried out like an old quill pen.
+ - The word ‘however’ is like an imp coiled beneath your chair. It induces ink to form words you have not yet seen, and lines to march across the page and overshoot the margin. There are no endings. If you think so you are deceived as to their nature. They are all beginnings. Here is one.
+ - I dislike pastiche; it attracts attention to the language only.
+ - Sometimes peace looks like war, you cannot tell them apart.
+ - Hindsight is the historian’s necessary vice.
+ - When narratives fracture, when words fail, I take consolation from the part of my life that always works: the stationery order. The mail-order stationery people supply every need from royal blue Quink to a dazzling variety of portable hard drives.
+ - I’ve got so many ideas, and sometimes the more exhausted my body gets, the more active my mind gets.
+ - Fiction isn’t made by scraping the bones of topicality for the last shreds and sinews, to be processed into mechanically recovered prose. Like journalism, it deals in ideas as well as facts, but also in metaphors, symbols and myths.
+ - For many imaginative writers, working for the press is a fact of their life. But it’s best not to like it too much.
+ - Feminism hasn’t failed, it’s just never been tried.
+ - I am very happy in second-hand bookshops; would a gardener not be happy in a garden?
+ - This was an idea peculiar to Camille, Maximilien thought, that the worse things get, the better they get. No one else seems to think this way.
+ - Much historical fiction that centers on real people has always been deficient in information, lacking in craft and empty in affect.
+ - I spend a lot of my time talking to the dead, but since I get paid for it, no one thinks I’m mad.
+ - I only became a novelist because I thought I had missed my chance to become a historian.
+ - When I began to read as an adult, I read almost exclusively novelists of a generation back. I did the Russians, then I started getting more up to date. When you become published and become a reviewer, piles of books come along and you are pushed by fashion and what you are commissioned to do.
+ - For historians, creative writers provide a kind of pornography.
+ - As Danton sees it, the most bizarre aspect of Camille’s character is his desire to scribble over every blank surface; he sees a guileless piece of paper, virgin and harmless, and persecutes it till it is black with words, and then besmirches its sister, and so on, through the quire.
+ - Florence and Milan had given him ideas more flexible than those of people who’d stayed at home.
+ - You mustn’t stand about. Come home with me to dinner.’ ‘No.’ More shakes his head. ‘I would rather be blown around on the river and go home hungry. If I could trust you only to put food in my mouth – but you will put words into it.
+ - I’m a very organised and rational and linear thinker, and you have to stop all that to write a novel.
+ - You think you’re writing one historical novel and it turns into three, and I’m quite used to a short story turning into a novel – that’s happened through my whole career.
+
+78 quotes

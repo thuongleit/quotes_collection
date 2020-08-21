@@ -1,0 +1,107 @@
+ - Our relationships live in the space between us which is sacred.
+ - All journeys have secret destinations of which the traveler is unaware.
+ - Through the Thou a person becomes I.
+ - When two people relate to each other authentically and humanly, God is the electricity that surges between them.
+ - Nothing so tends to mask the face of God as religion; it can be a substitute for God himself.
+ - All real living is meeting.
+ - Real faith means holding ourselves open to the unconditional mystery which we encounter in every sphere of our life and which cannot be comprised in any formula. Real faith means the ability to endure life in the face of this mystery.
+ - Love is responsibility of an I for a You: in this consists what cannot consist in any feeling – the equality of all lovers...
+ - In spite of all similarities, every living situation has, like a newborn child, a new face, that has never been before and will never come again. It demands of you a reaction that cannot be prepared beforehand. It demands nothing of what is past. It demands presence, responsibility; it demands you.
+ - Human life and humanity come into being in genuine encounters. The hope for this hour depends upon the renewal of the immediacy of dialogue among human beings.
+ - In the beginning was the relationship.
+ - You can rake the muck this way, rake the muck that way – it will always be muck. Have I sinned or have I not sinned? In the time I am brooding over it, I could be stringing pearls for the delight of Heaven.
+ - We can be redeemed only to the extent to which we see ourselves.
+ - Every person born in this world represents something new, something that never existed before, something original and unique.
+ - There is something that can be found in one place. It is a great treasure which may be called the fulfillment of existence. The place where this treasure can be found is the place where one stands.
+ - One must be truly able to say I in order to know the mystery of the Thou in its whole truth.
+ - When people come to you for help, do not turn them off with pious words, saying, ‘Have faith and take your troubles to God.’ Act instead as though there were no God, as though there were only one person in the world who could help – only yourself.
+ - It is not the nature of the task, but its consecration, that is the vital thing.
+ - What you must do is love your neighbor as yourself. There is no one who knows your many faults better than you! But you love yourself notwithstanding. And so you must love your neighbor, no matter how many faults you see in him.
+ - How would man exist if God did not need him, and how would you exist? You need God in order to be, and God needs you – for that is the meaning of your life.
+ - The real struggle is not between East and West, or capitalism and communism, but between education and propaganda.
+ - No limits are set to the ascent of man, and to each and everyone the highest stands open. Here it is only your personal choice that decides.
+ - The I of the basic word I-Thou is different from that of the basic word I-It.
+ - Everyone has in him something precious that is in no one else.
+ - When a man has made peace within himself, he will be able to make peace in the whole world.
+ - Mundus vult decipi: the world wants to be deceived.
+ - The basic word I-Thou can be spoken only with one’s whole being. The concentration and fusion into a whole being can never be accomplished by me, can never be accomplished without me. I require a Thou to become; becoming I, I say Thou.
+ - The true meaning of love one’s neighbor is not that it is a command from God which we are to fulfill, but that through it and in it we meet God.
+ - To begin with oneself but not to end with onself. To start from oneself but not to aim at oneself.
+ - The atheist staring from his attic window is often nearer to God than the believer caught up in his own false image of God.
+ - Everything depends on inner change; when this has taken place, then, and only then does the world change.
+ - The world is not comprehensible, but it is embraceable: through the embracing of one of its beings.
+ - It pains me to speak of God in the third person.
+ - I think no human being can give more than this. Making life possible for the other, if only for a moment.
+ - The future stands in need of you in order to be born.
+ - What has to be given up is not the I, as most mystics suppose: this I is indispensable for any relationship, including the highest, which always presupposes an I and You.
+ - To love God truly, one must first love man. And if anyone tells you that he loves God and does not love his fellow-man, you will know that he is lying.
+ - As I actualize, I uncover.
+ - The beating heart of the universe is holy joy.
+ - There is no room for God in him who is full of himself.
+ - God is the “mysterium tremendum,” that appears and overthrows, but he is also the mystery of the self-evident, nearer to me than my I.
+ - One cannot in the nature of things expect a little tree that has been turned into a club to put forth leaves.
+ - To look away from the world, or to stare at it, does not help a man to reach God; but he who sees the world in Him stands in His presence.
+ - If you want to raise a man from mud and filth, do not think it is enough to stay on top and reach a helping hand down to him. You must go all the way down yourself, down into mud and filth. Then take hold of him with strong hands and pull him and yourself out into the light.
+ - To be old can be glorious if one has not unlearned how to begin.
+ - We should also pray for the wicked among the peoples of the world; we should love them too.
+ - What is it that is eternal: the primal phenomenon, present in the here and now, of what we call revelation? It is man’s emerging from the moment of the supreme encounter, being no longer the same as he was when entering into it.
+ - He who loves brings God and the World together.
+ - God dwells wherever man lets Him in.
+ - Nothing can doom man but the belief in doom, for this prevents the movement of return.
+ - Freedom and destiny are solemnly promised to one another and linked together in meaning.
+ - We can learn to be whole by saying what we mean and doing what we say.
+ - Everyone must come out of his Exile in his own way.
+ - We should stake our whole existence on our willingness to explore and experience.
+ - Creation is not a hurdle on the road to God, it is the road itself.
+ - Dialogic is not to be identified with love. But love without dialogic, without real outgoing to the other, reaching to the other, the love remaining with itself – this is called Lucifer.
+ - God made so many different kinds of people; why would God allow only one way to worship?
+ - Meet the world with the fullness of your being, and you shall meet God. Of you wish to believe, love.
+ - In the ice of solitude man becomes most inexorably a question to himself, and just because the question pitilessly summons and draws into play his most secret life he becomes an experience to himself.
+ - If we had the power over the ends of the earth, it would not give us that fulfillment of existence which a quiet devoted relationship to nearby life can give us.
+ - To produce is to draw forth, to invent is to find, to shape is to discover...
+ - When a man grows aware of a new way in which to serve God, he should carry it around with him secretly, and without uttering it, for nine months, as though he were pregnant with it, and let others know of it only at the end of that time, as though it were a birth.
+ - When I meet a man, I am not concerned about his opinions. I am concerned about the man.
+ - Feeling one “has”; love occurs.
+ - The historical religions have the tendency to become ends in themselves, and, as it were, to put themselves in God’s place, and, in fact, there is nothing that is so apt to obscure God’s face as a religion.
+ - Without being and remaining oneself, there is no love.
+ - The ones who count are those persons who – though they may be of little renown – respond to and are responsible for the continuation of the living spirit.
+ - Persons appear by entering into relation to other persons.
+ - You should carefully observe the way toward which your heart draws you, then choose this way with all your strength.
+ - If a person kills a tree before its time, it is like having murdered a soul.-Rabbi Nachman.
+ - An animal’s eyes have the power to speak a great language.
+ - The world is not divine sport, it is divine destiny. There is a divine meaning of the world, of man, of human persons, of you and me.
+ - Eclipse of the light of heaven, eclipse of God – such indeed is the character of the historic hour through which the world is now passing.
+ - Inscrutably involved, we live in the currents of universal reciprocity.
+ - One who truly meets the world goes out also to God.
+ - There are people of spirit and there are people of passion, both less common than one might think. Rarer still are the people of spirit and passion. But rarest of all is a passionable spirit.
+ - We may listen to our inner self-and still not know which ocean we hear roaring.
+ - No purpose intervenes between I and You, no greed and no anticipation; and longing itself is changed as it plunges from the dream into appearance. Every means is an obstacle. Only where all means have disintegrated encounters occur.
+ - As long as the firmament of the You is spread over me, the tempests of causality cower at my heels, and whirl of doom congeals.
+ - I’m not sure I can take your advice. You are dealing with English Gentlemen. We are dealing with monsters.
+ - I don’t like religion much, and I am glad that in the Bible the word is not to be found.
+ - I shall teach you the best way to say Torah. You must cease to be aware of yourselves. You must be nothing but an ear that hears what the universe of the word is constantly saying within you. The moment you start hearing what you yourself are saying, YOU must stop.
+ - Every man’s foremost task is the actualization of his unique, unprecedented and never-recurring potentialities, and not the repetition of something that another, and be it even the greatest, has already achieved.
+ - The perfection of any matter, the highest or the lowest, touches on the divine.
+ - This is the eternal origin of art that a human being confronts a form that wants to become a work through him. Not a figment of his soul but something that appears to the soul and demands the soul’s creative power. What is required is a deed that a man does with his whole being...
+ - Read the Bible as though it were something entirely unfamiliar, as though it had not been set before you ready-made. Face the book with a new attitude as something new.
+ - So long as you “have” yourself, have yourself as an object, your experience of man is only as of a thing among things.
+ - What has to be given up is not the I, but that drive for self-affirmation which impels man to flee from the unreliable, unsolid, unlasting, unpredictable, dangerous world of relation into the having of things.
+ - The tradition of the camp fire faces that of the pyramid.
+ - To him who knows how to read the legend, it conveys more truth than the chronicle.
+ - One need ask only ‘What for? What am I to unify my being for?’ The reply is: Not for my own sake.
+ - Power abdicates only under stress of counter-power.
+ - The prophet is appointed to oppose the kind, and even more: history.
+ - All names of God remain hallowed because they have been used not only to speak of God but also to speak to him.
+ - The work produced is a thing among things, able to be experienced and described as a sum of qualities. But from time to time it can face the receptive beholder in its whole embodied form.
+ - The salvation of man does not lie in his holding himself far removed from the worldly, but in consecrating it to holy, to divine meaning.
+ - Creation happens to us, burns into us, changes us, we tremble and swoon, we submit. Creation – we participate in it, we encounter the creator, offer ourselves to him, helpers and companions.
+ - This is the sacrifice: the endless possibility that is offered up on the altar of the form...
+ - Everything is full of sacramental substance, everything. Each thing and each function is ever ready to light up into a sacrament.
+ - This is the risk: the primary word can only be spoken with the whole being. He who gives himself to it may withhold nothing of himself.
+ - For sin is just this, what man cannot by its very nature do with his whole being; it is possible to silence the conflict in the soul, but it is not possible to uproot it.
+ - Jedes geeinzelte Du ist ein Durchblick zu ihm. Durch jedes geeinzelte Du spricht das Grundwort das Ewige an. Every particularThou is a glimpse through to the eternal Thou; by means of every particularThou the primary word addresses the eternal Thou. 164.
+ - All actual life is encounter.
+ - And if there were a devil it would not be one who decided against God, but one who, in eternity, came to no decision.
+ - God cannot be seen, but He can listened to and spoken to!
+
+105 quotes

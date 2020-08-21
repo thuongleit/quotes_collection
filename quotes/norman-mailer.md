@@ -1,0 +1,189 @@
+ - There was that law of life, so cruel and so just, that one must grow or else pay more for remaining the same.
+ - You never do find out what makes you tick, and after a while it’s unimportant.
+ - Reaching consensus in a group is often confused with finding the right answer.
+ - Being a real writer means being able to do the work on a bad day.
+ - Because there is very little honor left in American life, there is a certain built-in tendency to destroy masculinity in American men.
+ - There is a no man’s land between sex and love, and it alters in the night.
+ - People who are greedy have extraordinary capacities for waste-they must, they take in too much.
+ - We didn’t win the Cold War, we were just a big bank that bankrupted a smaller bank because we had an arms race that wiped the Russians out.
+ - Existentialism is the kind of philosophy that makes for legendary children.
+ - Los Angeles is a constellation of plastic.
+ - I don’t hate women, but I think they should be kept in cages.
+ - The highest prize in a world of men is the most beautiful woman available on your arm and living there in her heart loyal to you.
+ - I hate everything which is not in myself.
+ - I don’t think life is absurd. I think we are all here for a huge purpose. I think we shrink from the immensity of the purpose we are here for.
+ - Writing books is the closest men ever come to childbearing.
+ - The mark of mediocrity is to look for precedent.
+ - There is no greater impotence in all the world like knowing you are right and that the wave of the world is wrong, yet the wave crashes upon you.
+ - No physical activity is so vain as boxing. A man gets into the ring to attract admiration. In no sport, therefore, can you be more humiliated.
+ - With the pride of the artist, you must blow against the walls of every power that exists the small trumpet of your defiance.
+ - There is nothing safe about sex. There never will be.
+ - I was now at a university in New York, a professor of existential psychology with the not inconsiderable thesis that magic, dread, and the perception of death were the roots of motivation.
+ - Any workout which does not involve a certain minimum of danger or responsibility does not improve the body – it just wears it out.
+ - Revolutions are the periods of history when individuals count most.
+ - Writer’s block is only a failure of the ego.
+ - I was thinking that surgeons had to be the happiest people on earth. To cut people up and get paid for it-that’s happiness, I told myself.
+ - Tough guys don’t dance. You had better believe it.
+ - Alimony is the curse of the writing class.
+ - Sex is not only a divine and beautiful activity; it’s a murderous activity. People kill each other in bed. Some of the greatest crimes ever committed were committed in bed. And no weapons were used.
+ - For what does it mean to be a hero? It requires you to be prepared to deal with forces larger than yourself.
+ - If God is all good, then He is not all powerful. If God is all powerful, then He is not all good. I am a disbeliever is the omnipotence of God because of the Holocaust. But for 35 years, I have been believing that He is doing the best he can.
+ - You don’t know a woman until you’ve met her in court.
+ - No heart is so hard as the timid heart.
+ - Masculinity is not something given to you, but something you gain. And you gain it by winning small battles with honor.
+ - Harsh words live in the dungeon of the heart.
+ - The night before I left Las Vegas I walked out in the desert to look at the moon. There was a jeweled city on the horizon, spires rising in the night, but the jewels were diadems of electric and the spires were the neon of signs ten stories high.
+ - Television is coitus interruptus brought into aesthetics.
+ - Boredom slays more of existence than war.
+ - Chicago is the great American city, New York is one of the capitals of the world, and Los Angeles is a constellation of plastic; San Francisco is a lady.
+ - Sentimentality is the emotional promiscuity of those who have no sentiment.
+ - The paradox is that no love can prove so intense as the love of two narcissists for each other.
+ - Women think of being a man as a gift. It is a duty. Even making love can be a duty. A man has always got to get it up, and love isn’t always enough.
+ - Every moment of one’s existence one is growing into more or retreating into less. One is always living a little more or dying a little bit.
+ - I did like Robert Vavra’s book not only for its so very good photographs but for the text as well. He’s no ordinary fellow, obviously...
+ - Prevarication, like honesty, is reflexive, and soon becomes a sturdy habit, as reliable as truth.
+ - Love asks us that we be a little braver than is comfortable, a little more generous, a little more flexible. It means living on the edge more than we care to.
+ - Love was love, one could find it with anyone, one could find it anywhere. It was just that you could never keep it. Not unless you were ready to die for it.
+ - Obsession is the single most wasteful human activity, because with an obsession you keep coming back and back and back to the same question and never get an answer.
+ - The desire for success lubricates secret prostitution in the soul.
+ - The horror of the Twentieth Century was the size of each new event, and the paucity of its reverberation.
+ - The difference between writing a book and being on television is the difference between conceiving a child and having a baby made in a test tube.
+ - Hip is the sophistication of the wise primitive in a giant jungle.
+ - You have the right to speak your mind.
+ - The final purpose of art is to intensify, even, if necessary, to exacerbate, the moral consciousness of people.
+ - We think of Marilyn who was every man’s love affair with America. Marilyn Monroe who was blonde and beautiful and had a sweet little rinky-dink of a voice and all the cleanliness of all the clean American backyards.
+ - One thing I’ve learned in all these years is not to make love when you really don’t feel it; there’s probably nothing worse you can do to yourself than that.
+ - Somewhere, something incredible happened in history – the wrong guys won.
+ - A democracy depends upon people getting brighter all the time. Democracies are delicate. They’re not just ipso facto and just go on and on.
+ - The war between being and nothingness is the underlying illness of the twentieth century. Boredom slays more of existence than war.
+ - Along with all else, Sandman is a comic strip for intellectuals, and I say it’s about time.
+ - There are two kinds of brave men: those who are brave by the grace of nature, and those who are brave by an act of will.
+ - Cancer is the growth of madness denied.
+ - The private terror of the liberal spirit is invariably suicide, not murder.
+ - God is a creator, not a law giver.
+ - In America few people will trust you unless you are irreverent.
+ - Once a newspaper touches a story, the facts are lost forever, even to the protagonists.
+ - Writing can wreck your body. You sit there on the chair hour after hour and sweat your guts out to get a few words.
+ - Giving a camera to Diane Arbus is like putting a live grenade in the hands of a child.
+ - In such places as Greenwich Village, a menage-a-trois was completed- the bohemian and the juvenile delinquent came face-to-face with the Negro, and the hipster was a fact in American life.
+ - Crude thoughts and fierce forces are my state. I do not know who I am. Nor what I was. I cannot hear a sound. Pain is near that will be like no pain felt before.
+ - I had a quick grasp of the secret to sanity, it had become the ability to hold the maximum of impossible combinations in one’s mind.
+ - I don’t trust a man who uses the word evil eighteen times in ten minutes. If you’re half evil, nothing soothes you more than to think the person you are opposed to is totally evil.
+ - There’s a subterranean impetus towards pornography so powerful that half the business world is juiced by the sort of half sex that one finds in advertisements.
+ - Love is simple to understand if you haven’t got a mind soft and full of holes. It’s a crutch, that’s all, and there isn’t any one of us that doesn’t need a crutch.
+ - Great sex is apocalyptic. There is no such thing as great sex unless you have an apocalyptic moment.
+ - We have an absolute right in a democracy to argue about a war.
+ - Simple narcissism gives the power of beasts to politicians, professional wrestlers and female movie stars.
+ - Murder offers the promise of vast relief. It is never unsexual.
+ - America is a hurricane, and the only people who do not hear the sound are those fortunate if incredibly stupid and smug White Protestants who live in the center, in the serene eye of the big wind.
+ - It all comes down to who does the dishes.
+ - Ultimately a hero is a man who would argue with the gods, and so awakens devils to contest his vision. The more a man can achieve, the more he may be certain that the devil will inhabit a part of his creation.
+ - We love those who can lead us to a place we will never reach without them.
+ - The sole virtue of losing your short-term memory is that it does free you to be your own editor.
+ - We’re all divided souls, we’ve got two natures in us, You measure schizophrenia not by the fact that you’re divided but how well the divisions speak to one another.
+ - Movies are more likely than literature to reach deep feelings in people.
+ - Faction is that hybrid of documented fact and novelistic elaboration.
+ - The sense of a long last night over civilization is back again; it has perhaps not been here so intensely in thirty years, not since the Nazis were prospering, but it is coming back.
+ - I guess all that’s left is to love the fire.
+ - I am convinced the most unfortunate people are those who would make an art of love. It sours other effort. Of all artists, they are certainly the most wretched.
+ - Over-certified adjectives are the mark of most best-seller writing.
+ - The nightmare in every democracy, the very nightmare, is if it gets worse and worse and worse, we could end up totalitarian.
+ - Goldstein, you’d be a pretty good boy if you wasn’t so chicken.
+ - The women’s movement is filled with tyrants, just as men’s political movements are equally filled.
+ - Only another writer can know how much damage writing a novel can do to you. It’s an unnatural activity to sit at a desk and squeeze words out of yourself.
+ - So the blind will lead the blind, and the deaf shout warnings to one another until their voices are lost.
+ - If a person is not talented enough to be a novelist, not smart enough to be a lawyer, and his hands are too shaky to perform operations, he becomes a journalist.
+ - I’ve made an ass of myself so many times I often wonder if I am one.
+ - As many people die from an excess of timidity as from bravery.
+ - The sense of a long last night over civilization is back again.
+ - Psychoanalysis and Zen, in my private psychic geometry, are equal to nicotine. They are anti-existential. Nicotine quarantines one out of existence.
+ - Comfortless was my religion, anxiety of the anxieties, for I believed God was not love, but courage. Love came only as a reward.
+ - MIke Lee writes with honesty, penetration, wit and the ability to surprise the reader with an unexpected turn from time to time that enriches the experience.
+ - Every one of my books had killed me a little more.
+ - Is one human? Or merely alive? Like a blade of grass equal to all existance in the moment it is torn? Yes. If pain is fundament, then a blade of grass can know all there is.
+ - It’s not the sentiments of men which make history but their actions.
+ - I take it for granted that there’s a side of me that loves public action, and there’s another side of me that really wants to be alone and work and write. And I’ve learned to alternate the two as matters develop.
+ - The function of socialism is to raise suffering to a higher level.
+ - You’re gambling with something vital. Most writers get smashed egos.
+ - Growth is a greater mystery than death. All of us can understand failure, we all contain failure and death within us, but not even the successful man can begin to describe the impalpable elations and apprehensions of growth.
+ - Patterned after an Italian Renaissance palace, it is 88 times as large and one millionth as valuable to the continuation of man. that Pentagon of traveling salesmen.
+ - I usually need a can of beer to prime me.
+ - The world’s not what I want it to be. But then no one ever said I had the right to design the world.
+ - Chicago was a town where nobody could forget how the money was made. It was picked up from floors still slippery with blood.
+ - Culture’s worth huge, huge risks. Without culture we’re all totalitarian beasts.
+ - I’m hostile to men, I’m hostile to women, I’m hostile to cats, to poor cockroaches, I’m afraid of horses.
+ - Conservatives are people who look at a tree and feel instinctively that it is more beautiful than anything they can name. But when it comes to defending that tree against a highway, they will go for the highway.
+ - There are four stages in a marriage. First there’s the affair, then the marriage, then children and finally the fourth stage, without which you cannot know a woman, the divorce.
+ - Madness is locked beneath. It goes into tissues, is swallowed by the cells. The cells go mad. Cancer is their flag. Cancer is thegrowth of madness denied.
+ - I don’t read other writers because I’m writing all the time. It’s too disturbing to read a writer with a good style when you’re in the middle of putting your work together.
+ - What’s the use of being a writer if you can’t irritate a great many people?
+ - If only gravity were working, the path would be symmetrical, it is the wind resistance that produces the tragic curve.
+ - Reagan bankrupted the Soviet Union by increasing armaments.
+ - I think it’s bad to talk about one’s present work, for it spoils something at the root of the creative act. It discharges the tension.
+ - Did a sense of shame ever reside in our Republican toadies? You can’t stop people who are never embarrassed by themselves. Will’s readiness to turn a sow’s ear into a silk purse can be cited as world class sycophancy.
+ - When I read it, I don’t wince, which is all I ever ask for a book I write.
+ - The Irish are the only men who know how to cry for the dirty polluted blood of all the world.
+ - People who live under fascism are not only miserable but they’re full of shame. You just don’t go in and inject democracy into them. They’re half crazy with their own...
+ - People move forward into the future out of the way they comprehend the past. When we don’t understand something in our past, we are therefore crippled.
+ - Short-term amnesia is not the worst affliction if you have an Irish flair for the sauce.
+ - A high church for the true mediocre.
+ - Nearly everything in the scheme of things works to dull a first-rate talent. But the worst probably is cowardice.
+ - I don’t want to retire. I’m not that good at crossword puzzles.
+ - In every death is a celebration; in every ecstasy, one little death.
+ - I can’t get excited about politics, but I love it as a game. Because what I love in politics – this is very selfish of me, but who cares – what I do love in politics is this ability it has to make you think in new ways.
+ - I would introduce myself if it were not useless. The name I had last night will not be the same as the name I have tonight. For the moment, then, let me say that I am thinking of Sam Slovoda.
+ - Horror films do not prepare us for the hours lost in searching after one clear thought.
+ - In America all too few blows are struck into flesh. We kill the spirit here, we are experts at that. We use psychic bullets and kill each other cell by cell.
+ - The only journey of knowledge is from the depth of one being to the heart of another.
+ - When a novel comes, it’s a grace. Something in the cosmos has forgiven you long enough so that you can start.
+ - The natural role of twentieth-century man is anxiety.
+ - I do believe that America’s deepest political sickness is that it is a self-righteous nation.
+ - We are all so guilty at the way we have allowed the world around us to become more ugly and tasteless every year that we surrender to terror and steep ourselves in it.
+ - What characterizes a member of a minority group is that he is forced to see himself as both exceptional and insignificant, marvelous and awful, good and evil.
+ - Any war that requires the suspension of reason as a necessity for support is a bad war.
+ - If you can change style, why stick to one style? Style is a vanity because it gives you product identification.
+ - I certainly do have this feeling of affection for the absolute sense of intellectual freedom that exists as a live nerve, a live wire, right through the center of American life.
+ - The greater the power of any subjective state, the more total is a Romantic’s assumption that everyone understands exactly what he is about to do, therefore waste not a moment by stopping to tell them.
+ - The true religion of America has always been America.
+ - God like Us suffers the ambition to make a destiny more extraordinary than was conceived for Him, yes God is like Me, only more so.
+ - I always start a book for money. If you’re married five times you have to.
+ - One of the reasons the English got through all their falls and the loss of their empire, all their disasters, their strikes, their difficulties, their wars through the years was they had Shakespeare to fall back on. And they speak well in England.
+ - A really good style comes only when a man has become as good as he can be. Style is character. A good style cannot come from a bad undisciplined character.
+ - Writers don’t have lifestyles. They just sit in little rooms and write.
+ - Left-wingers are incapable of conspiring because they are all egomaniacs.
+ - Great hope has no real footing unless one is willing to face into the doom that may also be on the way. p.207.
+ - The only faithfulness people have is to emotions they’re trying to recapture.
+ - Insanity consists of building major structures upon foundations which do not exist.
+ - Growth, in some curious way, I suspect, depends on being always in motion just a little bit, one way or another.
+ - I am not here only so that the blind might see, but to teach those who thought they could see that they are blind.
+ - One will feel the same subtle nausea coming into the city or waiting to depart from it that one feels now in such plastic catacombs as O’Hare’s reception center in Chicago.
+ - You can’t be a serious writer of fiction unless you believe the story you are telling.
+ - When the time comes, they won’t ask what kind of a Jew you are.
+ - The ultimate tendency of liberalism is vegetarianism.
+ - A nation fights well in proportion to the amount of men and materials it has. And the other equation is that the individual soldier in that army is a more effective soldier the poorer his standard of living has been in the past.
+ - The contradictory remarks of politicians are forgotten; the more asinine predictions of pundits are buried with mercy.
+ - There’s a tendency for Americans, particularly the simpler you are, the more you believe in the president as the kind of person to be.
+ - Every time a story about me appears in a newspaper, I am injured professionally.
+ - What were the phenomena of the world today? If I knew little else, I knew the answer – war, and the preparations for new war.
+ - So you come soon to power, but you have merely inherited the crisis and yours is the profit of cancer.
+ - The art of the novel is to arrive at that artless point where your characters become more real than yourself.
+ - What’s not realized about good novelists is that they’re as competitive as good athletes. They study each other – where the other person is good and where the person is less good. Writers are like that but don’t admit it.
+ - We sail across dominions barely seen, washed by the swells of time. We plow through fields of magnetism. Past and future come together on thunderheads and our dead hearts live with lightning in the wounds of the Gods.
+ - It’s not a good idea to put your wife into a novel; not your latest wife anyway.
+ - We can never know for certain where our prayers are likely to go, nor from whom the answers will come. Just when we think we are at our nearest to God, we could be assisting the Devil.
+ - Bright was the light of my last martini on my moral horizon.
+ - The fact that we’ve been a great democracy doesn’t mean we will automatically keep being one if we keep waving the flag.
+ - To be married to a good woman is to live with tender surprise.
+ - Mailer’s Law: A thing either gets better or it costs more to run it the way it was.
+ - What is there about polarity that is matter becoming more complex?
+ - The way you write affects what you say.
+ - Each day a few more lies eat into the seed with which we are born, little institutional lies from the print of newspapers, the shock waves of television, and the sentimental cheats of the movie screen.
+ - I become an actor, a quick-change artist, as if I can trap the Prince of Truth in the act of switching a style.
+ - You can indulge your righteous rage but the things it comes out of are pretty cheap. The trick is to make yourself an instrument of your own policy. Whether you like it or not, that’s the highest effectiveness man has achieved.
+ - There’s that popular misconception of man as something between a brute and an angel. Actually man is in transit between brute and God.
+ - Since great writers communicate a vision of existence, one can’t borrow their methods. The method is married to the vision.
+ - Dying can’t be all that difficult-up to now everyone has managed to do it.
+ - I no longer gave a sick dog’s drop for the wisdom, the reliability and the authority of the public’s literary mind, those creeps and old ladies of vested reviewing.
+ - While I’m working on a book, I rarely read anything more than The New York Times. Which may have the long-term effect of flattening my style.
+
+187 quotes

@@ -1,0 +1,30 @@
+ - I feel like art imitates life and life imitates art.
+ - There’s nobody in the world that knows me better than my sister.
+ - Money comes and goes. When you pass away it’s about what you’ve done to make this world a better place.
+ - The older you get, the more you fight for your own identity and start to live your own life.
+ - Sleep is very precious to me. I love to sleep.
+ - I like to embrace natural beauty. I try to get at least 8 hours of sleep, drinking a lot of water and exercising.
+ - Having a second chance makes you want to work even harder.
+ - I think the best thing about being pregnant would definitely have to be seeing just my belly grow and seeing, like, wow, there is, you know, something inside of me.
+ - I love yoga because not only is it a workout for your body, but also your breathing, which helps release a lot of stress. It really prepares you for the day.
+ - I’m very structured. I like planning things out. I get frustrated when they don’t go according to plan.
+ - My house is completely organized from my closets to my drawers.
+ - Before becoming a mom, I never knew how good I had it to just spend time at a spa for a few hours. Now, those days are far and between. So when I have an hour, it’s all about the mani and pedi.
+ - The worst part about pregnancy would definitely have to be my nausea. I don’t know why it’s just called morning sickness because morning sickness never just happened in the morning for me and it’s not happening just in the morning for my sister.
+ - Motherhood has been the best thing that has ever happened to me. It has taught me a lot about myself, about the things I’m great at, and the things I need to work on.
+ - I’m pretty busy: I’m a working mom and I know a lot about having a hectic schedule, but I think what’s really important to me and what’s on the top of that list is just making sure that my family stays healthy, especially during flu season.
+ - I think it’s something that needs to be said – that there are interracial marriages out there, and the couples live happy lives, and there’s nothing wrong with it.
+ - I think a lot of people see the flu as a common cold, but it’s not: it’s a serious respiratory illness that could lead to hospitalization and the young are extremely vulnerable.
+ - After my pregnancy, I discovered I have an allergy to yeast. Problem is, all the food I love has yeast in it. So I have to relearn how to cook.
+ - The coolest thing is that my sister and I, you know, we’ve done what a lot of people have not been able to do. Which is to have our own careers, together.
+ - I feel, you know, empowered because I gave life. I have a son now. I feel like I’m stronger.
+ - I’m very authentic, I think, and what I mean by that is whatever roles that I do take on, I’m really passionate about it.
+ - I’m so obsessed and involved with my son.
+ - The one advice that I would give just to moms who have a child or a newborn is definitely sleep while the baby sleeps. I’ve heard that so many times. I never realized how true it really is. If you don’t, you’ll be walking around like a zombie.
+ - It’s disgusting that some focus on looks. I brought a beautiful child into this world.
+ - I think my secret would have to be just being true to who I am and just being myself.
+ - When I grew up I always wanted to act. Also, I wanted to be either a lawyer or a doctor. However, when I got to college and realized what those occupations entailed, I changed my mind real quick.
+ - I would have to say I was an excellent student. I was the type to always do my homework and study when I needed to. I never really partied or did anything like that.
+ - I loved getting tutored and having that one-on-one attention that you sometimes do not get in regular school.
+
+28 quotes

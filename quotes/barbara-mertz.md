@@ -1,0 +1,70 @@
+ - Giving other people advice is one of the most irritating and useless activities known to man.
+ - The only way to do it is to do it: by writing, writing, writing.
+ - Money was the manure of politics...
+ - That’s maturity-when you realize that you’ve finally arrived at a state of ignorance as profound as your parents.
+ - Sekhmet crawled onto Ramses’s lap and began to purr. ‘The creature oozes like a furry slug,’ said Ramses, eyeing it without favor.
+ - It was hate at first sight, clean, pure and strong as grain alcohol.
+ - Nothing looks as self-satisfied as a contented cat.
+ - If someone lies down and invites you to trample upon him, you are a remarkable individual if you decline the invitation.
+ - It may take us a little longer to reach the summit, but never fear, we will get there!
+ - I am so tired of ruggedly handsome heroes. I don’t know too many ruggedly handsome people who are necessarily nice people. In fact, the beautiful people have a big handicap because they rely too much on their appearance and don’t bother to become interesting.
+ - I’ve been reading ghost stories ever since I could read. I’m immensely curious about ghosts and UFOs and all that stuff, but I’m a very hard-headed person.
+ - No woman really wants a man to carry her off; she only wants him to want to do it.
+ - Loving someone condemns you to a lifetime of fear. You become painfully conscious of how fragile people are – bundles of brittle bones and vulnerable flesh, breeding grounds for billions of deadly germs and horrible diseases.
+ - Exaggeration is the cheapest form of humor.
+ - I never meant to marry. In my opinion, a woman born in the last half of the nineteenth century of the Christian era suffered from enough disadvantages without willfully embracing another.
+ - Marriage, in my view, should be a balanced stalemate between equal adversaries.
+ - When one is striding bravely into the future one cannot watch one’s footing.
+ - Is is difficult to be angry with a gentleman who pays you compliments, even impertinent compliments. Especially impertinent compliments.
+ - Another dead body. Every year it is the same. Every year, another dead body...
+ - Your trousers are on fire. I would have told you, but you so dislike advice...
+ - He hesitated for a moment. Then he said softly, “I love you, Mother.” He took my hand and kissed it, and folded my fingers round the stem of the rose. He had stripped it of its thorns.
+ - There is nothing sadder than the cheerful letters of the dead, expressing hopes that were never fulfilled, ambitions that were never achieved, dreams cut off before they could come to fruition.
+ - To argue without knowledge is like trying to weave without thread.
+ - The opportunity to lecture had restored my good humor.
+ - Getting an idea for a book is not the problem, but you need 300 ideas – an idea a page.
+ - The approval of a cat cannot but flatter the recipient.
+ - It is much more sensible to be an optimist instead of a pessimist, for if one is doomed to disappointment, why experience it in advance?
+ - I had refused Emerson’s well-meant offers of assistance, knowing his efforts would be confined to moving the furniture to the wrong places and demanding how much longer the process would take.
+ - Cats always made up to the people who hated them the most. Depending on how you chose to look at it, it was a touching manifestation of trust, or a malicious pleasure in human discomfort.
+ - Cats always pick the laps of the people who don’t like them.
+ - The way to get on with a cat is to treat it as an equal – or even better, as the superior it knows itself to be.
+ - Humor is an excellent method of keeping a tight rein on unproductive displays of emotion.
+ - Conventional history completely ignores half the human race.
+ - Most men are reasonably useful in a crisis. The difficulty lies in convincing them that the situation has reached a critical point.
+ - I can do a book in three months if I spend all day, seven days a week at it and, in fact, I work better that way.
+ - The combination of physical strength and moral sincerity combined with tenderness of heart is exactly what is wanted in a husband. – Ameila Peabody.
+ - Ramses had always been fond of Helen, in his peculiar fashion, but if he had looked at me as he was looking at her, I would have sent for a constable.
+ - I do not scruple to employ mendacity and a fictitious appearance of female incompetence when the occasion demands it.
+ - A man asking for help ought to at least give directions.
+ - Since I am not as stupid as my children believe I am, I had immediately realized this might be a ruse, but I was not at all averse to a confrontation. In fact, I had been hoping for some such thing.
+ - Sometimes the characters develop almost without your knowing it. You find them doing things you hadn’t planned on, and then I have to go back to page 42 and fix things. I’m not recommending it as a way to write. It’s very sloppy, but it works for me.
+ - Spring is always cruel, with its false promise of resurrection...
+ - The trouble with unknown enemies is that they are so difficult to identify.
+ - There are too many people in the world as it is, but the supply of ancient manuscripts is severely limited.
+ - Husbands do not care to be contradicted. Indeed, I do not know anyone who does.
+ - Reputations are shaped not by facts but by prejudices.
+ - The only people who are not in awe of Emerson’s powerful voice and well-nigh superhuman strength are the members of his own family. He is aware of this, and often complains about it; so from time to time I like to put on a little show of being intimidated. ‘Proceed, my dear,’ I said apologetically.
+ - Children, I feel, are as much entitled to privacy as human beings.
+ - But the dust! And the clutter! My housewifely and scholarly instincts were equally offended.
+ - Many persons lead lives of crushing boredom.
+ - I have no writing habit. I work when I feel like it, and I work when I have to – mostly the latter.
+ - Martyrdom is often the result of excessive gullibility.
+ - Superstition has its practical uses.
+ - If all else fails, we will simply have to drug our attendants, overpower the guards, raise the oppressed peasants to arms, and take over the government.
+ - I have learned that particularly clever ideas do not always stand up under close scrutiny.
+ - People who relate what they believe to be new and startling information like to have such information received with exclamations of astonishment and admiration.
+ - I would never have supposed that inexperienced girl was capable of such cold-blooded, calculating manipulation!
+ - I knew the answer, and – of course – so did Ramses. He has superb breath control and always gets in ahead of me.
+ - A fondness for martyrdom, especially of the verbal variety, is common to the young.
+ - A lady cannot be blamed if a master criminal takes a fancy to her.
+ - Dogs can be made to feel guilty about anything, including the sins of their owners. Cats refuse to take the blame for anything – including their own sins.
+ - If you take a man by surprise, and behave with sufficient arrogance, he will generally do what you ask. -Emerson.
+ - It is easier to counterfeit old age than youth.
+ - I do hope you have some money. I’m getting tired of hitting people.
+ - I do, however, think it would be difficult to write books I don’t like to read.
+ - His masculinity was only too apparent.
+ - Noble causes have a deplorable effect on the morals of the persons who espouse them.
+ - There was no warning, not even a knock. The door flew open, and he forgot his present aches and pains in anticipation of what lay in store. The figure that stood in the door was not that of an enemy. It was worse. It was his mother.
+
+68 quotes

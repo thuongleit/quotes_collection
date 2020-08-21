@@ -1,0 +1,37 @@
+ - Often people ask what I’m photographing, which is a hard question to answer. And the best what I’ve come up with is I just say: Life today.
+ - I am at war with the obvious.
+ - Photography just gets us out of the house.
+ - I’ve also never had favorite pictures. Or subjects. I have this discipline of treating everything equally-I used to say “democratically.”
+ - I like to photograph democratically.
+ - There is no particular reason to search for meaning.
+ - I don’t have a burning desire to go out and document anything. It just happens when it happens. It’s not a conscious effort, nor is it a struggle. Wouldn’t do it if it was. The idea of the suffering artist has never appealed to me. Being here is suffering enough.
+ - Black-and-white photography, which I was doing in the very early days, was essentially called art photography and usually consisted of landscapes by people like Ansel Adams and Edward Weston. But photographs by people like Adams didn’t interest me.
+ - Well, probably the best way to put it might be that at some time, not just in an instant, but over some period of time I became aware of the fact that I wanted to document examples like Kroger or Piggly Wiggly in the late ’50s, early ’60s.
+ - Whatever it is about pictures, photographs, it’s just about impossible to follow up with words. They don’t have anything to do with each other.
+ - I don’t like reading music. It’s like learning a language. You can’t read music proficiently overnight. It takes time, it’s boring work.
+ - You can take a good picture of anything. A bad one, too.
+ - I had this notion of what I called a democratic way of looking around, that nothing was more or less important.
+ - It was something new that was happening everywhere. You couldn’t miss it. If you needed to go to the grocery you would go to the predecessors of the big supermarkets of today.
+ - I would go there quite frequently. I met and became close with John Szarkowski of the Museum of Modern Art. He was incredibly supportive about me working in color.
+ - Whether a photo or music, or a drawing or anything else I might do – it’s ultimately all an abstraction of my peculiar experience.
+ - My friend who I went to boarding school with was interested in photography. He insisted that I buy a camera and marched me downtown.
+ - I don’t look at other photographs much at all. I don’t know why. I study my own a lot.
+ - It quickly came to be that I grew interested in photographing whatever was there wherever I happened to be. For any reason.
+ - I quite frequently don’t look through the camera, which is very close to being blind.
+ - There’s plenty of film out there, and quadrillions of cameras that use film-I don’t think it makes much sense not to use it. The thing that’s going out is the manufacturing of the paper. Incidentally, all these years my wife has told me that I’m color-blind.
+ - You become technically proficient whether you want to or not, the more you take pictures.
+ - The immediate reviews were very hostile, but they didn’t bother me-I had the attitude that I was right. The poor guys who were critics just didn’t understand the works at all. I was sorry about that, but it didn’t weigh on my mind a bit.
+ - Only the few times I’ve been to so-called treatment centers, which were a complete waste of money and useless. I didn’t know what I was doing at the time, because I was always drunk when I checked in.
+ - I don’t think about what camera I should use that much. I just pick up the one that looks nicest on the day.
+ - And what we called photojournalism, the photos seen in places like Life magazine, didn’t interest me either. They were just not good-there was no art there. The first person who I respected immensely was Henri Cartier-Bresson. I still do.
+ - I want to make a picture that could stand on its own, regardless of what it was a picture of. I’ve never been a bit interested in the fact that this was a picture of a blues musician or a street corner or something.
+ - There are a lot of unseen projects. When a project is finished, I often physically, and in my mind, set it aside, intending something to happen with it, something that does or does not always happen. Now, a lot of these are being resurrected for the public.
+ - Many people one meets in life somehow think they know you simply because they’re hanging out at the same counter-but they really don’t know a thing about you.
+ - I don’t think that has ever changed. I don’t think I see any more or any less than I did years ago. Let’s say I have the print of a photo taken in the 1960s and one I took a month ago. I think it’s pretty difficult to tell any difference, personally.
+ - I only ever take one picture of one thing. Literally. Never two. So then that picture is taken and then the next one is waiting somewhere else.
+ - Unfortunately they’re practically all dead. And many were my closest associates: friends, co-directors, whatever you want to say-my partners in crime.
+ - I would play music every day from the time I was about 4 or 5 years old. Every time I would go from one end of the house to the other, I would pass the piano and play a few notes.
+ - I have some that I have become a well-known-even infamous-client of, mostly in Memphis. But a great deal of that is legend and doesn’t have anything to do with truth.
+ - I am afraid that there are more people than I can imagine who can go no further than appreciating a picture that is a rectangle with an object in the middle of it, which they can identify.
+
+35 quotes

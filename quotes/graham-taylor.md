@@ -1,0 +1,26 @@
+ - If it stays as it is I can’t see it altering.
+ - There’s a famous saying: “If you pass the square ball in your own defensive third it must not be intercepted.”
+ - Footballers are no different from human beings.
+ - He’s a player you only miss when he’s not playing.
+ - To be really happy, we must throw our hearts over the bar and hope that our bodies will follow.
+ - I’d never allow myself to let myself call myself a coward.
+ - The ambition of an England manager should be to become England manager.
+ - Very few great goals actually go in.
+ - Carlos Tevez’s English should be better than what it is.
+ - The biggest thing I’ve found since I left the game – and I’m glad I chose to leave rather than being sacked – is that so many people are in football for the wrong reasons. Not because they love the game, but because they smell money.
+ - You go to Holland, France, Germany, every community, the tiniest village, they have magnificent, pristine sports facilities.
+ - People always remember the second half.
+ - Napoleon wanted his generals to be lucky. I don’t think he would have worked with me.
+ - Football needs its roots, it needs its connection with the supporters. But those in charge seem to think they can do without them.
+ - In football, time and space are the same thing.
+ - I have to choose my words carefully because I don’t want to sound like one of those who goes on about how things were better in my day.
+ - We shouldn’t blame the Panama programme for the World Cup bid failing.
+ - It’s the only way we can lose, irrespective of the result.
+ - Being an ex-England manager, one that failed to qualify for the World Cup, is like being a dead politician.
+ - In international football you have 10 games a season, with players from different clubs. There’s no time for proper coaching; they’re just recovering from playing on the Saturday.
+ - In club football you have your players and staff with you all the time, preparing for two games a week, you know them inside out, you have a discipline over them.
+ - It was nothing personal: if it had been, I would have left him on so he could have suffered like everyone else.
+ - Shearer could be at 100% fitness, but not peak fitness.
+ - Is he ever going to learn?
+
+24 quotes

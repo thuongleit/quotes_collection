@@ -1,0 +1,80 @@
+ - Truth without love is brutality, and love without truth is hypocrisy.
+ - Discipleship is a daily discipline; we follow Jesus a step at a time, a day at a time.
+ - Ministry takes place when divine resources meet human needs through loving channels to the glory of God.
+ - Christians have a dual citizenship – on earth and in heaven – and our citizenship in heaven ought to make us better people here on earth.
+ - Real contentment must come from within. You and I can not change or control the world around us, but we can change and control the world within us.
+ - A realist is an idealist who has gone through the fire and been purified. A skeptic is an idealist who has gone through the fire and been burned.
+ - In our universe there is God and there are people and things. We were made so that we should worship God, love people and use things. However if we worship ourselves, we will ignore God, start loving things and begin to use people.
+ - Life’s trials are not easy. But in God’s will, each has a purpose. Often He uses them to enlarge you.
+ - Nothing paralyzes our lives like the attitude that things can never change. We need to remind ourselves that God can change things. Outlook determines outcome. If we see only the problems, we will be defeated; but if we see the possibilities in the problems, we can have victory.
+ - The Christian life is a pilgrimage from earth to heaven, and our task is to take as many as possible with us as we make this journey.
+ - Most Christians are being crucified on a cross between two thieves: Yesterday’s regret and tomorrow’s worries.
+ - Outlook determines outcome.
+ - People who walk by faith don’t see obstacles, they see opportunities.
+ - If you are going to live by faith, then expect your faith to be tested. A faith that can’t be tested can’t be trusted.
+ - We have little control over the circumstances of life. We can’t control the weather or the economy, and we can’t control what other people say about or do to us. There is only one area where we have control – we can rule the kingdom inside. The heart of every problem is the problem in the heart.
+ - God doesn’t bless us just to make us happy; He blesses us to make us a blessing.
+ - Worship is the believer’s response of all that they are – mind, emotions, will, body – to what God is and says and does.
+ - The world changes – circumstances change, we change – but God’s Word never changes.
+ - Those times when you feel like quitting can be times of great opportunity, for God uses your troubles to help you grow.
+ - If you look to others you will be distracted; if you look to yourselves you will be discouraged; but if you look to Christ you’ll be delighted.
+ - You are a Christian because somebody cared. Now it’s your turn.
+ - If you want to enjoy the rainbow, be prepared to endure the storm.
+ - Some of your greatest blessings come with patience.
+ - When it seems as if God is far away, remind yourself that He is near. Nearness is not a matter of geography. God is everywhere. Nearness is likeness. The more we become like the Lord, the nearer He is to us.
+ - Your heart grows by giving out, but your mind grows by taking in; and both are necessary to a happy and balanced life of service.
+ - Wise people listen to wise instruction, especially instruction from the Word of God.
+ - If life is to have meaning, and if God’s will is to be done, all of us have to accept who we are and what we are, give it back to God, and thank Him for the way He made us. What I am is God’s gift to me; what I do with it is my gift to Him.
+ - The devil tempts us to bring out the worst in us, but the Father tests us to bring out the best in us.
+ - Never underestimate the importance of simply being physically present in the place God wants you. You may not be asked to perform some dramatic ministry, but simply being there is a ministry.
+ - You do not move ahead by constantly looking in a rear view mirror. The past is a rudder to guide you, not an anchor to drag you. We must learn from the past but not live in the past.
+ - The way we respond to criticism pretty much depends on the way we respond to praise. If praise humbles us, then criticism will build us up. But if praise inflates us, then criticism will crush us; and both responses lead to our defeat.
+ - When God wants to accomplish something, He calls dedicated men and women to challenge His people and lead the way.
+ - Material wealth is either a window through which we see God or a mirror in which we see ourselves.
+ - Trusting God means thinking and acting according to God’s word in spite of circumstances, feelings, or consequences.
+ - The secret of a happy life is to delight in duty. When duty becomes delight, then burdens become blessings.
+ - It is futile for us to try to serve God without the power of the Holy Spirit. Talent, training, and experience cannot take the place of the power of the Spirit.
+ - God doesn’t always change the circumstances, but He can change us to meet the circumstances. That’s what it means to live by faith.
+ - People can’t see your root system, but God can. Praying and meditating on the Word of God will cause your roots to go down deep into His love.
+ - If we see only the problems, we will be defeated; but if we see the possibilities in the problems, we can have victory.
+ - After all, a crisis doesn’t make a person; it reveals what a person is made of.
+ - The past can be a rudder that guides you or an anchor tha hinders you. Leave your mistakes with God and look to the future by faith.
+ - The bumps are what you climb on.
+ - No matter how much you may change or how life may change, God never changes, and His promises never fail.
+ - The way we behave toward people indicates what we really believe about God.
+ - If you take care of yourself and walk with integrity, you may be confident that God will deal with those who sin against you. Above all, don’t give birth to sin yourself, rather, pray for those who persecute you. God will one day turn your persecution into praise.
+ - Jonah saw God’s will as punishment. Jesus saw God’s will as nourishment.
+ - God made us and God is able to empower us to do whatever he calls us to do. Denying that we can accomplish God’s work is not humility; it is the worst kind of pride.
+ - God has ordained that His people live by promises and not by explanations.
+ - The mind grows by taking in, but the heart grows by giving out.
+ - Do you need help today? Lift up your hands to the Lord in supplication and in expectation, and soon you will lift up your hands in jubilation and celebration.
+ - The greatest judgment God can send on His people is letting them have their own way.
+ - Contentment is not escape from the battle, but rather an abiding peace and confidence in the midst of the battle.
+ - When we change the message of God, we change the God of the message.
+ - The most miserable prison in the world is the prison we make for ourselves when we refuse to show mercy.
+ - If the Lord calls you, He will equip you for the task He wants you to fulfill.
+ - He knows when we go into the storm, He watches over us in the storm, and He can bring us out of the storm when His purposes have been fulfilled.
+ - It is easy to make excuses when we ought to be making opportunities.
+ - Faithfulness in the small things will lead to blessing in the big things.
+ - The eyes see what the heart loves. If the heart loves God and is single in this devotion, then the eyes will see God whether others see Him or not.
+ - We do not understand and then obey: that is instruction. We obey by faith, and then we understand: that is illumination.
+ - Daniel gave all the glory to God; he took none of it for himself. There is no limit to what God will do for the believer who will let God have all the glory.
+ - If the only way I can make myself look good is to criticize you, something is seriously wrong with me.
+ - Remember, your worth is founded in Jesus Christ.
+ - The school of suffering never graduates any students, so ask God to teach to you the lessons He wants you to learn.
+ - It is a remarkable thing that some of the most optimistic and enthusiastic people you will meet are those who have been through intense suffering.
+ - The Christian who walks with the Lord and keeps constant communion with Him will see many reason for rejoicing and thanksgiving all day long.
+ - Sometimes fear comes, not before the battle or even in the midst of the battle, but after we have won the victory.
+ - A good book is like a seed: it produces fruit that has in it seed for more fruit. It is not a picture on the wall; it is a window that invies us to wider horizons.
+ - God will open up places of service for you as He sees you are ready. Meanwhile, study the Bible and give yourself a chance to grow.
+ - Heaven is more than a destination; it is a motivation. Knowing that we shall dwell in the heavenly city ought to make a difference in our lives here and now.
+ - A prophet weeps while others are laughing.
+ - Let God enlarge you when you are going through distress. He can do it. You can’t do it, and others can’t do it for you.
+ - Opportunities energize the faithful and paralyze the fearful.
+ - God is more interested in the workman than in the work.
+ - When a person does not know the doctrines of the Christian faith, he can easily be captured by false religions.
+ - What the majority calls “blessing” may actually be a judgment from God.
+ - Don’t waste your sufferings.
+ - Christ is more concerned about what we do with Him than for Him.
+
+78 quotes

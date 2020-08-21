@@ -1,0 +1,151 @@
+ - To my mind, the greatest reward and luxury of travel is to be able to experience everyday things as if for the first time, to be in a position in which almost nothing is so familiar it is taken for granted.
+ - More than 300 million people in the world speak English and the rest, it sometimes seems, try to.
+ - Consider the Lichen. Lichens are just about the hardiest visible organisms on Earth, but the least ambitious.
+ - You don’t need a science degree to understand about science. You just need to think about it.
+ - I can’t think of anything that excites a greater sense of childlike wonder than to be in a country where you are ignorant of almost everything.
+ - There is something about the momentum of travel that makes you want to just keep moving, to never stop.
+ - I can’t fix the world. If you want to make a difference in life, you have to direct your energies in a focused way.
+ - The whole of the global economy is based on supplying the cravings of two per cent of the world’s population.
+ - Of all the things I am not very good at, living in the real world is perhaps the most outstanding.
+ - There is always a little more toothpaste in the tube. Think about it.
+ - I love the feeling of being anonymous in a city I’ve never been before.
+ - Protons give an atom its identity, electrons its personality.
+ - The upshot of all this is that we live in a universe whose age we can’t quite compute, surrounded by stars whose distances we don’t altogether know, filled with matter we can’t identify, operating in conformance with physical laws whose properties we don’t truly understand.
+ - We used to build civilizations. Now we build shopping malls.
+ - It is a slightly arresting notion that if you were to pick yourself apart with tweezers, one atom at a time, you would produce a mound of fine atomic dust, none of which had ever been alive but all of which had once been you.
+ - The human diet consists of just nine plants: corn, rice, wheat, potatoes, cassava, sorghum, millet, beans, barley, rye and oats.
+ - In my day, the principal concerns of university students were sex, smoking dope, rioting and learning. Learning was something you did only when the first three weren’t available.
+ - There are three stages in scientific discovery. First, people deny that it is true, then they deny that it is important; finally they credit the wrong person.
+ - Coming back to your native land after an absence of many years is a surprisingly unsettling business, a little like waking from a long coma. Time, you discover, has wrought changes that leave you feeling mildly foolish and out of touch.
+ - Life just wants to be; but it doesn’t want to be much.
+ - 99.99 percent of all species that have ever lived are no longer with us.
+ - The remarkable position in which we find ourselves is that we don’t actually know what we actually know.
+ - The average Southerner has the speech patterns of someone slipping in and out of consciousness. I can change my shoes and socks faster than most people in Mississippi can speak a sentence.
+ - Not writing the same kind of book over and over again is to me the real pleasure of what I do.
+ - Traveling is more fun – hell, life is more fun – if you can treat it as a series of impulses.
+ - I don’t know whether I’m misanthropic. It seems to me I’m constantly disappointed. I’m very easily disappointed.
+ - It’s an unnerving thought that we may be the living universe’s supreme achievement and its worst nightmare simultaneously.
+ - Language is more fashion than science, and matters of usage, spelling and pronunciation tend to wander around like hemlines.
+ - To my mind, the only possible pet is a cow. Cows love you. They will listen to your problems and never ask a thing in return. They will be your friends forever. And when you get tired of them, you can kill and eat them. Perfect.
+ - I have long known that it is part of God’s plan for me to spend a little time with each of the most stupid people on earth.
+ - The universe is not only queerer than we suppose; it is queerer than we can suppose.
+ - I can’t imagine there has ever been a more gratifying time or place to be alive than America in the 1950s. No country had ever known such prosperity.
+ - Energy is liberated matter, matter is energy waiting to happen.
+ - There are things you just can’t do in life. You can’t beat the phone company, you can’t make a waiter see you until he’s ready to see you, and you can’t go home again.
+ - We forget just how painfully dim the world was before electricity. A candle, a good candle, provides barely a hundredth of the illumination of a single 100 watt light bulb.
+ - Taking a scenic route in Southeast Iowa is like talking about a good Barry Manilow album. You have to make certain allowances.
+ - Germans are flummoxed by humor, the Swiss have no concept of fun, the Spanish think there is nothing at all ridiculous about eating dinner at midnight, and the Italians should never, ever have been let in on the invention of the motor car.
+ - As the saying goes, it takes all kinds to make the world go around, though perhaps some shouldn’t go quite so far around it as others.
+ - Open your refrigerator door, and you summon forth more light than the total amount enjoyed by most households in the 18th century. The world at night, for much of history, was a very dark place indeed.
+ - From an evolutionary point of view, sex is really just a reward mechanism to encourage us to pass on our genetic material.
+ - I wanted to quit and to do this forever, sleep in a bed and in a tent, see what was over the next hill and never see a hill again. All of this all at once, every moment, on the trail or off.
+ - The food is excellent. The beer is cold. The sun nearly always shines. There is coffee on every corner. Life doesn’t get much better than this.
+ - The tearoom lady called me love. All the shop ladies called me love and most of the men called me mate. I hadn’t been here twelve hours and already they loved me.
+ - The first book I did – the first successful book – was a kind of a travel book, and publishers in Britain encouraged me to do more.
+ - It was an especially wonderful time to be a noisy moron.
+ - Traveling makes you realize what an immeasurably nice place much of America could be if only people possessed the same instinct for preservation as they do in Europe.
+ - There is more difference between a zebra and a horse, or between a dolphin and a porpoise, than there is between you and the furry creatures your distant ancestors left behind when they set out to take over the world.
+ - The real problem you get with humour is that you only have so many kinds of jokes within you, and you mine that vein a lot. This isn’t just common to me; it’s anybody who’s funny.
+ - I became quietly seized with that nostalgia that overcomes you when you have reached the middle of your life and your father has recently died and it dawns on you that when he went he took some of you with him.
+ - The best that can be said for Norwegian television is that it gives you the sensation of a coma without the worry and inconvenience.
+ - I was heading to Nebraska. Now there’s a sentence you don’t want to say too often if you can possibly help it.
+ - There is no such thing, incidentally, as one kudo.
+ - When you consider it from a human perspective, and clearly it would be difficult for us to do otherwise, life is an odd thing. It couldn’t wait to get going, but then, having gotten going, it seemed in very little hurry to move on.
+ - The number of people on whose cooperative efforts your eventual existence depends has risen to approximately 1,000,000,000,000,000,000, which is several thousand times the total number of people who have ever lived.
+ - I hadn’t realized quite how extraordinary Charles Lindbergh’s achievement was in flying the Atlantic alone. He had never flown over open water before, but he flew straight to Dingle Bay in Ireland and then on to Paris, exactly as planned.
+ - There is no reason why we shouldn’t be able to split an infinitive, any more than we should forsake instant coffee and air travel because they weren’t available to the Romans.
+ - What is it about maps? I could look at them all day, earnestly studying the names of towns and villages I have never heard of and will never visit...
+ - Maine is wonderful. It can be very hard. I mean, if you look at the profile maps it doesn’t look it, but somehow when you get out there it’s really steep and hard.
+ - America is a great disappointment to me. As I said in one of my books, other societies create civilisations; we build shopping malls.
+ - My mother only ever said two things. She said,‘I don’t know, dear.’And she said,’Can I get you a sandwich, honey?
+ - Everything seems to be designed for the benefit of the automobile and not the benefit of the human being.
+ - Everywhere throughout New England you find old, tumbledown field walls, often in the middle of the deepest, most settled- looking woods- a reminder of just how swiftly nature reclaims the land in America.
+ - To an American the whole purpose of living, the one constant confirmation of continued existence, is to cram as much as sensual pleasure as possible into one’s mouth more or less continuously. Gratification, instant and lavish, is a birthright.
+ - Perhaps it’s my natural pessimism, but it seems that an awfully large part of travel these days is to see things while you still can.
+ - I often feel I’m a disappointment to people because they expect me to be the guy in the books. When I sit next to someone at a dinner party I can see they expect me to be quick and witty, and I’m not at all.
+ - I could spend my life arriving each evening in a new city.
+ - Physics is really nothing more than a search for ultimate simplicity, but so far all we have is a kind of elegant messiness.
+ - That’s the trouble with losing your mind; by the time it’s gone, it’s too late to get it back.
+ - Hunters will tell you that a moose is a wily and ferocious forest creature. Nonsense. A moose is a cow drawn by a three-year-old.
+ - I see litter as part of a long continuum of anti-social behaviour.
+ - Taxonomy is described sometimes as a science and sometimes as an art, but really it’s a battleground.
+ - You can be a scientist and believe in god: the two can go hand in hand.
+ - Christmas tree stands are the work of the devil and they want you dead.
+ - I’m not funny in person. I mean I’m really not. I’m one of those people who always screw up anecdotes.
+ - England was full of words I’d never heard before – streaky bacon, short back and sides, Belisha beacon, serviettes, high tea, ice-cream cornet.
+ - 18th century scientists, the French in particular, seldom did things simply if an absurdly demanding alternative was available.
+ - In terms of adaptability, humans are pretty amazingly useless.
+ - Absolute brain size does not tell you everything or possibly sometimes even much. Elephants and whales both have brains larger than ours, but you wouldn’t have much trouble outwitting them in contract negotiations.
+ - In the countryside, litter doesn’t have a friend. It doesn’t have anybody who’s saying, ‘Wait a minute, this is really starting to get out of control.’
+ - I still enjoy traveling a lot. I mean, it amazes me that I still get excited in hotel rooms just to see what kind of shampoo they’ve left me.
+ - I come Des Moines. Somebody had to.
+ - Making English grammar conform to Latin rules is like asking people to play baseball using the rules of football.
+ - Tune your television to any channel it doesn’t receive and about 1 percent of the dancing static you see is accounted for by this ancient remnant of the Big Bang. The next time you complain that there is nothing on, remember that you can always watch the birth of the universe.
+ - It is unthinkable to have a British countryside that doesn’t have actual functioning farmers riding tractors, cows in fields, things like that.
+ - English is full of booby traps for the unwary foreigner. Any language where the unassuming word fly signifies an annoying insect, a means of travel, and a critical part of a gentleman’s apparel is clearly asking to be mangled.
+ - Human beings would split the atom and invent television, nylon, and instant coffee before they could figure out the age of their own planet.
+ - I understand cricket – what’s going on, the scoring – but I can’t understand why.
+ - Romans park their cars the way I would park if I had just spilled a beaker of hydrochloric acid on my lap.
+ - I mused for a few moments on the question of which was worse, to lead a life so boring that you are easily enchanted, or a life so full of stimulus that you are easily bored.
+ - Eating in Sweden is really just a series of heartbreaks.
+ - Strange as it may seem, wrote Richard Feynman, we understand the distribution of matter in the interior of the Sun far better than we understand the interior of the Earth.
+ - I’m not a natural story-teller. Put a keyboard in front of me and I’m fine, but stand me up in front of an audience and I’m actually quite shy and reserved.
+ - I don’t want to go and start trying to make jokes in places like India, Tanzania or Iraq. Afghanistan is not a funny place.
+ - Even though sugar was very expensive, people consumed it till their teeth turned black, and if their teeth didn’t turn black naturally, they blackened them artificially to show how wealthy and marvelously self-indulgent they were.
+ - The English invented cricket to make other human endeavors look interesting.
+ - English grammar is so complex and confusing for the one very simple reason that its rules and terminology are based on Latin, a language with which it has precious little in common.
+ - A significant fraction of thru-hikers reach Katahdin, then turn around and start back to Georgia. They just can’t stop walking, which kind of makes you wonder.
+ - It sometimes occurs to me that the British have more heritage than isgood for them.
+ - Still, I never really mind bad service in a restaurant. It makes me feel better about not leaving a tip.
+ - If you can imagine a man having a vasectomy without anesthetic to the sound of frantic sitar-playing, you will have some idea of what popular Turkish music is like.
+ - If a potato can produce vitamin C, why can’t we? Within the animal kingdom only humans and guinea pigs are unable to synthesize vitamin C in their own bodies. Why us and guinea pigs? No point asking. Nobody knows.
+ - Why is it, I wondered, that old people are always so self-centered and excitable? But I just smiled benignly and stood back, comforted by the thought that soon they would be dead.
+ - Where I grew up, in Des Moines, Iowa, there is hardly any downtown economic activity now. Everybody shops in malls – you don’t find a sense of community in malls.
+ - Cheapness is a great virtue.
+ - My first rule of consumerism is never to buy anything you can’t make your children carry.
+ - Finally, this being America, there is the constant possibility of murder.
+ - I had always thought that once you grew up you could do anything you wanted – stay up all night or eat ice-cream straight out of the container.
+ - My first rule of travel is never to go to a place that sounds like a medical condition and Critz is clearly an incurable disease involving flaking skin.
+ - Four times I was honked at for having the temerity to proceed through town without the benefit of metal.
+ - I really enjoy going to a library and spending the day doing research – to me that is the most pleasurable part of writing the science book.
+ - There are only three things that can kill a farmer: lightning, rolling over in a tractor, and old age.
+ - Britain still has the most reliably beautiful countryside of anywhere in the world. I would hate to be part of the generation that allowed that to be lost.
+ - I refer of course to the soaring wonder of the age known as the Eiffel Tower. Never in history has a structure been more technologically advanced, materially obsolescent, and gloriously pointless all at the same time.
+ - When you tell an Iowan a joke, you can see a kind of race going on between his brain and his expression.
+ - Boston’s freeway system is insane. It was clearly designed by a person who had spent his childhood crashing toy trains.
+ - The great failure in education, much of the time, is the lack of excitement and stimulus.
+ - Roads get wider and busier and less friendly to pedestrians. And all of the development based around cars, like big sprawling shopping malls. Everything seems to be designed for the benefit of the automobile and not the benefit of the human being.
+ - A cough so robust that I tapped into two new seams of phlegm.
+ - He had the sort of face that makes you realize God does have a sense of humor.
+ - I just use my life story as a kind of device on which to hang comic observations. It’s not my interest or instinct to tell the world anything pertinent about myself or my family.
+ - As a rule of thumb, I would submit that if you need to call your floss provider, for any reason, you are probably not ready for this level of oral hygiene.
+ - Most big companies don’t like you very much, except hotels, airlines and Microsoft, which don’t like you at all.
+ - In a funny way, nothing makes you feel more like a native of your own country than to live where nearly everyone is not.
+ - Most of what has lived on Earth has left behind no record at all.
+ - I love everything about motels. I can’t help myself. I still get excited every time I slip a key into a motel room door and fling it open.
+ - When I awoke it was daylight. The inside of my tent was coated in a curious flaky rime, which I realized after a moment was all of my nighttime snores, condensed and frozen and pasted to the fabric, as if into a scrapbook of respiratory memories.
+ - Anyone who has read my books will know that I don’t tend to use guides when I am travelling. It’s not a pride thing, but it is certainly a fact.
+ - Most scientists are without exception adorably quirky, and one of the ways of making it more accessible was to try to get readers interested in the person.
+ - Have you ever seen Glenn Beck in operation? It is the most terrifying thing. It’s so bad that you think he’s going to announce in a minute that it’s all a great con. He makes Sarah Palin look reasonable and steady.
+ - You may find that your parents are the most delightful people, but you don’t want to live with them.
+ - Science has been quite embattled. It’s the most important thing there is. An arts graduate is not going to fix global warming. They may do other valuable things, but they are not going to fix the planet or cure cancer or get rid of malaria.
+ - America is a very seductive place in terms of lifestyle and comfort, but it wasn’t for me.
+ - For a long time, I’d been vaguely fascinated by the idea that Charles Lindbergh flew the Atlantic and Babe Ruth hit 60 home runs in the same summer.
+ - There is the odd exception, like Albert Einstein, but as a breed, scientists tend not be very good at presenting themselves.
+ - I always wanted to do a baseball book; I love baseball. The problem is that a very large part of my following is in non-baseball playing countries.
+ - Every kid I knew had a father with a little stash of men’s magazines which the father thought was secret and which the kid knew all about.
+ - It is always quietly thrilling to find yourself looking at a world you know well but have never seen from such an angle before.
+ - A world without newspapers or a world where the newspapers are purely electronic and you read them on a screen is not a very appealing world.
+ - Every dog on the face of the earth wants me dead.
+ - I’m definitely an American, because I grew up here. But I’ve lived very happily in Britain.
+ - Des Moines is like your typical American city; it’s just these concentric circles of malls, built outward from the city.
+ - I think it’s only right that crazy people should have their own city, but I cannot for the life of me see why a sane person would want to go there.
+ - Geologists are never at a loss for paperweights.
+ - Look at a globe and what you are seeing really is a snapshot of the continents as they have been for just one-tenth of 1 per cent of the earths history.
+ - I can wear a baseball cap; I am entitled to wear a baseball cap. I am genetically pre-disposed to wear a baseball cap, whereas most English people look wrong in a baseball cap.
+ - All the things that are part of your heritage make you British – that makes this country what it is. It’s part of your history. And here, unlike America, it’s still living history.
+ - In three minutes, 98 percent of all the matter there is or will ever be has been produced. We have a universe.
+ - Houses aren’t refuges from history. They are where history ends up.
+ - It is a curious feature of our existance that we come from a planet that is very good at promoting life but even better at extinguishing it.
+
+149 quotes

@@ -1,0 +1,193 @@
+ - Things look different when history is seen as His-story.
+ - In an age of relativism, orthodoxy is the only possible rebellion left.
+ - Trying to fill the God-sized hole in our hearts with things other than God is like trying to fill the Grand Canyon with marbles.
+ - Our culture has filled our heads but emptied our hearts, stuffed our wallets but starved our wonder. It has fed our thirst for facts but not for meaning or mystery. It produces “nice” people, not heroes.
+ - We are artists, because God is.
+ - There is one and only one possible road to joy: selfless love.
+ - Bad times make good people, as mountainous pressures make diamonds or as fire tempers steel.
+ - On my door is a cartoon of two turtles. One says, ‘Sometimes I would like to ask why he allows poverty, famine and injustice when he could do something about it.’ The other turtle says ‘I am afraid that God might ask me the same question.’
+ - If God is not a Trinity, God is not love. For love requires three things: a lover, a beloved, and a relationship between them.
+ - Listening to other people’s needs is listening to God. Noticing simple, natural beauty, hearing music, even confronting the challenge of pain and problems – that can all be listening to God too.
+ - Diversion and indifference are the two widest roads to Hell in today’s world.
+ - Control language and you control thought; control thought and you control action; control action and you control the world.
+ - Ethics without virtue is an illusion. What is the highest purpose of ethics? It is to make a person good, that is virtuous.
+ - All human beings have a right to life. Our unborn children are members of the human race. They’re human beings, so they have a right to life.
+ - Actually, we have misdefined “hypocrisy.” Hypocrisy is not the failure to practice what you preach but the failure to believe it. Hypocrisy is propaganda.
+ - Agape’s object is always the concrete individual, not some abstraction called humanity. Love of humanity is easy because humanity does not surprise you with inconvenient demands. You never find humanity on your doorstep, stinking and begging.
+ - Christianity is God’s marriage proposal to the soul.
+ - Kindness-mere kindness-cannot tolerate suffering. Love can.
+ - The only reason you are not yet a saint is because you do not wholly want to be one...
+ - Moral relativism says morality is relative, not absolute, I want to show moral relativism, in its popular form, is logically incoherent.
+ - Sacraments are like hoses. They are the channels of the living water of God’s grace. Our faith is like opening the faucet. We can open it a lot, a little, or not at all.
+ - Gratitude is the seedbed of joy.
+ - Without that freedom to sin there is also no freedom to love.
+ - The opposite of Christianity is not atheism, but idolatry.
+ - Other religions are stories of man’s search for God. The Bible is the story of God’s search for man.
+ - Our soul, like Mary’s body, is to receive God Himself if only we, like her, believe, consent and receive; if only we speak her truly magic word fiat, “let it be.” It is the creative word, the word God used to create the universe.
+ - Lack of prayer is the cause of lack of time.
+ - Everything smaller than Heaven bores us because only Heaven is bigger than our hearts.
+ - A pure heart means a single heart, a heart in which only one desire lives: love.
+ - Christ is the Word of God in person. The Bible is the Word of God in writing. Both are the Word of God in the words of men. Both have a human nature and a divine nature.
+ - The national anthem of hell is, “I Did It My Way.”
+ - The key to faith is love. We believe only if we love. Trust is the middle term; only if we love, do we trust; and only if we trust, do we believe.
+ - If you love, you will suffer. The only way to protect yourself against suffering is to protect yourself against love – and that is the greatest suffering of all, loneliness.
+ - When a maniac is at the door, feuding brothers reconcile.
+ - Abortion is the Antichrist’s demonic parody of the eucharist. That’s why it uses the same holy words, “This is my body,” with the blasphemous opposite meaning.
+ - The best answer to the problem of evil is not one so much found on paper but on wood.
+ - No one justifies lying, cheating, betraying, promise breaking, devastating and harming strangers. But we expect and we tolerate doing this to the one person in the world we promised most seriously to be faithful to forever: we justify divorce.
+ - It is mercy, not justice or courage or even heroism, that alone can defeat evil.
+ - Great saints have often been made out of great sinners, but not one was ever made out of a wimp.
+ - The most total opposite of pleasure is not pain but boredom, for we are willing to risk pain to make a boring life interesting.
+ - Moral relativism has a reputation for being compassionate, caring and humane, but it is an extremely useful philosophy for tyrants.
+ - Life is hard, but death is even harder.
+ - Be egalitarian regarding persons. Be elitist regarding ideas.
+ - Science only answers the question, How does it work? Or at most, What’s there? Science asks what and how, philosophy asks why, myth and religion ask who. Who’s in charge here? Who’s the author? That’s what we really long to know.
+ - Envy, though not the greatest sin, is the only one that gives the sinner no pleasure at all, not even fake and temporary satisfaction.
+ - Original sin is the proclivity to say “my will be done” instead of “thy will be done.”
+ - The most compelling evidence for God’s existence is Christ. If God does not exist, then Christ was the biggest fool who ever lived.
+ - Pilate’s skeptical sneer “What is truth?” was addressed to Truth Himself, standing there right in front of his face. The world’s stupidest question was three words; God’s profoundest answer was one Word.
+ - Thus moral theology leads us four steps deeper than law. To fulfill the moral law, we need love. To get love, we need union with God. To get union with God, we need the new birth. And to get the new birth, we need faith.
+ - Mary’s light is like that of the moon, totally reflected from the sun, the Son of God.
+ - The six things in life that never get boring are knowing and loving God, your neighbor, and yourself.
+ - When you give yourself away you find that a new and more real self has somehow been given to you.
+ - A God who did not abolish suffering-worse, a God who abolished sin precisely by suffering-is a scandal to the modern mind.
+ - The self is like a baseball. Throw it back to the divine pitcher who pitched it to you in the first place, and the game of love goes on. Hold it, and the game is over. That is the difference between Heaven and Hell.
+ - It is reasonable to love the Absolute absolutely for the same reason it is reasonable to love the relative relatively.
+ - To worship a crocodile is better to worship yourself.
+ - An open mind is not an end in itself but a means to the end of finding truth.
+ - God allows unjust disparities between rich and poor because He does not miraculously intervene to establish justice against human wills. Also, discrepancies are not unjust by themselves; justice does not mean equality of result but equality of opportunity.
+ - If a person claims to have met Jesus without being changed then they have not met the real Jesus.
+ - You have an evil twin who is always with you. He is called your ego.
+ - Love is the binding force on every level of existence.
+ - If God is the Creator of all things and evil is a thing, then God is the Creator of evil and He is to be blamed for its existence. No, evil is not a thing but a wrong choice, or the damage done by a wrong choice. Evil is no more a positive thing than blindness is, but it is just as real.
+ - Abortion is the insurance against that fate worse than death which is called a family.
+ - Moral stupidity comes in two different forms: relativism and legalism. Relativism sees no principles, only people; legalism sees no people, only principles.
+ - The big, blazing truth about man is that he has a heaven-sized hole in his heart, and nothing else can fill it. We pass our lives trying to fill the Grand Canyon with marbles. As Augustine said: Thou hast made us for Thyself, and our hearts are restless until they rest in Thee.
+ - Our life here on Earth has as its purpose precisely to prepare for our eternal happiness. This world is a large womb. It is a ‘test’ as all opportunities are tests.
+ - Humility is the marriage bond of Heaven. Pride is the frigidity of Hell.
+ - We do not do good works to get into heaven; we do good works because heaven has gotten to us.
+ - There are relatively few atheists among neurologists and brain surgeons and astrophysicists, but many among psychologists, sociologists, and historians. The reason seems obvious: the first study divine design, the second study human undesign.
+ - Forgiveness is the reason for the crucifixion, and the crucifixion is the reason for the Incarnation.
+ - The heart is like a woman, and the head is like a man, and although man is the head of woman, woman is the heart of man, and she turns man’s head because she turns his heart.
+ - God calls us, just as he called Abraham, away from the security we knew, out of our old, familiar, little room, down the ladder of faith and into his arms. Jesus called his disciples that way – just as a lover elopes with his beloved.
+ - Peace is a mark of the Holy Spirit.
+ - There is no scientific proof that only scientific proofs are good proofs; no way to prove by the scientific method that the scientific method is the only valid method.
+ - Thanksgiving comes after Christmas.
+ - God’s interventions are miracles: events that cannot happen by merely natural agents but only by a supernatural agent. They no more interfere with our free will than natural events like earthquakes. We choose how to respond to them.
+ - Every blade of grass is a blade of grace, a grace note in God’s single Song. Nature is not blind and dumb. Nature is eloquent. Human science is blind and dumb if it does not hear this eloquence.
+ - Conscience is thus explained only as the voice of God in the soul.
+ - True love, unlike popular sentimental substitutes, is willing to suffer. Love is not “luv.” Love is the cross. Our problem at first, the sheer problem of suffering, was a cross without Christ. We must never fall into the opposite and equal trap of a Christ without a cross.
+ - If you want to get wet, go out to where it is raining; If you want to be a saint, find one and hang out with him.
+ - Only God may be adored, because only God is unlimited goodness, truth, and beauty, and thus only God deserves unlimited love.
+ - All of history is a kind of broken marriage and God puts it back together again.
+ - For the wise men of old, the cardinal problem of human life was how to conform the soul to objective reality, and the solution was wisdom, self-discipline, and virtue. For the modern, the cardinal problem is how to conform reality to the wishes of man, and the solution is a technique.
+ - How you approach the problem of suffering depends on how you approach life itself. There are only two ways. Either meaning is surrounded by matter, or matter is surrounded by meaning.
+ - Prayer is fundamentally a transformation of will, a lifting of the heart and will to God.
+ - Pride looks down, and no one can see God but by looking up.
+ - Put the Protestant flint and the Catholic steel together, and you will kindle a fire that will burn all around the world.
+ - I want to give moral relativism the good spanking it deserves.
+ - It is the Godfather, not God the Father, who makes you an offer you can’t refuse.
+ - Agape is the catalyst that makes value appear in anything.
+ - The rich fop Francis of Assisi was bored all his life-until he fell in love with Christ and gave all his stuff away and became the troubadour of Lady Poverty.
+ - Not all Tolkien haters are Orcs, but all Orcs are Tolkien haters.
+ - Faith is not like bottled water but like rain. Its destiny is not just to be kept and held but to make something visible grow.
+ - The love of God is no human projection, but the wrath of God is. In fact, what we call the wrath of God is really the love of God experienced by a fool.
+ - To God each one of us is His favorite. God’s love comes to all, but it comes to all as each, not to all as some anonymous aggregate.
+ - How will the Tower of Babel be undone? How will we understand each other in Heaven? Will we all speak English or Dutch or Latin? No, we will speak music.
+ - Our destiny is to be so intimately united with God that, as the mystics say, we not only see God’s face but also see with God’s face.
+ - Most theists are deists most of the time, in practice if not in theory. They practice the absence of God instead of the presence of God.
+ - One of the few things in life that cannot possibly do harm in the end is the honest pursuit of the truth.
+ - Don’t be more serious than God. God invented dog farts.
+ - Prayer is like Thanksgiving dinner. It takes one hour to eat it and ten hours to prepare it.
+ - Few Christians go into media or the arts today, or see it as a primary mission field or battlefield. But it is.
+ - You see, God just will not let us flunk out of His school of love. He insists on remedial lessons until we get it right. For this whole world is a school set up by Love Himself to teach us to love.
+ - We cannot hate truth in general, all truth, as we cannot hate food in general, all food. But we can hate a particular truth even though it is good for us, as we can hate a particular food even though it is good for us:.
+ - Like apes, we breed, sleep, and die. Yet like God we say, “I am.” We are ontological oxymorons.
+ - It was a very stupid mistake to think you could deal with heresy by burning heretics. It’s the very same mistake that modernist Catholics are making today in reverse. They think you can love heretics by loving heresies.
+ - Violence is spiritual junk food, and boredom is spiritual anorexia.
+ - Those who meet Jesus always experience either joy or its opposites, either foretastes of Heaven or foretastes of Hell. Not everyone who meets Jesus is pleased, and not everyone is happy, but everyone is shocked.
+ - Money can buy everything money can buy, which is just a lot of stuff.
+ - Faith and hope bring us through time but leave us at the doorstep of eternity. Only love goes with us inside.
+ - God’s wraith is really only the face of love refused.
+ - God writes the story of our lives with the pen strokes of our own free choices.
+ - Sin comes from not realizing God’s love. Sin comes from thinking ourselves only as sinners, while overcoming sin comes from thinking ourselves as overcomers. We act our our perceived identities.
+ - If you truly love God and His will, then doing what you will, will, in fact, be doing what God wills.
+ - Protestants believe that the sacraments are like ladders that God gave to us by which we can climb up to Him. Catholics believe that they are like ladders that God gave to Himself by which He climbs down to us.
+ - Life is always fatal. No one gets out of it alive.
+ - No age has been more prone to confuse the sin with the sinner, not by hating the sinner along with the sin but by loving the sin along with the sinner. We often use “compassion” as an equivalent for moral relativism.
+ - God gives us not only the truth but also the ability to believe it; not only the new thing to see but also the new eye to see it with.
+ - It is said that there are three sources of evil, “the world, the flesh, and the Devil”; but the world and the flesh would be innocent were it not for the Devil.
+ - When feminists become saints, we will become their pupils.
+ - We can’t avoid reasoning; we can only avoid doing it well.
+ - Only God is to be loved for His own sake. Everything else is to be loved for God’s sake.
+ - Whoever marries the spirit of the times must soon become a widower.
+ - Atheism cheapens everything it touches – look at the results of communism, the most powerful form of atheism on earth.
+ - The deepest healing is the healing of the deepest wound. The deepest wound is the frustration of the deepest need. The deepest need is the need for meaning, purpose, and hope.
+ - The eye of the poet sees less clearly, but sees farther than the eye of the scientist.
+ - By the way, if you get mad at your Mac laptop and wonder who designed this demonic device, notice the manufacturer’s icon on top: an apple with a bite out of it.
+ - A saint isn’t somebody who tries harder, but someone who trusts more.
+ - Reason alone cannot give you a whole steak, but it sure helps with identifying bologna.
+ - We need to have the mind of a conservative and the heart of a liberal.
+ - If you are truly confident about something, you welcome honest questions about it.
+ - If you didn’t believe in objective truth, arguments would be just toys, or games, or jokes.
+ - The Inquisition confused sin with sinners and judged both. Modern Americans make the same mistake but judge neither.
+ - Indifference is the only road that never gets to God.
+ - God is love. Wraith is how His love appears to us when we sin or rebel or run away from Him. The very light that is meant to help us appears to us as our enemy when we seek the darkness.
+ - Feelings come to us, passively; love comes from us, actively, by our free choice.
+ - We are insane. That is what sin is. Sanctity is identitical with sanity. It means living the truth, living in reality. Sin always substitutes unreality for reality.
+ - Even David Hume, one of history most famous skeptics, said it’s just barely possible that God exists.
+ - Every gift requires two freedoms: the giver’s and the receiver’s.
+ - We can and should investigate and learn from the wisdom in other religions.
+ - I think most people who call themselves relativists are not, in practice.
+ - Humility, humility, humility, and humility.
+ - We can’t believe what we believe to be untrue, and we can’t love what we believe to be unreal.
+ - Now if the religious skeptic is right, we can know nothing about God. And if we can know nothing about God, how can we know God so well that we can know that he cannot be known? How can we know that God cannot and did not reveal himself – and perhaps even through human reason?
+ - Great saints are never wimps.
+ - You cannot be in love with love.
+ - If there is a God, there is a map. If God has a map, his map is the true map.
+ - Humility is not an exaggeratedly low opinion of yourself. Humility is self-forgetfulness.
+ - The world was won for Christ not by arguments but by sanctity: “What you are speaks so loud, I can hardly hear what you say.”
+ - The connection between art and Christ is like the connection between sunlight and the sun. It is, in fact, the connection between Sonlight and the Son.
+ - Most people believe you have to have some moral absolutes if you want to hold back chaos.
+ - If we turn to the divine Conductor and follow the wise and loving baton that is His will, His Word, then the music of our life will be a symphony.
+ - We sin because we see sin as a bargain. We unconsciously calculate that it’s worth it, that it pays.
+ - Atheism is cheap on people, because it snobbishly says nine out of ten people through history have been wrong about God and have had a lie at the core of their hearts.
+ - Do you know any better way to make saints than to be one yourself?
+ - The solution to our suffering is our suffering!
+ - The most striking feature if this map is the stark fat of the Two Roads. There is the road that leads to Life, and there is the road that leads to Death. There is Good, and there is Evil. There is Right and there is Wrong.
+ - Like white light refracted through a prism and split into many colors, God’s eternal love-nature, expressed through the prism of time, becomes God’s multicolored love story. History is His story.
+ - In an age that has thrown off all tradition, the only rebellion possible is orthodoxy.
+ - Your heart is like an infinitely large hole, and only God is big enough to fill it.
+ - The greatest Christians in history seem to say that their sufferings ended up bringing them the closest to God – so this is the best thing that could happen, not the worst.
+ - In every sin, we choose to believe the devil’s lie rather than God’s truth.
+ - It is just as crazy not to be crazy about Christ as it is to be crazy about anything else.
+ - You don’t have to convince Muslims of God’s existence or importance.
+ - Nothing but prayer can make saints because nothing but God can make saints, and we meet God in prayer. Prayer is the hospital for souls where we meet Doctor God.
+ - In this deed is my hope, not in the mere timeless fact that God is love. I am saved not by the beautiful Trinitarian life of God but by the gory death of God. I am saved not by the touching of the three Persons in Heaven but by the touching of this love on the Cross to my life.
+ - No emotion, merely as an emotion, is a sin, because we cannot directly control the arising of an emotion in our soul.
+ - You have to say no to something else, in order to make time to pray.
+ - The church is: a conspiracy of love for a dying world, a spy mission into enemy occupied territory ruled by the powers of evil; a prophet from God with the greatest news the world has ever heard, the most life changing and most revolutionary institution that has existed on earth.
+ - If your life is Christ, then your death will be only more of Christ, forever. If your life is only Christlessness, then your death will be only more Christlessness, forever. That’s not fundamentalism, that’s the law of non-contradiction.
+ - Sin has made us stupid, so that we can only learn the hard way.
+ - Cats don’t need to be possessed; they’re evil on their own.
+ - When we believe that God is something other than a lover, it is inevitable that we will sin.
+ - We sinned for no reason but an incomprehensible lack of love, and He saved us for no reason but an incomprehensible excess of love.
+ - A man walking through a wall is a miracle. A man both walking and not walking through a wall at the same time and in the same respect is a contradiction. God can perform miracles but not contradictions – not because his power is limited, but because contradictions are meaningless.
+ - A woman has a responsibility and a privilege that a man doesnt have of given birth to another human being.
+ - The modern mind always tends to reduce the greater to the lesser rather than seeing the lesser as reflecting the greater.
+ - The secret of joy is hidden in the word itself: first J, then O, then Y: Jesus first, Others next, Yourself last.
+ - It is closer to the truth to say that God is crazy than that God is reasonable. I suspect God merely smiles when someone calls him crazy, but shakes His head and frowns when someone calls Him reasonable.
+ - If we had absolute proof instead of clues, then you could no more deny God than you could deny the sun. If we had no evidence at all, you could never get there. God gives us just enough evidence so that those who want him can have him.
+ - Saints have to be tough as well as tender because saints are like Christ, and Christ was the toughest and the tenderest man who ever lived.
+ - The scripture notion of truth is not an abstract, static, and timeless formula, but is something that comes true in time as the fulfillment of a divine promise. Truth happens in history.
+ - God continuously comes into the world in two places – at the altar and in the womb.
+ - Indifference is more truly the opposite of love than hate is, for we can both love and hate the same person at the same time, but we cannot both love and be indifferent to the same person at the same time.
+ - Grey is the devil’s favorite color.
+ - Our only qualitifcation for God’s grace is our emptiness, not our fullness; our undeservingness, not our deservingness.
+ - I find my data first in myself, not first in the poets. For if I did not find it in myself, I would not be able to find it in the poets.
+ - Only saints can save the world. And only our own sins can stop us from being saints.
+ - Sinners think they are saints, but saints know they are sinners.
+ - Don’t be more serious than God. God invented dog farts. God designed your body’s plumbing system. God designed an ostrich. If He didn’t do it, He permitted a drunken angel to do it. Empirical facts can add significantly to the meaning of “being godlike”.
+ - There is no effective rational answer to the challenge: “But give me a reason why I should love someone who does not deserve it.” Love is the highest thing. There can be no higher reason to justify it.
+
+191 quotes

@@ -1,0 +1,24 @@
+ - Don’t worry about failure; you only have to be right once.
+ - You become the average of the five people you hang out with.
+ - Instead of trying to make your life perfect, give yourself the freedom to make it an adventure, and go ever upward.
+ - Learn early, learn often.
+ - If you have a dream, you can spend a lifetime studying, planning, and getting ready for it. What you should be doing is getting started.
+ - The hardest-working people don’t work hard because they’re disciplined. They work hard because working on an exciting problem is fun.
+ - You can’t focus on what everyone else is doing – it has to be about what’s really broken and what you can do to fix it.
+ - Surrounding yourself with inspiring people is now just as important as being talented or working hard.
+ - When you’re in school, every little mistake is a permanent crack in your windshield. But in the real world, if you’re not swerving around and hitting the guard rails every now and then, you’re not going fast enough. Your biggest risk isn’t failing; it’s getting too comfortable.
+ - The happiest and most successful people I know don’t just love what they do, they’re obsessed with solving an important problem, something that matters to them.
+ - You have to adopt a mindset that says, ‘Okay, in three months, I’ll need to know all this stuff, and then in six months there’s going to be a whole other set of things to know – again in a year, in five years.’ The tools will change, the knowledge will change, the worries will change.
+ - Reading a book about management isnt going to make you a good manager any more than a book about guitar will make you a good guitarist, but it can get you thinking about the most important concepts.
+ - If you start your own thing, you can learn a lot really fast from doing things wrong.
+ - One misconception is that entrepreneurs love risk. Actually, we all want things to go as we expect. What you need is a blind optimism and a tolerance for uncertainty.
+ - You need that hunger no matter what, because eventually the honeymoon period wears off. Somewhere between printing your business cards that say ‘founder’ on them and everything else you have to do, you realize, ‘Oh, actually this is a ton of work.’
+ - You must maximize the probability that someone shows up at front door of your store or website and ends up with a solved problem.
+ - I actually don’t think it matters how early or late you are as long as you hit critical mass.
+ - I’d be like, alright, I don’t know anything about sales. So I would search for sales on Amazon, get the three top-rated books and just go at it. I did that for marketing, finance, product, engineering. If there was one thing that was really important for me, that was it.
+ - You’re not going to become a great manager overnight. You’re not going to become a great public speaker or figure out how to raise money. These are the things you want to start the clock on as early as possible.
+ - Devices are getting smarter – your television, your car – and that means more data spread around. There needs to be a fabric that connects all these devices. That’s what we do.
+ - The only way to learn on a zero dollar budget is to talk to people.
+ - We’ve had customers from the beginning. The reason people use Dropbox is because they really love it. We think more about who is going to be competing with what we are going to be doing, not with where we started.
+
+22 quotes

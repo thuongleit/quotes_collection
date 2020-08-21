@@ -1,0 +1,52 @@
+ - The mind is like the stomach. It not how much you put into it, but how much it digests.
+ - Considered now as a possession, one may define culture as the residuum of a large body of useless knowledge that has been well and truly forgotten.
+ - As Dr. Sigmund Freud has observed, it cannot even be said that the State has ever shown any disposition to suppress crime, but only to safeguard its own monopoly of crime.
+ - The superficial distinctions of Fascism, Bolshevism, Hitlerism, are the concern of journalists and publicists; the serious student sees in them only one root-idea of a complete conversion of social power into State power.
+ - As far as I know, I have no pride of opinion.
+ - When we speak freely, let us speak plainly, for plain speech is wholesome; especially, plain speech about public affairs and public men.
+ - The State claims and exercises the monopoly of crime. It forbids private murder, but itself organizes murder on a colossal scale. It punishes private theft, but itself lays unscrupulous hands on anything it wants, whether the property of citizen or of alien.
+ - Man tends always to satisfy his needs and desires with the least possible exertion.
+ - The primary reason for a tariff is that it enables the exploitation of the domestic consumer by a process indistinguishable from sheer robbery.
+ - Useless knowledge can be made directly contributory to a force of sound and disinterested public opinion.
+ - The only thing that the psychically-human being can do to improve society is to present society with one improved unit.
+ - It is unfortunately none too well understood that, just as the State has no money of its own, so it has no power of its own.
+ - Diligent as one must be in learning, one must be as diligent in forgetting; otherwise the process is one of pedantry, not culture.
+ - Driving jobholders out of office is like the old discredited policy of driving prostitutes out of town. Their places are immediately taken by others who are precisely like them.
+ - Perhaps the prevalence of pedantry may be largely accounted for by the common error of thinking that, because useful knowledge should be remembered, any kind of knowledge that is at all worth learning should be remembered too.
+ - Assuming that man has a distinct spiritual nature, a soul, why should it be thought unnatural that under appropriate conditions of maladjustment, his soul might die before his body does; or that his soul might die without his knowing it?
+ - The competition of social power with State power is always disadvantaged, since the State can arrange the terms of competition to suit itself, even to the point of outlawing any exercise of social power whatever in the premises; in other words, giving itself a monopoly.
+ - Above all things the mass-mind is most bitterly resentful of superiority. It will not tolerate the thought of an elite; and under a political system of universal suffrage, the mass-mind is enabled to make its antipathies prevail.
+ - In proportion as you give the state power to do things for you, you give it power to do things to you.
+ - I have often wondered why the sounds of the beating drums do not make the marching soldiers shoot their officers and go home.
+ - I am said to be difficult of acquaintance, unwilling to meet any one half way, and showing a social manner which is easy, not diffident, but formal and unresponsive, tending constantly to hold people off.
+ - Americans have a strange notion that the ordinary laws of economics do not apply to them. So doubtless they will think they are prosperous if the boom starts, and that deficits and indebtedness are merely signs of how prosperous they are.
+ - There are two methods, or means, and only two, whereby man’s needs and desires can be satisfied. One is the production and exchange of wealth; this is the economic means. The other is the uncompensated appropriation of wealth produced by others; this is the political means.
+ - The civilization of a country consists in the quality of life that is lived there, and this quality shows plainest in the things that people choose to talk about when they talk together, and in the way they choose to talk about them.
+ - Perhaps one reason for the falling-off of belief in a continuance of conscious existence is to be found in the quality of life that most of us lead. There is not much in it with which, in any kind of reason, one can associate the idea of immortality.
+ - Learning has always been made much of, but forgetting has always been deprecated; therefore pedantry has pretty well established itself throughout the modern world at the expense of culture.
+ - The simple truth is that our businessmen do not want a government that will let business alone. They want a government they can use.
+ - Money does not pay for anything, never has, never will. It is an economic axiom as old as the hills that goods and services can be paid for only with goods and services.
+ - Taking the state wherever found, striking into its history at any point, one sees no way to differentiate the activities of its founders, administrators, and beneficiaries from those of a professional criminal class.
+ - As sheer casual reading matter, I still find the English dictionary the most interesting book in our language.
+ - Someone asked me years ago if it were true that I disliked Jews, and I replied that it was certainly true, not at all because they are Jews, but because they are folks, and I don’t like folks.
+ - It would seem that in Paine’s view the code of government should be that of the legendary King Pausole, who prescribed but two laws for his subjects, the first being, Hurt no man, and the second, Then do as you please.
+ - The business of a scientific school is the dissemination of useful knowledge, and this is a noble enterprise and indispensable withal; society can not exist unless it goes on.
+ - The mentality of an army on the march is merely so much delayed adolescence; it remains persistently, incorrigibly and notoriously infantile.
+ - Concerning culture as a process, one would say that it means learning a great many things and then forgetting them; and the forgetting is as necessary as the learning.
+ - The practical reason for freedom is that freedom seems to be the only condition under which any kind of substantial moral fiber can be developed we have tried law, compulsion and authoritarianism of various kinds, and the result is nothing to be proud of.
+ - Personal publicity of every kind is utterly distasteful to me, and I have made greater efforts to escape it than most people make to get it.
+ - The positive testimony of history is that the State invariably had its origin in conquest and confiscation. No primitive State known to history originated in any other manner.
+ - You get the same order of criminality from any State to which you give power to exercise it; and whatever power you give the State to do things FOR you carries with it the equivalent power to do things TO you.
+ - Organized Christianity has always represented immortality as a sort of common heritage; but I never could see why spiritual life should not be conditioned on the same terms as all life, i. e., correspondence with environment.
+ - It is certainly true that whatever a man may do or say, the most significant thing about him is what he thinks; and significant also is how he came to think it, why he continued to think it, or, if he did not continue, what the influences were which caused him to change his mind .
+ - It is easier to seize wealth than to produce it, and as long as the State makes the seizure of wealth a matter of legalized privilege, so long will the squabble for that privilege go on.
+ - The position of modern science, as far as an ignorant man of letters can understand it, seems not a step in advance of that held by Huxley and Romanes in the last century.
+ - When politicians say “I’m in politics,” it may or may not be possible to trust them, but when they say, “I’m in public service,” you know you should flee.
+ - The question of who is right and who is wrong has seemed to me always too small to be worth a moment’s thought, while the question of what is right and what is wrong has seemed all-important.
+ - When a beggar asks us for a quarter, our instinct is to say that the State has already confiscated our quarter for his benefit, and he should go to the State about it.
+ - Like Prince von Bismarck in diplomacy, I have no secrets.
+ - As might be supposed, my parents were quite poor, but we somehow never seemed to lack anything we needed, and I never saw a trace of discontent or a failure in cheerfulness over their lot in life, as indeed over anything.
+ - For the majority of people liberty means only the system and the administrators they are used to.
+ - As a general principle, I should put it that a man’s country is where the things he loves are most respected. Circumstances may have prevented his ever setting foot there, but it remains his country.
+
+50 quotes

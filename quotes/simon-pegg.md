@@ -1,0 +1,67 @@
+ - I love my job very much, and I don’t think I would change it. In fact, I know I wouldn’t, because I can’t do anything else.
+ - I’m simply saying that our deepest thoughts, desires and preoccupations manifest themselves in art, whether we intend them to or not. That’s what art is for; it’s not cerebral, it’s emotional.
+ - Nira Park, who is my longtime producer and friend – I’ve know her since we did Spaced, the TV show – she gave me this script the last day of filming The World’s End. She said, “Take a look at this. It’s filming in London next year, and you might like to look at Jack.” I trust Nira implicitly.
+ - I do get very angry at things. My wife has to count to ten because if she gets annoyed at me being annoyed, then I get annoyed at her being annoyed at me being annoyed.
+ - I’ve appeared in those kind of films and have great fun doing it, and I’m always up for a challenge. I think with things like Mission: Impossible and Star Trek, those things are such an ensemble, it’s not like I’m Ethan Hunt. I’m Benji. I’m the guy that does the computer business. I know my place.
+ - That’s always important to us, is being truthful. Not guessing, not making any assumptions. Just coming at it with knowledge.
+ - Spoilers are cowardly. They’re just people who want to anesthetize themselves against the tension and the experience that the director and the artist have set up. If you go in there knowing what’s going to happen, it’s like reading the last page of the book. It’s just cowardly.
+ - Doctor Who was a big part of my childhood so it was a great honour to be in it.
+ - Bill Hicks wasn’t just a comic, he was a crusader against humanity’s relentless capacity to underachieve.
+ - You grow up watching certain films or admiring certain filmmakers, and to write a love letter to one and have them validate it, it’s extraordinary.
+ - A biological agent, I’ll buy. Some sort of super-virus? Sure, why not. But death? Death is a disability, not a superpower. It’s hard to run with a cold, let alone the most debilitating malady of them all.
+ - You know what, despite my complaints about The Phantom Menace and Episode II, when Episode III comes out I’ll be first in line. I genuinely love it.
+ - I think at its best the American sense of humor is the same as the British sense of humor at its best, which is to be wry and ironic and self deprecating.
+ - The trouble with addiction is that you can park the car but you can never switch off the engine or stop yourself from hearing the revs.
+ - Films that rely on their cast to be funny are often episodic and feel like a series of loosely connected sketches rather than a satisfyingly structured script.
+ - The only thing that would deter me at the moment would be the idea of doing one thing for a very long time. There is no doubt in my mind that television is an incredibly auspicious medium right now. It’s where a lot of the serious acting is taking place.
+ - Chris Martin’s a good friend of mine. I’m actually Apple’s godfather. He’s an old friend and we’ve been mates for quite a few years now.
+ - Being a geek is extremely liberating.
+ - Being a geek is all about being honest about what you enjoy...
+ - This idea of popular culture became something that belonged to us rather than something that we looked at from far away. We realized we could be part of it and create it, instead of just being consumers only.
+ - Sometimes you just wish you could make a film and then have it on DVD so you can see your mom. But, no, I’ve never really had that moment. Not really. Not seriously.
+ - I think the jokes would have been a bit broader and a bit more obvious in terms of the day-to-day of country life.
+ - I think that the joke and the ghost story both have a similar set up in that you kind of set something up and pay it off with a laugh or a scare.
+ - I’ve only played two sort-of slackers, in Spaced and in Shaun Of The Dead. They’re different people, but they have the same kind of everyman quality, particularly as a twentysomething.
+ - Now there’s a whole generation of filmmakers who grew up making their own films with video cameras, and have dined entirely on a diet of popular culture. It’s been reflected in a lot of their work. It’s self-reflective, it’s quite knowing, but it’s very literate.
+ - There are actually quite high profile British TV star cameos in it that you probably wouldn’t even notice, that the British wouldn’t even notice, let alone the American audience.
+ - I mean, yeah, I’m sure that Python and the other things have paved the way for a greater understanding of the British sense of humor, but I don’t think it’s all that different than the American sense of humor.
+ - The main jokes in this film are about big things, love and life and zombies – we all get that.
+ - I was the naughty kid that the teachers liked. I bullied a kid in the 1st year when I was in the 2nd, who then hit puberty like a plane crash and grew into a gorilla who bullied me when he was in the 4th year and I was in the 5th. That’s Karma.
+ - When men write women, they tend to write women the way they want women to be, or the way they resent women for being. They don’t really – they seldom nail it. It takes a woman to write a really good female character. I like that.
+ - I lived in the cultural equivalent of Tatooine when I was a little boy. I didn’t live in London, I didn’t live right in the middle of where everything was happening, I lived on the very edge of it.
+ - The worst and the best that the internet ever did was give everybody a voice.
+ - It’s hard, really, to make any physical movement that hasn’t been done in another film. If you grab someone’s hand, it doesn’t mean you’re referencing other films with grabbing hands.
+ - I was always Luke because I had blond hair, and my mate Stu was Han. Han was the cool one. The Jedi were never the cool ones.
+ - Every person should have their escape route planned. I think everyone has an apocalypse fantasy, what would I do in the event of the end of the world, and we just basically – me and Nick – said what would we do, where would we head?
+ - There’s this thing of you can live in a city and be completely alone, not notice anything going on around you.
+ - Like behind the car or in the pub, to do a scene, a proper nice dramatic scene, it’s always a treat. And they’re usually shot as one, so you’ve got a big chunk of dialogue to learn, and you feel like you’re working.
+ - It’s a fun world to exist in, and I relish doing those movies as much as I do the smaller ones. They’re always immense fun. I don’t know if I am – unless we do a Benji film, I don’t think I am an action hero really.
+ - We don’t watch the film anymore because we’ve seen it so many times, so we’ll introduce it, walk out and we’ll come back in right about when I wake up in the morning and walk over to the shop and everything’s changed.
+ - American audiences tend to be more expressive than British ones.
+ - As a kid, I was a huge fan of movies and acting. My mom was in the sort of community theater, and I always hung around down there, and I was a massive fan of everything I’m kind of involved in now. But fairly ordinary and cheeky.
+ - I used to lie in bed in my flat and imagine what would happen if there was a zombie attack.
+ - The trouble with improv is that it is often about being funny in the moment without any real consideration for the bigger picture.
+ - The revolution of video had a massive affect. We grew up in a time where suddenly you could own films. Before, they had a theatrical run, and then perhaps they’d come back, or you’d catch them in a retro cinema.
+ - I hesitate to say I was the class clown, but that was kind of how I interacted with other kids in school, and I very much appreciated the responses I got. The validation of laughter is often a very heavy psychological balm.
+ - If I did a TV show, it would have to be in North London because I’m a bit of a homebody, and my work takes me away from home enough. But yeah absolutely. Television has never been more exciting than it is now.
+ - I defy anybody to not look cool with the guns. My granny could look cool doing that!
+ - Happiness is where you start from rather than where you go. God, I sound like Yoda.
+ - I just love listening to the laughter.
+ - When you meet people that you know from other films – as often happens to me, and as tends to happens to you when you’re an actor, you constantly meet people that you’ve seen in other films. But when it’s people who’ve kind of had a seismic effect on your life, it’s quite extraordinary.
+ - If one of your best friends is making a Star Wars movie, you’re not gonna not abuse that privilege. I defy anybody to say otherwise!
+ - Jewish comedians do the best Jewish jokes, and anyone else doing that, they don’t have a right to, because they’re not coming from that experience. I know that’s a slightly heightened example, but it’s the same thing. We’re bumpkins, so we can make bumpkin jokes.
+ - If there is no fate and our interactions depend on such a complex system of chance encounters, what potentially important connections do we fail to make? What life changing relationships or passionate and lasting love affairs are lost to chance?
+ - One thing that irritates me is when people kind of make assumptions.
+ - A movie is a creative process from its conception, through its writing, to its execution, to the editing. I think with the best films there is some kind of contribution from one person all the way through that. The best films are made by people who write, direct, and edit, so there’s continuity.
+ - Also, if you watch the film once, there are lots of things that you won’t get because there are punch lines in the first act, the setup to which isn’t until the second act.
+ - We are never more creative than when we are at odds with the world and there is nothing so artistically destructive as comfort. Princess Leia taught me that.
+ - When you’re a student and you just want some money to feel like you’re an adult, you’ll pretty much do anything within reason.
+ - The thought of filming in London was a big draw because I could stay in my house. I read it, and I was really taken with it because it felt at once very unapologetic for what it was, which is a romantic comedy. But at the same time, a little spiky and a little truthful.
+ - The nuts and bolts of shooting a film and writing a film are still really difficult. But what makes it easier is the fact that you know you’re going to go to work with your best mate.
+ - The simple fact is that what you see on the screen is pretty much real.
+ - Suddenly, the world I had scrutinised for so long was all around me, as if I had leaned forward and climbed into the television like Alice through the looking-glass. I had no idea just how deep the rabbit hole would go.
+ - There are some incredible television shows. It seems a sort of succumbed place to be. At the moment, I’m quite happy sort of flitting from place-to-place. I wouldn’t want to relocate from where I am right now in terms of where I live.
+ - I think I would probably be He-Man because Battle Cat would clinch the deal for me because I’ve always wanted a large, green cat.
+ - Being a geek means you never have to play it cool about how much you like something.
+
+65 quotes

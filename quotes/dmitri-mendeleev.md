@@ -1,0 +1,23 @@
+ - I saw in a dream a table where all the elements fell into place as required. Awakening, I immediately wrote it down on a piece of paper.
+ - Knowing how contented, free, and joyful is life in the world of science, one fervently wishes that many would enter its portals.
+ - Work, look for peace and calm in work: You will find it nowhere else. Pleasures flit by – they are only for yourself; work leaves a mark of long-lasting joy, work is for others.
+ - There is nothing in this world that I fear to say.
+ - If all the elements are arranged in the order of their atomic weights, a periodic repetition of properties is obtained. This is expressed by the law of periodicity.
+ - No one nor anything can silence me.
+ - Work, look for peace and calm in work: you will find it nowhere else.
+ - The elements which are the most widely diffused have small atomic weights.
+ - When the elements are arranged in vertical columns according to increasing atomic weight, so that the horizontal lines contain analogous elements again according to increasing atomic weight, an arrangement results from which several general conclusions may be drawn.
+ - The elements, if arranged according to their atomic weights, exhibit an apparent periodicity of properties.
+ - The edifice of science not only requires material, but also a plan. Without the material, the plan alone is but a castle in the air-a mere possibility; whilst the material without a plan is but useless matter.
+ - The most all penetrating spirit before which will open the possibility of tilting not tables, but planets, is the spirit of free human inquiry. Believe only in that.
+ - There exists everywhere a medium in things, determined by equilibrium.
+ - No law of nature, however general, has been established all at once; its recognition has always been preceded by many presentiments.
+ - It is the function of science to discover the existence of a general reign of order in nature and to find the causes governing this order. And this refers in equal measure to the relations of man – social and political – and to the entire universe as a whole.
+ - I have achieved an inner freedom.
+ - I have to talk like this! It’s my job.
+ - The establishment of a law, moreover, does not take place when the first thought of it takes form, or even when its significance is recognised, but only when it has been confirmed by the results of the experiment.
+ - The magnitude of the atomic weight determines the character of the element, just as the magnitude of the molecule determines the character of a compound body.
+ - We must expect the discovery of many as yet unknown elements-for example, elements analogous to aluminum and silicon- whose atomic weight would be between 65 and 75.
+ - Certain characteristic properties of elements can be foretold from their atomic weights.
+
+21 quotes

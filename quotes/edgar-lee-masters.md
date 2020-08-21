@@ -1,0 +1,29 @@
+ - To put meaning in one’s life may end in madness, But life without meaning is the torture Of restlessness and vague desire-It is a boat longing for the sea and yet afraid.
+ - Work for your own soul’s sake.
+ - Beware of the man who rises to power from one suspender.
+ - There is no marriage in Heaven, but there is love.
+ - There is the silence of age, too full of wisdom for the tongue to utter it in words intelligible to those who have not lived the great range of life.
+ - Immortality is not a gift, Immortality is an achievement; And only those who strive mightily Shall possess it.
+ - And I never started to plow in my life That some one did not stop in the road And take me away to a dance or picnic. I ended up with forty acres; I ended up with a broken fiddle – And a broken laugh, and a thousand memories, And not a single regret.
+ - Did I follow Truth wherever she led, And stand against the whole world for a cause, And uphold the weak against the strong? If I did I would be remembered among men...
+ - O maternal earth which rocks the fallen leaf to sleep!
+ - What is this I hear of sorrow and weariness, Anger, discontent and drooping hopes? Degenerate sons and daughters, Life is too strong for you – It takes life to love Life.
+ - The tongue may be an unruly member – But silence poisons the soul.
+ - Why, a moral truth is a hollow tooth Which must be propped with gold.
+ - The dust’s for crawling, heaven’s for flying, Wherefore, O Soul, whose wings are grown, Soar upward to the sun!
+ - This is Darrow, Inadequately scrawled, with his young, old heart, And his drawl, and his infinite paradox And his sadness, and kindness, And his artist sense that drives him to shape his life To something harmonious, even against the schemes of God.
+ - How shall the soul of a man be larger than the life he has lived?
+ - The earth keeps some vibration going There in your heart, and that is you. And if the people find you can fiddle, why fiddle you must, for all your life.
+ - Those who first oppose a good work, seize it and make it their own, when the cornerstone is laid and memorial tablets are erected.
+ - Many books have been written to show that Christianity has emasculated the world, that it shoved aside the enlightenment and wisdom of Hellas for a doctrine of superstition and ignorance.
+ - In time you shall see Fate approach you In the shape of your own image in the mirror.
+ - He stripped off the armor of institutional friendships To dedictate his soul To the terrible deities of Truth and Beauty.
+ - It takes life to love life.
+ - To love is to find your own soul Through the soul of the beloved one.
+ - The mind sees the world as a thing apart, And the soul makes the world at one with itself. A mirror scratched reflects no image – And this is the silence of wisdom.
+ - To this generation I would say: Memorize some bit of verse of truth or beauty.
+ - The soul of the river had entered my soul, And the gathered power of my soul was moving So swiftly, it seemed to be at rest Under cities of cloud and under Spheres of silver and changing worlds Until I saw a flash of trumpets Above the battlements over Time!
+ - Genius is a bend in the creek where bright water has gathered, and which mirrors the trees, the sky and the banks. It just does that because it is there and the scenery is there. Talent is a fine mirror with a silver frame, with the name of the owner engraved on the back.
+ - The Typical American? He is sent to school Little or much, where he imbibes the rule Of safety first and comfort; in his youth He joins the church and ends the quest of truth.
+
+27 quotes

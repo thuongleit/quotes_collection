@@ -1,0 +1,42 @@
+ - The journey is what brings us happiness not the destination. ~~Dan Millman
+ - Nothing exists except atoms and empty space; everything else is opinion. ~~Democritus
+ - It surprises me how disinterested we are today about things like physics, space, the universe and philosophy of our existence, our purpose, our final destination. Its a crazy world out there. Be curious. ~~Stephen Hawking
+ - Please, don’t worry so much. Because in the end, none of us have very long on this Earth. Life is fleeting. ~~Robin Williams
+ - I would never die for my beliefs because I might be wrong. ~~Bertrand Russell
+ - Everything is Energy and that is all there is to it. Match the frequency of the reality you want and you can not help but get that reality. It can be no other way. This is not philosophy. This is physics. ~~Albert Einstein
+ - In the eyes of dialectical philosophy, nothing is established for all times, nothing is absolute or sacred. ~~Karl Marx
+ - Whereof one cannot speak, thereof one must be silent. ~~Ludwig Wittgenstein
+ - There can be miracles when you believe. ~~Whitney Houston
+ - For me, I am driven by two main philosophies: know more today about the world than I knew yesterday and lessen the suffering of others. You’d be surprised how far that gets you. ~~Neil deGrasse Tyson
+ - There are no limitations to the mind except those we acknowledge. ~~Napoleon Hill
+ - There are no ordinary moments. ~~Dan Millman
+ - We live in the best of all possible worlds. ~~Gottfried Leibniz
+ - My philosophy is to “kill the monster while it’s little.” The best time to handle a “negative” emotion is when you first begin to feel it. It’s much more difficult to interrupt an emotional pattern once it’s full-blown. ~~Tony Robbins
+ - There is but one truly serious philosophical problem and that is suicide. ~~Albert Camus
+ - Lose your mind and come to your senses. ~~Frederick Salomon Perls
+ - Her philosophy is carpe diem for herself and laissez faire for others. ~~F. Scott Fitzgerald
+ - I started my life with a single absolute: that the world was mine to shape in the image of my highest values and never to be given up to a lesser standard, no matter how long or hard the struggle. ~~Ayn Rand
+ - There ain’t no such thing as a free lunch. ~~Robert A. Heinlein
+ - You know what music is? God’s little reminder that there’s something else besides us in this universe; harmonic connection between all living beings, every where, even the stars. ~~Robin Williams
+ - I think everybody should study ants. They have an amazing four-part philosophy. Never give up, look ahead, stay positive and do all you can. ~~Jim Rohn
+ - Music is a higher revelation than all wisdom and philosophy. Music is the electrical soil in which the spirit lives, thinks and invents. ~~Ludwig van Beethoven
+ - My philosophy is: It’s none of my business what people say of me and think of me. I am what I am and I do what I do. I expect nothing and accept everything. And it makes life so much easier. ~~Anthony Hopkins
+ - Philosophy is a battle against the bewitchment of our intelligence by means of language. ~~Ludwig Wittgenstein
+ - I must study politics and war that my sons may have liberty to study mathematics and philosophy. ~~John Adams
+ - History repeats itself, first as tragedy, second as farce. ~~Karl Marx
+ - Investment philosophy is the clear understanding that by owning shares of stocks he owns businesses, not pieces of paper. ~~Warren Buffett
+ - Never wait for tomorrow, what if tomorrow never comes? ~~Elvis Presley
+ - Your Philosophy of life shapes you more than anything else. ~~Tony Robbins
+ - I was within and without. Simultaneously enchanted and repelled by the inexhaustible variety of life. ~~F. Scott Fitzgerald
+ - Intelligent design is a philosophy of ignorance. ~~Neil deGrasse Tyson
+ - One, remember to look up at the stars and not down at your feet. Two, never give up work. Work gives you meaning and purpose and life is empty without it. Three, if you are lucky enough to find love, remember it is there and don’t throw it away. ~~Stephen Hawking
+ - The human spirit is more powerful than any drug and THAT is what needs to be nourished: with work, play, friendship, family. THESE are the things that matter. ~~Robin Williams
+ - There may be times when we are powerless to prevent injustice, but there must never be a time when we fail to protest. ~~Elie Wiesel
+ - We waste time looking for the perfect lover, instead of creating the perfect love. ~~Tom Robbins
+ - Experience has shown, and a true philosophy will always show, that a vast, perhaps the larger portion of the truth arises from the seemingly irrelevant. ~~Edgar Allan Poe
+ - Anyone who fights for the future, lives in it today. ~~Ayn Rand
+ - Rationality is the recognition of the fact that nothing can alter the truth and nothing can take precedence over that act of perceiving it. ~~Ayn Rand
+ - Practice the philosophy of continuous improvement. Get a little bit better every single day. ~~Brian Tracy
+ - My philosophy, in essence, is the concept of man as a heroic being, with his own happiness as the moral purpose of his life, with productive achievement as his noblest activity, and reason as his only absolute. ~~Ayn Rand
+
+40 quotes

@@ -1,0 +1,37 @@
+ - Love all, serve all, feed all.
+ - Every line of the Hanuman Chalisa is a Mahamantra.
+ - Love everyone, serve everyone, remember God, and tell the truth.
+ - Whoever works for God, his work will be done by itself.
+ - Love is the strongest medicine. It is more powerful than electricity.
+ - Cleanse the mirror of your heart, and you will see God.
+ - The best service you can do is to keep your thoughts on God. Keep God in mind every minute.
+ - Lust, Greed, Anger, Attachment – These are all paths to hell.
+ - Never put anyone out of your heart...
+ - Clear the mind of all worldly things. If you can’t control your mind, how will you realize God?
+ - Money should be used to help others.
+ - When you are sad or in pain or sick or you witness any cremation then you actually learn the many truths of life.
+ - Love all men as God, even if they hurt you or shame you. Be like Gandhi and Christ.
+ - It is not necessary to meet your guru on the physical plane. The guru is not external.
+ - You can plan for a hundred years. But you don’t know what will happen the next moment.
+ - Forgiveness is the greatest weapon, because a saint so armed is unperturbable he can give up anger immediately.
+ - See all women as mothers, serve them as your mother. When you see the entire world as the mother, the ego falls away.
+ - Keep God in your heart like you keep money in the bank.
+ - A pure woman is better than a hundred yogis. Women are more open to love God.
+ - Total truth is necessary. You must live by what you say.
+ - It is very difficult to know exactly what good should come out of a particular situation. To attempt to manipulate circumstances so your idea of good can come about, is to let the ego play God-and that, as you know, can and does backfire.
+ - The best form in which to worship God is every form.
+ - Whatever may be guru – he may be a lunatic or a common person. Once you have accepted him, he is the lord of lords.
+ - It’s better to see God in everything than to try to figure it out.
+ - All action is prayer. All trees are desire-fulfilli ng. All water is the Ganga. All land is Varanasi. Love everything.
+ - If you want to see God, kill desires. Desires are in the mind. When you have a desire for something, don’t act on it and it will go away. If you desire to drink this cup of tea, don’t, and the desire for it will go away.
+ - This world is all attachment. Yet you get worried because you are attached.
+ - All religions are the same. They all lead to God. God is everybody.
+ - Everything is impermanent, except the love of God.
+ - Often one goes for one thing and finds another.
+ - It should not be taken in a hot climate. If you are in a place that is cool and peaceful, and you are alone and your mind is turned toward God, then you may take the yogi medicine.
+ - Attachment is the strongest block to realization.
+ - I don’t want anything. I exist only to serve others.
+ - If you cannot love each other, you cannot achieve your goal.
+ - See God in everyone. It is deception to teach by individual differences and karma.
+
+35 quotes

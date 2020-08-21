@@ -1,0 +1,110 @@
+ - The more articulate somebody is, the more suspicious I am of them. I like to feel that the important things remain unsaid.
+ - At some point in your life, if you’re lucky, you get to design the way in which things evolve.
+ - A voice is such a deep, personal reflection of character.
+ - I have a competition in me. I want no one else to succeed. I hate most people.
+ - Everybody has to know for themselves what they’re capable of.
+ - Acting is about people. Other people. Otherwise, you’re not acting, you’re doing monologues.
+ - Be grateful, be grateful, be grateful.
+ - Perhaps I’m particularly serious, because I’m not unaware of the potential absurdity of what I’m doing.
+ - I’m a little bit perverse, and I just hate doing the thing that’s the most obvious.
+ - Actors should never give interviews.
+ - I come from not just a household but a country where the finesse of language, well-balanced sentence, structure, syntax, these things are driven into us, and my parents, bless them, are great custodians of the English language.
+ - I like things that make you grit your teeth. I like tucking my chin in and sort of leading into the storm. I like that feeling. I like it a lot.
+ - I live in a landscape, which every single day of my life is enriching.
+ - It’s easy to love humanity when you’re this far away from it.
+ - It is awesome to feel you are carrying on the family name.
+ - Germans don’t speak in a German accent, they just speak German.
+ - I hate the domestic life.
+ - I hate wasting people’s time.
+ - I suppose it’s a very highly developed form of denial, but some part of me completely denies that I’m a performer.
+ - I just knew at an early time in my life how important privacy was.
+ - I don’t like to rehearse. And I couldn’t understand how you could go through eight weeks of rehearsal, without exhausting every possibility. To the point where, you know, you would just lie gasping on the floor!
+ - For about a year, I just didn’t know what to do. I did laboring jobs, working in the docks, construction sites.
+ - I spend many months in apparently listless rumination out of which I hope something will emerge.
+ - A lot of guys in jail tattoo their hands.
+ - There’s nothing worse than finding yourself in a situation, a very demanding piece of work, and knowing that you’re not a true ally to the person who’s in charge of all that.
+ - I suppose I have a highly developed capacity for self-delusion, so it’s no problem for me to believe that I’m somebody else.
+ - In all fields of creativity you see the result of work that has become habit. Where the creative impulse has become flaccid or has died out altogether, and yet because it is our work and our life we continue to do it.
+ - Leaving a role is a terrible sadness. The last day of the shooting is surreal. Your soul, your body and your mind are not ready at all to see the end of this experience. In the following months after a film shoot, one feels a deep sense of void.
+ - I have a strange relationship with time. I’m not aware of it passing.
+ - One of the great privileges of having grown up in a middle-class literary English household, but having gone to school in the front lines in Southeast London, was that I became half-street-urchin and half-good-boy at home. I knew that dichotomy was possible.
+ - The word Amendment itself is an encouraging thing, isn’t it? Because an amendment, it tells of a system of government that allows for the improvement of itself. Just move forward a little bit, one day at a time.
+ - I’m a warrior when it comes to pursuing roles.
+ - It’s a source of great sadness to me that my father died without having seen me do anything worthwhile. He was constantly having to make excuses for me.
+ - My main memories of my father are of his illness.
+ - I’m not picky, quite honestly.
+ - When I was younger, I made some decisions that I shouldn’t have. And, in hindsight, I’ve almost always been wrong when I haven’t listened to myself.
+ - I’ve got a serious-looking head.
+ - I find it difficult to be in rooms now for long periods of time. I can usually take it for about an hour. Then I stride out.
+ - I find it easier to work when it’s quiet.
+ - The West has always been the epicentre of possibility. One of the ways we forge against mortality is to head west. It’s to do with catching the sun before it slips behind the horizon.
+ - I don’t torture myself.
+ - I think some actors thrive on working at a much greater pace than I do.
+ - Quite honestly, if I were doing work related to a living being or historical being where there was visual or audio recordings available, I would find that extremely difficult because I don’t know how you would avoid the process of mimicry. And mimicry, to me at any rate, is a very dull prospect.
+ - I don’t feel my son should pay the price for what I do.
+ - Being at the centre of a film is a burden one takes on with innocence the first time. Thereafter, you take it on with trepidation.
+ - I don’t know what impression you might have of the way I live. I live in a quiet place. I do not live as a hermit, though other people would prefer it if I did.
+ - If you have a certain wildness of spirit, a cabinet maker’s workshop is not the place to express it.
+ - I didn’t like the idea of being foolish, but I learned pretty soon that it was essential to fail and be foolish.
+ - I love to sit and watch people. I love to sit and listen to people.
+ - Very often there’s this misapprehension about actors being people that need to display themselves, to reveal themselves in public.
+ - I’m woefully one-track-minded.
+ - I would wish for any one of my colleagues to have the experience of working with Martin Scorsese once in their lifetime.
+ - When I do work, I feel the same sort of urgency as I ever did. If I didn’t feel that, I don’t think I would wish to be doing it. I wouldn’t really see the point.
+ - It didn’t occur to me that it was possible to breathe life into Abraham Lincoln.
+ - You’ve just provided me with the makings of one hell of a weekend in Dublin.
+ - Shoes are strange things. If you take your shoes off in a situation in which you’re vulnerable, you’ll feel 10 times more vulnerable.
+ - I became conflicted in my late teens.
+ - I still relate to my father very much. I mean, I talk to him in a certain way, as we do talk to the dead.
+ - I was a savage for so many years of my life. There was some seed of determination in me that I was not conscious of. I was mostly consciously getting into trouble and drunk.
+ - I’m not actually a big musical fan.
+ - As a member of the audience I don’t like it that I can’t see what’s going on in the eyes and in the face and in the most subtle responses of a performer when I’m more than a few rows back. I find it very frustrating.
+ - I depleted myself to the point where I had nothing left.
+ - You can never fully put your finger on the reason why you’re suddenly, inexplicably compelled to explore one life as opposed to another.
+ - The whole thing of weight, I guess it’s because there is a wider fascination we all have with weight.
+ - Periodically over the years I’ve always taken periods of time away from acting.
+ - I’m very often still very much alive for that other being and that other world long after the film is finished.
+ - The last time I was on a small set would’ve been probably My Left Foot.
+ - You don’t merely give over your creativity to making a film – you give over your life! In theatre, by contrast, you live these two rather strange lives simultaneously; you have no option but to confront the mould on last night’s washing-up.
+ - The one thing that I appear to have been given, bearing in mind that I am capable of being very, very scatty and extremely lazy, is the ability to concentrate on something I choose to give my time to.
+ - I broke things to get attention.
+ - I’ve been very lucky.
+ - I don’t deal at all well with the relative amount of stuff I have to face already.
+ - I have always been intrigued by these lives I have never experienced.
+ - I avoid talking about the way I work. But in avoiding it I seem only to have encouraged people to focus their fantasies about me in an ever more fantastical way.
+ - I can’t honestly account for the very personal response that I have to one story and not another, a sense of an orbit, the orbit of a world that draws me as my own life recedes.
+ - I see a lot of movies. I love films as a spectator, and that’s never obscured by the part of me that does the work myself. I just love going to the movies.
+ - There are always practical decisions to be made about any character you’re playing.
+ - I had a very vivid, almost hallucinatory moment in which I was engaged in a dialogue with my father.
+ - As actors, we’re all encouraged to feel that each job is the last job. They plant some little electrode in your head at an early stage and you think, ‘Be grateful, be grateful, be grateful.’
+ - Films exhaust me, they do, and I often want nothing more to do with them, but I’m continually surprised at the resurgence of the impulse to come back and do it all over again.
+ - My curiosity sustains me for the period of the shoot.
+ - My preference is that, that day when someone sticks a tripod in front of you with a camera on the top, it is not day one.
+ - Film has become such a central part of our culture now that I think sometimes too great a weight is placed upon it in terms of scrutiny and analysis. There’s a lot of rather specious professorial stuff that swirls around films.
+ - I feel less often compelled to do the work than I was in the past.
+ - I’m not sure you learn anything on film sets.
+ - When I’ve gone back to work, it’s always with that sense of inevitability. That may be a complete delusion, but it’s the one that I need to get out of bed and go about my business. That sense that I can’t avoid this thing. I better just get on with it.
+ - Many years ago, I really didn’t know where the next work was coming from.
+ - I can’t re-examine work I did in the past with pride.
+ - At a certain age it just became apparent to me that this was probably the work that I would have to do.
+ - When I did make the decision to focus on acting, I think my mother was just relieved for me that I had finally started to focus.
+ - I never retreat from films, as it were, I simply indulge in other interests, that’s all.
+ - England is obsessed with where you came from, and they are determined to keep you in that place, be it in a drawing room or in the gutter.
+ - Ireland was a place for the renewal of hope and I still see it like that.
+ - Where I come from, it was a heresy to say you wanted to be in movies, leave alone American movies.
+ - I suppose the place where I live is fairly remote, it would seem remote to some people.
+ - If you remain unsettled by a piece of writing, it means you are not watching the story from the outside; you’ve already taken a step towards it.
+ - I’d always felt very strongly in the power of vocation.
+ - How people are around a director, it really does affect everything, every detail of the life of the movie.
+ - How can you be a recluse in a house full of children, even if you had the inclination to be, which I don’t?
+ - I’m not really a storyteller myself – I tend to get all tangled up when I try and tell stories.
+ - I like to cook things very slowly.
+ - God knows, I haven’t always been successful.
+ - It must be hard interviewing actors.
+ - There must’ve been some part of me that wanted to make my mark. But there was never a defining moment.
+ - When it comes to parenthood everyone thinks they will be terrible at it. We don’t think we have it in us. Then you find out that you do, which truly is a miracle in life.
+ - To people who don’t know me I’m defined by a number of things that people know about me that are entirely untrue.
+ - Making a film, setting it up and getting it cast and getting it together, is not an easy thing.
+ - Just stay alive, no matter what occurs! I will find you. No matter how long it takes, no matter how far. I will find you!
+
+108 quotes

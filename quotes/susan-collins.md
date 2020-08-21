@@ -1,0 +1,22 @@
+ - Getting a project started is like moving a ship. It takes a lot of energy to build up momentum.
+ - The road to success is a zigzag, first pointing this way and then that. If we start with high intention, then magic and coincidence will guide us there despite our lack of knowledge about what lies ahead.
+ - Our success multiplies each time we lead someone else to success.
+ - Like the canary in the coal mine, the climate changes already evident in the Arctic are a call to action.
+ - We can never fully repay the debt of our proud nation to those who have laid down their lives for our country. The best we can do is honor their memory, ensure that their sacrifice is not in vain, and help provide for their families.
+ - Success is completion. Success is being able to complete what we set out to do – each individual action, each specific step, each desired experience whether a big project or a very small errand.
+ - If you don’t know what you want, you’ll probably get what somebody else wants.
+ - Loving isn’t liking and it takes liking to live together.
+ - Many communities throughout the nation still do not have the communications infrastructure in place for first responders to communicate with one another during an emergency.
+ - Taking the time to read to children is not only a worthwhile investment but also a wonderful experience. I have visited 119 schools in Maine, and these visits are among the most rewarding experiences in my career in public service.
+ - When we’re impatient with beginners around us, we would do well to sign up for a class in scuba diving, ballroom dancing or anything else totally brand-new for us.
+ - Our first responsibility as a leader is to create an attractive dream, to proclaim a destination, communicating it in detail to others who might be interested in joining our expedition.
+ - The most precious contribution we can make here on Earth is to create the lives we want to be living, communicating in all ways, to everyone around us, that success is really possible.
+ - I’m pleased the administration is endorsing the need for legislation dealing with the chemical sector. In the past, the administration’s position has been ambiguous.
+ - What I find is with all due deference to – deference to our male colleagues, that women’s styles tend to be more collaborative.
+ - Our vision was to serve the whole area.
+ - What we’ve been hearing over and over again is that the reason Republicans are opposed to the surtax is because of the concern of its impact on job creation. Well, if you carve out employers, you take away that argument.
+ - An expert is anyone who can already do what we want to do.
+ - Soaring prescription drug costs have placed a tremendous strain on family budgets. They have also imposed a heavy burden on employers – both public and private – who are struggling to provide affordable health insurance coverage to their workers.
+ - In a world that is changing as rapidly as this one, we need to think differently about leadership. Leading is not done by those few in high places, but by parents and teachers and managers and those governing – all working together to create the world that we want.
+
+20 quotes

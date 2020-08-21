@@ -1,0 +1,23 @@
+ - You spend so much of your life crafting this stuff that you want to laugh in the room. I don’t want to sit there and slit my wrists. And I think it reflects reality. People use humor to survive, even in the most horrific situations.
+ - First of all, I find everything funny, which is upsetting to my children sometimes, and to people in my life, in general.
+ - There’s more to us than the moment we made a bad decision.
+ - I think it would be exhausting and depressing, to write, to watch and to live, if it was just focused on drama. It’s heavy. Also, I think the humor really highlights the pathos and the struggle. You can slam it up against drama, and it makes both shine.
+ - I think shows that are completely dramatic are a lie. People use humor to cope. That is how we deal with things. In the darkest situations, there’s humor. And if you don’t show that, you’re not being true to real life.
+ - I think a good story, well told is a good story, well told, whether you’re watching the episodes all in a row or not. However, it might be fun to take a closer look at how the previous episode ends and how that end relates to the beginning of the next episode.
+ - The oppression of it, the sense of helplessness, and really being part of a system and a bureaucracy that is arbitrary. I never thought of the depth of losing your freedom and what that meant. And I was surprised and delighted by ways people maintain their humanity and try to survive.
+ - As long as there are still interesting stories and still interesting people that we want to meet, I can keep it going. But, we all have to be invested. If the room starts getting bored or I start getting restless, then we’ll either have to change something in the show or maybe end it.
+ - I begged her to write a song and she said yes. I am a huge Regina Spektor fan. I think she’s a genius and just a lovely soul, and I wanted her voice on it. And she agreed, which is just the coolest thing, ever. She knocked it out of the park.
+ - We watched these auditions and could only pick one. Sometimes we would add new characters ’cause we wanted to use another actress. There were so many people who were just waiting for something like this.
+ - I think my immediate reaction was, “I’m so tired. I need a little more time.” But, it was very quickly followed up by excitement. It’s very flattering, and it’s a wonderful vote of confidence. We dream of getting to do what we do.
+ - I don’t set out to write female lead shows, necessarily. I like deeply flawed characters. When they come to me, or when I’m introduced to them, I follow the stories and the people, rather than setting out to do a female lead thing.
+ - To be able to be there first, I love the pioneer thing. It’s exciting to me. And they pay full rate, they’re really nice, they support the work, and they said yes. What could be bad? It’s the Wild West. You can do what you want.
+ - But, I like the challenge of, “How can we stretch this out? Where can we go with it?” It’s an open road, especially at Netflix. You can take it anywhere you want.
+ - We fell in love with different people. Looking back, we might have done it in a different order, but we got invested. We really wanted to do the flashbacks because we wanted to explore who these women were on the outside versus the inside, and get a fuller picture of the masks we wear.
+ - I’m always looking for a nexus, where you can put all these diverse people together, see how they respond to one another, see what they learn about each other, and what they like and don’t like.
+ - We’re also talking a lot in the room about planting seeds that can grow over the course of the season, knowing that people might be watching them in bulk. We’d like to bury some Easter eggs and let people find them, later on.
+ - You want everyone to be a full character. No one is just evil, or very few people are, hopefully. They’re characters, so you want to flush them out. You’ve got to show all sides of them. There is definitely an antagonistic relationship between guards and prisoners, and I do think it flares up.
+ - Even during the casting process, the pools of talent are so deep when you have a call for Latin women or black women or a middle-aged woman because they never get their shot. There’s so much talent there.
+ - It was enormously challenging because you want that all-American girl, but you also want the cool WASP, privileged white girl. Usually, women in that package aren’t funny.
+ - On the other hand, we worked a year on this and some people are going to watch it in a night and go, “We want more!” And there is something I miss about the longing and the anticipation for the next episode.
+
+21 quotes

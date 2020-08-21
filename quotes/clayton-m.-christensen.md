@@ -1,0 +1,83 @@
+ - Disruptive innovations create jobs, efficiency innovations destroy them.
+ - Decide what you stand for. And then stand for it all the time.
+ - Motivation is the catalyzing ingredient for every successful innovation. The same is true for learning.
+ - Breaking an old business model is always going to require leaders to follow their instinct. There will always be persuasive reasons not to take a risk. But if you only do what worked in the past, you will wake up one day and find that you’ve been passed by.
+ - You can’t find returns in investments you haven’t made.
+ - Questions are places in your mind where answers fit. If you haven’t asked the question, the answer has nowhere to go. It hits your mind and bounces right off. You have to ask the question – you have to want to know – in order to open up the space for the answer to fit.
+ - The best strategy is a balance between having a deliberate one, and a flexible, or emergent strategy.
+ - Because if the decisions you make about where you invest your blood, sweat, and tears are not consistent with the person you aspire to be, you’ll never become that person.
+ - My conclusion: Management is the most noble of professions if it’s practiced well. No other occupation offers as many ways to help others learn and grow, take responsibility and be recognized for achievement, and contribute to the success of a team.
+ - Disruption is, at its core, a really powerful idea, but everyone hijacks the idea to do whatever they want now.
+ - If you need a machine and don’t buy it, then you will ultimately find that you have paid for it and don’t have it.
+ - You may hate gravity, but gravity doesn’t care.
+ - Every time you take someone figuratively by the hand and introduce him or her to Jesus Christ, you will feel how deeply our Savior loves you and loves the person whose hand is in yours.
+ - I’ve concluded that the metric by which God will assess my life isn’t dollars but the individual people whose lives I’ve touched.
+ - This is one of the innovator’s dilemmas: Blindly following the maxim that good managers should keep close to their customers can sometimes be a fatal mistake.
+ - Efficiency innovations provide return on investment in 12-18 months. Empowering innovations take 5-10 years to yield a return. We have ample capital – oceans of capital – that is being reinvested into efficiency innovation.
+ - Children build self-esteem by doing things that are hard and learning what works.
+ - The answer is the disruptive innovator, an outsider, who creates a product or service for the non-existing consumer in a non-existing market for almost no profit.
+ - If the technology is disruptive, on the other hand, the odds are that at the end of the transition, the leaders will have been toppled and new companies will be on top.
+ - You can invest to create the new growth business while the core business is still growing, because new business units don’t need to get big fast. But when the core business stops growing, investing to create new growth businesses becomes impossible.
+ - Innovation simply isn’t as unpredictable as many people think. There isn’t a cookbook yet, but we’re getting there.
+ - Innovation almost always is not successful the first time out. You try something and it doesn’t work and it takes confidence to say we haven’t failed yet. Ultimately you become commercially successful.
+ - As I have studied the Bible and the Book of Mormon, I have come to know through the power of the Spirit of God, that these books contain the fullness of the gospel of Jesus Christ.
+ - Core competence, as it is used by many managers, is a dangerously inward-looking notion. Competitiveness is far more about doing what customers value than doing what you think you’re good at.
+ - Purpose must be deliberately conceived and chosen, and then pursued.
+ - Intimate, loving, and enduring relationships with our family and close friends will be among the sources of the deepest joy in our lives.
+ - If you study the root causes of business disasters, over and over you’ll find this predisposition toward endeavors that offer immediate gratification.
+ - Only the general manager can mold the resources, processes, and values that affect innovation, into a coherent capability to develop and launch superior new products and services repeatedly.
+ - If you take away religion, you can’t hire enough police.
+ - Almost always great new ideas don’t emerge from within a single person or function, but at the intersection of functions or people that have never met before.
+ - Because of the disruption phenomenon – technological progress outstripping the ability of customers to utilize it – the general tendency is for the money to migrate toward the subsystems.
+ - Focus is scary – until you realize that it only means turning your back on markets you could never have anyway. Sharp focus on jobs that customers are trying to get done holds the promise of greatly improving the odds of success in new-product development.
+ - In our lives and in our careers, whether we are aware of it or not, we are constantly navigating a path by deciding between our deliberate strategies and the unanticipated alternatives that emerge.
+ - If you just look at the data, you are led to believe that things are getting better, rather than worse. That’s why the fall is really precipitous, once you hit the ceiling.
+ - In the study of management, unfortunately, many writers have been so anxious to articulate a theory in the form of, “If you do this, this will result,” that they never go through this careful effort.
+ - There needs to be conviction and action behind rules.
+ - In a large successful company where your power base as CEO isn’t all that secure, it’s hard for a CEO to pursue a truly disruptive strategy.
+ - If you defer investing your time and energy until you see that you need to, chances are it will already be too late.
+ - The path I am trying so hard to follow is in fact the one that God my Father and His Son Jesus Christ want me to pursue. It has brought me deep happiness.
+ - I have been blessed to see visions of eternity; and events in my future that have been important for me to foresee, have been revealed to me.
+ - The whole enterprise of teaching managers is steeped in the ethic of data-driven analytical support. The problem is, the data is only available about the past. So the way weve taught managers to make decisions and consultants to analyze problems condemns them to taking action when its too late.
+ - Regulatory fiat cannot create a market at a technologically interdependent interface. And by the same token, regulation and so-called monopoly power rarely prevail at modular interfaces between stages of value-added technology.
+ - Doing deals doesn’t yield the deep rewards that come from building up people.
+ - Management has to provide the coordinating mechanism between what the supplier provides and what the user needs in not-good-enough situations where product architecture is consequently interdependent. Management always beats markets when there is not sufficient information.
+ - Don’t worry about the level of individual prominence you have achieved; worry about the individuals you have helped become better people.
+ - Government mandates, incidentally, are likely to distort rather than solve the problem of finding a market. I would, therefore, force my organization to live by its wits rather than to rely on capricious subsidies or non-economic-based regulation to fuel my business.
+ - The outsourcing gurus have been driving the theory, and they are saying everybody ought always to do this. But it is really contingent on where you are on the spectrum from “not good enough” to “more than good enough,” relative to each tier of the market.
+ - How can you make sense of the future when you only have data about the past?
+ - Ultimately, when you come up with a classification scheme that is collectively exhaustive and mutually exclusive, then the theory can become what Kuhn called a paradigm.
+ - Many think of management as cutting deals and laying people off and hiring people and buying and selling companies. That’s not management, that’s deal making. Management is the opportunity to help people become better people. Practiced that way, it’s a magnificent profession.
+ - In most instances, biotechnology, though a radically different approach, is a sustaining technology: It’s a dramatically improved way of targeting problems that we hadn’t been able to solve with the conventional approach of mainstream pharmaceutical companies.
+ - Christine and I haven’t raised our children. A whole community of selfless Christians has contributed to helping them become faithful, competent adults.
+ - Investing in our people is going to be costly and scarce – we need to start doing that!
+ - I have healed the sick by the power of the God. I have spoken with the gift of tongues.
+ - An innovation will get traction only if it helps people get something that they’re already doing in their lives done better.
+ - A lot has been written about the Internet bust. From my point of view, it’s quite clear the Internet isn’t a category; the Internet is a technological infrastructure that can be deployed to facilitate a disruptive business model or a sustaining business model.
+ - There’s usually some process by which a potentially great idea gets prostituted into something lacklustre, or by which the wrong idea gets put forward.
+ - It is a company’s customers who effectively control what it can and cannot do.
+ - The transformation at the corporate level was achieved by selling off business units in old markets and by creating new business units to pursue the new opportunities. But the individual business units themselves within those transformed corporations were almost inert to change.
+ - There are direct paths to a successful career. But there are plenty of indirect paths, too.
+ - When a technology, regardless of how different and difficult it is, sustains the trajectory of performance improvement, my research asserts that the leaders in the prior generation of technology are likely to end up on top of their industry at the end of the transition.
+ - The only useful information about the market will be what I create through expeditions into the market, through testing and probing, trial and error, by selling real products to real people who pay real money.
+ - We don’t hire ministers or priests to teach and care for us. This forces us to teach and care for each other – and in my view, this is the core of Christian living as Christ taught it.
+ - There are more than 9,000 billing codes for individual procedures and units of care. But there is not a single billing code for patient adherence or improvement, or for helping patients stay well.
+ - Its actually really important that you succeed at what youre succeeding at, but that isnt going to be the measure of your life.
+ - But actually theory is very practical. Gravity is a theory, for example. It allows you to predict that if you step off a cliff you will fall; you don’t have to collect data on that.
+ - Each of our children during their high school years went to ‘early morning seminary’ – scripture study classes that met in the home of a church member every school day morning from 6:30 until 7:15.
+ - Lets take the best of our ideas from Global Drucker Forum, and the best of our language, and then focus and clarify.
+ - I have continued systematically to study the Book of Mormon and Bible to understand even more deeply what God expects of me and my family while on this earth.
+ - I’ve concluded that getting the categories right is an absolutely crucial step to building useful management theory, and unfortunately too few writers do this. You’ve got to engage in serious scholarship, and then figure out how to write it in a way that lots of people can understand.
+ - Businesses want to think in terms of categories. Consumers want us to think in terms of their needs.
+ - Because we employ no professional preachers, it means that every sermon or lesson in church is given by a regular member – women and men, children and grandparents.
+ - Capitalism has taught us that markets are always more efficient than hierarchical managerial coordination. But in a situation where those three conditions aren’t met, I can’t outsource or partner with you because markets don’t function in the absence of sufficient information.
+ - Think about the metric by which your life will be judged, and make a resolution to live every day so that in the end, your life will be judged a success.
+ - Watching how customers actually use a product provides much more reliable information than can be gleaned from a verbal interview or a focus group.
+ - When product performance outstrips the ability of customers to use that performance in an industry, the competitive game changes. Under those circumstances you have to decouple components businesses from assembly businesses.
+ - What you need is a fundamental humility – the belief that you can learn from anyone.
+ - Whenever we have thanked these men and women for what they have done for us, without exception they have expressed gratitude for having the chance to help – because they grew as they served.
+ - If I know what to spec, and I can measure it, and there are no unpredictable interdependencies between what you do and what I must do in response, then an economist would say that is sufficient information for a market to emerge between you and me.
+ - One quarter of Medicare beneficiaries have five or more chronic conditions, sees an average of 13 physicians each year, and fills 50 prescriptions per year.
+ - Steve Jobs and Apple taught us that profit is not the ultimate goal, but rather a consequence of something greater.
+
+81 quotes

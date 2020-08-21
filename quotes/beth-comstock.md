@@ -1,0 +1,21 @@
+ - Marketing is about innovation.
+ - You can’t sell anything if you can’t tell anything.
+ - Marketing’s job is never done. It’s about perpetual motion. We must continue to innovate every day.
+ - Know thyself. Know the customer. Innovate.
+ - B2B does not mean boring marketing.
+ - Be where the world is going.
+ - Mind share before market share.
+ - You have to tell a story before you can sell a story.
+ - Business model innovation is constant in this economy. You start with a vision of a platform. For a while, you think there’s a line of sight, and then it’s gone. There’s suddenly a new angle.
+ - Whether B2B or B2C, I believe passionately that good marketing essentials are the same. We all are emotional beings looking for relevance, context and connection.
+ - An idea doesn’t count if you can’t use it.
+ - What’s the DNA of a marketer? We call it the 4-I’s: instigator, implementer, innovator, and integrator.
+ - Some dream in color. We dream in scale.
+ - We seek to be as nimble as a startup.
+ - The more passionate that someone is about something, the more you have to listen to them.
+ - In big companies projects have to scale and Lean Startup help us to do it.
+ - Our job is to understand where the market is heading and translate that into practical action.
+ - There is a shotgun wedding going on and its between Marketing and IT. Finance’s worst nightmare.
+ - There is always room in our budget for a little experimentation.
+
+19 quotes

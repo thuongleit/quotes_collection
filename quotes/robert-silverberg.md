@@ -1,0 +1,24 @@
+ - We are born by accident into a purely random universe.
+ - Men of great spirit are at high risk at a time when small souls rule the world.
+ - When you know that something is dying inside you, you learn not to put much trust in the random vitalities of the fleeting moment.
+ - I hate no one, sir. It seems a waste of emotional energy.
+ - Living, we fret. Dying, we live. I’ll keep that in mind. I’ll be of good cheer.
+ - It was like that all the time, in those years: an endless trip, a gaudy voyage. But powers decay. Time leaches the colors from the best of visions. The world becomes grayer. Entropy beats us down. Everything fades. Everything goes. Everything dies.
+ - Unacceptable, maybe. But not unthinkable. Nothing’s unthinkable once somebody’s thought it.
+ - To devote oneself to vigilance when the enemy is an imaginary one is idle, and to congratulate oneself for looking long and well for a foe that is not coming is foolish and sinful. My life has been a waste.
+ - Having lost our present and our future, we had of necessity to bend all our endeavors to the past, which no one could take from us if only we were vigilant enough.
+ - Utopias are boring. Distopias on the other hand, are interesting.
+ - Ignorance can’t be pardoned. Only cured.
+ - One defining symptom of decadence is a fondness for vast and nonsensical extravagance.
+ - Aristocrats might shrug, but commoners, dreading any collapse of the social order, wanted the rules of behavior to be observed.
+ - The denizens of Citizens Service Houses are not, as a rule, gifted with a lot of common sense, but they often make up for that by being extremely argumentative and vindictive.
+ - Stale is stale and borrowed is borrowed, no matter how original your models may have been.
+ - There are true unseen forces, but not nearly so many as we believe, nor would they rule us so sternly if we did not admit them to our souls. We would not be assailed half so often by devils, had we not taken the trouble to invent so many of them.
+ - Thus does the unyielding, inescapable future ineluctably devour the present.
+ - Never pass by a chance to shut up.
+ - My temperament is not inclined toward more self-promotion than is absolutely necessary for my professional well-being.
+ - I find the world and all it contains extremely fascinating. Is this sinful?
+ - Who could not return from a visit to Jack Vance’s world, without feeling that he had been somewhere unique, that he had experienced things unavailable in our mundane world?
+ - Autobiography. Apparently one should not name the names of those one has been to bed with, or give explicit figures on the amount of money one has earned, those being the two data most eagerly sought by readers; all the rest is legitimate to reveal.
+
+22 quotes

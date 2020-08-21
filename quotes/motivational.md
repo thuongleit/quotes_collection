@@ -1,0 +1,102 @@
+ - Work hard in silence, let your success be your noise. ~~Frank Ocean
+ - If you want something you have never had, you must be willing to do something you have never done. ~~Thomas Jefferson
+ - Life begins at the end of your comfort zone. ~~Neale Donald Walsch
+ - Two things define you: Your patience when you have nothing and your attitude when you have everything. ~~Imam Ali
+ - The greatest pleasure in life is doing what people say you cannot do. ~~Walter Bagehot
+ - Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. ~~Earl Nightingale
+ - A river cuts through rock, not because of its power, but because of its persistence. ~~Jim Watkins
+ - You don’t have to be great to start, but you have to start to be great. ~~Zig Ziglar
+ - If it is important to you, you will find a way. If not, you’ll find an excuse. ~~Ryan Blair
+ - If people are not laughing at your goals, your goals are too small. ~~Azim Premji
+ - Great minds discuss ideas. Average minds discuss events. Small minds discuss people. ~~Eleanor Roosevelt
+ - Hard work beats talent when talent doesn't work hard. ~~Tim Notke
+ - I am not what happened to me, I am what I choose to become. ~~Carl Gustav Jung
+ - An entire sea of water can’t sink a ship unless it gets inside the ship. Similarly, the negativity of the world can’t put you down unless you allow it to get inside you. ~~Goi Nasu
+ - It does not matter how slowly you go as long as you do not stop. ~~Confucius
+ - If you want to live a happy life, tie it to a goal, not to people or things. ~~Albert Einstein
+ - Doubt kills more dreams than failure ever will. ~~Suzy Kassem
+ - Knowing is not enough, we must apply. Willing is not enough, we must do. ~~Bruce Lee
+ - The first step to getting anywhere is deciding you’re no longer willing to stay where you are. ~~Anonymous
+ - If you are depressed you are living in the past. If you are anxious you are living in the future. If you are at peace you are living in the present. ~~Lao Tzu
+ - A year from now you may wish you had started today. ~~Karen Lamb
+ - The world is changed by your example, not by your opinion. ~~Paulo Coelho
+ - The master has failed more times than the beginner has even tried. ~~Stephen McCranie
+ - The activity you’re most avoiding contains your biggest opportunity. ~~Robin S. Sharma
+ - I hated every minute of training, but I said, “Don’t quit. Suffer now and live the rest of your life as a champion.” ~~Muhammad Ali
+ - If you don’t make the time to work on creating the life you want, you’re eventually going to be forced to spend a lot of time dealing with a life you don’t want. ~~Kevin Ngo
+ - Throw me to the wolves and I will return leading the pack. ~~Seneca
+ - When you want to succeed as bad as you want to breathe, then you’ll be successful. ~~Eric Thomas
+ - When someone tells me “no,” it doesn’t mean I can’t do it, it simply means I can’t do it with them. ~~Karen E. Quinones Miller
+ - Today i will do what others won't so tomorrow i can do what others can’t. ~~Jerry Rice
+ - Never confuse a single defeat with a final defeat. ~~F. Scott Fitzgerald
+ - Just stick with it. What seems so hard now will one day be your warm up. ~~Anonymous
+ - Turn your face to the sun and the shadows fall behind you. ~~Maori Proverb
+ - When 99% of people doubt your idea, you’re either gravely wrong or about to make history. ~~Scott Belsky
+ - I don’t count my sit-ups. I only start counting when it starts hurting. When I feel pain, that’s when I start counting, because that’s when it really counts. ~~Muhammad Ali
+ - What would you do if you weren’t afraid? ~~Sheryl Sandberg
+ - If you don’t build your dream someone will hire you to help build theirs. ~~Tony Gaskins
+ - Courage doesn’t always roar. Sometimes courage is the little voice at the end of the day that says I’ll try again tomorrow. ~~Mary Anne Radmacher
+ - Do what you can, with what you have, where you are. ~~Theodore Roosevelt
+ - If you think you are too small to make a difference, try sleeping with a mosquito. ~~Dalai Lama XIV
+ - I already know what giving up feels like. I want to see what happens if I don’t. ~~Neila Rey
+ - How we spend our days is, of course, how we spend our lives. ~~Annie Dillard
+ - The habits that took years to build, do not take a day to change. ~~Susan Powter
+ - Stop letting people who do so little for you control so much of your mind, feelings and emotions. ~~Will Smith
+ - The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. ~~William Arthur Ward
+ - Worry a little bit every day and in a lifetime you will lose a couple of years. If something is wrong, fix it if you can. But train yourself not to worry: Worry never fixes anything.  ~~Ernest Hemingway
+ - There are only two days in the year that nothing can be done. One is called Yesterday and the other is called Tomorrow. Today is the right day to Love, Believe, Do and mostly Live. ~~Dalai Lama XIV
+ - It’s not the load that breaks you down, it’s the way you carry it. ~~Lou Holtz
+ - First they ignore you, then they ridicule you, then they fight you, and then you win. ~~Mahatma Gandhi
+ - I’m too busy working on my own grass to notice if yours is greener. ~~Anonymous
+ - Always be a first rate version of yourself and not a second rate version of someone else. ~~Judy Garland
+ - Success isn’t owned. It’s leased. And rent is due every day. ~~J. J. Watt
+ - Long-term consistency trumps short-term intensity. ~~Bruce Lee
+ - Better to be the one who smiled than the one who didn't smile back. ~~Mari Gayatri Stein
+ - The worst thing I can be is the same as everybody else. I hate that. ~~Arnold Schwarzenegger
+ - It’s not what you are that holds you back, it’s what you think you are not. ~~Denis Waitley
+ - People often say that motivation doesn’t last. Well, neither does bathing. That’s why we recommend it daily. ~~Zig Ziglar
+ - Failure is an option here. If things are not failing, you are not innovating enough. ~~Elon Musk
+ - I don't measure a man’s success by how high he climbs but how high he bounces when he hits bottom. ~~George S. Patton Jr.
+ - You don’t set out to build a wall. You don't say ‘I’m going to build the biggest, baddest, greatest wall that’s ever been built.’ You don’t start there. You say, ‘I’m going to lay this brick as perfectly as a brick can be laid.’ You do that every single day. And soon you have a wall. ~~Will Smith
+ - Chop your own wood and it will warm you twice. ~~Henry Ford
+ - There is nothing noble in being superior to your fellow man; true nobility is being superior to your former self. ~~Ernest Hemingway
+ - Someone once told me the definition of Hell: The last day you have on earth, the person you became will meet the person you could have become. ~~Anonymous
+ - I ask not for a lighter burden, but for broader shoulders. ~~Jewish Proverb
+ - Man cannot remake himself without suffering, for he is both the marble and the sculptor  ~~Alexis Carrel
+ - What screws us up the most in life is the picture in our head of what it’s supposed to be. ~~Socrates
+ - Without deviation from the norm, progress is not possible. ~~Frank Zappa
+ - You have to remember something: everybody pities the weak; jealousy you have to earn. ~~Arnold Schwarzenegger
+ - A man who procrastinates in his choosing will inevitably have his choice made for him by circumstance. ~~Hunter S. Thompson
+ - Don’t get so busy making a living that you forget to make a life. ~~Dolly Parton
+ - I’d always end up broken down on the highway. When I stood there trying to flag someone down, nobody stopped. But when I pushed my own car, other drivers would get out and push with me. If you want help, help yourself – people like to see that. ~~Chris Rock
+ - Nothing can stop the man with the right mental attitude from achieving his goal; nothing on earth can help the man with the wrong mental attitude. ~~Thomas Jefferson
+ - The reason we struggle with insecurity is because we compare our behind-the-scenes with everyone else’s highlight reel. ~~Steven Furtick
+ - Only put off until tomorrow what you are willing to die having left undone. ~~Pablo Picasso
+ - It is impossible to live without failing at something, unless you live so cautiously that you might as well not have lived at all – in which case, you fail by default. ~~J.K. Rowling
+ - To the world you may be one person but to one person you may be the world. ~~Bill Wilson
+ - The whole problem with the world is that fools and fanatics are always so certain of themselves, and wiser people so full of doubts. ~~Bertrand Russell
+ - If you trust in yourself... and believe in your dreams... and follow your star... you’ll still get beaten by people who spent their time working hard and learning things and weren’t so lazy. ~~Terry Pratchett
+ - We can complain because rose bushes have thorns, or rejoice because thorn bushes have roses. ~~Abraham Lincoln
+ - Rock bottom became the solid foundation on which I rebuilt my life. ~~J.K. Rowling
+ - Everybody says they’re trying to get their piece of the pie. They don’t realize that the world is a kitchen – you can make your own pie. ~~Terry Crews
+ - No man has the right to be an amateur in the matter of physical training. It is a shame for a man to grow old without seeing the beauty and strength of which his body is capable. ~~Socrates
+ - You spend your whole life stuck in the labyrinth, thinking about how you’ll escape it one day, and how awesome it will be, and imagining that future keeps you going, but you never do it. You just use the future to escape the present. ~~John Green
+ - Summer bodies are made in the winter. ~~Anonymous
+ - As long as you make an identity for yourself out of pain, you cannot be free of it. ~~Eckhart Tolle
+ - If I had asked people what they wanted, they would have said faster horses. ~~Henry Ford
+ - It is possible to commit no mistakes and still lose. That is not a weakness; that is life. ~~Jean-Luc Picard
+ - I constantly get out of my comfort zone. Looking cool is the easiest way to mediocrity. The coolest guy in my high school ended up working at a car wash. Once you push yourself into something new, and whole new world of opportunities opens up. But you might get hurt. In fact you will get hurt. But amazingly when you heal – you are somewhere you’ve never been. ~~Terry Crews
+ - It's not the daily increase but daily decrease. Hack away at the unessential. ~~Bruce Lee
+ - If they can make penicillin out of moldy bread, then they can sure make something out of you. ~~Muhammad Ali
+ - Everyone who has ever taken a shower has had an idea. It’s the person who gets out of the shower, dries off, and does something about it that makes a difference. ~~Nolan Bushnell
+ - In the face of such hopelessness as our eventual, unavoidable death, there is little sense in not at least trying to accomplish all of your wildest dreams in life. ~~Kevin Smith
+ - However, I continue to try and I continue, indefatigably, to reach out. There’s no way I can single-handedly save the world or, perhaps, even make a perceptible difference – but how ashamed I would be to let a day pass without making one more effort. ~~Isaac Asimov
+ - Dead Last Finish is greater than Did Not Finish, which trumps Did Not Start. ~~Anonymous
+ - The most important kind of freedom is to be what you really are. You trade in your reality for a role. You trade in your sense for an act. You give up your ability to feel, and in exchange, put on a mask. There can’t be any large-scale revolution until there’s a personal revolution, on an individual level. It’s got to happen inside first. ~~Jim Morrison
+ - I hate that word – “lucky.” It cheapens a lot of hard work. Living in Brooklyn in an apartment without any heat and paying for dinner at the bodega with dimes – I don’t think I felt myself lucky back then. Doing plays for 50 bucks and trying to be true to myself as an artist and turning down commercials where they wanted a leprechaun. Saying I was lucky negates the hard work I put in and spits on that guy who’s freezing his ass off back in Brooklyn. So I won’t say I’m lucky. I’m fortunate enough to find or attract very talented people. For some reason I found them, and they found me. ~~Peter Dinklage
+ - Luck is the dividend of sweat. The more you sweat, the luckier you get. ~~Ray Kroc
+ - There is no substitute for hard work. ~~Thomas A. Edison
+ - I could either watch it happen or be a part of it. ~~Elon Musk
+ - The best revenge is massive success. ~~Frank Sinatra
+
+100 quotes

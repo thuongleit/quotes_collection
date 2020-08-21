@@ -1,0 +1,35 @@
+ - Don’t judge someone’s attitude until you’ve felt their pain.
+ - I think everyone is beautiful in their own way.
+ - I feel like I grew up too fast a long time ago.
+ - I’m constantly criticised for being too skinny. I’m trying to gain weight but my body won’t let it happen. What people don’t understand is that calling someone too skinny is the same as calling someone too fat, it’s not a nice feeling.
+ - I truly enjoyed Greece – Santorini. That’s somewhere that I always want to be.
+ - Modelling isn’t something I’m doing to prove people wrong. It’s something I’m doing because it’s what I want to do.
+ - Someone who wants to be with you, WILL be with you. End of story.
+ - Modeling is my number one priority – one hundred percent.
+ - My biggest role model? Def my Mom and my sisters!
+ - It’s crazy to think North West can already read better than Kendall Jenner.
+ - My favorite thing about doing photo shoots is just being able to have fun, meeting new people, getting dressed up, and I just love doing it. So, I have a lot of fun.
+ - I think mascara is a must. If I’m going to wear makeup somewhere, and I’m doing it, it’s usually really simple – it’s just mascara and maybe a tiny bit of eyeshadow, but that’s it.
+ - I’m the fastest walker, and everyone makes fun of me for it.
+ - I was always looking up to supermodels. They were, like, my superheroes.
+ - I was the biggest liar for no reason, and then as I got older, I thought, “Why am I lying to everybody?” I would hear other people lie and be like, “You sound so stupid.” So then I would just change my lies. The only person I lie to is my little sister, when I steal her clothes.
+ - I’m obsessed with Tumblr. I love looking at all the pictures!
+ - If I see something really nasty on Twitter, I will usually delete it or block the person because I don’t want to see that every day Get to know me, and then you can talk about me!
+ - My first crush was this kid in kindergarten who told me he had tigers in his attic as well.
+ - The New York fashion scene is crazy, madness, but I love the energy.
+ - I want to be the next Gisele Bundchen. Everything she does, who she is, what she’s done, she’s just amazing.
+ - I hate when people are chomping their gum, even though I do it. I hate that.
+ - I used to have the craziest fear of losing teeth. I would have nightmares about that all the time. But it’s the craziest thing, because I feel like that’s one of the easiest things to fix. You just get veneers or something.
+ - It makes me think – what am I going to be like when I’m 65?
+ - I wanted to fly when I was little. I still want to fly.
+ - My dream jobs would be Italian ‘Vogue’ and anything with Chanel!
+ - I want to continue modeling and do the best that I can with that.
+ - I guess my style’s a little edgy but comfortable. I like being comfortable, for sure, and kind of casual.
+ - Sometimes I just want to be left alone and be a normal kid for, like, five minutes. That’s tough when the paparazzi are chasing you.
+ - Ask me a question about paparazzi, and I get so heated. And I feel so bad for young kids of celebrities. My nieces and nephews get yelled at, and I’m like, ‘You are yelling at a 2-year-old.’
+ - I don’t work with a trainer. I just go to cheerleading practice and run a couple times a week.
+ - When I was little, I would always lie about the stupidest things. In kindergarten or first grade, I would tell people I had tigers living in my attic and a room full of gold.
+ - My ideal prom date would have to be cute, funny, sweet, nice.
+ - I definitely want to design clothes at one point.
+
+33 quotes

@@ -1,0 +1,165 @@
+ - Waiting for inspiration is for amateurs; professionals get to work.
+ - Dogs are angels sent from heaven in order to help us to be better people.
+ - Curiosity allows your unique “owned processes” to draw you toward creative conclusions.
+ - In life and art it’s better to be an enthusiastic amateur than a jaded professional.
+ - Fact is, perfection is boring.
+ - True muses stay dreams forever unless artists connect them to exploratory work.
+ - Art thrives on a difference of opinion. My treasure is your junk, sort of thing. Life would be dull if we all agreed.
+ - A drawing a day keeps the cobwebs away.
+ - The centipede has rhythm and flow in its hundred legs precisely because it does not have to think about it. Consider this the next time you move the instruments of your art.
+ - Keep busy while you are waiting for something to happen.
+ - Creativity is dynamic, it asserts life, frees the human spirit, conquers mental lassitude and illness, and makes real the outrageous potential of the universal imagination.
+ - More than any other colour, red is loaded for action.
+ - Our bodies, apart from their brilliant role as drawing exercises, are the temples of our being. Like the bodies of all fauna, they deserve both our study and our appreciation.
+ - In the companionship of art we are all of a time. Early or late we are to be shared.
+ - When you serve your passions, proficiency gradually takes over and becomes habitual.
+ - With repetition, the alternate approaches become clear, options open.
+ - As we grow older, we realize just how limiting were our earlier conceptions. Art is something else. Art is fluid, transmutable, open-ended, never complete, and never perfect. Art is an event.
+ - The short-goal habit is key to larger success and is at the root of human greatness. Life is think and do, think and do, think and do. Small steps can be greater than great leaps.
+ - While Mojo suggests any art that invokes supernatural powers, for us creators Mojovation means finding magic in what we do.
+ - There is no progress without product.
+ - I simply like the monumentality of the subjects – the opportunity for metaphor and the varied light that comes with high altitudes.
+ - Art is a course in personal development that has no reliable diploma and no known end. The pursuit of art instructs in beauty as well as ugliness, fantasy as well as common sense. Art levels souls and baffles brains. Art softens pain because it is pain. Art gives joy because it is joy.
+ - Do something others will have the desire to plagiarize but will find difficult to do.
+ - Previously unseen boo-boos come at you like tattoos on a teenage girl.
+ - Properly channeled, common feelings of inadequacy lead to powers of accomplishment.
+ - With materialization in play you have magic in your fingers and you become the wizard.
+ - Artists should be aware that petty stroking could be the source of arrested productivity. An artist’s job includes the avoidance of premature closure by the begged or gratuitous approval of others.
+ - Start with the foreground. Compositions fail when the foreground is treated as an afterthought.
+ - When you sit down to paint or draw, you form yourself into a posture of praise.
+ - Don’t assume there is only one way. Don’t assume that mistakes are a bad thing. Don’t think for one minute that everyone agrees with what ‘good’ is.
+ - As well as many subspecies, the main blocks are fear of failure after previous success, fear of success due to a sense of unworthiness, lack of potential venue, jaded attitude, crisis of confidence, evidence of persistent poor quality, lackadaisical motivation, and common everyday shortage of ideas.
+ - We know the human mind is programmed to glaze over when bored. Conversely, the mind is more alert in the presence of novelty. Our muse needs to stay seductive to keep our hands doing the right things.
+ - It is necessary to put yourself out for rejection, and accept that you will be rejected.
+ - Life is a passage through a museum of beauty.
+ - The brilliance of art as a collectible is that it has a way of reaching out on an emotional level. It touches on mystery, even spirituality.
+ - Risk in art is experimentation. There is no sorrow in self-driven experimentation.
+ - As self-governing entities, artists have a profound interest in change. Embracing change, we embrace growth and we embrace our future.
+ - Watch the greater image materialize. You need that thing over there to tell you what to do about that thing over here.
+ - According to Mednick, after sleep, people are 33 percent more likely to be creative.
+ - Critics are the products of their own times and biases and what they have to say about works of art is as transient and insubstantial as fashion.
+ - You’re right, super-realism is back in style.
+ - In painting you cover up your sins and everyone thinks you’re naturally talented.
+ - No one is going to hand you an organizational chart. You have to hand it to yourself.
+ - Where there are few expectations, expediency wins.
+ - With cropping, a new integrity appears and winning abstractions flutter up like butterflies. You can afford to be critical, discriminating, innocent, open-minded, charmed, beguiled or bamboozled.
+ - We have been mysteriously gifted this amazing life. Let us not complain.
+ - It’s better to have a small diamond than a large piece of glass.
+ - Passion is the force that springs an artist from the needling cushion of depression.
+ - Accepting the gift may take the accumulated wisdom of some trodden miles, but it also opens the welcome windows of joy.
+ - It’s okay to doubt. It’s important to test. The way to discover secrets is to be a student of your own efforts.
+ - Art, because it’s so easy to do, and yet so difficult to do well, encourages humility in the human soul.
+ - To float like a cloud you have to go to the trouble of becoming one.
+ - The painting world is awash with people who cannot paint. This is a condition that would not be tolerated in other professions such as Dentistry, Medicine, or among members of the Airline Pilot’s Association.
+ - Quality is always in style.
+ - The job of art is to turn time into things.
+ - We artists allow others to see through our windows.
+ - Style essentially appeared out of what I liked to do.
+ - Regarding ego force, we don’t always like people who have it. If you have it, and need to be liked, you ought to consider letting most of it come out the end of your brush.
+ - Mountains in all their moods are symbols of something greater, something worth aspiring to. Mountains are powerful, dangerous, beautiful, noble and mysterious. Mountains get respect.
+ - I’m a believer in moderation in all things, including moderation.
+ - I find that as I get into a painting I have high hopes, then little by little I begin to see that it is not going to be the masterpiece I thought it would be, and I start putting my hopes into the next work.
+ - Sentimental titles are the last bastion of scoundrels, and can add significant barf to an already barfy work.
+ - Seems those with money who don’t worry about money have big walls.
+ - Prices need to be fair, appropriate and consistent.
+ - The oceans of art are awash with people who can’t paint. When those who can’t paint notice those who can, they are sometimes not inclined to accept them as serious like themselves. It’s an unfortunate quirk of human nature and ought not to be fretted over.
+ - Flowers are an education in a vase.
+ - Learning to focus and pay attention, if only for a short time, has been identified as a primary key to the development of human effectiveness.
+ - Priests are often well-meaning people who haven’t yet looked too thoroughly into comparative religion.
+ - Take your brush here and there like a bee in an alpine meadow. In other words, don’t laboriously work on or try to finish off one particular part. Paint promiscuously.
+ - Painters paint, and history continues to make fools of curators.
+ - Your easel is the nuclear sun of an uncommon universe.
+ - Now familiar with my own particular voice and accent, my Dragon app prints out exactly what I speak into my iPad. Twenty years ago this miracle would be unthinkable.
+ - Well considered abandonment is a trusted teacher.
+ - In acrylic, happiness comes a bit faster.
+ - I always thought signing was an artist’s honour and guarantee of authenticity.
+ - A simple equation for the production of successful art work is lots of reference material plus lots of art supplies equals lots of painting happiness.
+ - I do know, for most of us, the very best of times are when you’re in your own space sweating, trying to squeeze quality out of imperfect capabilities.
+ - Evolved creators are just as curious about their failures as they are of their successes.
+ - Objects are held by the backgrounds that are cut into them.
+ - Abstraction generally involves implication, suggestion and mystery, rather than obvious description.
+ - I have always found it a testament to the importance of painting that the first thing many people do when their home is on fire is to grab their paintings and then run out.
+ - As every artist who has used the method knows – photography’s a loyal slave and a tyrannical master.
+ - In life and art we need to make sure that we honour that which our hearts and brains tell us is good. And we should cast a philosophic yet curious smile at that which our hearts and brains tell us otherwise.
+ - The guy may be totally motivated, connected and inspired, but if he doesn’t know how to do it, he’s not the guy to take out your appendix.
+ - So who are we going to blame for our disappointments and our failures?
+ - The artist needs to sit patiently at the feet of Nature in all Her moods and nuances and silently develop the skills to honour Her. There are no recipes for Autumn.
+ - Know that to begin is often better than to think.
+ - One of the ways to learn is to know when you’re making failures.
+ - My app is the same juicy paint used by Vincent Van Gogh; my screen is the woven canvas of Titian. Painting by hand, I’ve come to figure, is a certain kind of love.
+ - Landscape painting tends to fall under more academic controls. I must say I often like working within these controls. It gives me the feeling that I’m taking part in a noble tradition.
+ - Contrary to popular belief, all evolving artists are in a full time battle with mediocrity.
+ - We artists stick ourselves out. This in itself deserves respect.
+ - The problem with University degrees, particularly the more spectacular ones, is that people who possess them can fall into the trap of thinking people who don’t have them don’t know anything.
+ - We are not born focusing. It’s an acquired skill that requires initial effort and constant upgrading.
+ - Sometimes you have to go through something else to find what you’re looking for.
+ - A curiosity prompt heightens the senses and hones compositional ability...
+ - By thinking you are cleverer and more talented than your buddies, many a career has been blotted.
+ - Dealer goodwill and friendship are keys to thrival.
+ - One compositional element suggests and asks for another. This is what makes the activity interesting.
+ - When I’m in the studio I often hunger for the road. And when away I long for the efficiency of the studio.
+ - For all of us, self-briefing before going out or starting a project sharpens artistic wit.
+ - The overly-verbal artist is led by his understanding of things – rather than by direct observation of things as they are.
+ - Inspiration comes from doing.
+ - We artists give daily thanks for the miracle of our planet and for the inclination and the capability to honour it.
+ - The head governs, the heart assists, the body acts.
+ - We are trying to evoke and reinforce meanings from the spaces we cover and the times we’re given. Short or long this becomes our purpose. What we artists do is important stuff.
+ - Art is a Great Goddess of infinite intrigue and illusion, and even a lifetime of worship may not find her fickle soul.
+ - The studio is an extension of the sandbox and the kindergarten playroom. It has a dynamic unlike any office or factory. It’s a room at the service of a dreamer on her way to becoming a master.
+ - Music is the most abstract of the arts and it expresses the sound of the universe itself. These are the real rhythms that stimulate the artist’s mind and guide his hand.
+ - The pursuit of art is a delicate balance between influence and self-assertiveness. As self-realized artists, we all have different levels of tolerance for this mystery. Influence is like Scotch; it’s good to know your personal limit.
+ - As you do your work, you discover what you love to do.
+ - By stealthily teaching dependence, photography can turn out to be dangerous.
+ - A high price may be part of the mystique in selling difficult art.
+ - Drawing is still the bottom line.
+ - A method of achieving wild enthusiasm is to act wildly enthusiastic. Often, a growing and beautiful love-affair develops quite automatically.
+ - Do not be frivolous with the gift of a day. Right now it’s all you have. Yesterday is history.
+ - Most of my contemporary grant-getters are now doing something other than painting.
+ - In art, everyone who plays wins.
+ - While obsessive behavior may be an antisocial plague to societies and communities at large, it’s total moxie when lone practitioners catch it.
+ - Never forget that the nurturing and preservation of your own muse is job one. Lose it and you may be losing a great deal.
+ - Many of us knuckle-dragging brush-painters think that ‘behind the times’ is part of our job description. Why deny ourselves the authentic journey of a time-honoured form?
+ - No matter what your disciplines, you need your own personal lists.
+ - Which is better – feeling good or getting good?
+ - The Canadian painter A. Y. Jackson noted that ‘failure of sight’ was a tiresome problem. He meant we should be able to look at our work-in-progress as if it were previously unseen.
+ - Artists with serious aspirations need to be left alone to follow the course of their own imagination.
+ - Artists are supposed to be the ones with imagination. A good part of our job description is to get regular people to use theirs.
+ - Certain music is terrifically inspirational and it is possible, months or even years afterwards, to look at a painting and remember the music that was playing during its execution.
+ - Art is a form of love. Art is the ultimate gift. Art heals life.
+ - Whatever you do, don’t let your system run you.
+ - Flat, uninteresting parts of paintings are, in fact, a ruse to get the viewer to see what needs to be seen.
+ - Art is a path on which we honour our world.
+ - Your muse is amused and willed to further renewal during the process of mindless grabbing of reference material or errant imaginings.
+ - I’ve come to realize that companionship and mild competition can help build quality and lay the ground for excellence.
+ - Artists cannot be micro-managed. We can take heart that everything we do is different from the last thing we did – or indeed everything that’s ever been done. That knowledge is the key to sound mentoring.
+ - Perhaps we might, within the anatomy of our imaginations, think once more of the naked body as a vessel of grace, taste and wonder. In the spotted history of art, stranger things have happened.
+ - An early flourish of confidence is useful. Then there’s the small crudities – the slubs and bumps that come with outdoor work – the odd charm of imprecision.
+ - I suppose what you’re doing as a painter is making a record of your trip through life. I can’t think of any job that is quite as satisfactory as doing a painting.
+ - Paintings, like tombstones, will last a good five hundred years, well into twenty or thirty generations.
+ - Our human landscape is overburdened with competitions and contests. Art need not be a contest. Art is a personal quest for quality. Quality is the forerunner of acceptance. Character is the forerunner of quality. Be your own discriminating connoisseur.
+ - Words are small straitjackets when put around creative flourishes and maneuverings.
+ - Incompetence, in my books, is the failure of the critical faculties to interfere constructively with the natural flow.
+ - This evening, while signing my name on a painting, I was thinking I might stop signing my cheques.
+ - Visual tonics such as ‘timed creativity’ need to be introduced to refresh and refurbish the muse.
+ - People suspend judgment in the presence of mystery.
+ - The only bad studio is the unused one.
+ - Exploit a subject or a theme to its greatest potential by bringing all possible reference to bear – then put aside the reference and create again using the potential of your unfettered imagination.
+ - Factual titling satisfies and is pure by its lack of bamboozlement.
+ - It’s my wish that I can help creative people think of new ways to be creative – to get more joy and understanding from their own unique processes.
+ - An opening and a receptiveness to design and pattern for its own sake seems to free the painting hand.
+ - In acrylics, what you lose on the straights you make up for on the corners.
+ - While this may seem peculiar, the combo of work and distraction leads to levels of innovation not often generated by structured, focused thinking alone.
+ - Our currency is what we are able to make.
+ - No one would have the courage to walk up to a writer and ask to look at the last few pages of his manuscript, but they feel perfectly comfortable staring over an artist’s shoulder while he is trying to paint.
+ - Many a fine style has evolved from a decent handicap.
+ - A young person wanting to become an artist might simply go purposefully and dedicatedly to his or her room with a few books and a thousand blank canvases for four years.
+ - God may work in light, but we mortals work in pigment.
+ - When shucked and released from its edges, the windowless subject stands alone as its own thing.
+ - For a lot of us drawing is a tyranny which impedes freshness and spontaneity.
+ - Silent guns have virtue.
+ - Sometimes you can be lucky enough to establish a working relationship with another artist who takes away the loneliness, particularly in travel and outdoor work.
+ - While knowledge of tools and the love of motif may be in your backpack, and all mountains may be measured by their previous heroes, art must exist for you in a place beyond the judgment of others.
+ - Artist, gain knowledge, but know that the greatest guru of all is the guru within.
+ - A painting has an intrinsic value which has nothing to do with critical assessments.
+
+163 quotes

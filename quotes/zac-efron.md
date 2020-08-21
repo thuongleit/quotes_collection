@@ -1,0 +1,84 @@
+ - When you’re young everything feels like the end of the world, but its not; its just the beginning.
+ - Sometimes you grow out of love.
+ - Life should be fun not dumb.
+ - I believe in destiny. I believe destiny opens doors for you, but it’s up to you to walk through them.
+ - You don’t really know how beautiful a girl is, until you meet her, all her beauty is in her personality.
+ - High School Musical has been a blessing and a gift.
+ - You can’t describe the feeling of being in love – when you meet someone who makes you a better person.
+ - A woman called me interesting once, and it kind of blew my mind. She said, ‘You’re one of the most interesting people I’ve ever met,’ and I was like, ‘Wow.’
+ - I don’t know if I believe in love at first sight, but of course I believe in two people having chemistry right away. A girl should be really easy to talk to. When I lose track of time because we’ve been talking, I think that’s really fun.
+ - I’d love to take a year off and travel the world under the radar. I would love to do it really low key. I wouldn’t need to stay in fancy hotels or anything; I just want to explore – but I don’t know how I’d do it. Would I shave my head to try and go incognito? Ha ha! I’m not telling.
+ - Personally, I was never the cool kid. I was always sort of a bookworm.
+ - You always have to remember that bullies want to bring you down because you have something that they admire. Also, when you get made fun of-when people point out your weaknesses, it’s an opportunity for you to rise above.
+ - I try to be green as much as I can and it’s hard. I feel like I’m never doing enough. For me as an actor, there’s only so many things I can do, and this is a way, through a film, to teach and hopefully get the message out to young kids.
+ - I want to grow up, live my life, experience things, make movies about those experiences and by the time the audience catches up, hopefully they’ll have a movie there that helps them get through that next phase when the discover life isn’t always like High School Musical.
+ - My advice to teens is to try and do something that scares you every day because it’s the only way you can test how far you can really go.
+ - A dog, for me, it’s not just getting a dog. I couldn’t leave him at home. I’m looking for a life partner and I’m not ready. I’m not emotionally mature enough.
+ - There are moments when you love babies, and you’re like, “God, they are the reason why we exist.” Then they start crying, and you’re like “God! Jesus!”
+ - Every day is a new experience and I take it as it comes.
+ - There’s a way that you can throw negativity out there that seems rebellious. But I’ve always taken pleasure in a different kind of rebellion, which is putting a positive spin on everything, trying to enjoy myself at all times.
+ - Don’t get me wrong – I’ve gone to a club. But I’d much rather be with my close friends at home or a concert, or on a trip. I’ll go dancing with my grandma. She likes to cut a rug!
+ - I think the most important thing for me in a relationship is honesty.
+ - There’s no point in being scared of just trying.
+ - Spider-Man’s probably my favorite. You see, Batman is a billionaire and there’s nothing really cool about a billionaire saving the world. But Spider-Man is Peter Parker, a conflicted character who puts on a suit and saves the world. I love that.
+ - I’m not getting married until I’m forty. If ever.
+ - If I splurge on anything, it’s cologne. I love smelling good.
+ - The fans make the person a star.
+ - I connect with people on a daily basis.
+ - Every time you make a movie you have to confront your fears.
+ - I’ve been doing musical theater since I was a kid. And look for a CD from me in the future. I want to write all the songs!
+ - I usually spend Valentines Day with my friends. But if I did have a girlfriend, I’d bring her flowers and candy.
+ - I’ve always been singing. Since day one. I started doing musical theater and you have to sing in musical theater and so that’s where I got most of my training. So singing on stage, you just inevitably, when you’re around other vocal artists, you get better at singing.
+ - I can’t handle the paparazzi. They’re everywhere. One of them was in a dumpster trying to take my photo the other day. It was crazy!
+ - It’s hard to film underwater. It really is tricky. You don’t have goggles, so you can’t see anything. You don’t know where you’re swimming to. Everything’s blurry.
+ - I think if a girl is easy to talk to then that’s the first thing I look for. It’s great when you meet a girl and three hours later you’re like, ‘Oh my gosh, we’ve been talking for three hours, what happened to the time?’
+ - When I’m stylizing, it’s all about accessories.
+ - I love action-adventure-type films – mythical adventures like ‘Lord of the Rings’ or superhero films like ‘Batman.’
+ - Dating is kind of hard. Like dinner or something like that. Like a forced awkward situation is very strange. Especially for me, for some reason.
+ - Honesty is most important, and it’s difficult when you’re young and single and sort of figuring out your own life.
+ - I’m very competitive by nature. And I like to be the underdog – It’s the best way to win. To come from behind and win is a great feeling!
+ - My mom is the No. 1 person who has taught me to be courteous towards women, to always be respectful and polite to them, and to always lead with your heart.
+ - I think it’s fine for girls to ask boys out. I actually prefer it.
+ - Being known for musicals is a great thing.
+ - I wish I could say I see my little brother more. We used to fight all the time but now that I don’t see him very often I cherish the time I have with him.
+ - A girl can tell I like her when I blush or start telling bad jokes.
+ - Jesse McCartney is one of the nicest people around. I hate when I hear bad things about him, because anyone who knows him would agree that he’s a good guy and really humble.
+ - Every actor has three versions of each scene – the one that you rehearse the night before, in your bedroom, the one you actually get to do when you’re filming, and then the one you wish you would have done, afterward.
+ - Amanda Bynes and I have become close since filming ‘Hairspray.’ It’s so weird because I grew up watching her.
+ - I’ve grown up a lot, I’m on my own, and I’ve learned some valuable life lessons.
+ - As far as looking at myself on screen, I tend to pick out every single flaw that I could have or should have done better. I’m more of a cringer at first and when it is years down the road and out of my way, I can actually appreciate it somehow.
+ - I’ve always cared about fashion and what I look like. I don’t like to spend a lot of money on designer clothes, but I do like to look good.
+ - I bought an electric scooter in sixth grade. Bankrupted me.
+ - I’ll never try to put on a fake image. I’m just Zac.
+ - I was influenced when I was younger by the cartoon movies that Disney put out, like Cinderella and what not. I watched those movies over and over when I was younger and the music is ingrained into my head. Nowadays, I’m still humming the tunes. It taught me the fundamentals.
+ - I like when a girl knows what she looks like and dresses to accentuate those features.
+ - If you’d have asked me when I was auditioning for High School Musical if I ever thought I was going to play a Marine...
+ - I can tell that fame is probably the most unadorable thing about acting. High School Musical is what got me here today and I’m very grateful – but the fame part isn’t so fun.
+ - Great advice comes from people that have been around a lot longer than you.
+ - I can draw really well. And I like to paint. I’m a bit of an artist.
+ - If you really want your hair to look good, just don’t wash it for a day. That’s my secret.
+ - From day one, I got addicted to being on stage and getting the applause and laughter.
+ - I can’t explain to you what it’s like to be a heartthrob. I don’t think I am a heartthrob.
+ - One time I went into a restroom and a girl followed me in. I signed an autograph for her in the sink. It was pretty funny because she was in a guy’s restroom and she wasn’t embarrassed at all.
+ - It’s the moms who are overaggressive. A lot of times their daughters are very sweet and cordial, and the moms tend to grab you and scream and want to kiss you. You gotta watch out for the moms.
+ - I wouldn’t just have other people write songs and me go out and sing it. I would sit down with a guitar and write 11 or 12 good songs for an album and that is gonna take a long time.
+ - I’ve always loved dogs. I grew up with them and I love working with them. They’re really fun.
+ - A fan sent me a letter and a $10 bill. It’s a short letter – all she said was, ‘Hey, since it’s harder for you to go out these days without getting photographed, here $10 for a pizza.’ I was like, ‘Aww, she sent me money for a pizza so I could eat at home!’
+ - Think on your toes, use what’s around you, and come up with something organic and fun.
+ - In sixth grade, my basketball team made it to the league championships. In double overtime, with three seconds left, I rebounded the ball and passed it – to the wrong team! They scored at the buzzer and we lost the game. To this day, I still have nightmares!
+ - I wore goofy hats to school and did musical theater. Most people thought I was a dork. But if you have a sense of humor about it, no one can bring you down.
+ - Every time I go to big events, it’s a trip. I feel like that kid who shouldn’t really be there.
+ - I’m definitely not getting married. In this business, you’re either getting married or they want you to be pregnant. I’m not getting married until I’m forty. If ever.
+ - I think the most important thing is to establish myself as an actor. As much as it’s a performing art, I’m not really a performer.
+ - Working out is my biggest hobby. It’s my Zen hour. I just zone out.
+ - Little Zac had it easy – but he didn’t realize he had it easy, so he took it for granted. I think going through ‘Hairspray’ and other projects helped me learn about the business and life in general.
+ - I like to go and do something adventurous. I like to go out and do some sort of crazy activity.
+ - I grew up being into sports and I wasn’t trained to move my body in the right way for dancing. I’m the last one to get any moves correct. In rehearsals it’s always, ‘OK, one more take for Zac.’
+ - My dogs are crazy. They’re always getting into some kind of trouble but then again, they’re my most loyal friends.
+ - Fame is probably the most unadorable thing about acting.
+ - I don’t think music is done by any means. I would love to do it again but it’s finding the right thing.
+ - I’m enjoying where I’m at in my life and I feel like I’m learning a lot on a daily basis. I’m learning without having to be behind a desk, so it’s a pretty cool place to be.
+ - I notice people that look good.
+ - Sometimes I take a while to get ready to go out. It’s not excessive, but it takes me some time to find clean clothes that match.
+
+82 quotes

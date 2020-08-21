@@ -1,0 +1,34 @@
+ - Never make your home in a place. Make a home for yourself inside your own head. You’ll find what you need to furnish it- memory, friends you can trust, love of learning, and other such things. That way it will go with you wherever you journey.
+ - Confident. Cocky. Lazy. Dead.
+ - The wisdom of our parents, grandparents, ancestors. In each individual life, it seems, we must first reject that wisdom, then later come to appreciate it.
+ - He who is certain he knows the ending of things when he is only beginning them is either extremely wise or extremely foolish; no matter which is true, he is certainly an unhappy man, for he has put a knife in the heart of wonder.
+ - A well-aimed spear is worth three.
+ - Not everyone can stand up and be a hero, Princess. Some prefer to surrender to the inevitable and salve their consciences with the gift of survival.
+ - People in science fiction flicks always seemed to know useful things about the places time travel took them. But what if the time traveler had been only an average history student? What then?
+ - We are none of us promised anything but the last breath we take.
+ - You are only a prisoner when you surrender.
+ - Tangaloor, fire-bright Flame-foot, farthest walker Your hunter speaks In need he walks In need, but never in fear.
+ - You have to go down before you can come out – that’s how these things always work.
+ - Weak dogs become bones for other, stronger dogs.
+ - The world was all mud and wire. The war in the heavens was only a faint imitation of the horror men had learned to make.
+ - Every man is the hero of his own song.
+ - Dying men think of funny things-and that’s what we all are here, aren’t we? Dying men.
+ - Honor is the only really good disguise for an occasional act of dishonor.
+ - He had once thought it was strange to have a friend you’d never met. Now it was even stranger, losing a friend you’d never really had.
+ - Wicked Tribe, Rooling Tribe! is the mejor hacker tribe. Too small, too fast, too scientific!
+ - The man who lives beside the water hole does not dream of thirst.
+ - Every time we tell a lie, the thing we fear grows stronger.
+ - I must make a choice every time I speak a sentence in English. I try to choose the happier way of saying things, so that my own words will not weigh me down like stones.
+ - As for monkeys, I would have five, and they would be named: See No Evil, Hear No Evil, Speak No Evil, Do Pretty Much Whatever The Hell You Want, and Expensive Attorney.
+ - Sleep. To lie down and shut out the noise, the fear, the unceasing misery.
+ - Though talent is wonderful, dance is 80% work and 20% talent.
+ - Never trust people that like to call things by initials, that’s my philosophy.
+ - Humans turn the places they live into great crowded piles of mud and stone, like the nests termites build – but what happens when in all the world there are termite hills left but no bush?
+ - Remember that each light between sunrise and sunset is worth dying for at least once.
+ - When your teeth are gone, learn to like mush.
+ - She had to find her own story, and she could make it whatever shape she thought best.
+ - Whatever my ancestors did to you, none of them consulted me.
+ - If the bears don’t get you, it’s home.
+ - When it falls on your head, then you are knowing it is a rock.
+
+32 quotes

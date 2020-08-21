@@ -1,0 +1,25 @@
+ - Character contributes to beauty. It fortifies a woman as her youth fades.
+ - We all lose our looks eventually, better develop your character and interest in life.
+ - The deeper interior you have the more you have in your llibrary.
+ - You can sometimes learn more working with less talented people, because you learn to survive.
+ - Older people exude bundles of sexuality. Older men and women tend not run around like cats and dogs in heat.
+ - I have watched people who have nothing to do with the film business, but who have become part of the circle for a short period of time. They can be truly devastated when the film wraps and people leave.
+ - The people who’ve given me sh-t, I say – like my mother – what did she say? She used to say, ‘Go to hell and don’t come back.’ However, however, however, my mother was not entirely me.
+ - What comes first in a relationship is lust – then more lust.
+ - I’d like to work more, but I don’t just want to do kind of generic characters. I want to do interesting characters, and I’d like to be cast against type.
+ - Best beauty tip is forgiveness for yourself and others.
+ - My looks are changing obviously, so I fuss like any woman if I look tired or whatever, I put on weight and blah, blah. But some part of me is very relaxed with it all.
+ - Marriage has just never interested me.
+ - The thing about anything in life is you have to get ready for it. Study, learn and in terms of acting, there’s a lot to learn. The bigger culture you have in life, the better actor you’ll be. You’ll have more to pull on.
+ - Success as a woman has changed me. That’s what I feel is the first thing. When I feel like a successful woman as a rounded human being, then it feeds my work in a broader way so it becomes more interesting.
+ - Sometimes you like the personal adventure implicit in the making of a film, and sometimes you like your part in a film, and sometimes you like the final result.
+ - There is an eternal humanity that crosses through all people, and it’s more interesting often when it’s about struggle – not people with champagne glasses.
+ - You have to forgive everybody. It’s the best beauty treatment.
+ - If people choose to judge how you look, that’s their situation. I didn’t feel that it was a problem. I’ve played all kinds of parts. I’ve played glamorous, and unglamorous, and all kinds of people. People want to pigeon hole you, I think.
+ - There’s something about being with a group of people who become like family that must be needed in society.
+ - I consider myself a character actress, and that’s working out. I’m getting chances to do things. I like the process – I don’t want to pretend I’m something other than what I am.
+ - I have an intense obsession with making films. I not only love to make films, I perhaps need to make films.
+ - I have always watched the rushes, and have learned more because I have done so, because you can have all manner of ideas in your head, but they have to end up on the screen.
+ - Making the decision to do more serious work raises eyebrows. It’s less easy for the industry to deal with...
+
+23 quotes

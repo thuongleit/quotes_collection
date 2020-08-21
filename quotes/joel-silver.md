@@ -1,0 +1,35 @@
+ - Our responsibility as filmmakers is to make things that are fresh, unique and original.
+ - I will always continue to make stupid action films but I think ‘V For Vendetta’ is a very smart film and I think that people will feel differently about things when they see it.
+ - The only time I use women in films is when they’re naked or dead.
+ - I like to produce movies and that’s where I want to be.
+ - I’ve made a lot of stupid action films in my life but I like stupid action films and am kind of proud of them.
+ - We found in ‘The Matrix’ that people were willing to accept something more. It was a smarter film.
+ - I’ve made a lot of stupid action films. But when we made The Matrix, we saw that people wanted more than that.
+ - The core of the movie business remains intact and it’s not descending in scope. Studios want movies that are bigger than ever.
+ - The idea of a youth-based society that you live in for a certain time and then you no longer live anymore is an interesting idea for a movie, but you need young people that people want to go see.
+ - I rather would prefer to see the movie theatrically, which I have the ability to do.
+ - Press conferences are good. I have my own philosophy about press conferences. I usually think that when they don’t like the movie, they ask about other things.
+ - There aren’t a lot of guys like me left. But I’m a war horse. I’ve been through it all. And you know something about war horses? Through the sleet, through the snow, they just keep going.
+ - I’m a filmmaker and I’m proud of the movies I’ve made. But in the background of my life I was also very involved in the creation of the sport.
+ - There’s no such thing as an easy anything.
+ - I did my acting performance in ‘Roger Rabbit.’ I think I did a voice-over also in ‘Osmosis Jones’ and I directed an episode of my show years ago, ‘Tales from the Crypt’ and that’s my endeavors in the non-producer oriented ranks.
+ - I love my iPad. I’ll see television shows that I have missed and I’ll download them through iTunes. If there is an older movie that I want to watch right away, I can download that movie and watch it.
+ - The most effective 3D movies I have ever seen are the animated movies because they are designed.
+ - You know for years before the notion of sequels, actors were the franchise. John Wayne would rarely do sequels, but he kind of played the same guy with a different name in every movie. I have no problem with using actors as franchises. And that’s what is fun to do.
+ - I swam a little bit in high school but I wasn’t a jock.
+ - It’s financially advantageous to make a picture in Berlin, Germany. They have a very effective rebate system.
+ - Movies that tend to be converted or tend to be 3D in a late decision are not effective.
+ - I really was very impressed with DMX during the whole experience on ‘Romeo Must Die.’ I like working with him. I liked him. And I was very impressed with the reaction of the audience when he was in the picture.
+ - I never really was that passionate about playing sports. But when I was at this Mt. Herman school, I did have the ability to throw the frisbee. So when this sport evolved, it was fun because I was good at it.
+ - I want an explosion the size of Cleveland.
+ - I always had the ability to throw a frisbee pretty well. I don’t why.
+ - I always like to make sequels. It’s a nice business to be in.
+ - I’d like to build my company and make a bigger company always, but I think in the behind the scenes arena is where I’d prefer to spend my time.
+ - To watch a movie in 3D when it’s not really planned in 3D is disturbing sometimes.
+ - When California provides the same value as other locations, I’d gladly shoot all my pictures here.
+ - I’m a guy that wants the movie to work. So whatever it takes or whatever you got to do – I’m happy to do.
+ - There are a lot of times where actors can be a little precious sometimes, and then it’s difficult to put them in a situation where there is true hardship.
+ - My movies have always done pretty well in the UK – ‘The Matrix’ films did very well in this country and I do like the crews here and the people we’re working with here.
+ - There is no real kind of specific genre of cost of movies.
+
+33 quotes

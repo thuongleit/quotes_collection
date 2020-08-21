@@ -1,0 +1,47 @@
+ - Being brave means to know something is scary, difficult, and dangerous, and doing it anyway, because the possibility of winning the fight is worth the chance of losing it.
+ - Some are born mad, some achieve madness, and some have madness thrust upon ’em.
+ - I myself am not afraid of ghosts; I am afraid of people.
+ - If you’re going to die, then die. If you are going to live, then fight.
+ - You’re so easy to read but the book is boring me.
+ - There is no such thing as justice, all the best that we can hope for is revenge.
+ - For this freedom I have given all I had For this darkness I gave my light For this wisdom I have lost my innocence Take my petals And cover me with the night.
+ - I’m a big stupid history nerd.
+ - I still own my heart, which I know because it hurts so much.
+ - Awareness is the enemy of sanity, for once you hear the screaming, it never stops.
+ - It gives me strength to have somebody to fight for; I can never fight for myself, but, for others, I can kill.
+ - I cut myself because you wouldn’t let me cry. I cried because you wouldn’t let me speak. I spoke because you wouldn’t let me shine. I shone because I thought you loved me...
+ - I’m bipolar, but I’m not crazy, and I never was. I’m stark raving sane.
+ - Simply put, if you are a Wayward Victorian Girl, I’ll find you.
+ - Oh, and I certainly don’t suffer from schizophrenia. I quite enjoy it. And so do I.
+ - Why can I never go back to bed? Who’s is the voice ringing in my head? Where is the sense in these desperate dreams? Why should I wake when I’m half past dead?
+ - Once upon a time is now.
+ - Why should I wake when I’m half past dead?
+ - Life is not like Gloomy Sunday, with a second ending when the people are disturbed.
+ - We will paste upon the curled pages words Like charming and romantic and sentimental Forgetting that charming is witchcraft Romantic is love And sentiment is what makes us human.
+ - Studies show that intelligent girls are more depressed because they know the world.
+ - There is no suggestion box in the Psych Ward.
+ - I was reading everything under the sun from music history to feminist literature to Shakespeare, which is why I’m not a complete idiot at this time.
+ - I love to write and to get to know the people who are listening.
+ - And if I end up with blood on my hands, well I know, that you’ll understand, ’cause I fight like a girl.
+ - And falling’s just another way to fly.
+ - If you want to be safe, walk in the middle of the street.
+ - If leeches ate peaches instead of my blood, then I would be free to drink tea in the mud!
+ - What if I’m an angel without wings to take me home?
+ - History written in pencil is easily erased, but crayon is forever.
+ - I smile to myself knowing that they may be dead.
+ - I am my heart’s undertaker. Daily I go and retrieve its tattered remains, place them delicately into its little coffin, and bury it in the depths of my memory, only to have to do it all again tomorrow.
+ - My reasons to live Were my reasons to die But at least they were mine Now I’ve freedom unbound Cut the laces of life.
+ - Your stockings prove your virtues. Be certain they are clean and free of tears.
+ - I’ve been completely fascinated with history because it tells everything about what’s going to happen next because it’s cyclical, everything repeats in general.
+ - I am personally not a lover of audiobooks in general, and I am indeed one of those people who don’t count listening to a book being read by someone else as actually having read that book. It simply is not reading.
+ - Nothing in my life has ever made me want to commit suicide more than people’s reaction to my trying to commit suicide.
+ - I only sleep with people I love, which is why I have insomnia.
+ - Shakespeare; the only man I’d ever love...
+ - EA: Is it the smoke that smells like vanilla? Audience: Yeah. EA: Yeah, they do that to mask the chemicals that are actually killing you.
+ - He cried when I left, which I find to be standard male behavior.
+ - I could have guessed it all along, cuz now some drama queen is gonna write a song for me.
+ - Then I break a glass and I slit my very innermost thigh so that I can pretend that I’m menstru – well, unavailable.
+ - I’ve learned that I work best when I’m entirely naked. The recording process was done that way.
+ - We had people fainting during the last tour, but I’m aiming for people to actually drop dead at this one.
+
+45 quotes

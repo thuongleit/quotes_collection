@@ -1,0 +1,54 @@
+ - Never let anyone out work you or out hustle you. Ever.
+ - Make incremental progress, change comes not by the yard, but by the inch.
+ - Long term success is a direct result of what you achieve everyday. Goals provide your daily routine.
+ - Excellence is the unlimited ability to improve the quality of what you have to offer.
+ - Set higher standards for your own performance than anyone else around you, and your only competition will be with yourself.
+ - Success is determined by your daily choices and habits.
+ - Avoid cynical and negative people like the plague. They are killers of potential.
+ - Postponing action is only postponing achievement.
+ - Ego is the greatest killer of one’s potential.
+ - Live in the precious present.
+ - Those who work the hardest are the last to surrender.
+ - Working hard is not always fun – that’s why it is called work.
+ - When you build bridges you can keep crossing them.
+ - When you have a problem, if you tell the truth, the problem becomes part of your past. If you lie, it becomes part of your future.
+ - Learning what not to do is sometimes more important than learning what to do.
+ - Lying makes a problem part of the future; truth makes a problem part of the past.
+ - If you are not willing to work hard and establish discipline in your life, then all your dreams are merely pipe dreams.
+ - All good things have to come to an end, and the male cheerleader has come to an end.
+ - I ignore the jealous, I ignore the malicious, I ignore the ignorant and I ignore the paranoid.
+ - Self-esteem is directly linked to deserving success. You must deserve victory to feel good about yourself.
+ - People with high self esteem are risk takers, but more importantly, they are achievers.
+ - When it comes to team dynamics – on a basketball court or in a corporate setting – maintaining a positive atmosphere is crucial.
+ - I just don’t deal with the negativity. I can’t get involved in that side of it. I don’t understand it, and you can’t let it take away from your life and what you are trying to do.
+ - When you describe passion at any age, passion is derived from everything, from the people you work with to enjoying the last years.
+ - Nothing meaningful or lasting comes without working hard at it.
+ - I’m at the stage of my career when it’s not only about winning and developing players, it’s about having fun. That’s a void in your life right now, but it’s something you’re going to have here.
+ - If I didn’t have a recruiting engagement, I was going to be here. I did everything possible to change the recruiting thing. I’m a very small part of this night, but I did want to be a part of it.
+ - Learning to live in the present tense-one that’s free from the failures of the past and the anxieties of the future-is a wonderful gift, and one you always should be striving for.
+ - Tackle the difficult things first in the morning; make changes in the way you network. Treat everyone with respect and dignity. This stops you from cynicism and negativity. End your day with that same attitude you started. Renew your contract with a day well completed.
+ - The more you lose, the more positive you have to become. When you’re winning, you can ride players harder because their self-esteem is high. If you are losing and you try to be tough, you’re asking for dissension.
+ - Inferior guards play on the sidelines and great guards play in the middle. Isiah, Magic, Chris Paul, all get to the middle.
+ - You are trying not only to reach your potential but to move beyond it. If you are not in the best shape you can be, these things simply become more difficult to achieve.
+ - Every individual in an organization is motivated by something different.
+ - When love and discipline come together you have great chemistry.
+ - Coaches are bridge builders. It’s our job to build a bridge for our athletes to cross over.
+ - At Boston University, I motivated negatively, and I found that although it can work at first, by the end of the year everyone is dying for the year to end and you have lost them. The last two years at BU, I motivated positively and got much better results.
+ - Dreamers are not content with being mediocre.
+ - The basic premise of my system is to fatigue your opponents with constant pressure defensively and constant movement offensively.
+ - Doubt is one of the main paths on the highway to failure.
+ - It’s better to have a good player with the basketball in late game situations than to have plays.
+ - The only way to get people to like working hard is to motivate them. Today, people must understand why they’re working hard. Every individual in an organization is motivated by something different.
+ - A lot of people always use the term, ‘I’m so blessed.’ Most of it they believe is true.
+ - The key to coaching is not what you do, but the way you do it. The intangibles, the motivational parts of the game are the most important facets of it.
+ - He knew I enjoyed the relationships of college basketball. All along, he was the wise one.
+ - I’d learned how much happiness money can bring you. Very little.
+ - I can say that hands down from being in this business 32 years; we’re going to be much better than we were last year just because there’s eight new players that now have experience and Palacios will be healthy.
+ - I learned quickly that motivating people would be the most important responsibility of my career.
+ - After September 11, I don’t think people really believe things like this are all that important.
+ - Francisco Garcia could have been a high draft choice last year, probably in the 20s. He’s the best wing player I’ve ever coached. But he’s done it the right way. He knew he had to work on his body to become a good pro. When he goes into the pros, he’ll be physically ready.
+ - It could happen to anyone when you get hired by a different president. There’s a difference in philosophies. It happens. It’s a change in CEOs. They have their own people, their own philosophies, and it’s different than what Bob stands for.
+ - True motivation is not getting people to play to their potential. It’s getting people to play beyond their potential.
+ - Failure is good. It’s fertilizer. Everything I’ve learned about coaching I’ve learned from making mistakes.
+
+52 quotes

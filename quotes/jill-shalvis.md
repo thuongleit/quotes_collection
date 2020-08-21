@@ -1,0 +1,55 @@
+ - Don’t take life too seriously. After all none of us are getting out alive anyway.
+ - Smile. It’s the second best thing you can do with your lips.
+ - Accept that some days you’re the bug, and some days you’re going to be the windshield.
+ - Chocolate is cheaper than therapy, and you don’t need an appointment.
+ - There are four basic food groups: plain chocolate, milk chocolate, dark chocolate, and white chocolate.
+ - Men are like roses. You have to watch out for the pricks.
+ - My mom told me that I should trust the man who could see the sorrow behind my smile, the love behind my anger, and the reasons behind my silence.
+ - Just when you think you’ve hit rock bottom, someone will hand you a shovel.
+ - When you don’t know what you’re doing, fake it.
+ - Live as big as you can, with what you’ve got.
+ - Obeying the rules might be smart, but it’s not as nearly as much fun.
+ - Never do anything that you don’t want to have to explain to 9-1-1 personnel.
+ - The calories in chocolate don’t count because chocolate comes from the cocoa bean, and everyone knows that beans are good for you.
+ - They say money talks, but all mine ever says is ’good-bye sucker.’
+ - Sisters are the true friends who ask how you are, and then wait to hear the answer.
+ - It’s frustrating when you know all the answers, but nobody bothers to ask you the questions.
+ - He knew he had no right to touch her, crave her like air, but he did both. And when he put his mouth on hers, he recognized the taste of her, like she’d been made just for him.
+ - I tried to keep my distance, but my world doesn’t work without you in it.
+ - A thong. God bless the thong. He hooked his fingers in the silk sides and tugged, rolling the silk down her legs until it hit the floor, his favorite place for panties.
+ - For some unknown reason, success usually occurs in private, while failure occurs in full view.
+ - Remember, you’re unique. And so is everyone else.
+ - Men are like a fine wine. They all start out like grapes, and it’s our job to stomp on them and keep them in the dark until they mature into something you’d like to have dinner with.
+ - I’m already yours. Always have been. All you have to do is step into the ring.
+ - All you have to do is take a man at face value. Don’t go into it thinking you can change them. Men aren’t fixer-uppers, not like a house or a car. You buy them as is.
+ - If it’s going to be two against one, make sure you aren’t the one.
+ - How about we give each other everything we can and not blame each other for what we can’t.
+ - Half the people in Lucky Harbor were in love with him. The other half were men and didn’t count.
+ - As for the military or service professionals, I have nothing but respect for them, but come on, when it comes to romance novels, we all know it’s really about the uniforms and how the guys look in them!
+ - Strength is the ability to break up a solid piece of chocolate – and then eat just one of the pieces.
+ - He was in uniform, gun at his hip, expression dialed to Dirty Harry, and just looking at him had something pinging low in Chloe’s belly.
+ - He can cook and give good massages. What more do you need in a husband?
+ - Oh boy. His chest was smooth and warm and hard as stone, and she wanted to both touch and nibble. And lick. Could she pretty please lick?
+ - God save her from annoying Alphas.
+ - A conclusion is the place you get to when you’re tired of thinking.
+ - When I’m writing, the romance is always the most important thing to me, but I really love adding in slices of real life, and for me that real life always includes animals.
+ - He turned to shut and lock the door, then came close, his gaze touching her features. “I missed you, Holly.” Her heart caught painfully. The poor organ seemed to be getting quite the workout lately.
+ - Go away. I hate everyone right now, and I’m pretty sure that includes you.
+ - Note to self-give serious thought to becoming an alcoholic.
+ - Men exist because a vibrator can’t fix a flat tire. On second thought, I should just buy a AAA card...
+ - Why, so you can charm my panties off again?
+ - Tag opened the door to his knock, and with a look of disappointment, peered behind Wade. “You got someone better coming over?” Wade asked him. “Pizza,” Tag said.
+ - The smile made her want to hug him, and maybe love him up some more. Stupid smile.
+ - I threatened to kung fu you. Oh my God.
+ - A small part of her secretly hoped she caught him in bed. But that really was a very small part. The bigger part hoped he was in the shower.
+ - Try asking sometime. Not all women will stand for that 50 Shades crap, you know.
+ - Sounds like you kids have some talking to do. I’ll be eavesdropping from the kitchen.
+ - It was not enough. It was too much. It was everything.
+ - Honest to God, she was the noisiest woman he’d ever been shot at with.
+ - I’m not defined by what people think of me. My happiness comes from within.
+ - You could start an argument in an empty house.
+ - I’d tell him to go to hell, but it just so happens I’m stuck there and don’t want to have to see him every day.
+ - Oh good Lord. She definitely hadn’t put on enough deodorant for this.
+ - In his world, people never questioned him. And it was a good place to be, his world. Apparently she hadn’t gotten the memo.
+
+53 quotes

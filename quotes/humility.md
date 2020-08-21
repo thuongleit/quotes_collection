@@ -1,0 +1,42 @@
+ - Pride is concerned with who is right. Humility is concerned with what is right. ~~Ezra Taft Benson
+ - Humility is not denying your strengths, humility is being honest about your weaknesses. ~~Rick Warren
+ - A humble man is not afraid of failure. In fact, he is not afraid of anything, even himself, since perfect humility implies perfect confidence in the power of God. ~~Thomas Merton
+ - Greatness is not found in possessions, power, position, or prestige. It is discovered in goodness, humility, service, and character. ~~William Arthur Ward
+ - It was pride that changed angels into devils; it is humility that makes men as angels. ~~Saint Augustine
+ - Humility and patience are the surest proofs of the increase of love. ~~John Wesley
+ - Humility is dependence on God as pride is independence of Him. The humble soul is always the thankful soul. ~~Fulton J. Sheen
+ - Know that transformation sometimes begins with a fall. So never curse the fall. The ground is where humility lives. Take it. Learn it. Breathe it in. And then come back stronger, humbler and more aware of your need for Him. Come back having seen your own nothingness and His greatness. ~~Yasmin Mogahed
+ - Stay hungry, stay young, stay foolish, stay curious, and above all, stay humble because just when you think you got all the answers, is the moment when some bitter twist of fate in the universe will remind you that you very much don’t. ~~Tom Hiddleston
+ - We come nearest to the great when we are great in humility. ~~Rabindranath Tagore
+ - Thirteen virtues necessary for true success: temperance, silence, order, resolution, frugality, industry, sincerity, justice, moderation, cleanliness, tranquility, chastity, and humility. ~~Benjamin Franklin
+ - Let your old age be childlike, and your childhood like old age; that is, so that neither may your wisdom be with pride, nor your humility without wisdom. ~~Saint Augustine
+ - Humility is born of the spirit, humiliation of the ego. ~~Alan Cohen
+ - True intimacy with God always brings humility. ~~Beth Moore
+ - Do you wish to rise? Begin by descending. You plan a tower that will pierce the clouds? Lay first the foundation of humility. ~~Saint Augustine
+ - The true way and the sure way to friendship is through humility-being open to each other, accepting each other just as we are, knowing each other. ~~Mother Teresa
+ - Pride divides the men, humility joins them. ~~Socrates
+ - Humans think they are smarter than dolphins because we build cars and buildings and start wars etc., and all that dolphins do is swim in the water, eat fish and play around. Dolphins believe that they are smarter for exactly the same reasons. ~~Douglas Adams
+ - Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. ~~Albert Schweitzer
+ - Actual Gratitude is the Symptom of Humility. ~~Radhanath Swami
+ - Humility is not disgraceful, and carries no loss of true pride. ~~Ernest Hemingway
+ - I deserted the world and sought solitude because I became tired of rendering courtesy to those multitudes who believe that humility is a sort of weakness, and mercy a kind of cowardice, and snobbery a form of strength. ~~Khalil Gibran
+ - The reality is that everybody makes mistakes. The issue isn’t whether you will make them, it’s what you will do about them. It’s whether you will choose the path of humility and courage or the path of ego and pride. ~~Stephen R. Covey
+ - Humility has such power. Apologies can disarm arguments. Contrition can defuse rage. Olive branches do more good than battle axes ever will. ~~Max Lucado
+ - You can’t have everything. Where would you put it? ~~Steven Wright
+ - Perfection is impossible without humility. Why should I strive for perfection, if I am already good enough? ~~Leo Tolstoy
+ - Something very beautiful happens to people when their world’s fallen apart: a humility, a nobility, a higher intelligence emerges at just the point when our knees hit the floor. ~~Marianne Williamson
+ - Steadfastness is a noble quality, but unguided by knowledge or humility, it becomes rashness, or obstinacy. ~~Aaron Swartz
+ - Good things come in small packages. ~~Aesop
+ - Community is where humility and glory touch. ~~Henri J.M. Nouwen
+ - There’s a belief that you’re supposed to be poor, and suffering, and show your humility. I just don’t see the Bible that way. I see that God came and Jesus died so that we might live an abundant life and be a blessing to others. ~~Joel Osteen
+ - Do not be afraid to be holy! Have the courage and humility to present yourselves to the world determined to be holy, since full, true freedom is born from holiness. ~~Pope John Paul II
+ - One has to be alone, under the sky, Before everything falls into place and one finds his or her own place in the midst of it all. We have to have the humility to realize ourselves as part of nature. ~~Thomas Merton
+ - The emotional reaction in the peak experience has a special flavor of wonder, of awe, of reverence, of humility and surrender before the experience as before something great. ~~Abraham Maslow
+ - Astronomy, as nothing else can do, teaches men humility. ~~Arthur C. Clarke
+ - The fruit of wisdom is Christlikeness, peace, humility and love. And, the root of it is faith in Christ as the manifested wisdom of God. ~~J.I. Packer
+ - We are all apprentices in a craft where no one ever becomes a master. ~~Ernest Hemingway
+ - The world will be saved by the western woman. ~~Dalai Lama XIV
+ - If God listened to the prayers of men, all men would quickly have perished: for they are forever praying for evil against one another. ~~Epicurus
+ - Recite your Rosary with faith, with humility, with confidence, and with perseverance. ~~Louis de Montfort
+
+40 quotes

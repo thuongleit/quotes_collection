@@ -1,0 +1,45 @@
+ - Face your fear Accept your war it is what it is.
+ - I have sold my soul. Just sign right here.
+ - You have to have passion for what you’re doing.
+ - It’ll leave you feeling hollow and helpless, and there is where you’ll stay. Ain’t it funny child, love sometimes leaves you as dead as yesterday.
+ - One day my wife went and saw the accountant and said she’s pulling the plug. She said you guys are done. I said, how bad can it be? 10 grand? She said you’re not even close. It came out to almost $50,000 in alcohol for two months.
+ - I’m a good Catholic boy.
+ - Whatever it is you love, and whatever it is that you want to do, that’s what you should be doing.
+ - We were sitting on the bus one day and there were 5 of us hanging out. There was only one beer left in the cooler and we actually all took a little cup and split it. It was a pathetic day in a rock and roll when five grown men have to be sitting there sharing a beer.
+ - If you have passion for what you want to do and that’s what you want to do, you’ve just got to bust your balls and go for it if you want to play music.
+ - I’m blessed to be able to do what I do.
+ - Another Black Label motto. That’s what I think life is. It’s just another bridge to cross. You ask no questions. Whatever work it is you gotta do, you gotta go over it, under it, through it, around it, to do it.
+ - Without a doubt, Eddie Van Halen is the greatest guitar player who has ever lived.
+ - I’ve messed myself up more playing music than when I played football.
+ - That’s why for Zakk Wylde’s Black Label Society the colors are black and white. There are no gray issues. Life is black and it’s white. There’s no in-between.
+ - Had an awesome time. You tell me to show up and all I have to do is drink beer, play guitar all day and I can lift weights and you’re going to pay me for this!
+ - You’re never going to learn everything.
+ - You never toot your own horn.
+ - It’s pure Black Label. It’s about violence and booze. That’s all it is. There is no plan.
+ - If you bleed Black Label and you’re going to be a man, you gotta get up there and do what you gotta do every day, relentless and as tired as you can be.
+ - As much as I love heavy riffs, I like The Eagles, Neil Young, Elton John, Crowded House.
+ - Every day you try to get better.
+ - On the tour we get a case of beer on the bus every day from Ozzfest.
+ - The work these brave men and women do is extremely important, not only to our nation but to all the countries that our troops are stationed at around the world. I am grateful to the USO for having us and to all the troops who shared their day with us.
+ - If somebody says they really like my playing I say thanks a lot.
+ - I screwed my knee up once because I fell off the stage.
+ - The one thing about the music business is that there is no rulebook. It’s not like the NFL or something where there’s four downs to get ten yards or baseball where it’s three strikes and you’re out.
+ - Every night I get up on stage, I love it. I never get like, ‘Oh, I’m bored, I want to go home.’ I never, ever get like that.
+ - I feel sorry for these kids in bands. Everything is so disposable nowadays. These kids don’t even get 15 minutes of fame, it’s like a minute and a half.
+ - Another time I cracked two of the vertebrae in my back and broke a rib.
+ - There are no rules in the entertainment business.
+ - It isn’t a band. It’s bigger than a band. It’s a lifestyle.
+ - Even when I played sports when I was little, I played to win. Otherwise, what’s the point of putting the pads on and going to practice? I don’t understand.
+ - You have to have passion for anything you do. Whether it’s sports, whether it’s music, whether you want to be Mother Theresa, you have to have passion for what it is you do, or what’s the point in getting up in the morning and getting out of bed?
+ - Live, it’s just the free flow and the energy and the excitement. It’s a one-off and you have that adrenaline for an hour and a half.
+ - If I’m playing with Ozzy it’s just a guitar thing. But with the vocals I feel like I’m studying for the SATs.
+ - Any guy that’s not working with the same amount of intensity and passion that I do, I don’t want to know.
+ - Because with Black Label and all the fans it’s just one big family.
+ - I knew that I was going to dedicate my life to music and that was it...
+ - You’ve got certain guys that just want to be famous and then you’ve got the real musicians that just love playing music.
+ - The tours are campaigns.
+ - There’s only one Sabbath guitarist and he is the architect for everything, Tony Iommi.
+ - Since day one my thing has always been to play the music.
+ - Chris Jericho is a great guy. He’s beyond hysterical. He’s good people. They’re really good. Chris wanted me to throw down a solo. He sent it to me and I knocked it out.
+
+43 quotes
